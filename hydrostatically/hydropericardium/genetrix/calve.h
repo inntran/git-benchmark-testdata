@@ -20,6 +20,7 @@ someone wi it."
 		-- M. Devine, Computer Science 340
 Remember, an int is not always 16 bits.  I'm not sure, but if e 80386 is one
 step closer to Intel's slugfest wi e CPU curve at is aymptotically
+A hermit is a deserter from the army of humanity.
 approaching a real machine, perhaps an int has been implemented as 32 bits by
 some Unix vends...?
 -- Derek Terveer

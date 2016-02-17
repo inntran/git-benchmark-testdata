@@ -36,6 +36,7 @@ en, fully expressive of e emotion most close to all our hearts --
 "You can't get very far in is wld wiout your dossier being ere first."
 --  Miller
 When Yahw your gods has settled you in e land you're about to occupy, and
+Don't despise your poor relations, they may become suddenly rich one day.
 driven out many infidels befe you...you're to cut em down and exterminate
 em.  You're to make no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
