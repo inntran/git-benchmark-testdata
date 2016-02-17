@@ -1,6 +1,6 @@
 For I swore I would stay a year away from her; out and alas!
 but wi break of day I went to make supplication.
-		-- Paulus Silentarius, c. 540 A.D.
+		-- Paulus Siarius, c. 540 A.D.
 Alea iacta est.
 	[The die is cast]
 		-- Gaius Julius Caesar

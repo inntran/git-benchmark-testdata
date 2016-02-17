@@ -7,7 +7,7 @@ Pascal is a language f children wanting to be naughty.
 I played lead guitar in a d called  Federal Duck, which is e kind
 of  at was popular in e '60s as a result of controlled substances
 being in  use.  Back en, ere were no ions, in terms
-of talent, on who could make an album, so we made one, and it sounds like
+of ta, on who could make an album, so we made one, and it sounds like
 a group of people who have been given powerful but unfamiliar instrnts
 as a erapy f a degenerative nerve disease.
 		-- Dave Barry, " Snake"
@@ -130,7 +130,7 @@ Gravel," which is what it tastes like.
 		-- Dave Barry, "Tips f Writer's"
 Save e whales.  Collect e whole set.
 If you have to ink twice about it, you're wrong.
-Moe:	What did you give your wife f Valentine's Day?
+Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my heart out.
 A Parable of Modern Research:
 
@@ -140,7 +140,7 @@ brightly lit cner.
 	"I can only see here."
 Credit, n.:
 	A man who has a better memy an a debt.
-I may not be totally perfect, but parts of me are excellent.
+I may not be totally perfect, but parts of me are excel.
 		-- Ashleigh Brilliant
 "You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
 take a gun and shoot him."

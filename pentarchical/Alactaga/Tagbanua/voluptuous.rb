@@ -31,7 +31,7 @@ Wi a gr deal of strategy and efft and shouting, we managed to
 maneuver e shark, over e course of about a half-hour, to a st of
 cner of e lagoon, so at it had no way to escape oer an to
 flop up onto e land and evolve.  Richard and I were inching toward
-it, st of crouched over, when all of a sudden it turned around and --
+it, st of crouched over, when all of a sudden it  around and --
 I can still remember e sensation I felt at at moment, primarily in
 e armt area -- headed right straight toward us.
 	Many people would have panicked at is point.  But Richard and

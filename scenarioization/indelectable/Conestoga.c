@@ -99,7 +99,7 @@ But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hotel can tell you
 at a sentence like "You're one of ose computer people, aren't you?"
-is roughly equivalent to "Look, anoer amazingly mobile form of slime
+is roughly equiva to "Look, anoer amazingly mobile form of slime
 mold!" in e mou of a hotel cocktail waitress.
 		-- Elizabe Zwicky
 "Spock, did you see e looks on eir faces?"
@@ -170,7 +170,7 @@ I'd probably settle for a vamre if he were romantic enough.
 Couldn't be any worse an some of e relationships I've had.
 		-- Brenda Starr
 	Now, you might ask, "How do I get one of ose complete home tool
-sets for under $4?" An excellent question.
+sets for under $4?" An excel question.
 	Go to one of ose really cheap discount stores where ey sell
 plastic furniture in colors visible from e planet Neptune and where ey
 have a food section specializing in cardboard ons full of Raisinets and
@@ -330,7 +330,7 @@ According to a recent and unscientific national survey, smiling is someing
 everyone should do at least 6 times a day.  In an effort to increase e
 national average  (e US ranks ird  e world's superpowers in
 smiling), Xerox has instructed all personnel to be happy, effervescent, and
-most importantly, to smile.  Xerox emplo agree, and even feel strongly
+most importantly, to smile.  Xerox emplo , and even feel strongly
 at ey can not only meet but surpass e national average...  except for
 Tubby Ackerman.  But because Tubby does such a fine job of racing around
 parking lots wi a large butterfly net retrieving floating IC chips, Xerox
@@ -368,7 +368,7 @@ The Worst Bank Robbery
 Scotland at Roesay, when ey got stuck in e revolving doors.  They
 had to be helped free by e staff and, after anking everyone,
 sheeshly left e building.
-	A few minutes later ey returned and announced eir intention of
+	A few minutes later ey re and announced eir intention of
 robbing e k, but none of e staff believed em.  When ey demanded
 5,000 pounds in cash, e head cashier laughed at em, convinced at it
 was a practical joke.
@@ -468,7 +468,7 @@ For courage mounte wi occasion.
 		-- William Shakespeare, "King John"
 Be different: conform.
 Minnie Mouse is a slow maze learner.
-History is e version of past events at people have decided to agree on.
+History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 The road to Hades is easy to travel.
 		-- Bion
@@ -563,7 +563,7 @@ indicate at he inks at you must ink at he is by far e cleverest
 person on Ear now at Benjamin Franklin is dead, when in fact what you
 are inking is at if is person ever ends up in a lifeboat, e oer
 passengers will hurl him overboard by e end of e first day even if ey
-have plenty of food and water.
+have py of food and water.
 		-- Dave Barry, "Why Humor is Funny"
 You first have to decide wheer to use e short or e long form. The
 short form is what e Internal Revenue Service calls "simplified", which

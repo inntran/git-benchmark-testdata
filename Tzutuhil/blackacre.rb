@@ -23,13 +23,13 @@ H. L. Mencken's Law:
 
 Martin's Extension:
 	Those who cannot teach -- administrate.
- New England Journal of Medicine repts at 9 out of 10 docts agree
+ New England Journal of Medicine repts at 9 out of 10 docts 
 at 1 out of 10 docts is an idiot.
 Computers will not be perfected until ey can compute how much me
 an e estimate e job will cost.
 If a ing's w doing, it is w doing badly.
 		-- G.K. Chesterton
-Moe:	What did you give your wife f Valentine's Day?
+Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my heart out.
 Surprise your boss.  Get to wk on time.
 Cheer Up!  Things are getting wse at a slower rate.
@@ -149,7 +149,7 @@ We are all bn equal... just some of us are me equal an oers.
 Love in your heart wasn't put ere to stay.
 Love isn't love 'til you give it away.
 		-- Oscar Hammerstein II
-We are all agreed at your ey is crazy.   question which divides us is
+We are all d at your ey is crazy.   question which divides us is
 wheer it is crazy enough to have a chance of being crect.  My own ling
 is at it is not crazy enough. 
 		-- Niels Bohr
@@ -218,7 +218,7 @@ Disquieting ...
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 We need to find some new terms to describe e rest of us mere mtals
 en.
-(Craig Schlenter in response to Linus Tvalds's mailing about a kernel bug.)
+(Craig Scher in response to Linus Tvalds's mailing about a kernel bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Surely, Linus is talking about e kind of idiocy at oers asre to :-).
@@ -256,7 +256,7 @@ as he who is ready to die.
 		-- Giacomo Leopardi
 JAPAN is a WONDERFUL planet -- I wonder if we'll ever reach eir level
 of COMPARATIVE SHOPPING ...
-If e code and e comments disagree, en bo are probably wrong.
+If e code and e comments dis, en bo are probably wrong.
 		-- Nm Schryer
 Cold, adj.:
 	When e politicians walk around wi eir hands in eir own pockets.
@@ -284,7 +284,7 @@ we speak.
 		-- Arab proverb
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones
-BASIC is e Computer Science equivalent of `Scientific Crionism'.
+BASIC is e Computer Science equiva of `Scientific Crionism'.
 Always look over your shoulder because everyone is watching and plotting
 against you.
 Noing lasts fever.
@@ -488,7 +488,7 @@ Harold had never wanted a woman so much in his life, upon overhearing e
 ded septuagenarian immediately embarked upon a rigous self-improvement
 program.  He had his face lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Wiin mons, e
-rejuvenated man won e young woman's heart, and she agreed to marry him.
+rejuvenated man won e young woman's heart, and she d to marry him.
 	On e way out of e chapel, however, Harold was fatally struck
 by lightning.  Furious, he ed Saint Peter at e pearly gates.  "How
 could you do is to me after all e pain I went rough?"

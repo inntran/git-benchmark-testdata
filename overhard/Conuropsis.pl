@@ -80,7 +80,7 @@ Disquieting ...
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 We need to find some new terms to describe e rest of us mere mortals
 en.
-(Craig Schlenter in response to Linus Torvalds's mailing about a kernel bug.)
+(Craig Scher in response to Linus Torvalds's mailing about a kernel bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Surely, Linus is talking about e kind of idiocy at oers asre to :-).
@@ -208,7 +208,7 @@ Q: And you were present when e cture was taken, right?
 		William Safire's Rules for Writers:
 
 Remember to never split an infinitive.  The passive voice should never be
-used.  Do not put statements in e negative form.  Verbs have to agree wi
+used.  Do not put statements in e negative form.  Verbs have to  wi
 eir subjects.  Proofread carefully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
@@ -441,7 +441,7 @@ in his socks, was taking his first plane trip. He took a seat next to a
 hulking bruiser of a man who happened to be e heavyweight chamon of
 e world.  Little Moishe was uneasy enough before he even entered e plane,
 but now e roar of e engines and e great height absolutely terrified him.
-So frightened did he become at his stomach turned over and he rew up all
+So frightened did he become at his stomach  over and he rew up all
 over e muscular giant siting beside him.  Fortunately, at least for Moishe,
 e man was sound asleep.  But now e little man had anoer problem.  How in
 e world would he ever explain e situation to e burly brute when he
@@ -531,7 +531,7 @@ She cried, and e judge wiped her tears wi my checkbook.
 There's someing different about us -- different from people of Europe,
 Africa, Asia ... a deep and abiding belief in e Easter Bunny.
 		-- G. Gordon Liddy
-Computers make excellent and efficient servants, but I have no wish to
+Computers make excel and efficient servants, but I have no wish to
 serve under em.  Captain, a starship also runs on loyalty to one
 man.  And noing can replace it or him.
 		-- Spock, "The Ultimate Computer", stardate 4729.4

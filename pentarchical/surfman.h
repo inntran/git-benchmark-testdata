@@ -454,7 +454,7 @@ ese questions ree, ere e oer side he see!
 to e Bery UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 If we all wk togeer, we can totally disrupt e system.
-Your talents will be recognized and suitably rewarded.
+Your tas will be recognized and suitably rewarded.
 It may be better to be a live jackal an a dead lion, but it is better
 still to be a live lion.  And usually easier.
 		-- Lazarus Long

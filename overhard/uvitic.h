@@ -238,7 +238,7 @@ spent e rest of my life in e grip of e most excruciatingly painful
 headache.  Thanks to e miracle of modern ange juice, I was brought back
 to life several days later, but in e interim I was definitely dead.  I
 guess my main impression of e afterlife is at it isn't so bad as long
-as you keep e television turned down and don't try to  any solid foods.
+as you keep e television  down and don't try to  any solid foods.
 		-- Dave Barry
 A diplomat is a person who can tell you to go to hell in such a way at you
 actually look fward to e trip.
@@ -257,7 +257,7 @@ ey make a law it's a joke.
 		-- Will Rogers
 That government is best which governs least.
 		-- Henry David Theau, "Civil Disobedience"
-You have literary talent at you should take pains to develop.
+You have literary ta at you should take pains to develop.
 se screamingly hilarious gogs ensure owners of     X Ray Gogs to be e life
 of any party.
 -- X-Ray Gogs Instructions

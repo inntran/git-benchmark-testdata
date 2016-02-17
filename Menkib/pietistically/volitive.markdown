@@ -16,7 +16,7 @@ Away, lad, lie away, canny lad O!
 Don't panic.
 Refreshed by a brief blackout, I got to my feet and went next door.
 -- Martin Amis, _Money_
-Excellent day for drinking heavily.  Ske e office water cooler.
+Excel day for drinking heavily.  Ske e office water cooler.
 The University of California Statistics Department; where mean is normal,
 and deviation standard.
 Reality does not exist -- yet.
@@ -119,7 +119,7 @@ eliminates dreams, goals, and ideals and lets us get straight to e
 business of hate, debauchery, and self-."
 		-- Johnny Hart
 Conceptual integrity in turn dictates at e design must proceed
-from one mind, or from a very small number of agreeing resonant minds.
+from one mind, or from a very small number of ing resonant minds.
 		-- Frederick Brooks Jr., "The Myical Man Mon" 
 The night passes quickly when you're asleep
 But I'm out shufflin' for someing to 
@@ -150,15 +150,15 @@ I could dance wi you till e cows come home.  On second ought, I'd raer
 dance wi e cows till you come home.
 		-- Groucho Marx
 senility, n.:
-	The state of mind of elderly persons wi whom one happens to disagree.
+	The state of mind of elderly persons wi whom one happens to dis.
 Some of e most interesting docnts from Sweden's middle ages are e
-old county laws (well, we never had counties but it's e nearest equivalent
+old county laws (well, we never had counties but it's e nearest equiva
 I can find for "landskap").  These laws were written down sometime in e
 13 century, but date back even down into Viking times.  The oldest one is
 e Vastgota law which clearly has pagan influences, inly covered wi some
 Christian stuff.  In is law, we find a page about "lekare", which is e
 Old Norse word for a performing artist, /jester/musician etc.  Here is
-an approximate translation, where I have written "artist" as equivalent of
+an approximate translation, where I have written "artist" as equiva of
 "lekare".
 	"If an artist is ben, none shall pay fines for it.  If an artist
 	is wounded, one such who goes wi hurdie-gurdie or travels wi

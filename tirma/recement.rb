@@ -38,7 +38,7 @@ Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twelve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
-The most disagreeable thing that your worst enemy says to your face does
+The most disable thing that your worst enemy says to your face does
 not approach what your best friends say behind your back.
 		-- Alfred De Musset
 Passionate hatred can give meaning and purpose to an empty life.
@@ -214,7 +214,7 @@ C'est magnifique, mais ce n'est pas la guerre!
 Here is a simple experiment that will teach you an important electrical
 lesson: On a cool, dry day, scuff your feet along a carpet, then reach your
 hand into a friend's mouth and touch one of his dental fillings.  Did you
-notice how your friend twitched violently and cried out in pain?  This
+notice how your friend twitched violy and cried out in pain?  This
 teaches us that electricity can be a very powerful force, but we must never
 use it to hurt others unless we need to learn an important electrical lesson.
 	It also teaches us how an electrical circuit works.  When you scuffed
@@ -255,7 +255,7 @@ A Tale of Two Cities LITE(tm)
 Crime and Punishment LITE(tm)
 	-- by Fyodor Dostoevski
 
-	A man sends a nasty letter to a pawnbroker, but later
+	A man sends a nasty letter to a pbroker, but later
 	feels guilty and apologizes.
 
 The Odyssey LITE(tm)
@@ -286,7 +286,7 @@ Nature, to be commanded, must be obeyed.
 If a team is in a positive frame of mind, it will have a good attitude.
 If it has a good attitude, it will make a commitment to playing the
 game right.  If it plays the game right, it will win -- unless, of
-course, it doesn't have enough talent to win, and no manager can make
+course, it doesn't have enough ta to win, and no manager can make
 goose-liver pate out of goose feathers, so why worry?
 		-- Sparky Anderson
 Your sister swims out to meet troop ships.
@@ -333,13 +333,13 @@ really think?"  I say, "I just told you what I really think."  "Yeah, but
 what's your gut feeling?"  But I try not to think with my gut.  Really, it's
 okay to reserve judgment until the evidence is in.
 - Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
-I couldn't possibly fail to disagree with you less.
+I couldn't possibly fail to dis with you less.
 OS/2 must die!
 Logic is the chastity belt of the mind!
 It's really quite a simple choice: Life, Death, or Los Angeles.
 Reisner's Rule of Conceptual Inertia:
 	If you think big enough, you'll never have to do it.
-There are three possibilities: Pioneer's solar panel has turned away from
+There are three possibilities: Pioneer's solar panel has  away from
 the sun; there's a large meteor blocking transmission; someone loaded Star
 Trek 3.2 into our video processor.
 He who renders warfare fatal to all engaged in it will be the greatest
@@ -445,7 +445,7 @@ of facts is no more a science than a heap of stones is a house.
 Shannon's Observation:
 	Nothing is so frustrating as a bad situation that is beginning to
 	improve.
-"Silent gratitude isn't very much use to anyone."
+"Si gratitude isn't very much use to anyone."
 -- G. B. Stearn
 A priest asked: What is Fate, Master?
 	And the Master answered:

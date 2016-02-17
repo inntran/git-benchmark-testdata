@@ -90,7 +90,7 @@ BYTE, BYTE, BYTE !!!
 Try to divide your time evenly to keep oers happy.
 The road to Hades is easy to travel.
 		-- Bion
-History is e version of past events at people have decided to agree on.
+History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 If I had a Q-TIP, I could prevent ' collapse of NEGOTIATIONS!!
 Remember e good old days, when CPU was singular?

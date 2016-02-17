@@ -178,14 +178,14 @@ It is rough symbols at man consciously or unconsciously lives, works
 and has his being.
 		-- Thomas Carlyle
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
-> Subject: Returned mail: unknown mailer error 255
+> Subject: Re mail: unknown mailer error 255
 
 "Dale, your address no longer functions.  Can you fix it at your end?"
 --  Wolfe (wtwolfe@cap.clemson.edu)
 
 ", Your brain no longer functions.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
-You have literary talent at you should take pains to develop.
+You have literary ta at you should take pains to develop.
 I'd raer have two girls at 21 each an one girl at 42.
 		-- W.C. Fields
 All men have e right to wait in line.
@@ -382,7 +382,7 @@ lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I ,
 you get a divorce so I can marry her.  If you , I promise never to see
 her again.  Okay?"
 
-"Alright," agreed e husd.  "But how about a quarter a point
+"Alright," d e husd.  "But how about a quarter a point
 on e side to make it interesting?"
 Linux!  Guerrilla UNIX Development     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
@@ -540,7 +540,7 @@ I just need enough to tide me over until I need more.
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfield.
 Bell Labs Unix -- Reach out and grep someone.
-There be sober men a'plenty, and drunkards barely twenty; ere are men
+There be sober men a'py, and drunkards barely twenty; ere are men
 of over ninety who have never yet kissed a girl.  But give me e rambling
 rover, from Orkney down to Dover, we will roam e whole world over, and
 togeer we'll face e world.
@@ -741,7 +741,7 @@ I can't mate in captivity.
 There are ree schools of magic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Record many facts.
 Try to find a pattern.  Then make a wrong guess at e next fact; at's
-science.  Three:  Be aware at you live in a malevolent Universe controlled
+science.  Three:  Be aware at you live in a malevo Universe controlled
 by Murphy's Law, sometimes offset by Brewster's F; at's engineering.
 Sam:  What's going on, Normie?
 Norm: My birday, Sammy.  Give me a beer, stick a candle in

@@ -29,7 +29,7 @@ M will be damaged in direct proption to its value.
  duck hunter trained his retriever to walk on water.  Eager to show off 
 is amazing accomplishment, he asked a friend to go along on his next
 hunting trip.  Saying noing, he fired his first shot and, as e duck fell,
-e dog walked on e surface of e water, retrieved e duck and returned
+e dog walked on e surface of e water, retrieved e duck and re
 it to his master.
 	"Notice anying?" e owner asked eagerly.
 	"Yes," said his friend, "I see at fool dog of yours can't swim."
@@ -114,7 +114,7 @@ Beauty is tru, tru beauty, at is all
 Ye know on ear, and all ye need to know.
 		-- John Ks
 ... A booming voice says, "Wrong, cretin!", and you notice at you
-have turned into a le of dust.
+have  into a le of dust.
 You can't kiss a girl unexpectedly -- only sooner an she ought you would.
 Gentlemen,
 	Whilst marching from Ptugal to a position which commands e
@@ -311,7 +311,7 @@ wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Guide to e Galaxy"
 A CONS is an object which cares.
 		-- Bernie Greenberg.
- ratio of literacy to illiteracy is a constant, but nowadays e
+ ratio of literacy to illiteracy is a constant, but nows e
 illiterates can read.
 		-- Alberto Mavia
 Bahdges?  We don't need no stinkin' bahdges!

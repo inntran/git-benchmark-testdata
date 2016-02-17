@@ -261,7 +261,7 @@ We place two copies of PEOPLE magazine in a DARK, HUMID mobile home.
 You will overcome the attacks of jealous associates.
 Save yourself!  Reboot in 5 seconds!
 You are confused; but this is your normal state.
-After the game the king and the pawn go in the same box.
+After the game the king and the p go in the same box.
 		-- Italian proverb
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
@@ -343,7 +343,7 @@ I think very probably he might be cured."
 	"Now, what affects it?"
 	"Ah!" said old Yacob.
 	"This," said the doctor, answering his own question.  "Those queer
-things that are called the eyes, and which exist to make an agreeable soft
+things that are called the eyes, and which exist to make an able soft
 depression in the face, are diseased, in the case of Bogota, in such a way
 as to affect his brain.  They are greatly distended, he has eyelashes, and
 his eyelids move, and cosequently his brain is in a state of constant
@@ -468,7 +468,7 @@ MAC user's dynamic debugging list evaluator?  Never heard of that.
 MOUNT TAPE U1439 ON B3, NO RING
 Telephone, n.:
 	An invention of the devil which abrogates some of the advantages
-	of making a disagreeable person keep his distance.
+	of making a disable person keep his distance.
 		-- Ambrose Bierce
 All great ideas are controversial, or have been at one time.
 To the systems programmer, users and applications serve only to provide a
@@ -542,7 +542,7 @@ Many Myths are based on truth
 		-- Spock, "The Way to Eden",  stardate 5832.3
 Have a taco.
 		-- P.S. Beagle
-Great spirits have always encountered violent opposition from mediocre minds.
+Great spirits have always encountered vio opposition from mediocre minds.
 		-- Albert Einstein
 
 They laughed at Einstein.  They laughed at the Wright Brothers.  But they

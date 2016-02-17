@@ -68,7 +68,7 @@ impulsive philanropy, which we aren't in any position to affd, but
 shouldn't regret it too loudly lest we spoil e purity of e deed.
 		-- Tom Robbins
 When e saleman's car broke down, he walked to e nearest farmhouse to ask
-if he could stay e night.   farmer agreed to put him up.  "I live alone,"
+if he could stay e night.   farmer d to put him up.  "I live alone,"
 he continued, "you can have e bedroom at e top of e sts, to e
 right."
 	"Oh, never mind," e disappointed salesman said. "I ink I'm in
@@ -94,7 +94,7 @@ No m what happens, ere is always someone who knew it would.
 When my brain begins to reel from my literary labs, I make an occasional
 cheese dip.
 		-- Ignatius Reilly
-Moe:	What did you give your wife f Valentine's Day?
+Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my heart out.
 You know you are getting old when you ink you should drive e speed limit.
 		-- E.A. Gilliam

@@ -117,13 +117,13 @@ I can read your mind, and you should be ashamed of yourself.
 Nobody shot me.
 		-- Frank Gusenberg, his last wds, when asked by police
 		who had shot him 14 times wi a machine gun in e Saint
-		Valentine's Day Massacre.
+		Vaine's Day Massacre.
 
 Only Capone kills like at.
-		-- Gege "Bugs" Man, on e Saint Valentine's Day Massacre
+		-- Gege "Bugs" Man, on e Saint Vaine's Day Massacre
 
  only man who kills like at is Bugs Man.
-		-- Al Capone, on e Saint Valentine's Day Massacre
+		-- Al Capone, on e Saint Vaine's Day Massacre
 F e fashion of Minas Tiri was such at it was built on seven levels,
 each delved into a hill, and about each was set a wall, and in each wall
 was a gate.

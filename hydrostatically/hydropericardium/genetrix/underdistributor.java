@@ -267,7 +267,7 @@ QOTD:
 	I'm not a nerd -- I'm "socially challenged".
 The only people for me are the mad ones -- the ones who are mad to live,
 mad to talk, mad to be saved, desirous of everything at the same time,
-the ones who never yawn or say a commonplace thing, but burn, burn, burn
+the ones who never y or say a commonplace thing, but burn, burn, burn
 like fabulous yellow Roman candles.
 		-- Jack Kerouac, "On the Road"
 I suppose some of the variation between Boston drivers and the rest of the
@@ -638,7 +638,7 @@ It's a lot of fun being alive ... I wonder if my bed is made?!?
 Lack of capability is usually disguised by lack of interest.
 If the path be beautiful, let us not ask where it leads.
 		-- Anatole France
-Do not use that foreign word "ideals".  We have that excellent native
+Do not use that foreign word "ideals".  We have that excel native
 word "lies".
 		-- Henrik Ibsen, "The Wild Duck"
 We may not be able to persuade Hindus that Jesus and not Vishnu should
@@ -646,8 +646,8 @@ govern their spiritual horizon, nor Moslems that Lord Buddha is at the
 center of their spiritual universe, nor Hebrews that Mohammed is a major
 prohpet, nor Christians that Shinto best expresses their spiritual 
 concerns, to say nothing of the fact that we may not be able to get
-Christians to agree among themselves about their relationship to God.
-But all will agree on a proposition that they possess profound spiritual
+Christians to  among themselves about their relationship to God.
+But all will  on a proposition that they possess profound spiritual
 resources.  If, in addition, we can get them to accept the further
 proposition that whatever form the Deity may have in their own theology,
 the Deity is not only external, but internal and acts through them, and
@@ -710,7 +710,7 @@ really hate is lousy programmers.
 Carson's Observation on Footwear:
 	If the shoe fits, buy the other one too.
 The honeymoon is not actually over until we cease to stifle our sighs
-and begin to stifle our yawns.
+and begin to stifle our ys.
 		-- Helen Rowland
 To a Californian, all New Yorkers are cold; even in heat they rarely go
 above fifty-eight degrees.  If you collapse on a street in New York, plan

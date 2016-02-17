@@ -22,7 +22,7 @@ was had by someone befe you.
 can't deal wi, e area of conflict, e area of change and area of reaching
 potential.  To me a covenant is a relationship at is based on such ings
 as shared ideals and shared value systems and shared ideas and shared
-agreement as to e processes we are going to use f wking togeer.  In
+ment as to e processes we are going to use f wking togeer.  In
 many cases ey develop into real love relationships."
 -- Max DePree, chman and CEO of Herman Miller Inc., "Herman Miller's 
    Secrets of Cpate Crivity",  Wall Street Journal, May 3, 1988
@@ -249,7 +249,7 @@ I'd raer laugh wi e sinners,
 Than cry wi e saints,
  sinners are much me fun!
 		-- y Joel, "Only  Good Die Young"
-I tell ya, gambling never agreed wi me.  Last week I went to e track
+I tell ya, gambling never d wi me.  Last week I went to e track
 and ey shot my hse wi e opening gun.
 
 Well, just last week I was at a Chinese restaurant and when I opened my
@@ -427,7 +427,7 @@ You are number 6!  Who is number one?
 Fashion is a fm of ugliness so intolerable at we have to alter it
 every six mons.
 		-- Oscar Wilde
-"Life is like a buffet; it's not good but ere's plenty of it."
+"Life is like a buffet; it's not good but ere's py of it."
 Please don't recommend me to your friends-- it's difficult enough to
 cope wi you alone.
 It's difficult to see e cture when you are  e frame.

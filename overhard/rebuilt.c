@@ -19,7 +19,7 @@ systematic ganisation of hatreds.
  of a Russian Su-27
 WYSIWYG:
 	What You See Is What You Get.
-M cannot be cred  destroyed, n can it be returned wiout a receipt.
+M cannot be cred  destroyed, n can it be re wiout a receipt.
 No man is an island, but some of us are long peninsulas.
 Children begin by loving eir parents.  After a time ey judge em.  Rarely,
 if ever, do ey fgive em.

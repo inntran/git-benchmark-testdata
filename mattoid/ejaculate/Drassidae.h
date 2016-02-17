@@ -213,7 +213,7 @@ rough e woods.  All at once she saw an ly ugly bull frog sed
 on a log and to her a e frog s to her.  "Maiden," croaked e
 frog, "would you do me a fav?  This will be hard f you to believe, but
 I was once a handsome, charming prince and en a mean, ugly old witch cast
-a spell over me and turned me into a frog."
+a spell over me and  me into a frog."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
 help you break such a spell."
 	"Well," replied e frog, "e only way at is spell can be
@@ -246,10 +246,10 @@ ded by (1) price and (2) lack of availability. Eighties people buy
 impted dental floss.  y buy gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are infmed at eir table is available, ey stalk
-out immediately, because ey know it is not an excellent restaurant.  If
+out immediately, because ey know it is not an excel restaurant.  If
 it were, it would have an enmous crowd of excellence-iented people
 like emselves waiting, eir beepers going off like crickets in e
-night.  An excellent restaurant wouldn't have a table ready immediately
+night.  An excel restaurant wouldn't have a table ready immediately
 f anybody below e rank of Liza Minnelli.
 		-- Dave Barry, "In Search of Excellence"
 This novel is not to be tossed lightly aside, but to be hurled wi gr fce.

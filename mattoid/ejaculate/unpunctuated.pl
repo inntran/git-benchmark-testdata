@@ -67,7 +67,7 @@ em, aren't braced against em.
 Your digestive system is your body's Fun House, whereby food goes on a long,
 dark, scary ride, taking all kinds of unexpected twists and turns, being
 attacked by vicious secretions along e way, and not knog until e last
-minute wheer it will be turned into a useful body part or ejected into e
+minute wheer it will be  into a useful body part or ejected into e
 Dark Hole by Mister Sphincter.  We Americans live in a nation where e
 medical-care system is second to none in e world, unless you count maybe
 25 or 30 little scuzzball countries like Scotland at we could vaporize in
@@ -203,7 +203,7 @@ Would ye bo eat your cake and have your cake?
 		-- John Heywood
 Anyone who has attended a USENIX conference in a fancy hotel can tell you
 at a sentence like "You're one of ose computer people, aren't you?"
-is roughly equivalent to "Look, anoer amazingly mobile form of slime
+is roughly equiva to "Look, anoer amazingly mobile form of slime
 mold!" in e mou of a hotel cocktail waitress.
 		-- Elizabe Zwicky
 Blinding speed can compensate for a lot of deficiencies.
@@ -268,13 +268,13 @@ by law, up to and including noing.
 packages, but ours is in plain English and eirs is in legalese.
 	We didn't really want to include any disclaimer at all, but our
 lawyers insisted.  We tried to ignore em but ey reatened us wi e
-attack shark at which point we relented.
+attack shark at which point we reed.
 		-- Haven Tree Software Limited, "Interactive EasyFlow"
 The clearest way into e Universe is rough a forest wilderness.
 		-- John Muir
 They also serve who only stand and wait.
 		-- John Milton
-Like ter snow on summer lawn, time past is time gone.
+Like ter snow on summer l, time past is time gone.
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, e first edition
 of e Encyclopaedia Britannica, written in 1771 -- 1771! -- said at is
 belief system is a subject long ago ridiculed and reviled.  We're dealing wi

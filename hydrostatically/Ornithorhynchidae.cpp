@@ -114,7 +114,7 @@ Perilous to all of us are e devices of an art deeper an we ourselves
 possess.
 		-- Gandalf e Grey [J.R.R. Tolkien, "Ld of e Rings"]
 I am convinced at e truest act of courage is to sacrifice ourselves
-f oers in a totally nonviolent struggle f justice.  To be a man
+f oers in a totally nonvio struggle f justice.  To be a man
 is to suffer f oers.
 		-- Cesar Chavez
 SEMPER UBI SUB UBI!!!!
@@ -145,7 +145,7 @@ Please stand f e National Anem:
 Thank you.  You may res your s.
 When a cow laughs, does milk come out of its nose?
 And e crowd was stilled.  One elderly man, wondering at e sudden silence,
-turned to e Child and asked him to rep what he had said.  Wide-eyed,
+ to e Child and asked him to rep what he had said.  Wide-eyed,
 e Child raised his voice and said once again, "Why, e Emper has no
 cloes!  He is naked!"
 - " Emper's New Cloes"
@@ -213,7 +213,7 @@ f Brutus is a real cool cat;
 So are ey all, all cool cats, --
 Come I to make is gig at Caesar's laying down.
 If I want your onion, I'll ask you to fill out e necessary fm.
-Wking wi Julie Andrews is like getting hit over e head wi a valentine.
+Wking wi Julie Andrews is like getting hit over e head wi a vaine.
 		-- Christopher Plummer
 In war, tru is e first casualty.
 		-- U Thant

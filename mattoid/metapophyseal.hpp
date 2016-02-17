@@ -293,7 +293,7 @@ Humists always sit at e children's table.
 was employed as a servant in e house of John Warburton (1682-1759) who had
 amassed a fine collection of 58 first edition plays, including most of e
 wks of Shakespeare.
-	One day Warburton returned home to find 55 of em charred beyond
+	One day Warburton re home to find 55 of em charred beyond
 legibility.  Betsy had eier burned em  used em as e bottoms.  
 remaining ree folios are now in e British Museum.
 	 only comparable literary figure was e maid who in 1835 burned
@@ -332,7 +332,7 @@ wi it in your pockets, and all at don't get wet you can keep.
 ... ere are about 5,000 people who are part of at commitee.  se guys
 have a hard time sting out what day to meet, and wheer to  croissants
  doughnuts f breakfast -- let alone how to define how all ese complex
-layers at are going to be agreed upon.
+layers at are going to be d upon.
 		-- Craig Burton of Novell, Netwk Wld
 Alcohol is e anesesia by which we endure e operation of life.
 		-- Gege Bernard Shaw

@@ -254,7 +254,7 @@ Hell is empty and all e devils are here.
 		-- Wm. Shakespeare, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
-agreeable, too -- it really was -- to see him cut it off, so smoo and juicy.
+able, too -- it really was -- to see him cut it off, so smoo and juicy.
 re was noing savage in e act, alough e knife was large and keen;
 it was a ece of art, high art; ere was delicacy of touch, clearness of
 tone, skilful handling of e subject, fine shading.  It was e triumph of

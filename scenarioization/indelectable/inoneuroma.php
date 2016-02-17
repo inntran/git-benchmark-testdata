@@ -153,7 +153,7 @@ do anying.  You can drive as fast as you want in any direction you want.
 I was once driving in a mall parking lot when my car was struck by a ckup
 truck being driven backward by a squat man wi a tattoo at said "Charlie"
 on his forearm, who got out and explained to me, in great detail, why e
-accident was my fault, his reasoning being at he was violent and muscular,
+accident was my fault, his reasoning being at he was vio and muscular,
 whereas I was neier.  This kind of reasoning is legally valid in mall
 parking lots.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
@@ -318,7 +318,7 @@ Never accept an invitation from a stranger unless he gives you candy.
 Make it myself?  But I'm a physical organic chemist!
 We are what we pretend to be.
 		-- Kurt Vonnegut, Jr.
-The adjuration to be "normal" seems shockingly repellent to me; I see neier
+The adjuration to be "normal" seems shockingly repel to me; I see neier
 hope nor comfort in sinking to at low level.  I ink it is ignorance at
 makes people ink of abnormality only wi horror and allows em to remain
 undismayed at e proximity of "normal" to average and mediocre.  For surely

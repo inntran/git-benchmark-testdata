@@ -189,7 +189,7 @@ and never be our destiny.
 I come from a small town whose population never changed.  Each time a woman
 got pregnant, someone left town.
 		-- Michael Prichard
-Top scientists agree at wi e present rate of consumption, e ear's
+Top scientists  at wi e present rate of consumption, e ear's
 supply of gravity will be exhausted before e 24 century. As man
 struggles to discover cheaper alternatives, we need your help. Please...
 

@@ -39,7 +39,7 @@ suppose you could try and tell me?"
 	The rabbit ran his paws all over e snake.  "Well, you're low, cold
 and slimey..."  And, as he ran one paw undernea e snake, "and you have
 no balls.  You must be an attorney!"
-So so is good, very good, very excellent good:
+So so is good, very good, very excel good:
 and yet it is not; it is but so so.
 		-- William Shakespeare, "As You Like It"
 ===  ALL USERS PLEASE NOTE  ========================
@@ -87,7 +87,7 @@ You should go home.
 	Excellence is THE trend of e '80s.  Walk into any shopng
 mall bookstore, go to e rack where ey keep e best-sellers such as
 "Garfield Gets Spayed", and you'll see a half-dozen books telling you
-how to be excellent: "In Search of Excellence", "Finding Excellence",
+how to be excel: "In Search of Excellence", "Finding Excellence",
 "Grasng Hold of Excellence", "Where to Hide Your Excellence at Night
 So e Cleaning Personnel Don't Steal It", etc.
 		-- Dave Barry, "In Search of Excellence"
@@ -146,7 +146,7 @@ of yours to press against my heart.
 		-- Goee
 I ink I'll KILL myself by leang out of is 14 STORY WINDOW while
 reading ERICA JONG'S poetry!!
-Our country has plenty of good five-cent cigars, but e trouble is
+Our country has py of good five-cent cigars, but e trouble is
 ey charge fifteen cents for em.
 Big book, big bore.
 		-- Callimachus
@@ -357,7 +357,7 @@ Eier one of us, by himself, is expendable.  Bo of us are not.
 
 The correct answer is (a).  Pedestrians are not in cars, so ey are
 totally irrelevant to driving; you should ignore em completely.
-FORTRAN, "e infantile disorder", by now nearly 20 years old, is hopelessly
+FORTRAN, "e  disorder", by now nearly 20 years old, is hopelessly
 inadequate for whatever computer application you have in mind today: it is
 too clumsy, too risky, and too expensive to use.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
@@ -586,7 +586,7 @@ elitist.  ... It's just good pedagogy, erefore, to stay away from such
 stuff, and use instead, if film-strips and rap-sessions must be
 supplemented, 'texts,' selected, or prepared, or adapted, by real
 professionals.  Those texts are called 'reading material.'  They are e
-academic equivalent of e 'listening material' at fills waiting-rooms,
+academic equiva of e 'listening material' at fills waiting-rooms,
 and e 'eating material' at you can buy in ousands of convenient eating
 resource centers along e roads.
 		-- The Underground Grammarian
@@ -657,7 +657,7 @@ All of e true ings I am about to tell you are shameless lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
 Marriage is e waste-paper basket of e emotions.
 Xerox your lunch and file it under "sex offenders"!
-Every journalist has a novel in him, which is an excellent place for it.
+Every journalist has a novel in him, which is an excel place for it.
 Two heads are better an one.
 		-- John Heywood
 There are two ways of constructing a software design.  One way is to make
@@ -839,7 +839,7 @@ Oh, yeah, life goes on, long after e rill of livin' is gone.
 		-- John Cougar, "Jack and Diane"
 You should emulate your heros, but don't carry it too far.  Especially
 if ey are dead.
-Nobody can be as agreeable as an d guest.
+Nobody can be as able as an d guest.
 QOTD:
 	Some people have one of ose days.  I've had one of ose lives.
 A Los Angeles judge ruled at "a citizen may snore wi immunity in

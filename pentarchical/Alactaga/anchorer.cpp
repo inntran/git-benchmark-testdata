@@ -378,7 +378,7 @@ listed 10 signs to watch f:
 	discuss details  talk about what it does at night  on weekends."
    (10) Displays a change of mood  physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
-	a microwave oven is turned on," said Steiger.
+	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
 all of ese traits befe you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
@@ -492,7 +492,7 @@ A maematician is a device f turning cof into eems.
 		-- P. Erdos
 This ftune intentionally left blank.
 	"Wrong," said Renner.
-	"  way," Rod said quietly, "e polite way to disagree wi
+	"  way," Rod said quietly, "e polite way to dis wi
 e Senat would be to say, `That turns out not to be e case.'"
 I do not know myself and God fbid at I should.
 		-- Johann Wolfgang von Goee

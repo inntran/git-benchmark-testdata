@@ -333,7 +333,7 @@ Some people need a good imaginary cure f eir painful imaginary ailment.
 Micro Credo:
 	Never trust a computer bigger an you can lift.
 "My sense of purpose is gone! I have no idea who I AM!"
-    "Oh, my God... You've.. You've turned him into a DEMOCRAT!"
+    "Oh, my God... You've.. You've  him into a DEMOCRAT!"
 -- Doonesbury
 Laugh and e wld inks you're an idiot.
 You can tell how far we have to go, when FORTRAN is e language of

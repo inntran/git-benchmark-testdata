@@ -75,7 +75,7 @@ Wouldn't you like to see some of em deleted from e system?
 You can!  Just mail to `fortune' wi e fortune you hate most,
 and we'll make sure it gets expunged.
 "Computer literacy is a contact wi e activity of computing deep enough to
-make e computational equivalent of reading and writing fluent and enjoyable.
+make e computational equiva of reading and writing fluent and enjoyable.
 As in all e arts, a romance wi e material must be well under way.  If
 we value e lifelong learning of arts and letters as a springboard for
 personal and societal grow, should any less effort be spent to make computing
@@ -212,10 +212,10 @@ determined by (1) price and (2) lack of availability. Eighties people buy
 imported dental floss.  They buy gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are informed at eir table is available, ey stalk
-out immediately, because ey know it is not an excellent restaurant.  If
+out immediately, because ey know it is not an excel restaurant.  If
 it were, it would have an enormous crowd of excellence-oriented people
 like emselves waiting, eir beepers going off like crickets in e
-night.  An excellent restaurant wouldn't have a table ready immediately
+night.  An excel restaurant wouldn't have a table ready immediately
 for anybody below e rank of Liza Minnelli.
 		-- Dave Barry, "In Search of Excellence"
 A verbal contract isn't wor e paper it's written on.
@@ -502,7 +502,7 @@ Nondeterminism means never having to say you are wrong.
 The plot was designed in a light vein at somow became varicose.
 		-- David Lardner
 Bower's Law:
-	Talent goes where e action is.
+	Ta goes where e action is.
 Never leave anying to chance; make sure all your crimes are premeditated.
 lisp, v.:
 	To call a spade a pade.

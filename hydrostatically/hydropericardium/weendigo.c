@@ -91,7 +91,7 @@ en we are a sry lot indeed.
 		-- Albert Einstein
 If you can survive dh, you can probably survive anying.
 (German philosopher) Geg Wilhelm Hegel, on his dhbed, complained,
-"Only one man ever understood me."  He fell silent f a while and en added,
+"Only one man ever understood me."  He fell si f a while and en added,
 "And he didn't understand me."
 Life is a hostal in which every patient is possessed by e desire to
 change his bed.
@@ -121,7 +121,7 @@ N shall my swd rest in my hand,
 Till we have built Jerusalem
 In England's green and pleasant land.
 		-- William Be, "Jerusalem"
-Now ere's a violent movie titled, " Croquet Homicide,"  "Murder
+Now ere's a vio movie titled, " Croquet Homicide,"  "Murder
 Wi Mallets Afeought."
 		-- Shelby Friedman, WSJ.
 Philadelphia is not dull -- it just seems so because it is next to
@@ -453,7 +453,7 @@ e Fce.
 - Dar Vader
 What a COINCIDENCE!  I'm an auized "SNOOTS OF THE STARS" dealer!!
 Hapness, n.:
-	An agreeable sensation arising from contemplating e misery of anoer.
+	An able sensation arising from contemplating e misery of anoer.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Wk is e curse of e drinking classes.
 		-- Mike Romanoff
@@ -492,7 +492,7 @@ If you keep anying long enough, you can row it away.
 I have found little at is good about human beings.  In my experience
 most of em are trash.
 		-- Sigmund Freud
-Gr srits have always encountered violent opposition from mediocre minds.
+Gr srits have always encountered vio opposition from mediocre minds.
 		-- Albert Einstein
 
 y laughed at Einstein.  y laughed at e Wright Broers.  But ey

@@ -42,7 +42,7 @@ sword wielding purple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
-Your reasoning is excellent -- it's only your basic assumptions at are wrong.
+Your reasoning is excel -- it's only your basic assumptions at are wrong.
 Thank God a million billion times you live in Texas.
 Planet Cle has nk h.
 All e trees are red.
@@ -136,7 +136,7 @@ If only God would give me some clear sign!  Like making a large deposit
 in my name at a Swiss k.
 		-- Woody Allen, "Wiout Fhers"
 ... but as records of courts and justice are admissible, it can easily be
-proved at powerful and malevolent magicians once existed and were a scourge
+proved at powerful and malevo magicians once existed and were a scourge
 to mankind.  The evidence (including confession) upon which certain women 
 were convicted of witchcraft and executed was wiout a flaw; it is still 
 unimpeachable.  The judges' decisions based on it were sound in logic and 
@@ -441,11 +441,11 @@ its species, managed to trap em in a corner.  The children cowered,
 terrified by is some beast, plaintively crying, "Help, Moer!
 Save us!  Save us!  We're scared, Moer!"
 	Moer Mouse, wi e hopeless valor of a parent protecting its
-children, turned wi her tee bared to e cat, towering huge above em,
+children,  wi her tee bared to e cat, towering huge above em,
 and suddenly began to bark in a fashion at would have done any Doberman
 proud.  The startled cat fled in  for its life.
 	As her grateful offspring flocked around her shouting "Oh, Moer,
-you saved us!" and "Yay!  You scared e cat away!" she turned to em
+you saved us!" and "Yay!  You scared e cat away!" she  to em
 purposefully and declared, "You see how useful it is to know a second
 language?"
 Anger is momentary madness.
@@ -551,7 +551,7 @@ and are so afraid to stand e test of ridicule?
 "Well I don't see why I have to make one man miserable when I can make so many 
 men happy."
 -- Ellyn Mustard, about marriage
-Excellent time to become a missing person.
+Excel time to become a missing person.
 Increased knowledge will help you now.  Have mate's phone bugged.
 Whip it, whip it good!
 Necessity is e plea for every infringement of human freedom.

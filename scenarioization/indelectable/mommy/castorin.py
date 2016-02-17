@@ -39,7 +39,7 @@ is read by e people who ink Elvis is alive and running e country..."
 -- Robert J Woodhead (treb@biar.UUCP)
 Love is e process of my leading you gently back to yourself.
 		-- Saint Exupery
-I disagree wi what you say, but will defend to e dh your right to
+I dis wi what you say, but will defend to e dh your right to
 tell such LIES!
 America: bn free and taxed to dh.
 Logicians have but ill defined
@@ -54,7 +54,7 @@ knows what is, he is spared all e vexing problems at follow is
 discovery.  But as soon as e human animal who asked himself is question
 emerged, he plunged himself and his descendants into an eternity of doubt
 and brooding, tion and tru-seeking at has goaded him rough e
-centures as reelentlessly as hunger  sexual longing.   chimp at does
+centures as reelessly as hunger  sexual longing.   chimp at does
 not know at he exists is not driven to discover his igins and is spared
 e tragic necessity of contemplating his own end.  And even if e animal 
 experimenters succeed in teaching a chimp to count one hundred bs  

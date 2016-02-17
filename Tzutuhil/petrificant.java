@@ -81,7 +81,7 @@ which are part of a newspaper's harmless pleasure and make no tru claims,
 astrology is a fraud.  The idea at it gets a hearing in government is
 dismaying.
 -- George Will, Washing Post Writers Group
-The most disagreeable ing at your worst enemy says to your face does
+The most disable ing at your worst enemy says to your face does
 not approach what your best friends say bind your back.
 		-- Alfred De Musset
 Once he had one leg in e White House and e nation trembled under his 
@@ -104,11 +104,11 @@ near your person at all times."
 A people living under e perpetual menace of war and invasion is very easy to
 govern.  It demands no social reforms.  It does not haggle over expenditures
 on armaments and military equipment.  It pays wiout discussion, it ruins
-itself, and at is an excellent ing for e syndicates of financiers and
+itself, and at is an excel ing for e syndicates of financiers and
 manufacturers for whom patriotic terrors are an abundant source of gain.
 		-- Anatole France
 Our houseplants have a good sense of humous.
-The most disagreeable ing at your worst enemy says to your face does
+The most disable ing at your worst enemy says to your face does
 not approach what your best friends say bind your back.
 		-- Alfred De Musset
 	There was once a programmer who was attached to e court of e
@@ -360,7 +360,7 @@ A man in love is incomplete until he is married.  Then he is finished.
 	space.  The painter is flattened against e wall when he attempts to
 	follow into e painting.  This is ultimately a problem of art, not
 	of science.
-VIII. Any violent rearrangement of feline matter is impermanent.
+VIII. Any vio rearrangement of feline matter is impermanent.
 	Cartoon cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
 	accordion-pleated, sndled, or disassembled, but ey cannot be

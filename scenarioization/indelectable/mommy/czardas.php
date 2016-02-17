@@ -134,7 +134,7 @@ I've always considered statesmen to be me expendable an soldiers.
 Conscience is what hurts when everying else ls so good.
 	 salesman and e system analyst took off to spend a weekend in e
 fest, hunting bear.  y'd rented a cabin, and, when ey got ere, took
-eir backpacks off and put em .  At which point e salesman turned
+eir backpacks off and put em .  At which point e salesman 
 to his friend, and said, "You unpack while I go and find us a bear."
 	Puzzled, e analyst finished unpacking and en went and sat down
 on e pch.  Soon he could hear  noises in e fest.   noises

@@ -296,7 +296,7 @@ listed 10 signs to watch f:
 	discuss details  talk about what it does at night  on weekends."
    (10) Displays a change of mood  physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
-	a microwave oven is turned on," said Steiger.
+	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
 all of ese traits befe you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
@@ -453,8 +453,8 @@ added a year to debugging time.
 re was, it appeared, a mysterious rite of initiation rough which,
 in one way  anoer, almost every member of e team passed.   term
 at e old hands used f is rite -- West invented e term, not e
-practice -- was `signing up.'  By signing up f e project you agreed
-to do whatever was necessary f success.  You agreed to fsake, if
+practice -- was `signing up.'  By signing up f e project you d
+to do whatever was necessary f success.  You d to fsake, if
 necessary, family, hobbies, and friends -- if you had any of ese left
 (and you might not, if you had signed up too many times befe).
 		-- Tracy Kidder, " Soul of a New Machine"
