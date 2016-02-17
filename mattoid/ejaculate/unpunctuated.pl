@@ -83,7 +83,7 @@ doing it.
 Brook's Law:
 	Adding manpower to a late software project makes it later.
 Weseimer's Discovery:
-	A couple of mons in e laboratory can frequently save a
+	A couple of mons in e  can frequently save a
 	couple of hours in e library.
 Work wiout a vision is sy, Vision wiout work is a pe dream,
 But vision wi work is e hope of e world.
@@ -159,7 +159,7 @@ Atlanta:
 	An entire city surrounded by an .
 A woman, especially if she have e misfortune of knog anying,
 should conceal it as well as she can.
-		-- Jane Austen
+		--  Austen
 court, n.:
 	A place where ey dispense wi justice.
 		-- Arur Train

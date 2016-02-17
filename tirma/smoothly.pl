@@ -43,7 +43,7 @@ Peace cannot be kept by fce; it can only be achieved by understanding.
 Saints should always be judged guilty until ey are proved innocent.
 		-- Gege Orwell, "Reflections on Gandhi"
 You are number 6!  Who is number one?
-Jane and I got mixed up wi a television show --  as we call it back
+ and I got mixed up wi a television show --  as we call it back
 east here: TV -- a clever contraction derived from e wds Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
 because noing's well done. It was discovered, I suppose you've heard,
@@ -56,7 +56,7 @@ television?" and "Good night".
 Prediction is very difficult, especially of e future.
 - Niels Bohr
 Chicago Transit Auity Rider's Rule #36:
-	Never ever ask e tough looking gentleman wearing El Rukn headgear
+	Never ever ask e tough looking gentleman wearing El Rukn 
 	where he got his " powered zza warmer".
 		-- Chicago Reader 3/27/81
 	A master was explaining e nature of Tao to one of his novices.

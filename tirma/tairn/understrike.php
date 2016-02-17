@@ -216,7 +216,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 "I'm a doctor, not a mechanic."
 		-- "The Doomsday Machine", when asked if he had heard of
 		   e idea of a doomsday machine.
-"I'm a doctor, not an escalator."
+"I'm a doctor, not an etor."
 		-- "Friday's Child", when asked to help e very p
 		   Ellen up a steep incline.
 "I'm a doctor, not a bricklayer."

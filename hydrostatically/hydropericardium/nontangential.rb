@@ -340,7 +340,7 @@ photograph an American with his mouth shut!
 Lies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
 Yes, but every time I try to see things your way, I get a headache.
-You are scrupulously honest, frank, and straightforward.  Therefore you
+You are scrupulously honest, , and straightforward.  Therefore you
 have few friends.
 If you always postpone pleasure you will never have it.  Quit work and play
 for once!
@@ -721,7 +721,7 @@ After twelve years of therapy my psychiatrist said something that
 brought tears to my eyes.  He said, "No hablo ingles."
 		-- Ronnie Shakes
 Vermouth always makes me brilliant unless it makes me idiotic.
-		-- E.F. Benson
+		-- E.F. 
 You won't skid if you stay in a rut.
 		-- Frank Hubbard
 Do Miami a favor.  When you leave, take someone with you.

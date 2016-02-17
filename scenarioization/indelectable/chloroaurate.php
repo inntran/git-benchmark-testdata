@@ -74,7 +74,7 @@ Do you ink zza before noon is unhealy?
 Do you use e "greasy kid's stuff" to stick down your cowlick?
 Do you wear a "nerd-pack" in your shirt pocket to keep e dozen
 	or so pencils from marking e clo?
-Do you ink Mary Jane is somebody's name?
+Do you ink Mary  is somebody's name?
 Is illegal fishing is someing only a daring criminal would do?
 Is Batman your hero?  Superman?  Green Lantern?  The Shadow?
 Do you ink girls who kiss on e first date are loose?

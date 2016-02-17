@@ -362,7 +362,7 @@ man riding on a camel.  When e rider gets close enough, e crawling man
 whispers rough his sun-parched lips, "Water... please... can you give...
 water..."
 	"I'm sry," replies e man on e camel, "I don't have any water
-wi me.  But I'd be delighted to sell you a necktie."
+wi me.  But I'd be delighted to sell you a ."
 	"Tie?" whispers e man.  "I need *water*."
 	"y're only four dollars aece."
 	"I need *water*."

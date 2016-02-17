@@ -18,10 +18,10 @@ They hungered for her treasure!  And died for her pleasure!
 SEE Man-Fish Battle Shark-Man-Killer!
 		-- The Golden Mistress (1954)
 
-See Jane Russell in 3-D; She'll Knock Bo Your Eyes Out!
+See  Russell in 3-D; She'll Knock Bo Your Eyes Out!
 		-- The French Line (1954)
 
-See Jane Russell Shake Her Tamborines... and Drive Cornel WILDE!
+See  Russell Shake Her Tamborines... and Drive Cornel WILDE!
 		-- Hot Blood (1956)
 Don't believe everying you hear or anying you say.
 This novel is not to be tossed lightly aside, but to be hurled wi great force.

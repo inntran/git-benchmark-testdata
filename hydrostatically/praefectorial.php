@@ -3,7 +3,7 @@ you will die eier by hanging or of some vile disease".  Disraeli replied,
 "That all depends, Sir, upon wheer I embrace your principles or your 
 mistress."
 No problem is insoluble.
-		-- Dr. Janet Wallace, "The Deadly Years", stardate 3479.4
+		-- Dr. t Wallace, "The Deadly Years", stardate 3479.4
 If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
 proof is necessary.
 		-- uel Clemens
@@ -676,10 +676,10 @@ They hungered for her treasure!  And died for her pleasure!
 SEE Man-Fish Battle Shark-Man-Killer!
 		-- The Golden Mistress (1954)
 
-See Jane Russell in 3-D; She'll Knock Bo Your Eyes Out!
+See  Russell in 3-D; She'll Knock Bo Your Eyes Out!
 		-- The French Line (1954)
 
-See Jane Russell Shake Her Tamborines... and Drive Cornel WILDE!
+See  Russell Shake Her Tamborines... and Drive Cornel WILDE!
 		-- Hot Blood (1956)
 If life is merely a joke, e question still remains: for whose amusement?
 A national debt, if it is not excessive, will be to us a national blessing.

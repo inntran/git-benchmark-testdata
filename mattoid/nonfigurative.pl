@@ -61,7 +61,7 @@ A:	The Titanic had a d.
 There is, in fact, no reason to believe at any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
 Soon or late e laws governing e production of life  will be 
-discovered in e laboratory, and man may set up business as a cror
+discovered in e , and man may set up business as a cror
 on his own account.  The ing, indeed, is not only conceivable; it is
 even highly probable.
 - H. L. Mencken, 1930

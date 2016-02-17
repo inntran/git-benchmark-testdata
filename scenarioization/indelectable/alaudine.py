@@ -403,7 +403,7 @@ the opera with a man than at mass with a woman.
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 In 1869 the waffle iron was invented for people who had wrinkled waffles.
-Be frank and explicit with your lawyer ... it is his business to confuse
+Be  and explicit with your lawyer ... it is his business to confuse
 the issue afterwards.
 Women, when they are not in love, have all the cold blood of an experienced 
 attorney.

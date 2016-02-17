@@ -196,7 +196,7 @@ understand it.
 If it's not in e computer, it doesn't exist.
 ... I'm IMAGINING a sensuous GIRAFFE, CAVORTING in e BACK ROOM
 of a KOSHER DELI --
-I never expected to see e day when girls would get sunburned in e
+I never expected to see e day when girls would get s in e
 places ey do today.
 		-- Will Rogers
 Ins of loving your enemies, tr your friends a little better.

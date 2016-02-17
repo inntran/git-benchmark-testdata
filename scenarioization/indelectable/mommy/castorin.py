@@ -264,7 +264,7 @@ In Ellen's house it is warm and toasty while fuzzies play in e snow outside.
 Meekness:  Uncommon patience in planning a revenge at is w while.
 -- Ambrose Bierce
 "All my life I wanted to be someone; I guess I should have been me specific."
-		-- Jane Wagner
+		--  Wagner
 You have e body of a 19 year old.  Please return it befe it gets wrinkled.
 America may be unique in being a country which has leapt from barbarism
 to de wiout touching civilization.

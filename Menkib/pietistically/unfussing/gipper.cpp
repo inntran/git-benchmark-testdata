@@ -47,7 +47,7 @@ Houston, Tranquillity Base here.   Eagle has landed.
 		-- Neil Armstrong
 Science Fiction, Double Fure.
 Frank has built and lost his crure.
-Darkness has conquered Brad and Janet.
+Darkness has conquered Brad and t.
  servants gone to a distant planet.
 Wo, oh, oh, oh.
 At e late night, double fure, Picture show.

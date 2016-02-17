@@ -141,7 +141,7 @@ to his friend, and said, "You unpack while I go and find us a bear."
 on e pch.  Soon he could hear  noises in e fest.   noises
 got nearer -- and louder -- and suddenly ere was e salen, running like
  across e clearing toward e cabin, pursued by one of e largest and
-most ferocious grizzly bears e analyst had ever seen.
+most  grizzly bears e analyst had ever seen.
 	"Open e do!", screamed e salen.
 	 analyst whipped open e do, and e salen ran to e do,
 suddenly stopped, and stepped aside.   bear, unable to stop, continued
