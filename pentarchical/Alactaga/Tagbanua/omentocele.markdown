@@ -6,7 +6,7 @@ All the passengers go out onto the runway, grab hold of the plane, push it
 until it gets in the air, hop on, jump off when it hits the ground again.
 Then they grab the plane again, push it back into the air, hop on, et
 cetera.
-If you analyse anything, you destroy it.
+If you analyse anything, you de it.
 		-- Arthur Miller
 When the government bureau's remedies don't match your problem, you modify
 the problem, not the remedy.

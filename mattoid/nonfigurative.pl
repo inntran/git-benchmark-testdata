@@ -241,7 +241,7 @@ Hubbard's Law:
 The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
-Wi eir devices us permanently destroyed, consrs would en be free
+Wi eir devices us permanently deed, consrs would en be free
 to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
@@ -252,7 +252,7 @@ My LESLIE GORE record is BROKEN ...
 Advice to young men: Be ascetic, and if you can't be ascetic,
 en at least be aseptic.
 By long-standing tradition, I take is opportunity to savage oer
-designers in e in disguise of good, clean fun.
+s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
 		   Fool's column.
 Humor in e Court:
@@ -608,7 +608,7 @@ Claret is e liquor for boys; port for men; but he who asres to be a hero
 The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
-Wi eir devices us permanently destroyed, consrs would en be free
+Wi eir devices us permanently deed, consrs would en be free
 to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at

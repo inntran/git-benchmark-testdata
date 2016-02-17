@@ -156,7 +156,7 @@ Yet you balanced an eel on the end of your nose --
 	Said his father.  "Don't give yourself airs!
 Do you think I can listen all day to such stuff?
 	Be off, or I'll kick you down stairs!"
-If at first you don't succeed, destroy all evidence that you tried.
+If at first you don't succeed, de all evidence that you tried.
 Once, adv.:
 	Enough.
 		-- Ambrose Bierce, "The Devil's Dictionary"
@@ -794,7 +794,7 @@ trial and error, I have found that the best direction for a hot tub to face
 is up.
 		-- Dave Barry, "The Taming of the Screw"
 "IBM uses what I like to call the 'hole-in-the-ground technique' 
-to destroy the competition..... IBM digs a big HOLE in the 
+to de the competition..... IBM digs a big HOLE in the 
 ground and covers it with leaves. It then puts a big POT 
 OF GOLD nearby. Then it gives the call, 'Hey, look at all 
 this gold, get over here fast.' As soon as the competitor 

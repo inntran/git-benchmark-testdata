@@ -287,7 +287,7 @@ Many receive advice, few profit by it.
 "I have me infmation in one place an anybody in e wld."  
 -- Jerry Pournelle, an absurd notion, apparently about e BIX BBS
 We're ing against humanism, we're ing against liberalism...
-we are ing against all e systems of Satan at are destroying
+we are ing against all e systems of Satan at are deing
 our nation today...our battle is wi Satan himself.
 - Jerry Falwell
 1.79 x 10^12 furlongs per ftnight -- it's not just a good idea, it's

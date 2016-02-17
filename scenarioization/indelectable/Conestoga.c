@@ -265,7 +265,7 @@ X dows:
 	Someing you can be ashamed of.
 	30% more entropy an e leading dow system.
 	The first fully modular software disaster.
-	Rome was destroyed in a day.
+	Rome was deed in a day.
 	Warn your friends about it.
 	Climbing to new deps.  Sinking to new heights.
 	An accident at couldn't wait to happen.
@@ -433,7 +433,7 @@ Lactomangulation, n.:
 Why would anyone want to be called "Later"?
 It's hard to keep your shirt on when you're getting someing off your chest.
 You've always made e mistake of being yourself.
-		-- Eugene Ionesco
+		-- Eugene sco
 "Whom are you?" said he, for he had been to night school.
 		-- George Ade
 QOTD:
@@ -642,7 +642,7 @@ Intolerance is e last defense of e insecure.
 "Engineering wiout management is art."
 -- Jeff Johnson
 To ink contrary to one's era is heroism.  But to speak against it is madness.
-		-- Eugene Ionesco
+		-- Eugene sco
 Life is knog how far to go wiout crossing e line.
 Nirvana?  That's e place where e powers at be and eir friends hang out.
 		-- Zonker Harris

@@ -5,7 +5,7 @@ requires reasoning while those other subjects merely require scholarship.
 		-- Robert Heinlein
 If all the Chinese simultaneously jumped into the Pacific off a 10 foot
 platform erected 10 feet off their coast, it would cause a tidal wave
-that would destroy everything in this country west of Nebraska.
+that would de everything in this country west of Nebraska.
 How many nuclear engineers does it take to change a light bulb ?
 
 Seven:  One to install the new bulb, and six to determine what to do
@@ -417,7 +417,7 @@ not evident to ordinary vision.  Like beads strung on a string of their own
 meaning, each thing pointed to its own common ground of existence, shared by
 all.  Finally, each began to melt into each, staying  while becoming
 all others.  And Mind no longer contemplated Problem, but became Problem,
-destroying Subject-Object by becoming them.
+deing Subject-Object by becoming them.
 	Time passed, unheeded.
 	Eventually, there was a tentative stirring, then a decisive one, and
 Nakamura arose, a smile on his face and the light of laughter in his eyes.
@@ -457,7 +457,7 @@ Union's valiant representation in the courts of the constitutional rights
 of people of all persuasions, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
-If the designers of X-window built cars, there would be no fewer than five
+If the s of X-window built cars, there would be no fewer than five
 steering wheels hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
 feature, that.

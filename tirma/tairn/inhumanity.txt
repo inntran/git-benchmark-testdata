@@ -87,7 +87,7 @@ boy, n:
 	A noise with dirt on it.
 Everyone is entitled to my opinion.
 We're ing against humanism, we're ing against liberalism...
-we are ing against all the systems of Satan that are destroying
+we are ing against all the systems of Satan that are deing
 our nation today...our battle is with Satan himself.
 - Jerry Falwell
 1: No code table for op: ++post
@@ -137,7 +137,7 @@ When your life is a leaf that the seasons tear off and condemn
 They will bind you with love that is graceful and green as a stem.
 		-- Leonard Cohen, "Sisters of Mercy"
 If builders built buildings the way programmers wrote programs,
-then the first woodpecker to come along would destroy civilization.
+then the first woodpecker to come along would de civilization.
 Tempt not a desperate man.
 		-- William Shakespeare, "Romeo and Juliet"
 TOO BAD YOU CAN'T BUY a voodoo globe so that you could make the earth spin
@@ -396,7 +396,7 @@ One man's ceiling is another man's floor.
 BYTE editors are people who separate the wheat from the chaff, and then
 carefully print the chaff.
 "By long-standing tradition, I take this opportunity to savage other
-designers in the thin disguise of good, clean fun."
+s in the thin disguise of good, clean fun."
 -- P. J. Plauger, from his April Fool's column in April 88's "Computer Language"
 Some changes are so slow, you don't notice them.  Others are so fast,
 they don't notice you.

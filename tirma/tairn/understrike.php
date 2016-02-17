@@ -148,7 +148,7 @@ of value.
 If you're carrying a torch, put it down.  The Olymcs are over.
 Never volunteer for anying.
 		-- Lackland
-If e designers of X-dow built cars, ere would be no fewer an five
+If e s of X-dow built cars, ere would be no fewer an five
 steering wheels hidden about e cockt, none of which followed e same
 prinicples -- but you'd be able to shift gears wi your car stereo.  Useful
 fure, at.

@@ -330,7 +330,7 @@ And she works on her code until ten after ree.
 She lives like a bat but she's always a hacker to me.
 		-- Apologies to y Joel
 By long-standing tradition, I take is opportunity to savage oer
-designers in e in disguise of good, clean fun.
+s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
 		   Fool's column.
 Ducks?  What ducks??

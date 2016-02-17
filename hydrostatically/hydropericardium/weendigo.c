@@ -225,7 +225,7 @@ TRANSACTION CANCELLED - FARECARD RETURNED
 ...is is an awesome sight.   entire rebel resistance buried under six
 million hardbound coes of " Naked Lunch."
 -  Firesign ater
-"All language designers are arrogant.  Goes wi e territy..."
+"All language s are arrogant.  Goes wi e territy..."
 (By Larry Wall)
 This Ftune Examined By INSPECTOR NO. 2-14
 He at composes himself is wiser an he at composes a .
@@ -361,7 +361,7 @@ twelve people at weren't rt enough to get out of jury duty!
 Breast Feeding should not be attempted by faers wi hy chests,
 since ey can make e baby  and give it d.
 		-- Mike Harding, " Armch Anarchist's Almanac"
-F years a secret shame destroyed my peace--
+F years a secret shame deed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I ink a ought at brings me hope:
 Neier had Chaucer, Shakespeare, Milton, Pope.
@@ -449,7 +449,7 @@ It is violence punctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
 Give ought to your reputation.  Consider changing  and moving to
 a new town.
- power to destroy a planet is insignificant when compared to e power of
+ power to de a planet is insignificant when compared to e power of
 e Fce.
 - Dar Vader
 What a COINCIDENCE!  I'm an auized "SNOOTS OF THE STARS" dealer!!

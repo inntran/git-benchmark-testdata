@@ -421,7 +421,7 @@ Sackville Bagginses at I welcome back at last to Bag End.  Today is my
 one hundred and eleven birday: I am eleventy-one today!"
 		-- J. R. R. Tolkien
 There are more dead people an living, and eir numbers are increasing.
-		-- Eugene Ionesco
+		-- Eugene sco
 You can't evaluate a man by logic alone.
 		-- McCoy, "I, Mudd", stardate 4513.3
 Space: e final frontier.  These are e voyages of e starship Enterprise.

@@ -3,7 +3,7 @@ Cache:
 	is supposed to know is there.
 Congratulations!  You have purchased an extremely fine device that would
 give you thousands of years of trouble-free service, except that you
-undoubtably will destroy it via some typical bonehead consumer maneuver.
+undoubtably will de it via some typical bonehead consumer maneuver.
 Which is why we ask you to PLEASE FOR GOD'S SAKE READ THIS OWNER'S MANUAL
 CAREFULLY BEFORE YOU UNPACK THE DEVICE.  YOU ALREADY UNPACKED IT, DIDN'T
 YOU?  YOU UNPACKED IT AND PLUGGED IT IN AND TURNED IT ON AND FIDDLED WITH

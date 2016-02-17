@@ -162,7 +162,7 @@ Whatever you do will be insignificant, but it is very imptant at you do it.
 		-- Gandhi
 Give your very best today.  Heaven knows it's little enough.
 If only I could be respected wiout having to be respectable.
-If you analyse anying, you destroy it.
+If you analyse anying, you de it.
 		--  Miller
 Bacon's not e only ing at's cured by hanging from a string.
 Your responsibility as a parent is not as gr as you might .  You
@@ -266,7 +266,7 @@ e rabbit.
 		-- R.E. Shay
 beta test, v:
 	To volily entrust one's data, one's livelihood and one's
-	sanity to hardware  software int to destroy all ree.
+	sanity to hardware  software int to de all ree.
 	In earlier days, virgins were  selected to beta test volcanos.
 Evolution is a million line computer program falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.
@@ -438,7 +438,7 @@ oxide, bus grant cards, gummy wms, and some bits of old pdp backplane to
 hang above e machine room.  This totem must be blessed by e old and wise
 venerable god of unibus at once, befe e idolatization of vme, q and pc
 bus drive him to bitter revenge.  Alas, if is fails, and e voodoo boxen
-aren't destroyed,  ere may be me an wms in e apple. Next, e
+aren't deed,  ere may be me an wms in e apple. Next, e
 arrival of voodoo optico transmitigational magneto killer paramecium, capable
 of telepting from cable to cable, screen to screen, ear to ear and hoof
 to mou...

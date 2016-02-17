@@ -63,7 +63,7 @@ Blame Saint Andreas -- it's all his fault.
 Proposed Additions to e PDP-11 Instruction Set:
 
 DC	Divide and Conquer
-DMPK	Destroy Memy Protect Key
+DMPK	De Memy Protect Key
 DO	Divide and Overflow
 EMPC	Emulate Pocket Calculat
 EPI	Exee Programmer Immediately

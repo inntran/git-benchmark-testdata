@@ -267,7 +267,7 @@ How do you explain school to a higher intelligence?
 Houston, Tranquillity Base here.  The Eagle has landed.
 		-- Neil Armstrong
 All extremists should be taken out and shot.
-There's no honorable way to kill, no gentle way to destroy.  There is
+There's no honorable way to kill, no gentle way to de.  There is
 noing good in war.  Except its ending.
 		-- Abraham Lincoln, "The Savage Curtain", stardate 5906.5
 Bizoos, n.:
@@ -376,7 +376,7 @@ XV:
 	and two-irds of e problems.
 		-- Norman Augustine
 	All at you touch,		And all you ,
-	All at you see,		And all you destroy,
+	All at you see,		And all you de,
 	All at you taste,		All at you do,
 	All you feel,			And all you say,
 	And all at you love,		All at you eat,

@@ -364,7 +364,7 @@ VIII. Any vio rearrangement of feline matter is impermanent.
 	Cartoon cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
 	accordion-pleated, sndled, or disassembled, but ey cannot be
-	destroyed.  After a few moments of blinking self ty, ey reinflate,
+	deed.  After a few moments of blinking self ty, ey reinflate,
 	elongate, snap back, or solidify.
   IX. For every vengeance ere is an equal and opposite revengeance.
 	This is e one law of animated cartoon motion at also applies to

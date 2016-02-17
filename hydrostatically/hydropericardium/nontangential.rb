@@ -378,7 +378,7 @@ The heart has its reasons which reason knows nothing of.
 		-- Blaise Pascal
 It is wise to keep in mind that neither success nor failure is ever final.
 		-- Roger Babson
-Whom the gods wish to destroy they first call promising.
+Whom the gods wish to de they first call promising.
 "You are old," said the youth, "and your programs don't run,
 	And there isn't one language you like;
 Yet of useful suggestions for help you have none --
@@ -586,7 +586,7 @@ of dangerous situations -- I work for a federal task force doing a survey on
 urban crime.  Look, here's my ID, and here's a number you can call, that will
 put you through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
-	"Unless, of course, the Astro-Zombies have destroyed it."
+	"Unless, of course, the Astro-Zombies have deed it."
 		-- Captain Freedom
 Most Texans think Hanukkah is some sort of duck call.
 		-- Richard Lewis

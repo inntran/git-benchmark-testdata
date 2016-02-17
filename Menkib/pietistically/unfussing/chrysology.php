@@ -312,7 +312,7 @@ Bachel:
 --  Buzzcocks
 beta test, v:
 	To volily entrust one's data, one's livelihood and one's
-	sanity to hardware  software int to destroy all ree.
+	sanity to hardware  software int to de all ree.
 	In earlier days, virgins were  selected to beta test volcanos.
 What foods ese msels be!
  lawgiver, of all beings, most owes e law allegiance.  He of all men

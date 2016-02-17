@@ -64,7 +64,7 @@ Einstein argued at ere must be simplified explanations of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
 - Fred Brooks, Jr.
-F years a secret shame destroyed my peace--
+F years a secret shame deed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I ink a ought at brings me hope:
 Neier had Chaucer, Shakespeare, Milton, Pope.
