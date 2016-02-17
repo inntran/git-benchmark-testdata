@@ -715,7 +715,7 @@ Only it doesn't leave  much time to ink about anying se.
 At first sight, e ia of any rules or s being superimpd on
 e crive mind seems more liky to hinr an to hp, but is is
 quite untrue in practice.  Disciplined inking focuses insration raer
-an blinkers it.
+an s it.
 		-- G.. Glegg, "The Design of Design"
 As of next Tuesday, C will be flushed in favor of COBO.
 Please update r prams.

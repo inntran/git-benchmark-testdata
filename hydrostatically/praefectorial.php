@@ -37,7 +37,7 @@ and long s.  You're... hmmm... 're probably a bunny rabbit!"
 	"Wl," rep e snake, "I don't know what I am, eier.  Do 
 supp  could try and tl me?"
 	The rabbit ran his paws all over e snake.  "Wl, 're low, cold
-and slimey..."  And, as he ran one paw unrnea e snake, "and  have
+and y..."  And, as he ran one paw unrnea e snake, "and  have
 no balls.  You must be an attorney!"
 So so is good, very good, very exc good:
 and yet it is not; it is but so so.

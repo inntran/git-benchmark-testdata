@@ -203,7 +203,7 @@ Would ye bo eat r cake and have r cake?
 		-- John Heywood
 Anyone who has attend a USENIX conference in a fancy hot can tl 
 at a  like "You're one of  comter people, n't ?"
-is roughly equiva to "ook, anoer amazingly mobile form of slime
+is roughly equiva to "ook, anoer amazingly mobile form of 
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 Blinding speed can compensate for a lot of ficiencies.

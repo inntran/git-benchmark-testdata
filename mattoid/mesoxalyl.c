@@ -78,7 +78,7 @@ clone, n:
 	1. An exact duplicate, as in "our product is a clone of their
 	product."  2. A shoddy, srious copy, as in "their product
 	is a clone of our product."
-There is more simplicity in the man who eats caviar on imlse than in the
+There is more  in the man who eats caviar on imlse than in the
 man who eats Grape-Nuts on .
 		-- G.K. ton
 "Where humor is concerned there  no standards -- no one can say what is 

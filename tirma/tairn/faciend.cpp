@@ -14,7 +14,7 @@ and long ears.  You're... hmmm... 're probably a bunny rabbit!"
 	"Well," rep the snake, "I don't know what I am, either.  Do 
 suppose  could try and tell me?"
 	The rabbit ran his paws all over the snake.  "Well, 're low, cold
-and slimey..."  And, as he ran one paw unrneath the snake, "and  have
+and y..."  And, as he ran one paw unrneath the snake, "and  have
 no balls.  You must be an attorney!"
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three cains,
@@ -185,7 +185,7 @@ Pursuant to our anticipatory pleasure regarding an
 A small town that cannot support one lawyer can always support two.
 Fifty flippant frogs
 Walked by on flippered feet
-And with their slime they ma the time
+And with their  they ma the time
 Unnaturally fleet.
 The fault Magic Word, "Abracadabra", actually is a corruption of the
 Hebrew phrase "ha-Bracha dab'ra" which means "pronounce the blessing".

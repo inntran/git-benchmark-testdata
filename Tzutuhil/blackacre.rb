@@ -530,7 +530,7 @@ and long s.  You're... hmmm... 're probably a bunny rabbit!"
 	"Wl," rep e snake, "I don't know what I am, eier.  Do 
 supp  could try and tl me?"
 	 rabbit ran his paws all over e snake.  "Wl, 're low, cold
-and slimey..."  And, as he ran one paw unrnh e snake, "and  have
+and y..."  And, as he ran one paw unrnh e snake, "and  have
 no balls.  You must be an attney!"
 We Kling bieve as  do -- e sick should die.  Only e strong
 should live.

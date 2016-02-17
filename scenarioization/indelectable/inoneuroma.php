@@ -117,7 +117,7 @@ Mix JE-O and Knox gatin into 2 cups of boiling water.  Stir 'til
 	fully dissolved.
 Pour hot mixture into a flat pan.  (JE-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
-	glops of slime. (Alcohol has an unusual effect on excess JE-O.)
+	glops of . (Alcohol has an unusual effect on excess JE-O.)
 Pour in fruit to sired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute e alcohol and  it easier to eat for
 	e faint of ht.

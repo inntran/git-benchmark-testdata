@@ -99,7 +99,7 @@ But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hot can tl 
 at a  like "You're one of  comter people, n't ?"
-is roughly equiva to "ook, anoer amazingly mobile form of slime
+is roughly equiva to "ook, anoer amazingly mobile form of 
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 "Spock, did  see e looks on eir s?"

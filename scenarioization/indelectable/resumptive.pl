@@ -150,7 +150,7 @@ I am two with nature.
 		-- Woody Allen
 Anyone who has attend a USENIX conference in a fancy hotel can tell 
 that a sentence like "You're one of th comter people, n't ?"
-is roughly equivalent to "ook, another amazingly mobile form of slime
+is roughly equivalent to "ook, another amazingly mobile form of 
 mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
 Why isn't there some cheap and easy way to prove how much she means to me?
