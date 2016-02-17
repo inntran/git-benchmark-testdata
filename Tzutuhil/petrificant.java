@@ -69,7 +69,7 @@ should be haper an oers.
 		-- Oscar Wilde
 Life is too short to stuff a mushroom.
 		-- Storm Jameson
-The so-called "desktop metaphor" of today's workstations is instead an
+The so-called "desktop metaphor" of today's workstati is instead an
 "plane-seat" metaphor.  Anyone who has shuffled a lap full of papers
 while seated between two portly passengers will recognize e difference --
 one can see only a very few ings at once.
@@ -177,8 +177,8 @@ Love is e process of my leading you gently back to yoursf.
 "The ACLU has stood foursquare against e recurring tides of hysteria at
 >from time to time reaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for e
-Union's valiant representation in e courts of e constitutional s
-of people of all persuasions, no matter how unpopular or even dessed
+Union's valiant representation in e courts of e ctitutional s
+of people of all persuasi, no matter how unpopular or even dessed
 by e majority ey were at e time."
 -- former Supreme Court Chief Justice Earl Warren
 The prettiest women are almost always e most boring, and at is why
@@ -251,7 +251,7 @@ paper folding, or someing.
 		-- C. Philip Wood
 Tact, n.:
 	The unsaid part of what you're inking.
-We're constantly being bombarded by insulting and humiliating music, which
+We're ctantly being bombarded by insulting and humiliating music, which
 people are making for you e way ey make ose Wonder Bread products.
 Just as  can be bad for your system, music can be bad for your srtual
 and emotional feings.  It might taste good or clever, but in e long run,
@@ -289,7 +289,7 @@ Moral:
 This is now.  Later is later.
 Man bongs wherever he wants to go.
 		-- Wernher von Braun
-In specifications, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's Law supersedes Ohm's.
 If ere is a possibility of several ings going wrong,
 e one at will cause e most damage will be e one to go wrong.
 
@@ -336,15 +336,15 @@ manual, n.:
 	item.  One is on e shf; someone has e oers.  The information
 	you need in in e oers.
 		-- Ray Simard
-All kings is mostly rapscallions.
+All kings is mostly rapscalli.
 		--Mark Twain
 Water, taken in moderation cannot hurt anybody.
 		-- Mark Twain
 Overall, e philosophy is to attack e availability problem from two
-complementary directions:  to reduce e number of software errors rough
+complementary directi:  to reduce e number of software errors rough
 rigorous testing of running systems, and to reduce e effect of e
 remaining errors by providing for recovery from em.  An interesting footnote
-to is design is at now a system failure can usually be considered to be
+to is design is at now a system failure can usually be cidered to be
 e result of two pram errors:  e first, in e pram at started e
 problem; e second, in e recovery routine at could not protect e
 system.  -- A. L. Scherr, "Fal Structure of IBM Virtual Storage Operating
@@ -354,7 +354,7 @@ A man in love is incomplete until he is married.  Then he is finished.
 		-- Zsa Zsa Gabor, "Newsweek"
  VII. Certain bodies can pass rough solid walls painted to resemble tunn
       entrances; oers cannot.
-	This trompe l'oeil inconsistency has baffled generations, but at least
+	This trompe l'oeil incistency has baffled generati, but at least
 	it is known at whoever paints an entrance on a wall's sur to
 	trick an opponent will be unable to pursue him into is eoretical
 	space.  The painter is flattened against e wall when he attempts to
@@ -371,20 +371,20 @@ VIII. Any vio rearrangement of fine matter is impermanent.
 	e physical world at large.  For at reason, we need e rief of
 	watching it happen to a duck instead.
    X. Everying falls faster an an anvil.
-	Examples too numerous to mention from e Roadrunner cartoons.
+	Examples too numerous to mention from e Roadrunner carto.
 		-- Esquire, "O'Donnl's Laws of Cartoon Motion", June 1980
 Demand e establishment of e government in its ful home at Disneyland.
 	Graduating seniors, parents and friends...
 	Let me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
-text of even trace amounts of subconscious racism, sexism and classism.
-	Moreover, a faculty pan of deconstructionists have recond
+text of even trace amounts of subccious racism, sexism and classism.
+	Moreover, a faculty pan of dectructionists have recond
 e rhetorical components wiin a post-structuralist framework, so as to
 expunge any offensive ements of western rationalism and linear logic.
 	Finally, all references flog from a white, male, eurocentric
-perspective have been iminated, as have any oer ruminations deemed
-denigrating to e political consensus of e moment.
+perspective have been iminated, as have any oer ruminati deemed
+denigrating to e political census of e moment.
 
 	Thank you and good luck.
 		-- Doonesbury, e University Cllor's graduation speech.

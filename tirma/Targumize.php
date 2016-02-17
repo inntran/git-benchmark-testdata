@@ -99,7 +99,7 @@ Not all who own a harp are harpers.
 	(99)  Window garden harrow (pulled behind Tonka tractors)
 	(100) Killer velcro
 	(101) Currency
-Before Xerox, five carbons were the maximum extension of anybody's ego.
+Before Xerox, five carb were the maximum extension of anybody's ego.
 Sorry.  I forget what I was going to say.
 Conversation enriches the understanding, but solitude is the school of genius.
 The street preacher looked so baffled
@@ -133,7 +133,7 @@ Johnson's Corollary:
 	organization.
 "When anyone says `theoretically,' they really mean `not really.'"
  -- David Parnas
-I cannot and will not cut my conscience to fit this year's fashions.
+I cannot and will not cut my ccience to fit this year's fashi.
 		-- Lillian Hellman
 Finagle's Eighth Law:
 	If an experiment works, something has gone wrong.
@@ -166,7 +166,7 @@ You may easily play a joke on a man who likes to argue -- agree with him.
 You will forget that you ever knew me.
 I generally avoid temptation unless I can't resist it.
 		-- Mae West
-Under a government which imprisons any unjustly, the true place for a
+Under a government which impris any unjustly, the true place for a
 just man is also a prison.
 		-- Henry David Thoreau
 You can tell the ideals of a nation by its advertisements.
@@ -210,7 +210,7 @@ sat hacking at the PDP-6.
 	"What are you doing?", asked Minsky.
 	"I am training a randomly wired neural net to play Tic-Tac-Toe."
 	"Why is the net wired randomly?", inquired Minsky.
-	"I do not want it to have any preconceptions of how to play".
+	"I do not want it to have any preconcepti of how to play".
 	At this Minsky shut his eyes, and Sussman asked his teacher "Why do
 you close your eyes?"
 	"So that the room will be empty."
@@ -220,7 +220,7 @@ War is like love, it always finds a way.
 Earl Wiener, 55, a University of Miami professor of management science,
 telling the Airline Pilots Association (in jest) about 21st century aircraft:
 
-	"The crew will consist of one pilot and a dog.  The pilot will
+	"The crew will cist of one pilot and a dog.  The pilot will
 	nurture and feed the dog.  The dog will be there to bite the
 	pilot if he touches anything.
 		-- Fortune, Sept. 26, 1988
@@ -251,7 +251,7 @@ A budget is just a method of worrying before you spend money, as well
 as afterward.
 How wonderful opera would be if there were no singers.
 Concept, n.:
-	Any "idea" for which an outside consultant billed you more than
+	Any "idea" for which an outside cultant billed you more than
 	$25,000.
 It is easier to fight for one's principles than to live up to them.
 		-- Alfred Adler
@@ -260,7 +260,7 @@ He's dead, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 You will be imprisoned for contributing your time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
-and solutions we can imagine is very close.  For this reason restricting
+and soluti we can imagine is very close.  For this reason restricting
 language features with the intent of eliminating prammer errors is at best
 dangerous.
 		-- Bjarne Stroustrup
@@ -308,8 +308,8 @@ Well, how about one more?
 	(one more than the first one?)
 Yes.
 	(you already asked that...)
-[at this point, Alphonso gets smart...	]
-May I ask two questions, sir?
+[at this point, Alpho gets smart...	]
+May I ask two questi, sir?
 	(no.)
 May I ask ONE then?
 	(nope...)
@@ -317,10 +317,10 @@ Then may I ask, sir, how I may ask you a question?
 	(yes, you may.)
 Sir, how may I ask you a question?
 	(you must ask for retroactive question asking privileges for
-	 the number of questions you have asked, then ask for that
+	 the number of questi you have asked, then ask for that
 	 number plus two, one for the current question, and one for the
 	 next one)
-Sir, may I ask nine questions?
+Sir, may I ask nine questi?
 	(go  ahead...)
 A diplomat is a man who can convince his wife she'd look stout in a fur coat.
 Declared guilty... of displaying feelings of an almost human nature.
@@ -352,7 +352,7 @@ A: I had a skin graft. My whole buttocks and leg were removed and put on top
    of my head.
 There's no real need to do housework -- after four years it doesn't get
 any worse.
-Relations are simply a tedious pack of people, who haven't the remotest
+Relati are simply a tedious pack of people, who haven't the remotest
 knowledge of how to live, nor the smallest instinct about when to die.
 		-- Oscar Wilde, "The Importance of Being Earnest"
 Pretend to spank me -- I'm a pseudo-masochist!
@@ -376,7 +376,7 @@ A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
 Thinking you know something is a sure way to blind yourself.
 		-- Frank Herbert, "Chapterhouse: Dune"
-I think your opinions are reasonable, except for the one about my mental
+I think your opini are reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Texas A&M football coach Jackie Sherrill went to the office of the Dean
@@ -493,7 +493,7 @@ over?  Well, that's how I feel all the time.
 -- Steven W
 I'm GLAD I remembered to XEROX all my UNDERSHIRTS!!
 Famous, adj.:
-	Conspicuously miserable.
+	Cpicuously miserable.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Hurewitz's Memory Principle:
 	The chance of forgetting something is directly proportional
@@ -514,7 +514,7 @@ An Hacker there was, one of the finest sort
 Who controlled the system; graphics was his sport.
 A manly man, to be a wizard able;
 Many a protected file he had sitting on his table.
-His console, when he typed, a man might hear
+His cole, when he typed, a man might hear
 Clicking and feeping wind as clear,
 Aye, and as loud as does the machine room bell
 Where my lord Hacker was Prior of the cell.
@@ -583,12 +583,12 @@ The sheep died in the wool.
 If you are too busy to read, then you are too busy.
 If your happiness depends on what somebody else does, I guess you do
 have a problem.
-		-- Richard Bach, "Illusions"
+		-- Richard Bach, "Illusi"
 Remember: Silly is a state of Mind, Stupid is a way of Life.
 		-- Dave Butler
 Conversation enriches the understanding, but solitude is the school of genius.
 I was in Vegas last week. I was at the roulette table, having a lengthy
-argument about what I considered an Odd number.
+argument about what I cidered an Odd number.
 		-- Steven W
 	"Hey, Sam, how about a loan?"
 	"Whattaya need?"

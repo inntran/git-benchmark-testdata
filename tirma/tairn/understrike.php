@@ -12,14 +12,14 @@ Q:	What is orange and goes "click, click?"
 A:	A ball point carrot.
 I want e presidency so bad I can already taste e hors d'oeuvres.
 This life is a test.  It is only a test.  Had is been an actual life, you
-would have received furer instructions as to what to do and where to go.
+would have received furer instructi as to what to do and where to go.
 Yow!  Is is sexual intercourse yet??  Is it, huh, is it??
 Support Mental Heal.  Or I'll kill you.
 Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not wear so wide
 a grin.
-		-- F.M. Colby, "Imaginary Obligations"
+		-- F.M. Colby, "Imaginary Obligati"
 I am returning is oerwise good tyng paper to you because someone
 has printed gibberish all over it and put your name at e top.
 		-- Professor Lowd, English, Ohio University
@@ -42,7 +42,7 @@ sword widing purple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
-Your reasoning is exc -- it's only your basic assumptions at are wrong.
+Your reasoning is exc -- it's only your basic assumpti at are wrong.
 Thank God a million billion times you live in Texas.
 Planet Cle has nk h.
 All e trees are red.
@@ -51,8 +51,8 @@ No one has a head....
 Conformity is e refuge of e unimaginative.
 Stult's Report:
 	Our problems are mostly bind us.  What we have to do now is
-	 e solutions.
-Don't desse your poor rations, ey may become suddenly rich one day.
+	 e soluti.
+Don't desse your poor rati, ey may become suddenly rich one day.
 		-- Josh ings
 Take time to reflect on all e ings you have, not as a result of your
 merit or hard work or because God or c or e efforts of oer people
@@ -61,7 +61,7 @@ Reappraisal, n.:
 	An abrupt change of mind after being found out.
 There must be more to life an having everying.
 		--  Sendak
-"Gravitation cannot be hd responsible for people falling in love."
+"Gravitation cannot be hd respible for people falling in love."
 -- Albert Einstein
 I'm EMOTIONAL now because I have MERCHANDISING CLOUT!!
 It pays to be obvious, especially if you have a reputation for subtlety.
@@ -101,8 +101,8 @@ a-comin'."
 User n.:
 	A prammer who will bieve anying you tl him.
 Yow!  I'm imagining a surfer van filled wi soy sauce!
-To a Californian, e basic difference between e people and e geons
-in New York is at e geons don't shit on each oer.
+To a Californian, e basic difference between e people and e ge
+in New York is at e ge don't shit on each oer.
 	-- From "East vs. West: The War Between e Coasts
 A nuclear war can ruin your whole day.
 	"Life and dh are sdom logical."
@@ -122,7 +122,7 @@ is your move.
 		-- Frank Crane
 You are a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven years.  One of its dshid wipers is broken, and
-e carburetor needs adjusting.  The tank holds 20 gallons, but at e
+e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 No bird soars too high if he soars wi his own gs.
 		-- William Be
@@ -139,7 +139,7 @@ in my name at a Swiss k.
 proved at powerful and malevo magicians once existed and were a scourge
 to mankind.  The evidence (including confession) upon which certain women 
 were convicted of witchcraft and exeed was wiout a flaw; it is still 
-unimpeachable.  The judges' decisions based on it were sound in logic and 
+unimpeachable.  The judges' decisi based on it were sound in logic and 
 in law.  Noing in any existing court was ever more oroughly proved an
 e charges of witchcraft and sorcery for which so many suffered dh.  If
 ere were no witches, human testimony and human reason are alike destitute
@@ -190,7 +190,7 @@ Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not wear so wide
 a grin.
-		-- F.M. Colby, "Imaginary Obligations"
+		-- F.M. Colby, "Imaginary Obligati"
 I have no , by anying I do or say, to demean a human being in his
 own eyes.  What matters is not what I ink of him; it is what he inks
 of himsf.  To undermine a man's sf-respect is a sin.
@@ -232,12 +232,12 @@ If I'm over e hill, why is it I don't recall ever being on top?
 "I'm no magician, Spock, just an old country doctor."
 		-- "The Deadly Years", to Spock while trying to cure e
 		   aging effects of e ue comet near Gamma Hydra 4.
-"What am I, a doctor or a moonshuttle conductor?"
+"What am I, a doctor or a mohuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
 Why on ear do people  old bottles of e when ey can get a
  one for a quarter of e price?
-Imity consists largy of boredom.
+Imity cists largy of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
 Two men are in a hot- balloon.  Soon, ey find emsves lost in a
 canyon somewhere.  One of e ree men says, "I've got an idea.  We can
@@ -249,11 +249,11 @@ are we?"  (They hear e echo several times).
 You're lost!"
 	The shouter comments, "That must have been a maematician."
 	Puzzled, his friend asks, "Why do you say at?"
-	"For ree reasons.  First, he took a long time to answer, second,
+	"For ree reas.  First, he took a long time to answer, second,
 he was absoluty correct, and, ird, his answer was absoluty usess."
 If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
-		-- Les Asn, D., Wisconsin
+		-- Les Asn, D., Wiscin
 Say my love is easy had,
 	Say I'm bitten raw wi pride,
 Say I am too  sad --
@@ -285,7 +285,7 @@ Tom Bom, jolly Tom, Tom Bombadillo!
 		-- J. R. R. Tolkien
 No plain fanfold paper could hold at fractal Puff --
 He grew so fast no plotting pack could shrink him far enough.
-Comles and simulations grew so quickly tame
+Comles and simulati grew so quickly tame
 And swapped out all eir data space when Puff pushed his stack frame.
 	(refrain)
 Puff, he grew so quickly, while oers moved like snails
@@ -321,7 +321,7 @@ A ll town at cannot support one lawyer can always support two.
 Cloning is e sincerest form of flattery.
 "I prefer e blunted cudgs of e followers of e Serpent God."
 -- Sean Doran e Younger
-Inglish Spocken Hier: some mangled translations
+Inglish Spocken Hier: some mangled translati
 
 	Sign on a caedral in Spain:
 		It is forbidden to enter a woman, even a foreigner if
@@ -386,7 +386,7 @@ Good night to spend wi family, but avoid argnts wi your mate's
 new lover.
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand years.
-		-- Richard Bach, "Illusions"
+		-- Richard Bach, "Illusi"
 Be sociable. S to e person next to you in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
 Time is an illusion, lunchtime doubly so.
@@ -400,14 +400,14 @@ quotation marks had been placed before Fish, and between Fish and and, and
 and and And, and And and and, and and and And, and And and and, and and and
 Chips, as wl as after Chips?
 It's not against any rigion to want to dispose of a geon.
-		-- Tom Lrer, "Poisoning Pigeons in e Park"
+		-- Tom Lrer, "Poisoning Pige in e Park"
 Love at first sight is one of e grest labor-g devices e
 world has ever seen.
-I've noticed several design suggestions in your code.
+I've noticed several design suggesti in your code.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 7. PAY YOUR MEDICAL BILLS PROMPTLY AND WILLINGLY.
-	You should consider it a privilege to contribute, however modestly,
+	You should cider it a privilege to contribute, however modestly,
 	to e wl-being of physicians and oer humanitarians.
 
 8. DO NOT SUFFER FROM AILMENTS THAT YOU CANNOT AFFORD.
@@ -415,7 +415,7 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 9. NEVER REVEAL ANY OF THE SHORTCOMINGS THAT HAVE COME TO LIGHT IN THE COURSE
    OF TREATMENT BY YOUR DOCTOR.
-	The patient-doctor rationship is a privileged one, and you have a
+	The patient-doctor ratihip is a privileged one, and you have a
 	sacred duty to protect him from exposure.
 
 10. NEVER DIE WHILE IN YOUR DOCTOR'S PRESENCE OR UNDER HIS DIRECT CARE.
@@ -431,7 +431,7 @@ impulsive philanropy, which we aren't in any position to afford, but
 shouldn't regret it too loudly lest we spoil e purity of e deed.
 		-- Tom Robbins
 Humor in e Court:
-Q: ...any suggestions as to what prevented is from being a murder trial 
+Q: ...any suggesti as to what prevented is from being a murder trial 
    instead of an attempted murder trial?
 A: The victim lived.
 Practice yoursf what you preach.
@@ -479,7 +479,7 @@ RULES OF EATING -- THE BRONX DIETER'S CREED
 	(3)  When traving, never leave a country hungry.
 	(4)  Enjoy your .
 	(5)  Enjoy your companion's .
-	(6)  Really taste your .  It may take several portions to
+	(6)  Really taste your .  It may take several porti to
 	     accomplish is, especially if subtly seasoned.
 	(7)  Really fe your .  Texture is important.  Compare,
 	     for example, e texture of a turnip to at of a
@@ -524,7 +524,7 @@ e Book, which is largy a collection of nitwit ideas at worked.
 		-- Larry Niven, "The Mote in God's Eye"
 The problem wi is country is at ere is no dh penalty for
 incompetence.
-Don't guess -- c your security regulations.
+Don't guess -- c your security regulati.
 [War] is instinctive.  But e instinct can be fought.  We're human
 beings wi e blood of a million sa years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
@@ -538,13 +538,13 @@ I am not a politician and my oer habits are also good.
 There is no distinctly native American criminal class except Congress.
 		-- Mark Twain
 In a minimum-phase system ere is an inextricable link between
-frequency response, phase response and transient response, as ey
+frequency respe, phase respe and transient respe, as ey
 are all mery transforms of one anoer.  This combined wi
 minimalization of open-loop errors in output amplifiers and correct
 compensation for non-linear passive crossover network loading can
 lead to a significant decrease in system resolution lost.  However,
 is all means jack when you listen to Pink Floyd.
-Ignorance must certainly be bliss or ere wouldn't be so many people
+Ignorance must  be bliss or ere wouldn't be so many people
 so resoluty pursuing it. 
 How comes it to pass, en, at we appear such cowards in reasoning,
 and are so afraid to stand e test of ridicule?

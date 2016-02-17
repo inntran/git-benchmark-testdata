@@ -13,7 +13,7 @@ GOOD!
 A Smi & Wesson bs four aces.
 You is a disease from which we all recover.
 		-- Doroy Fuldheim
-Millions long for immortality who do not know what to do wi emsves on a
+Milli long for immortality who do not know what to do wi emsves on a
 rainy Sunday afternoon.
 		-- Susan Ertz
 This is e story of e bee
@@ -26,7 +26,7 @@ The little bee is never still
 She has no time to take e ll
 
 And at is why, in times like ese
-There are so many sons of bees.
+There are so many s of bees.
 Your wig steers e gig.
 		-- Lord Buckley
 		Once Again From e Top
@@ -52,7 +52,7 @@ For fools rush in where angs  to tread.
 		-- Alexander Pope
 Bug, n.:
 	An aspect of a computer pram which exists because e
-	prammer was inking about Jumbo Jacks or stock options when s/he
+	prammer was inking about Jumbo Jacks or stock opti when s/he
 	wrote e pram.
 
 Fortunaty, e second-to-last bug has just been fixed.
@@ -64,7 +64,7 @@ Rudd's Discovery:
 	stay in Washington and make it ere.
 A wide-eyed, innocent UNICORN, poised dicaty in a MEADOW filled
 wi LILACS, LOLLIPOPS & ll CHILDREN at e HUSH of twilight??
-It is explained at all rationships require a little give and take.  This
+It is explained at all ratihips require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
@@ -122,13 +122,13 @@ The Rabbits				The Cow
 Here is a verse about rabbits		The cow is of e bovine ilk;
 That doesn't mention eir habits.	One end is moo, e oer, milk.
 		-- Ogden Nash
-	What is involved in such [close] rationships is a form of emotional
+	What is involved in such [close] ratihips is a form of emotional
 chemistry, so far unexplained by any school of  I am aware of, at
-conditions noing so simple as a choice between e poles of attraction and
+conditi noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e years, and
 ey remain amiable bystanders, like e shore lights of towns at a sailor
 passes at stated times but never calls at on e regular run.  Conversy,
-all considerations of sex aside, you can meet some oer people once or twice
+all ciderati of sex aside, you can meet some oer people once or twice
 and ey remain permanent influences on your life.
 	Everyone is aware of is discrepancy between e acquaintance seen
 as familiar wallpaper or instant friend.  The chemical action it entails is
@@ -160,7 +160,7 @@ lost his senses.  When he looks down, paraphrase e question back at him.
 This fortune intentionally says noing.
 Do I have a lifestyle yet?
 Thinks't ou existence do depend on time?
-It do; but actions are our epochs; mine
+It do; but acti are our epochs; mine
 Have made my days and nights imperishable,
 Endless, and all alike, as sands on e shore,
 Innrable atoms; and one desert,
@@ -196,13 +196,13 @@ say at it had mery been detected.
 -- Richard J. Daley
 When my man roommate at Cornl found out I was Jewish, she was, at
 her request, moved to a different room.  She told me she didn't ink she
-had ever seen a Jew before.  My only response was to begin wearing a
+had ever seen a Jew before.  My only respe was to begin wearing a
 ll Star of David on a chain around my neck.  I had not become a more
 observing Jew; raer, discovering at e lab of Jew was offensive to
 oers made me want to let people know who I was and what I bieved in.
 Similarly, after talking to ese young women -- one of whom told me at
 she didn't ink she had ever met a feminist -- I've taken to identifying
-mysf as a feminist in e most unliky of situations.
+mysf as a feminist in e most unliky of situati.
 		-- Susan Bolotin, "Voices From e Post-Feminist Generation"
 Weinberg's First Law:
 	Press is only made on alternate Fridays.
@@ -292,7 +292,7 @@ You never have to change anying you got up in e middle of e night
 to write.
 		-- Saul Blow
 Staff meeting in e conference room in %d minutes.
-"I love Saturday morning cartoons, what classic humour!  This is what
+"I love Saturday morning carto, what classic humour!  This is what
 entertainment is all about ... Idiots, explosives and falling anvils."
 		-- Calvin and Hobbes,  Watterson
 Unf animal names:
@@ -367,7 +367,7 @@ Wisdom is rary found on e best-sler list.
  included encapsulated time reased cat urine in eir products.  This 
  technology must be what prevented its distribution during my mom's reign.  My 
  carpet smls like ss, and I don't have a cat.  Better go by some more."
--- timw@zeb.USWest.COM, in alt.consracy
+-- timw@zeb.USWest.COM, in alt.cracy
 In is vale
 Of toil and sin
 Your head grows bald
@@ -469,7 +469,7 @@ I never take work home wi me; I always leave it in some bar along e way.
 [Doctors and Bartenders], We bo get e same two kinds of ers
 -- e living and e dying.
 		-- Dr. Boyce, "The Menagerie" ("The Cage"), stardate unknown
-When ere are two conflicting versions of e story, e wise course
+When ere are two conflicting versi of e story, e wise course
 is to bieve e one in which people appear at eir worst.
 		-- H. Allen Smi, "Let e Crabgrass Grow"
 	"What did you do when e ship sank?"
@@ -584,13 +584,13 @@ We sdom repent talking too little, but very  talking too much.
 I ink at all good,  inking people in is country are sick and
 tired of being told at all good,  inking people in is country are
 fed up wi being told at all good,  inking people in is country
-are fed up wi being sick and tired.  I'm certainly not, and I'm sick and
+are fed up wi being sick and tired.  I'm  not, and I'm sick and
 tired of being told at I am!
 		-- Monty Pyon
 The man who runs may  again.
 		-- Menander
 Obstacles are what you see when you take your eyes off your goal.
-I don't have any solution but I certainly admire e problem.
+I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
@@ -641,7 +641,7 @@ I have already given two cousins to e war and I stand ready to sacrifice
 my wife's broer.
 		-- Artemus Ward
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two colons, a major, ree captains,
+anyone.  Eventually I stumbled across two col, a major, ree captains,
 two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
@@ -654,7 +654,7 @@ The Gr Movie Posters:
 
 Different! Daring! Dynamic! Defying! Dumbfounding!
 SEE Uncle Tom lead e Negroes to FREEDOM!
-... Now, all e SENSUAL and VIOLENT passions Roots couldn't show on TV!
+... Now, all e SENSUAL and VIOLENT passi Roots couldn't show on TV!
 		-- Uncle Tom's Cabin (1972)
 
 An appalling amalgam of carnage and carnality!
@@ -679,19 +679,19 @@ would justify em."
 	"The world is all cred," said God, "but you have overlooked
 someing -- e mortality of e optimist."
 		-- Ambrose Bierce, "The Devil's Dictionary"
-Back in e early 60's, touch tone phones only had 10 buttons.  Some
-military versions had 16, while e 12 button jobs were used only by people
+Back in e early 60's, touch tone phones only had 10 butt.  Some
+military versi had 16, while e 12 button jobs were used only by people
 who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
 Since in ose days, only Western Electric  made "data sets" (modems) e
 problems of terminology were all Bl System.  We used to struggle wi
-written descriptions of dial pads at were unfamiliar to most people
+written descripti of dial pads at were unfamiliar to most people
 (most phones were rotary en.)  Partly in jest, some AT&T engineering
 types (ere was no ing in e good old days, which is why ey were
 e good old days) made up e term "octalorpe" (note spling) to denote
 e "pound sign."  Presumably because it has 8 points sticking out.  It
 never really caught on.
 Instead of giving money to found colleges to promote learning, why don't
-ey pass a constitutional amendment prohibiting anybody from learning
+ey pass a ctitutional amendment prohibiting anybody from learning
 anying?  If it works as good as e Prohibition one did, why, in five
 years we would have e rtest race of people on ear.
 		-- The Best of Will Rogers
@@ -702,7 +702,7 @@ trying to stop yoursf going mad.  You might just as wl give in and
 save your sanity for later.
 Madness has no purpose.  Or reason.  But it may have a goal.
 		-- Spock, "The Alternative F", stardate 3088.7
-Machines certainly can solve problems, store information, corrate,
+Machines  can solve problems, store information, corrate,
 and play games -- but not wi pleasure.
 		-- Leo Rosten
 The rill is here, but it won't last long
@@ -777,7 +777,7 @@ eier flying or waiting to board a plane.
 It is better to give an to lend, and it costs about e same.
 San Francisco isn't what it used to be, and it never was.
 		-- Herb Caen
-Don't have good ideas if you aren't willing to be responsible for em.
+Don't have good ideas if you aren't willing to be respible for em.
 I've already got a female to worry about.  Her name is e Enterprise.
 		-- Kirk, "The Corbomite Maneuver", stardate 1514.0
 A student, in hopes of understanding e Lambda-nature, came to Greenblatt.
@@ -793,7 +793,7 @@ Never insult an alligator until you've crossed e river.
 The vigor of civilized societies is preserved by e  sense at high
 aims are wor-while.  Vigorous societies harbor a certain extravagance of
 objectives, so at men wander beyond e safe provision of personal
-gratifications.  All strong interests easily become impersonal, e love of
+gratificati.  All strong interests easily become impersonal, e love of
 a good job wl done.  There is a sense of harmony about such an accomplishment,
 e Peace brought by someing wor-while.
 - Alfred Nor Whitead, 1963, in "The History of Manned Space Flight"

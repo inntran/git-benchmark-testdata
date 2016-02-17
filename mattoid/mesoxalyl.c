@@ -24,7 +24,7 @@ the best one.
 Forty two.
 I *____knew* I had some reason for not logging you off... If I could just
 remember what it was.
-Ask five economists and you'll get five different explanations (six if
+Ask five economists and you'll get five different explanati (six if
 one went to Harvard).
 		-- Edgar R. Fiedler
 You're definity on their list.  The question to ask next is what list it is.
@@ -39,7 +39,7 @@ Never argue with a woman when she's tired -- or rested.
 The sheep that fly over your head are soon to land.
 The PINK SOCKS were ORIGINALLY from 1952!!  But they went to MARS
 around 1953!!
-The worst cliques are those which consist of one man.
+The worst cliques are those which cist of one man.
 		-- G.B. Shaw
 Bedflows make strange politicians.
 "Show me a good loser, and I'll show you a loser."
@@ -67,7 +67,7 @@ As Dame Fortune did intend,
 Murphy would be there to tl me
 The pot's at the other end.
 		-- Bert Whitney
-In the force if Yoda's so strong, construct a  with words in
+In the force if Yoda's so strong, ctruct a  with words in
 the proper  then why can't he?
 You have an ambitious nature and may make a name for yoursf.
 Adhere to your own act, and congratulate yoursf if you have done something

@@ -25,7 +25,7 @@ general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
-Science.  Discuss e generality of is law, and possible reasons f its
+Science.  Discuss e generality of is law, and possible reas f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
 		   Thinking"
@@ -42,11 +42,11 @@ Yea, o I walk rough e valley of surprise quizzes,
 	I will  no prof, f my calculat is ere to hearten me.
 It prepare a log table to comft me, it prepare an
 	arc sin f me in e presence of my teachers.
-It annoints my homewk wi crect solutions, my interpolations are
+It annoints my homewk wi crect soluti, my interpolati are
 	over.
 Sury, bo precision and accuracy shall follow me all e days of my
 	life, and I shall dwl in e house of Texas instrnts fever.
-It is explained at all rationships require a little give and take.  This
+It is explained at all ratihips require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
@@ -77,7 +77,7 @@ Chus:	Wi an *ugh!* and a groan, and a kick of e hes,
 		-- Kin Hubbard
 Imptant letters which contain no errs will devop errs in e mail.
 Cresponding errs will show up in e duplicate while e Boss is reading
-it.  Vital papers will demonstrate eir vitality by spontaneously moving
+it.  Vital papers will demtrate eir vitality by spontaneously moving
 from where you left em to where you can't find em.
 Fats Loves Madyn.
 Tomrow will be cancled due to lack of interest.
@@ -114,7 +114,7 @@ F he can oughly enjoy
 	 pepper when he pleases!
 	Wow!  wow!  wow!
 		-- Lewis Carrol, "Alice in Wonderland"
-Practical politics consists in igning facts.
+Practical politics cists in igning facts.
 		-- Henry Adams
 Did you hear at ere's a group of Sou American Indians at wship
 e number zero?
@@ -161,7 +161,7 @@ stop  up."
 Men never make passes at girls wearing glasses.
 		-- Doy Parker
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situations?  Wry no me...
+say in ose awkward situati?  Wry no me...
 
 	Go away.  You boer me.
 	Why?   Because life is unf.
@@ -218,7 +218,7 @@ answered e do.   teacher explained what his son had said and demanded
 an explanation.
 	y's faer replied, "Wl, I'm really an attney.  But how do
 you explain a ing like at to a seven-year-old child?"
-Consider wl e proptions of ings.  It is better to be a young June-bug
+Cider wl e propti of ings.  It is better to be a young June-bug
 an an old bird of paradise.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Alliance, n.:
@@ -226,7 +226,7 @@ Alliance, n.:
 	eir hands so deeply inserted in each oer's pocket at ey cannot
 	separaty plunder a ird.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Like you,  I am frequently haunted by profound questions rated to man's
+Like you,  I am frequently haunted by profound questi rated to man's
 place in e Scheme of Things.  Here are just a few:
 
 	Q -- Is ere life after dh?
@@ -248,7 +248,7 @@ How can you do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
 Watson's Law:
 	 riability of machinery is inversy proptional to e
-	number and significance of any persons watching it.
+	number and significance of any pers watching it.
 Only Irish cof provides in a single glass all four   groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex Levine
@@ -260,12 +260,12 @@ That government is best which governs least.
 You have literary ta at you should take pains to devop.
 se screamingly hilarious gogs ensure owners of     X Ray Gogs to be e life
 of any party.
--- X-Ray Gogs Instructions
+-- X-Ray Gogs Instructi
 What ey said:
 	What ey meant:
 
 "You will be ftunate if you can get him to wk f you."
-	(We certainly never succeeded.)
+	(We  never succeeded.)
 re is no oer employee wi whom I can adequaty compare him.
 	(Wl, our rats aren't really emplo...)
 "Success will never spoil him."
@@ -273,7 +273,7 @@ re is no oer employee wi whom I can adequaty compare him.
 "One usually comes away from him wi a good ling."
 	(And such a sigh of rief.)
 "His dissertation is e st of wk you don't expect to see ese days;
-in it he has definity demonstrated his complete capabilities."
+in it he has definity demtrated his complete capabilities."
 	(And his IQ, as wl.)
 "He should go far."
 	( farer e better.)

@@ -35,13 +35,13 @@ deps ey were once able to plumb.
 Money and women are e most sought after and e least known of any two
 ings we have.
 		--  Best of Will Rogers
-May Eul Gibbons  your only copy of e manual!
+May Eul Gibb  your only copy of e manual!
 Nobody really knows what hapness is, until ey're married.
 And en it's too late.
 Peace cannot be kept by fce; it can only be achieved by understanding.
 		-- Albert Einstein
 Saints should always be judged guilty until ey are proved innocent.
-		-- Gege Orwl, "Reflections on Gandhi"
+		-- Gege Orwl, "Reflecti on Gandhi"
 You are number 6!  Who is number one?
  and I got mixed up wi a tevision show --  as we call it back
 east here: TV -- a clever contraction derived from e wds Terrible
@@ -76,7 +76,7 @@ user, n.:
 
 [I always ought "computer professional" was e phrase hackers used
  when ey meant "idiot."  Ed.]
-Like so many Americans, she was trying to construct a life at made
+Like so many Americans, she was trying to ctruct a life at made
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 You can go anywhere you want if you look us and carry a clipboard.
@@ -93,7 +93,7 @@ Action Required:	Go stand next to nearest dog.  After a while complain
 			to e owner about its lack of house training and
 			demand a beer as compensation.
 		-- Bar Troubleshooting
-Keep in mind always e four constant Laws of Frisbee:
+Keep in mind always e four ctant Laws of Frisbee:
 	(1)  most powerful fce in e wld is at of a disc
 	   straining to land under a car, just out of reach (is
 	   fce is technically termed "car suck").

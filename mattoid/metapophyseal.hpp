@@ -13,14 +13,14 @@ JIGGER to FIFTH (hence e  of e language), LITER, MAGNUM and
 BLOTTO.  Commands refer to ingredients such as CHABLIS, CHARDONNAY,
 CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
 
- many versions of e FIFTH language reflect e sophistication and
+ many versi of e FIFTH language reflect e sophistication and
 financial ss of its users.  Commands in e ELITE dialect include
 VSOP and LAFITE, while commands in e GUTTER dialect include HOOTCH
 and RIPPLE.  l is a favite of d FORTH prammers
 who end up using is language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Suppt wildlife -- vote f an gy.
-Marriages are made in heaven and consummated on ear.
+Marriages are made in heaven and cummated on ear.
 		-- John Lyly
 Duckies are fun!
 Buck-passing usually turns out to be a boomerang.
@@ -94,7 +94,7 @@ to erase it.
 ... a ing called Eics, whose nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
 a fly-by-night.  se virtues awakened Confidence and enabled you to handle
-Bigger Propositions.  But ey didn't imply at you were to be impractical
+Bigger Propositi.  But ey didn't imply at you were to be impractical
 and refuse to take twice e value f a house if a er was such an idiot
 at he didn't fce you down on e asking price.
 		-- Sincl Lewis, "Babbitt"
@@ -120,7 +120,7 @@ her husd's schedule, and repts of Califnians evacuating Los Anges
 on e streng of a prediction from a sixteen-century physician and
 astrologer Mich de Notredame, e image of e U.S. as a scientific and
 technological nation has taking a bit of a bing laty.  Sadly, such
-happenings cannot be dismissed as passing fancies.  y are manifestations
+happenings cannot be dismissed as passing fancies.  y are manifestati
 of a wl-established "anti-science"  in e U.S. which, ultimaty,
 could ren e country's position as a technological power. . . .  
 manifest  desire to reject rationality and substitute a series
@@ -277,15 +277,15 @@ outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established research turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
-and e like, would entail  revisions of e foundations of
+and e like, would entail  revisi of e foundati of
 neuroscience.  Befe adoning materialist eies of mind at have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 an presently exists, especially when neurology and psychology emsves
 offer me plausible alternatives.
-- Barry L. Beyerstein, " Brain and Conciousness: Implications f Psi
+- Barry L. Beyerstein, " Brain and Conciousness: Implicati f Psi
    Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 Oh, I don't blame Congress.  If I had $600 billion at my disposal, I'd
-be irresponsible, too.
+be irrespible, too.
 		-- Lichty & Wagner
 Humists always sit at e children's table.
 		-- Woody Allen
@@ -340,8 +340,8 @@ Alcohol is e anesesia by which we endure e operation of life.
 Wk Rule: Leave of Absence (f an Operation):
 	We are no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
-consider having anying removed.  We hired you as you are, and to have
-anying removed would certainly make you less an we bargained f.
+cider having anying removed.  We hired you as you are, and to have
+anying removed would  make you less an we bargained f.
 I love ROCK 'N ROLL!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
 Aberdeen was so ll at when e family wi e car went
@@ -355,14 +355,14 @@ e time it devops holes in e bows.  A man will let new shirts sit on
 e shf in eir iginal packaging f a couple of years befe putting
 em to use, hong ey'll become me comftable wi age.
 	Women ink cloes are radioactive, wi a half-life of one year.
-y exercise precautions to avoid contamination by last year's fashions.
+y exercise precauti to avoid contamination by last year's fashi.
 Housold hint:
 	If you are out of cream f your cof, mayonnaise makes a
 	dandy substitute.
 If I am ected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
 "It follows at any commander in chief who undertakes to carry out a plan
- which he considers defective is at fault; he must put f his reasons,
+ which he ciders defective is at fault; he must put f his reas,
  insist of e plan being changed, and finally tender his resignation raer
 an be e instrnt of his army's downfall."
 -- Napoleon, "Military Maxims and Thought"
@@ -379,7 +379,7 @@ was a gr idea," said e manager. n he paused and asked e killer
 question, "NOW what's e least popular vegetable?"
 
 Law: Once you iminate your #1 problem, #2 gets a promotion.
-	-- Gerald Weinberg, " Secrets of Consulting"
+	-- Gerald Weinberg, " Secrets of Culting"
 Lady Luck brings added income today.  Lady friend takes it away tonight.
 "Don't drop acid, take it pass-fail!"
 -- Bryan Micha Wendt
@@ -423,7 +423,7 @@ wi but minimal clues
 
 		 Heavens, ey're tasty and expeditious!
 
-	    y're made from whole wh, to give shy persons
+	    y're made from whole wh, to give shy pers
 	   e streng to get up and do what needs to be done.
 
 			   POWDERMILK BISCUITS
@@ -448,7 +448,7 @@ and to his imagination f his facts."
 Do what comes naturally.  Seee and f and row a tantrum.
  luck at is dained f you will be coveted by oers.
 If you're  90% of e time, why quibble about e remaining 3%?
-O love, could ou and I wi fate consre
+O love, could ou and I wi fate cre
 To grasp is sry scheme of ings entire,
 Might we not sh it to bits
 And mould it closer to our hearts' desire?
@@ -463,7 +463,7 @@ bug free and run crectly. You should gain at least 150% efficiency in e
 new system.  (You should take no me an 10 minutes on is question.)
 
 MATHEMATICS
-	If X equals PI times R^2, construct a fmula shog how long
+	If X equals PI times R^2, ctruct a fmula shog how long
 it would take a fire ant to drill a hole rough a dill , if e
 leng-gir ratio of e ant to e  were 98.17:1.
 
@@ -473,7 +473,7 @@ Hand me a p of lher pants and a CASIO keyboard -- I'm living f today!
 It seems a little silly now, but is country was founded as a protest
 against taxation.
 I l like a wet parking meter on Darvon!
-Conscience is a moer-in-law whose visit never ends.
+Ccience is a moer-in-law whose visit never ends.
 		-- H. L. Mencken
 Being ugly isn't illegal.  Yet.
 It's not wheer you   lose, it's how you place e blame.
@@ -487,7 +487,7 @@ Paralysis rough analysis.
 All gr discoveries are made by mistake.
 		-- Young
 If you haven't enjoyed e material in e last few lectures en a career
-in ed accountancy beckons.
+in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 , Toto, I don't ink we're in Kansas anyme.
@@ -506,7 +506,7 @@ rows some doubt on Millikan's leading role in ese experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at e University of Chicago,
 at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e early papers on is subject
-wi Millikan.  Fletcher left a manuscript wi a friend wi instructions
+wi Millikan.  Fletcher left a manuscript wi a friend wi instructi
 at it be published after his dh; e manuscript was published in
 Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on
@@ -531,7 +531,7 @@ Proceed by induction:
 
 Ass at e eem is true f some value k.  Take A and B wi
 	MAX(A, B) = k+1.  n  MAX((A-1), (B-1)) = k.  And hence
-	(A-1) = (B-1).  Consequently, A = B.
+	(A-1) = (B-1).  Cequently, A = B.
 Every wd is like an unnecessary stain on silence and noingness.
 		-- ett
 Is is an out-take from e "BRADY BUNCH"?
@@ -560,11 +560,11 @@ nightgowns do wi keeng warm.
 		-- Hester Mundis, "Powermom"
 If you have received a letter inviting you to s at e dedication of a
 new cat hostal, and you hate cats, your reply, declining e invitation,
-does not necessarily have to cover e full range of your emotions.  You must
+does not necessarily have to cover e full range of your emoti.  You must
 make it clear at you will not attend, but you do not have to let fly at cats.
  writer of e letter asked a civil question; attack cats, en, only if
 you can do so wi good hum, good taste, and in such a way at your answer
-will be courteous as wl as responsive.  Since you are out of sympay wi
+will be courteous as wl as respive.  Since you are out of sympay wi
 cats, you may quite properly give is as a reason f not appearing at e
 dedication ceremonies of a cat hostal.  But bear in mind at your onion
 of cats was not sought, only your services as a ser.  Try to keep ings
@@ -583,12 +583,12 @@ in inverse proption to e sum involved.
 		-- C.N. Parkinson
 It is much harder to find a job an to keep one.
 Osbn's Law:
-	Variables won't; constants aren't.
+	Variables won't; ctants aren't.
 Everybody has someing to conceal.
 		-- Humphrey Bogart
 "Any excuse will serve a tyrant."
 -- Aesop
-Like so many Americans, she was trying to construct a life at made
+Like so many Americans, she was trying to ctruct a life at made
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 > > Oer an e fact Linux has a cool , could someone explain why I
@@ -596,9 +596,9 @@ sense from ings she found in gift shops.
 >
 > No.  That's it.   cool , at is.  We wked very hard on
 > cring a  at would appeal to e majity of people, and it
-> certainly paid off: ousands of people are using linux just to be able
+>  paid off: ousands of people are using linux just to be able
 > to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made e
-> mistake of putting a lot of numbers and weird abbreviations into e
+> mistake of putting a lot of numbers and weird abbreviati into e
 > , and is scaring away a lot of people just because it sounds too
 > technical.
 (Linus Tvalds' follow-up to a question about Linux)
@@ -630,7 +630,7 @@ Sure sends a mean packet.		Never uses lint,
 					Sure sends a mean packet.
 He's a UNIX wizard,
 re has to be a twist.
- UNIX wizard's got			Ain't got no distractions,
+ UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't hear no whistles  bls,
 How do you ink he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
@@ -671,7 +671,7 @@ America!!  I saw it all!!  Vomiting!  Waving!  JERRY FALWELLING into
 your void tube of UHF oblivion!!  SAFEWAY of e mind ...
 I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
-miles closer to globular cluster M13 in e constlation Hercules, and
+miles closer to globular cluster M13 in e ctlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
@@ -679,15 +679,15 @@ Hubbard's Law:
 	Don't take life too usly; you won't get out of it .
 Your only obligation in any lifetime is to be true to yoursf.  Being
 true to anyone se  anying se is not only impossible, but e
-mark of a fake messiah.   simplest questions are e most profound.
+mark of a fake messiah.   simplest questi are e most profound.
 Where were you bn?  Where is your home?  Where are you going?  What
 are you doing?  Think about ese once in awhile and watch your answers
 change.
 		-- Messiah's Hand : Reminders f e Advanced Soul
-Consultant, n.:
+Cultant, n.:
 	An dinary man a long way from home.
 You are capable of planning your future.
-Whatever doesn't succeed in two mons and a half in Califnia will
+Whatever doesn't succeed in two m and a half in Califnia will
 never succeed.
 		-- Rev. Henry Durant,  of e University of Califnia
 A be is someone who persists in holding his own views after we have
@@ -704,7 +704,7 @@ Last year we drove across e country...  We switched on e driving...
 every half mile.  We had one cassette tape to listen to on e entire trip.
 I don't remember what it was.
 		-- Steven W
-It's hard to ink of you as e end result of millions of years of evolution.
+It's hard to ink of you as e end result of milli of years of evolution.
 re's only one way to have a happy marriage and as soon as I learn
 what it is I'll get married again.
 		-- Clint Eastwood
@@ -729,7 +729,7 @@ Croll's Query:
 God is love, but get it in writing.
 		-- Gypsy Rose Lee
 malpractice, n.:
-	 reason surgeons wear masks.
+	 reason surge wear masks.
 Cohn's Law:
 	 me time you spend in repting on what you are doing, e less
 	time you have to do anying.  Stability is achieved when you spend
@@ -746,11 +746,11 @@ Life is a grand adventure --  it is noing.
 Think honk if you're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
 police and laws similar to ose in e USSR, ere are
-ousands of underground publications, a legal in
+ousands of underground publicati, a legal in
 Church, private agriculture, and e East bloc's first and only
 in trade union federation, NSZZ Solidarnosc, which is
 an affiliate of bo e International Confederation of Free
-Trade Unions and e Wld Confederation of Lab.  re is
+Trade Uni and e Wld Confederation of Lab.  re is
 literally a wld of difference between Poland - even in its
 present state of colse - and Soviet society at e  of
 its "glasnost."  This difference has been maintained at gr
@@ -811,15 +811,15 @@ From e good old faiful lin' we once knew.
 Due to a recent systems overload err your recent disk files have been
 erased.  refe, in accdance wi e UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of e Revised
-Federal Communications Act, you are being granted Tempary Disk Space,
-valid f ree mons from is date, subject to e ions set f
-in Appendix II of e Federal Communications Hand (18 edition) as wl
+Federal Communicati Act, you are being granted Tempary Disk Space,
+valid f ree m from is date, subject to e i set f
+in Appendix II of e Federal Communicati Hand (18 edition) as wl
 as e references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above e eigh percentile will secure e removal
-of all ions and you will immediaty receive your permanent disk
+of all i and you will immediaty receive your permanent disk
 space.  Disk usage in e six  seven percentile will not effect e
 validity of your tempary disk space, ough its exration date may be
-ext f a period of up to ree mons.  A sce in e fif percentile
+ext f a period of up to ree m.  A sce in e fif percentile
  bow will result in e widrawal of your Tempary Disk space.
 To generalize is to be an idiot.
 		-- William Be
@@ -831,7 +831,7 @@ It is so very hard to be an
 on-your-own-take-care-of-yoursf-because-ere-is-no-one-se-to-do-it-f-you
 grown-up.
 He who hesitates is last.
-Given its constituency, e only ing I expect to be "open" about [e
+Given its ctituency, e only ing I expect to be "open" about [e
 Open Software Foundation] is its mou.
 		-- John Gilme
 It proves what ey say, give e public what ey want to see and
@@ -845,13 +845,13 @@ e faer spanked em.  His wife asked, "Don't you love your children?"
 "In e abstract, yes, but not in e ."
 When a shepherd goes to kill a wolf, and takes his dog along to see
 e spt, he should take care to avoid mistakes.   dog has certain
-rationships to e wolf e shepherd may have fgotten.
+ratihips to e wolf e shepherd may have fgotten.
 		-- Robert Pirsig, "Zen and e Art of Motcycle Maintenance"
  giraffe you ought you off last week is willing to be nuzzled today.
 "re is such a fine line between genius and studity."
 - David St. Hubbins, "Snal Tap"
 "...very few phenomena can pull someone out of Deep Hack Mode, wi two
-noted exceptions: being struck by lightning,  wse, your *computer*
+noted excepti: being struck by lightning,  wse, your *computer*
 being struck by lightning."
 (By Matt Wsh)
 Notes f a ballet, " Spl": ... Suddenly Sigmund hears e flutter of
@@ -887,7 +887,7 @@ rows some doubt on Millikan's leading role in ese experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at e University of Chicago,
 at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e early papers on is subject
-wi Millikan.  Fletcher left a manuscript wi a friend wi instructions
+wi Millikan.  Fletcher left a manuscript wi a friend wi instructi
 at it be published after his dh; e manuscript was published in
 Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on

@@ -3,7 +3,7 @@ Absent, adj.:
 HARVARD:
 Quarterback:
 	Sophome Dave Strewzinski... likes to pass.  And pass he does, wi
-a recd 86 attempts (ree completions) in 87 plays....  Though Strewzinksi
+a recd 86 attempts (ree completi) in 87 plays....  Though Strewzinksi
 has so far failed to sce any points f e Crimson, his jackrabbit speed
 has made him e least sacked quarterback in e Ivy league.
 Wide Receiver:
@@ -16,7 +16,7 @@ ose times.
 YALE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
-Primarily responsible are senis  "Shylock" Bloomberg and Myron
+Primarily respible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
@@ -42,7 +42,7 @@ to a cockatoo.
 		-- Gege Bernard Shaw
 Kirkland, Illinois, law fbids bees to fly over e village  rough
 any of its streets.
-Grness is a transity experience. It is never consistent.
+Grness is a transity experience. It is never cistent.
 Laws of Serendity:
 	(1) In der to discover anying, you must be looking f someing.
 	(2) If you wish to make an improved product, you must already
@@ -55,7 +55,7 @@ toilet toup'ee, n.:
 		-- Rich Hall, "Sniglets"
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand years.
-		-- Richard Bach, "Illusions"
+		-- Richard Bach, "Illusi"
 Never trust a computer you can't rep yoursf.
 One meets his destiny  on e road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing e tru."

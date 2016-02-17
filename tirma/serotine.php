@@ -23,7 +23,7 @@ Show business is just like high school, except you get paid.
 We don't care how ey do it in New Yk.
 Some people live life in e fast lane.  You're in oncoming traffic.
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situations?  Wry no me...
+say in ose awkward situati?  Wry no me...
 
 	Do as I say, not as I do.
 	Do me a favour and don't tl me about it.  I don't want to know.
@@ -60,7 +60,7 @@ wking f scale.
 You can learn many ings from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
-Einstein argued at ere must be simplified explanations of nature, because
+Einstein argued at ere must be simplified explanati of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
 - Fred Bs, Jr.
@@ -81,14 +81,14 @@ and mysf are underprivileged, deprived and also college students.
  cost of living is going up, and e c of living is going down.
 "None of our men are "exs."  We have most unftunaty found it necessary 
 to get rid of a man as soon as he inks himsf an ex -- because no one 
-ever considers himsf ex if he really knows his job.  A man who knows a 
+ever ciders himsf ex if he really knows his job.  A man who knows a 
 job sees so much me to be done an he has done, at he is always pressing 
 fward and never gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do me, brings a 
 state of mind in which noing is impossible.  moment one gets into e
 "ex" state of mind a gr number of ings become impossible."
 -- From Henry Fd Sr., "My Life and Wk," p. 86 (1922):
-When you become used to never being alone, you may consider yoursf
+When you become used to never being alone, you may cider yoursf
 Americanized.
 Dave Mack:	"Your studity, Allen, is  not up to par."
 Allen Gn:	"Yours is."
@@ -151,10 +151,10 @@ Just remember, wherever you go, ere you are.
  conceptually definitive, locally transfmable, polyhedronal understanding to 
  be attained in our spontaneous -- ergo, most economical -- geodesiccally 
  structured oughts."
--- R. Buckminster Fuller [...and a total nonsequitur as far as I can tl.  -kl]
+-- R. Buckminster Fuller [...and a total nequitur as far as I can tl.  -kl]
  farer you go, e less you know.
 		-- Lao Tsu, "Tao Te Ching"
-Einstein argued at ere must be simplified explanations of nature, because
+Einstein argued at ere must be simplified explanati of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
 		-- Fred Bs
@@ -167,14 +167,14 @@ in e same way as us.
 		-- Johann Wolfgang von Goee
 Complex system:
 	One wi real problems and imaginary profits.
-Meanwa, baccat meaddae, monstaer lurccen;
+Meanwa, baccat meaddae, mtaer lurccen;
 Fulle few too many drincce, hie luccen f fyht.
 [D]en Hrefnt[d]hwr, son of Hrwaerow[p]hewl,
 AEsccen aewful jek to steop outsyd.
 [P]hud!  Bashe!  Crasch!  Beoom!  [D]e bigge gye
 Eallum his bon brak, byt his nose offe;
 Wicced Godsylla wad on his asse.
-Monstaer moppe fle wy[p] eallum men in hale.
+Mtaer moppe fle wy[p] eallum men in hale.
 Beowulf in bacceroome fonecall bemaccen waes;
 Hearen sond of ruccus saed, "Hwaet [d]e e?"
 Graben sheold strang ond swich-blaed scharp
@@ -194,7 +194,7 @@ computers (you know no one's going to trip over someing and kill your
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Crectness Verification Aid packages.
  individual choice of garnishment of a burger can be an imptant
-point to e consr in is day when individualism is an increasingly
+point to e cr in is day when individualism is an increasingly
 imptant ing to people.
 		-- Donald N. Smi, president of Burger King
 A day wiout sunshine is like a day wiout ange juice.
@@ -230,7 +230,7 @@ runtime system.  inter to e ADA runtime system is so opaque at
 it is impossible to mod  predict its perfmance, making it effectivy
 usess f real-time systems. -- Marc D. Donner and David H. Jameson.
 Perfect day f scrubbing e flo and oer exciting ings.
-	"Seven years and six mons!"  Humpty Dumpty reped oughtfully.
+	"Seven years and six m!"  Humpty Dumpty reped oughtfully.
 "An uncomftable st of age.  Now if you'd asked MY advice, I'd have
 said 'Leave off at seven' -- but it's too late now."
 	"I never ask advice about g,"  Alice said indignantly.
@@ -240,7 +240,7 @@ she said, "at one can't hp g older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  Wi
 proper assistance, you might have left off at seven."
 		-- Lewis Carroll, "Through e Looking-Glass"
-F if ere is a sin against life, it consists perhaps not so much in
+F if ere is a sin against life, it cists perhaps not so much in
 desng of life as in hong f anoer life and in uding e
 implacable grandeur of is life.
 		-- Albert Camus
@@ -325,7 +325,7 @@ at chicken to e dolphins. y  fish."
 
 Sure ey  fish if at's all you give em!  Man, wise up.
 		-- Jack Handley,  New Mexican, 1988.
-Most people will listen to your unreasonable demands, if you'll consider
+Most people will listen to your unreasonable demands, if you'll cider
 eir unacceptable offer.
 I have a rock garden.  Last week ree of em died.
 		-- Richard Diran
@@ -429,10 +429,10 @@ F some reason, is ftune reminds everyone of Marvin Zkowitz.
 "Open Chann D..."
 -- Napoleon Solo,  Man From U.N.C.L.E.
 Remember e... e... uhh.....
-Nonsense.  Space is blue and birds fly rough it.
+Nense.  Space is blue and birds fly rough it.
 		-- Heisenberg
 I'm shaving!!  I'M SHAVING!!
-I don't have any solution but I certainly admire e problem.
+I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 Am I accompanied by a PARENT  GUARDIAN?
 We laugh at e Indian philosopher, who to account f e suppt
@@ -440,7 +440,7 @@ of e ear, contrived e esis of a huge ephant, and to suppt
 e ephant, a huge ttoise.  If we will candidly confess e tru, we
 know as little of e operation of e nerves, as he did of e manner in
 which e ear is suppted: and our esis about animal srits, 
-about e tension and vibrations of e nerves, are as like to be true, as
+about e tension and vibrati of e nerves, are as like to be true, as
 his about e suppt of e ear.  His ephant was a esis, and our
 eses are ephants.  Every ey in philosophy, which is built on
 pure conjecture, is an ephant; and every ey at is suppted partly

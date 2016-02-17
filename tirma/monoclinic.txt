@@ -20,7 +20,7 @@ And I am Marie of Roumania.
 Jim, it's Jack.  I'm at the airport.  I'm going to Tokyo and wanna pay
 you the five-hundred I owe you.  Catch you next year when I get back!
 		-- "The Rockford Files"
-No one so thoroughly appreciates the value of constructive criticism as the
+No one so thoroughly appreciates the value of ctructive criticism as the
 one who's giving it.
 		-- Hal Chadwick
 Your ignorance cramps my conversation.
@@ -73,7 +73,7 @@ I just thought of something funny...your mother.
 You had mail, but the super-user read it, and deleted it!
 You can't go home again, unless you set $HOME.
 Do not underestimate the power of the Force.
-No live orgm can continue for long to exist sanely under conditions of
+No live orgm can continue for long to exist sanely under conditi of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty years and might stand for eighty more.
@@ -118,9 +118,9 @@ Any man who has $10,000 left when he dies is a failure.
 As I was passing Project MAC,
 I met a Quux with seven hacks.
 Every hack had seven bugs;
-Every bug had seven manifestations;
+Every bug had seven manifestati;
 Every manifestation had seven symptoms.
-Symptoms, manifestations, bugs, and hacks,
+Symptoms, manifestati, bugs, and hacks,
 How many losses at Project MAC?
 Practical people would be more practical if they would take a little
 more time for dreaming.
@@ -133,7 +133,7 @@ ought to go from here?"
 	"I don't care much where--" said Alice.
 	"Then it doesn't matter which way you go," said the Cat.
 Do more than anyone expects, and pretty soon everyone will expect more.
-The sum of the intelligence of the world is constant.  The population is,
+The sum of the intelligence of the world is ctant.  The population is,
 of course, growing.
 "It's a dog-eat-dog world out there, and I'm wearing Milkbone underware."
 -- Norm, from _Cheers_
@@ -191,7 +191,7 @@ three colleagues, an engineer, a physicist, and a mathematician, and locked
 each of them in seperate cells with plenty of canned food and water but no
 can opener.
 	A month later, returning, the mad scientist went to the engineer's
-cell and found it long empty.  The engineer had constructed a can opener from
+cell and found it long empty.  The engineer had ctructed a can opener from
 pocket trash, used aluminum shavings and dried sugar to make an explosive,
 and escaped.
 	The physicist had worked out the angle necessary to knock the lids
@@ -211,18 +211,18 @@ that he was more intelligent than dolphins because he had achieved so
 much -- the wheel, New York, wars and so on -- whilst all the dolphins
 had ever done was muck about in the water having a good time.  But
 conversely, the dolphins had always believed that they were far more
-intelligent than man -- for precisely the same reasons.
+intelligent than man -- for precisely the same reas.
 
 Curiously enough, the dolphins had long known of the impending
 destruction of the of the planet Earth and had made many attempts to
-alert mankind to the danger; but most of their communications were
+alert mankind to the danger; but most of their communicati were
 misinterpreted ...
 		-- Douglas Admas "The Hitchhikers' Guide To The Galaxy"
 The wise man seeks everything in himself; the ignorant man tries to get
 everything from somebody else.
 Heavier than air flying machines are impossible.
 		-- Lord Kelvin, President, Royal Society, c. 1895
-Keep in mind always the four constant Laws of Frisbee:
+Keep in mind always the four ctant Laws of Frisbee:
 	(1) The most powerful force in the world is that of a disc
 	   straining to land under a car, just out of reach (this
 	   force is technically termed "car suck").
@@ -256,7 +256,7 @@ backups: always in season, never out of style.
 Death rays don't kill people, people kill people!!
 The young lady had an unusual list,
 Linked in part to a structural weakness.
-She set no preconditions.
+She set no preconditi.
 A beautiful man is paradise for the eyes, hell for the soul, and
 purgatory for the purse. 
 Sweet April showers do spring May flowers.
@@ -265,7 +265,7 @@ The grand leap of the whale up the Fall of Niagara is esteemed, by all
 who have seen it, as one of the finest spectacles in nature.
 		-- Benjamin Franklin.
 VICARIOUSLY experience some reason to LIVE!!
-White dwarf seeks red giant for binary relationship.
+White dwarf seeks red giant for binary relatihip.
 If we suffer tamely a lawless attack upon our liberty, we encourage it,
 and involve others in our doom.
 		-- Samuel Adams

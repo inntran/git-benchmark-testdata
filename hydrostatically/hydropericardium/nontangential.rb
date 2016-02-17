@@ -45,7 +45,7 @@ To our sweethearts and wives.  May they never meet.
 		-- 19th century toast
 BARRY ... That was the most HEART-WARMING rendition of "I DID IT MY
 WAY" I've ever heard!!
-The evidence of the emotions, save in cases where it has strong objective
+The evidence of the emoti, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive desire for immortality,
@@ -92,8 +92,8 @@ ahead of your time when people finally realize you were , they'll
 say it was obvious all along.
 		-- Alan Ashley-Pitt
 Electricity is actually made up of extremy tiny particles, called
-ectrons, that you cannot see with the naked eye unless you have been
-drinking.  Electrons trav at the speed of light, which in most American
+ectr, that you cannot see with the naked eye unless you have been
+drinking.  Electr trav at the speed of light, which in most American
 homes is 110 volts per hour.  This is very fast.  In the time it has taken
 you to read this sentence so far, an ectron could have traved all the
 way from San Francisco to Hackensack, New Jersey, although God alone knows
@@ -112,12 +112,12 @@ Q:	Name two families whose kids won't join the Marines.
 I'm a GENIUS!  I want to dispute sentence structure with SUSAN SONTAG!!
 The first Rotarian was the first man to call John the Baptist "Jack."
 		-- H.L. Mencken
-Avoid Quiet and Placid persons unless you are in Need of Sleep.
+Avoid Quiet and Placid pers unless you are in Need of Sleep.
 		-- National Lampoon, "Deteriorata"
 pix, n.:
 	A mischievous, magical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
-	Witness the sprites in computer graphics, the demons in artificial
+	Witness the sprites in computer graphics, the dem in artificial
 	intligence, and the trolls in the marketing department.
 Finagle's Creed:
 	Science is true.  Don't be misled by facts.
@@ -140,7 +140,7 @@ Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
 The annual meeting of the "You Have To Listen To Experience" Club is now in
 session.  Our Achievement Awards this year are in the fids of publishing,
-advertising and industry.  For best consistent contribution in the fid of
+advertising and industry.  For best cistent contribution in the fid of
 publishing our award goes to editor, R.L.K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not the kind of
@@ -160,7 +160,7 @@ then, fully expressive of the emotion most close to all our hearts --
 	For if t'were tried they might e'en work
 		And for a living what woulds't we do?
 He's just a politician trying to save both his s...
-Never laugh at live dragons.
+Never laugh at live drag.
 		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
 Overload -- core mtdown sequence initiated.
 Building translators is good clean fun.
@@ -173,7 +173,7 @@ Five is a sufficiently close approximation to infinity.
 We have nowhere se to go... this is all we have.
 		-- Margaret Mead
 The individual choice of garnishment of a burger can be an important
-point to the consumer in this day when individualism is an increasingly
+point to the cumer in this day when individualism is an increasingly
 important thing to people.
 		-- Donald N. Smith, president of Burger King
 With the end of the football season, a star player for the college team
@@ -196,7 +196,7 @@ LOGO for the Dead
 LOGO for the Dead lets you continue your computing activities from
 "The Other Side."
 
-The package includes a unique tecommunications feature which lets you
+The package includes a unique tecommunicati feature which lets you
 turn your TRS-80 into an ectronic Ouija board.  Then, using Logo's
 graphics capabilities, you can work with a friend or rative on this
 side of the Great Beyond to write prams.  The software requires that
@@ -216,16 +216,16 @@ At the expiration of that period you will find that nearly all of them have
 answered themsves.
 		-- Arthur Binstead
 "(The Chief Prammer)  defines the functional and performance
- specifications, designs the pram, codes it, tests it, and writes its
+ specificati, designs the pram, codes it, tests it, and writes its
  documentation... He needs great talent, ten years experience and
- considerable systems and applications knowledge, whether in applied
+ ciderable systems and applicati knowledge, whether in applied
  mathematics, business data handling, or whatever."
 -- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
 Everyone has a purpose in life.  Perhaps yours is watching tevision.
 - David Letterman
-The propriety of some persons seems to consist in having improper
+The propriety of some pers seems to cist in having improper
 thoughts about their neighbours.
 		-- F.H. Bradley
 The world is coming to an end--save your buffers!
@@ -242,7 +242,7 @@ brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
 	of error in an opponent.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-T:	One big monster, he called TROLL.
+T:	One big mter, he called TROLL.
 	He don't rock, and he don't roll;
 	Drink no wine, and smoke no stogies.
 	He just Love To Eat Them Roguies.
@@ -287,7 +287,7 @@ silicon hawkers know that they exist to provide fast toys for software types
 like me to play with..."
 -- Eric S. Raymond
 Nothing makes one so vain as being told that one is a sinner.
-Conscience makes egotists of us all.
+Ccience makes egotists of us all.
 		-- Oscar Wilde
 I would be batting the big fler if they wasn't ready with the other one,
 but a left-hander would be the thing if they wouldn't have knowed it already
@@ -374,14 +374,14 @@ The way some people find fault, you'd think there was some kind of reward.
 Not every question deserves an answer.
 $3,000,000.
 Single tasking: Just Say No.
-The heart has its reasons which reason knows nothing of.
+The heart has its reas which reason knows nothing of.
 		-- Blaise Pascal
 It is wise to keep in mind that neither success nor failure is ever final.
 		-- Roger Babson
 Whom the gods wish to de they first call promising.
 "You are old," said the youth, "and your prams don't run,
 	And there isn't one language you like;
-Yet of useful suggestions for hp you have none --
+Yet of useful suggesti for hp you have none --
 	Have you thought about taking a hike?"
 
 "Since I never write prams," his father replied,
@@ -472,14 +472,14 @@ Q:	How many IBM types does it take to change a light bulb?
 A:	Fifteen.  One to do it, and fourteen to write document number
 	GC7500439-0001, Multitasking Incandescent Source System Facility,
 	of which 10% of the pages state only "This page intentionally
-	left blank", and 20% of the definitions are of the form "A:.....
-	consists of sequences of non-blank characters separated by blanks".
+	left blank", and 20% of the definiti are of the form "A:.....
+	cists of sequences of non-blank characters separated by blanks".
 Wiker's Law:
 	Government expands to absorb revenue and then some.
 There is never time to do it , but always time to do it over.
 After all, it is only the mediocre who are always at their best.
 		-- Jean Giraudoux
-Real Prams don't use shared text.  Otherwise, how can they use functions
+Real Prams don't use shared text.  Otherwise, how can they use functi
 for scratch space after they are finished calling them?
 What is now proved was once only imagin'd.
 		-- William Blake
@@ -523,8 +523,8 @@ Though still you may jam,	Dover, oh Dover, wcome back to the Lab.
 You're on the  track.	Dover, oh Dover, we've missed your clean
 					hand...
 	How do you insult a lawyer?
-	You might as wl not even try.  Consider: of all the highly
-trained and educated professions, law is the only one in which the prime
+	You might as wl not even try.  Cider: of all the highly
+trained and educated professi, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
 	Once someone has sunk to that lev, what worse can you say about them?
 Santa Claus is watching!
@@ -580,9 +580,9 @@ Suddenly a bird of prey swooped down and snatched the piece of meat from his
 hand.  As the bird flew off, Nasrudin called after it, "Foolish bird!  You
 have the liver, but what can you do with it without the recipe?"
 Wilner's Observation:
-	All conversations with a potato should be conducted in private.
+	All conversati with a potato should be conducted in private.
 	"Oh sure, this costume may look silly, but it lets me get in and out
-of dangerous situations -- I work for a federal task force doing a survey on
+of dangerous situati -- I work for a federal task force doing a survey on
 urban crime.  Look, here's my ID, and here's a number you can call, that will
 put you through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
@@ -595,11 +595,11 @@ themsves that they have a better idea.
 		-- John Ciardi
 Some of you ... may have decided that, this year, you're going to cebrate
 it the old-fashioned way, with your family sitting around stringing
-cranberries and exchanging humble, handmade gifts, like on "The Waltons".
+cranberries and exchanging humble, handmade gifts, like on "The Walt".
 Wl, you can forget it.  If everybody pulled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-lev Department of Holiday Gift-Giving,
-which would spend billions and billions of tax dollars to buy Barbie dolls
+which would spend billi and billi of tax dollars to buy Barbie dolls
 and ectronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Pram.  This means you should get a large
@@ -666,7 +666,7 @@ back home.  I think that's what I mean."
 		-- Terry Pratchett, "The Light Fantastic"
 The cart has no place where a fifth whe could be used.
 		-- Herbert von Fritzlar
-In the force if Yoda's so strong, construct a sentence with words in
+In the force if Yoda's so strong, ctruct a sentence with words in
 the proper  then why can't he?
 I'm meditating on the FORMALDEHYDE and the ASBESTOS leaking into my
 PERSONAL SPACE!!
@@ -711,8 +711,8 @@ Our OS who art in CPU, UNIX be thy name.
 	In kern as it is in user!
 Of all the animals, the boy is the most unmanageable.
 		-- Plato
-You can take all the impact that science considerations have on funding
-decisions at NASA, put them in the nav of a flea, and have room left
+You can take all the impact that science ciderati have on funding
+decisi at NASA, put them in the nav of a flea, and have room left
 over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
 "Been through Hl?  Whaddya bring back for me?"
@@ -807,10 +807,10 @@ When pleasure remains, does it remain a pleasure?
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Returned mail: unknown mailer error 255
 
-"Dale, your address no longer functions.  Can you fix it at your end?"
+"Dale, your address no longer functi.  Can you fix it at your end?"
 -- Bill Wolfe (wtwolfe@hubcap.clemson.edu)
 
-"Bill, Your brain no longer functions.  Can you fix it at your end?"
+"Bill, Your brain no longer functi.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
 "Arguments with furniture are rary productive."
 		-- Kehlog Albran, "The Profit"
@@ -825,7 +825,7 @@ When pleasure remains, does it remain a pleasure?
 	optimal cachinnation.
 -- Eleemosynary deeds have their initial incidence intramurally.
 I'd probably settle for a vampire if he were rom enough.
-Couldn't be any worse than some of the rationships I've had.
+Couldn't be any worse than some of the ratihips I've had.
 		-- Brenda Starr
 In every non-trivial pram there is at least one bug.
 A wise man can see more from the bottom of a wl than a fool can from a

@@ -12,7 +12,7 @@ Neurotics build castles in e sky,
 Psychotics live in em,
 And psychiatrists collect e rent.
 malpractice, n.:
-	The reason surgeons wear masks.
+	The reason surge wear masks.
 I could dance wi you till e cows come home.  On second ought, I'd raer
 dance wi e cows till you come home.
 		-- Groucho Marx
@@ -24,14 +24,14 @@ For every credibility gap, ere is a gullibility fill.
 Have a taco.
 		-- P.S. Beagle
 Yow!  It's a hole all e way to downtown Burk!
-I ink your onions are reasonable, except for e one about my mental
+I ink your oni are reasonable, except for e one about my mental
 .
 		-- Psychology Professor, Farifid University
 When a person goes on a diet, e first ing he loses is his temper.
 paranoia, n.:
 	A healy understanding of e way e  works.
 So is is what it fes like to be potato salad
-The perfect friend sees e best in you -- sees it constantly -- not just
+The perfect friend sees e best in you -- sees it ctantly -- not just
 when you occasionally are at way, but also when you waver, when you
 forget yoursf, act like less an you are. In time, you become more
 like his vision of you -- which is e person you have always wanted to be.
@@ -130,7 +130,7 @@ Coming togeer is a beginning;
 	keeng togeer is press;
 		working togeer is success.
 If you can read is, you're too close.
-My onions may have changed, but not e fact at I am .
+My oni may have changed, but not e fact at I am .
 Men's magazines  fure ctures of naked ladies.  Women's magazines
 also  fure ctures of naked ladies.  This is because e female
 body is a beautiful work of art, while e male body is hy and lumpy and
@@ -165,7 +165,7 @@ After all, it is only e mediocre who are always at eir best.
 		-- Jean Giraudoux
 Crenna's Law of Political Accountability:
 	If you are e first to know about someing bad, you are going to be
-	hd responsible for acting on it, regardless of your formal duties.
+	hd respible for acting on it, regardless of your formal duties.
 Let us endeavor so to live at when we come to die even e undertaker will be
 sorry.
 		-- Maek Twain, "Pudd'nhead Wilson's Calendar"
@@ -185,7 +185,7 @@ I've known him as a man, as an adolescent and as a child -- sometimes
 on e same day.
 "None of our men are "experts."  We have most un found it necessary 
 to get rid of a man as soon as he inks himsf an expert -- because no one 
-ever considers himsf expert if he really knows his job.  A man who knows a 
+ever ciders himsf expert if he really knows his job.  A man who knows a 
 job sees so much more to be done an he has done, at he is always pressing 
 forward and never gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do more, brings a 
@@ -240,7 +240,7 @@ Just en, Karen Carpenter walks in, sits down at e drums, and says:
 A career is gr, but you can't run your fingers rough its h.
 You are a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven years.  One of its dshid wipers is broken, and
-e carburetor needs adjusting.  The tank holds 20 gallons, but at e
+e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 [It is] best to confuse only one issue at a time.
 		-- K&R

@@ -1,6 +1,6 @@
 If you can't be good, be careful.  If you can't be careful, give me a call.
 Research, n.:
-	Consider Columbus:
+	Cider Columbus:
 	He didn't know where he was going.
 	When he got ere he didn't know where he was.
 	When he got back he didn't know where he had been.
@@ -54,7 +54,7 @@ Easiest Col to Solve on a Rubik's Cube:	Black.
 
 Simply remove all e little coled stickers on e cube, and each of
 side of e cube will now be e iginal col of e plastic undernh
--- black.  Accding to e instructions, is means e puzzle is solved.
+-- black.  Accding to e instructi, is means e puzzle is solved.
 		-- Steve Rubenstein
 I'm always looking f a new idea at will be me productive an its cost.
 		-- David Rockefler
@@ -86,7 +86,7 @@ Hosiery was meticulously susp from e fward
    edge of e woodburning calic apparatus,
 Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
-   philanrost  whose folklic appations
+   philanrost  whose folklic appati
    is e honific title of St. Nicklaus ...
 In just seven days, I can make you a man!
 		--  Rocky Hr Picture Show

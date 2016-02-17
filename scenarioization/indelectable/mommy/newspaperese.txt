@@ -60,12 +60,12 @@ Life is the childhood of our immortality.
 		-- Goethe
 If you lose your temper at a newspaper columnist, he'll get rich, 
 or famous or both.
-The notes blatted skyward as they rose over the Canada geese, feathered
+The notes blatted  as they rose over the Canada geese, feathered
 rumps mooning the day, webbed appendages frantically pedaling unseen
 bicycles in their search for sustenance, driven by cruel Nature's maxim,
 'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
 		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
-Where are the calculations that go with a calculated risk?
+Where are the calculati that go with a calculated risk?
 "Stan and I thought that this experiment was so stupid, we decided to finance 
  it ourselves."
 -- Martin Fleischmann, co-discoverer of room-temperature fusion (?)
@@ -82,7 +82,7 @@ someone with it."
 		-- M. Devine, Computer Science 340
 I went to my first computer conference at the New York Hilton about 20
 years ago.  When somebody there predicted the market for microprocessors
-would eventually be in the millions, someone else said, "Where are they
+would eventually be in the milli, someone else said, "Where are they
 all going to go? It's not like you need a computer in every doorknob!"
 
 Years later, I went back to the same hotel.  I noticed the room keys had
@@ -129,7 +129,7 @@ had to seek professional help."
 I worked in a health food store once.  A guy came in and asked me,
 "If I melt dry ice, can I take a bath without getting wet?"
 		-- Steven Wright
-Argue for your limitations, and sure enough, they're yours.
+Argue for your limitati, and sure enough, they're yours.
 		-- Messiah's Handbook : Reminders for the Advanced Soul
 Did YOU find a DIGITAL WATCH in YOUR box of VELVEETA?
 Didn't I buy a 1951 Packard from you last March in Cairo?
@@ -152,21 +152,21 @@ proof by omission:
 If opportunity came disguised as temptation, one knock would be enough.
 It will be advantageous to cross the great stream ... the Dragon is on
 the wing in the Sky ... the Great Man rouses himself to his Work.
-In Marseilles they make half the toilet soap we consume in America, but
+In Marseilles they make half the toilet soap we cume in America, but
 the Marseillaise only have a vague theoretical idea of its use, which they
 have obtained from books of travel.
 		-- Mark Twain
 Logic is the chastity belt of the mind!
-Best Beer: A panel of tasters assembled by the Consumer's Union in 1969
+Best Beer: A panel of tasters assembled by the Cumer's Union in 1969
 judged Coors and Miller's High Life to be among the very best. Those who
 doubt that beer is a serious subject might ponder its effect on American
 history. For example, New England's first colonists decided to drop anchor
 at Plymouth Rock instead of continuing on to Virginia because, as one of
-them put it, "We could not now take time for further consideration, our
+them put it, "We could not now take time for further cideration, our
 victuals being spent and especially our beer."
 	-- Felton & Fowler's Best, Worst & Most Unusual
 	Long ago, in a finite state far away, there lived a JOVIAL
-character named Jack.  Jack and his relations were poor.  Often their
+character named Jack.  Jack and his relati were poor.  Often their
 hash table was bare.  One day Jack's parent said to him, "Our matrices
 are sparse.  You must go to the market to exchange our RAM for some
 BASICs."  She compiled a linked list of items to retrieve and passed it
@@ -198,7 +198,7 @@ economics, n.:
 About the only thing on a farm that has an easy time is the dog.
 Nothing in progression can rest on its original plan.  We may as well think of
 rocking a grown man in the cradle of an infant.  -- Edmund Burke
-His life was formal; his actions seemed ruled with a ruler.
+His life was formal; his acti seemed ruled with a ruler.
 An American scientist once visited the offices of the great Nobel prize
 winning physicist, Niels Bohr, in Copenhagen.  He was amazed to find that
 over Bohr's desk was a horseshoe, securely nailed to the wall, with the
@@ -208,7 +208,7 @@ let it spill out).  The American said with a nervous laugh,
 do you, Professor Bohr?  After all, as a scientist --"
 Bohr chuckled.
 	"I believe no such thing, my good friend.  Not at all.  I am
-scarcely likely to believe in such foolish nonsense.  However, I am told
+scarcely likely to believe in such foolish nense.  However, I am told
 that a horseshoe will bring you good luck whether you believe in it or not."
 Serfs up!
 		-- Spartacus
@@ -234,7 +234,7 @@ In Lexington, Kentucky, it's illegal to carry an ice cream cone in your pocket.
 Sometimes you get an almost irresistible urge to go on living.
 What is a magician but a practising theorist?
 		-- Obi-Wan Kenobi
-COBOL is for morons.
+COBOL is for mor.
 		-- E.W. Dijkstra
 A man may sometimes be forgiven the kiss to which he is not entitled,
 but never the kiss he has not the initiative to claim.
@@ -273,7 +273,7 @@ her husband's schedule, and reports of Californians evacuating Los Angeles
 on the strength of a prediction from a sixteenth-century physician and
 astrologer Michel de Notredame, the image of the U.S. as a scientific and
 technological nation has taking a bit of a battering lately.  Sadly, such
-happenings cannot be dismissed as passing fancies.  They are manifestations
+happenings cannot be dismissed as passing fancies.  They are manifestati
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
 could threaten the country's position as a technological power. . . .  The
 manifest widespread desire to reject rationality and substitute a series
@@ -297,12 +297,12 @@ one, because EVERYONE wants two desserts, but NO ONE wants two deserts.
 Never argue with a fool -- people might not be able to tell the difference.
 ...And no philosophy, sadly, has all the answers.  No matter how assured
 we may be about certain aspects of our belief, there are always painful
-inconsistencies, exceptions, and contradictions.  This is true in religion as
+incistencies, excepti, and contradicti.  This is true in religion as
 it is in politics, and is self-evident to all except fanatics and the naive.
 As for the fanatics, whose number is legion in our own time, we might be
 advised to leave them to heaven.  They will not, unfortunately, do us the
 same courtesy.  They attack us and each other, and whatever their 
-protestations to peaceful intent, the bloody record of history makes clear
+protestati to peaceful intent, the bloody record of history makes clear
 that they are easily disposed to restore to the sword.  My own belief in
 God, then, is just that -- a matter of belief, not knowledge.  My respect
 for Jesus Christ arises from the fact that He seems to have been the
@@ -512,8 +512,8 @@ Ever wonder if taxation without representation might have been cheaper?
 All the simple programs have been written.
 It is not enough to have a good mind. The main thing is to use it well.
 		-- Rene Descartes
-To a Californian, the basic difference between the people and the pigeons
-in New York is that the pigeons don't shit on each other.
+To a Californian, the basic difference between the people and the pige
+in New York is that the pige don't shit on each other.
 	-- From "East vs. West: The War Between the Coasts
 Egotism, n:
 	Doing the New York Times crossword puzzle with a pen.
@@ -578,13 +578,13 @@ things we did.  I can only plead that my simple, barely-sentient friend
 and myself are underprivileged, deprived and also college students.
 		-- Waldo D.R. Dobbs
 Humor in the Court:
-Q: What is your relationship with the plaintiff?
+Q: What is your relatihip with the plaintiff?
 A: She is my daughter.
 Q: Was she your daughter on February 13, 1979?
 ... eighty years later he could still recall with the young pang of his
 original joy his falling in love with Ada.
 		-- Nabokov
-... we must not judge the society of the future by considering whether or not
+... we must not judge the society of the future by cidering whether or not
 we should like to live in it; the question is whether those who have grown up
 in it will be happier than those who have grown up in our society or those of
 the past.
@@ -626,7 +626,7 @@ You will find a question of mine.
 You will win success in whatever calling you adopt.
 The answer to the Ultimate Question of Life, the Universe, and Everything was
 released with the kind permission of the Amalgamated Union of Philosophers,
-Sages, Luminaries, and Other Professional Thinking Persons.
+Sages, Luminaries, and Other Professional Thinking Pers.
 Where, oh, where, are you tonight?
 Why did you leave me here all alone?
 I searched the world over, and I thought I'd found true love.
@@ -652,7 +652,7 @@ empty prophecies.  The danger already exists that mathematicians have made
 a covenant with the devil to darken the spirit and confine man in the 
 bonds of Hell."
  -- Saint Augustine
-Mr. Salter's side of the conversation was limited to expressions of assent.
+Mr. Salter's side of the conversation was limited to expressi of assent.
 When Lord Copper was right he said "Definitely, Lord Copper"; when he was
 wrong, "Up to a point."
 	"Let me see, what's the name of the place I mean?  Capital of Japan?

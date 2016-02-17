@@ -11,14 +11,14 @@ Hug me now, you mad, impetuous fool!!
 Nothing so needs reforming as other people's habits.
 		-- Mark Twain
 Yow!  Am I in Milwaukee?
-Acting is an art which consists of keeping the audience from coughing.
+Acting is an art which cists of keeping the audience from coughing.
 Now my EMOTIONAL RESOURCES are heavily committed to 23% of the SMELTING
 and REFINING industry of the state of NEVADA!!
 Lady Astor was giving a costume ball and Winston Churchill asked her what
 disguise she would recommend for him.  She replied, "Why don't you come
 sober, Mr. Prime Minister?"
 A Mexican newspaper reports that bored Royal Air Force pilots stationed
-on the Falkland Islands have devised what they consider a marvous new
+on the Falkland Islands have devised what they cider a marvous new
 game.  Noting that the local penguins are fascinated by airplanes, the
 pilots search out a beach where the birds are gathered and fly slowly
 along it at the water's edge.  Perhaps ten thousand penguins turn their
@@ -83,7 +83,7 @@ Walk softly and carry a big stick.
 		-- Theodore Roosevt
 Eleventh Law of Acoustics:
 	In a minimum-phase system there is an inextricable link between
-	frequency response, phase response and transient response, as they
+	frequency respe, phase respe and transient respe, as they
 	are all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-linear passive crossover network loading can
@@ -115,13 +115,13 @@ then someone makes you a friendly sign behind a window... or one notices
 that a flower that was in bud only yesterday has suddenly blossomed... or
 a letter slips from a drawer... and everything collapses.
 		-- Letters From Colette
-Consider the following axioms carefully:
+Cider the following axioms carefully:
 	"Everything's better when it sits on a Ritz."
 	and
 	"Everything's better with Blue Bonnet on it."
 What happens if one spreads Blue Bonnet margarine on a Ritz cracker?  The
 thought is fening.  Is this how God came into being?  Try not to
-consider the fact that "Things go better with Coke".
+cider the fact that "Things go better with Coke".
 Don't steal; thou'lt never thus compete  in business.  Cheat.
 		-- Ambrose Bierce
 Reclaimer, spare that tree!
@@ -139,7 +139,7 @@ A bird in the hand is worth two in the bush.
 bureaucracy, n:
 	A method for transforming energy into solid waste.
 Let's just say that where a change was required, I adjusted.  In every
-rationship that exists, people have to seek a way to survive.  If you
+ratihip that exists, people have to seek a way to survive.  If you
 really care about the person, you do what's necessary, or that's the end.
 For the first time, I found that I really could change, and the qualities
 I most admired in mysf I gave up.  I stopped being loud and bossy ...
@@ -180,7 +180,7 @@ How he can raise me in the air just by raising his hand
 	-- Reed College cheer
 Avert misunderstanding by calm, poise, and balance.
 		     THE "FUN WITH USENET" MANIFESTO
-Very little happens on Usenet without some sort of response from some other 
+Very little happens on Usenet without some sort of respe from some other 
 reader.  Fun With Usenet postings are no exception.  Since there are some who 
 might question the rationale of some of the excerpts included therein, I have 
 written up a list of guidines that sum up the philosophy behind these 
@@ -224,12 +224,12 @@ Association, in Rome]:
 
 The Ontopsychological school, availing itsf of new research criteria and
 of a new tematic epistemology, maintains that social modes do not spring
-from dialectics of territory or of class, or of consumer goods, or of means
-of power, but rather from dynamic latencies capillarized in millions of
-individuals in system functions which, once they have reached the event
+from dialectics of territory or of class, or of cumer goods, or of means
+of power, but rather from dynamic latencies capillarized in milli of
+individuals in system functi which, once they have reached the event
 maturation, burst forth in catastrophic phenomenology engaging a suitable
 stereotype protagonist or duty marionette (general, president, political
-party, etc.) to consummate the act of social schizophrenia in mass genocide.
+party, etc.) to cummate the act of social schizophrenia in mass genocide.
 I love you more than anything in this world.  I don't expect that will last.
 		-- Elvis Costlo
 By failing to prepare, you are preparing to fail.
@@ -238,7 +238,7 @@ the cigarettes?"
 -- the der Steptoe, c. 1970
 Doubt isn't the opposite of faith; it is an ement of faith.
 		-- Paul Tillich, German theologian.
-"What people have been reduced to are mere 3-D representations of their own 
+"What people have been reduced to are mere 3-D representati of their own 
 data."
 -- Arthur Miller
 Let's organize this thing and take all the fun out of it.
@@ -314,7 +314,7 @@ And all the king's men,
 Had scrambled eggs for breakfast again!
 A rolling disk gathers no MOS.
 You have Egyptian flu: you're going to be a mummy.
-"After I asked him what he meant, he replied that freedom consisted of
+"After I asked him what he meant, he replied that freedom cisted of
 the unimpeded  to get rich, to use his ability, no matter what the
 cost to others, to win advancement."
 		-- Norman Thomas

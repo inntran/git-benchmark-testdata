@@ -4,12 +4,12 @@ blurred by... the pollution of the language.
 If you look like your driver's license photo -- see a doctor.
 If you look like your passport photo -- it's too late for a doctor.
 	Something mysterious is formed, born in the silent void.  Waiting
-alone and unmoving, it is at once still and yet in constant motion.  It is
+alone and unmoving, it is at once still and yet in ctant motion.  It is
 the source of all programs.  I do not know its name, so I will call it the
 Tao of Programming.
 	If the Tao is great, then the operating system is great.  If the
 operating system is great, then the compiler is great.  If the compiler is
-greater, then the applications is great.  The user is pleased and there is
+greater, then the applicati is great.  The user is pleased and there is
 harmony in the world.
 	The Tao of Programming flows far away and returns on the wind of
 morning.
@@ -43,11 +43,11 @@ The clock struck one,
 The others escaped with minor injuries.
 Some of you ... may have decided that, this year, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
-cranberries and exchanging humble, handmade gifts, like on "The Waltons".
+cranberries and exchanging humble, handmade gifts, like on "The Walt".
 Well, you can forget it.  If everybody pulled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
-which would spend billions and billions of tax dollars to buy Barbie dolls
+which would spend billi and billi of tax dollars to buy Barbie dolls
 and electronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Program.  This means you should get a large

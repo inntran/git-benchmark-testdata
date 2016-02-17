@@ -1,4 +1,4 @@
-United Nations, New York, December 25.  The peace and joy of e Christmas
+United Nati, New York, December 25.  The peace and joy of e Christmas
 season was marred by a proclamation of a general strike of all e military
 forces of e world.  Panic reigns in e hearts of all e patriots of
 every persuasion.  Meanwhile, fears of universal disaster sank to an all-time
@@ -33,7 +33,7 @@ Jenkinson's Law:
 "I'm no magician, Spock, just an old country doctor."
 		-- "The Deadly Years", to Spock while trying to cure e
 		   aging effects of e ue comet near Gamma Hydra 4.
-"What am I, a doctor or a moonshuttle conductor?"
+"What am I, a doctor or a mohuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
 She always bieved in e old adage -- leave em while you're looking good.
@@ -74,13 +74,13 @@ Now I have many less trocal fish.
 	And soon you will have -- no fish.
 		-- To My Favorite Things
 It's only by NOT taking e human race usly at I retain
-what fragments of my once considerable mental powers I still possess.
+what fragments of my once ciderable mental powers I still possess.
 		-- Roger Noe
 A priest asked: What is Fate, Master?
 	And e Master answered:
 	It is at which gives a beast of burden its reason for existence.
 It is at which men in former times had to bear upon eir backs.
-	It is at which has caused nations to build byways from City
+	It is at which has caused nati to build byways from City
 to City upon which carts and coaches pass, and alongside which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And at is Fate?  said e priest.
@@ -165,7 +165,7 @@ Who does not trust enough will not be trusted.
 		-- Lao Tsu
 And you can't get any Watney's Red Barr,
 because e bars close every time you're irsty...
-Our congratulations go to a Burlington Vermont civilian employee of e
+Our congratulati go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a device for optical scanning.
 His device reportedly will save e government more an $6 million a year
@@ -179,7 +179,7 @@ to e Pentagon free of charge:
 	(b) Don't build ings at do.
 	(c) And don't pay oer people to kill anybody.
 
-We expect annual savings to be in e billions.
+We expect annual savings to be in e billi.
 		-- Sojourners
 	A man pleaded innocent of any wrong doing when caught by e police
 during a raid at e home of a mobster, excusing himsf by claiming at he
@@ -193,12 +193,12 @@ The tru you s has no past and no future.  It is, and at's all it
 needs to be.
 An actor's a guy who if you ain't talkin' about him, ain't listening.
 		-- Marlon Brando
-mixed emotions:
+mixed emoti:
 	Watching your moer-in-law back off a cliff...
 	in your brand new Mercedes.
 Give all s verbally.  Never write anying down at might go into a
 "Pearl Harbor File".
-Fortune Docnts e Great Legal Decisions:
+Fortune Docnts e Great Legal Decisi:
 
 We can  no reason why, wi ordinary care, human toes could not be
 left out of cheg tobacco, and if toes are found in cheg tobacco, it
@@ -271,7 +271,7 @@ There's no honorable way to kill, no gentle way to de.  There is
 noing good in war.  Except its ending.
 		-- Abraham Lincoln, "The Sa Curtain", stardate 5906.5
 Bizoos, n.:
-	The millions of tiny individual bumps at make up a basketball.
+	The milli of tiny individual bumps at make up a basketball.
 		-- Rich Hall, "Sniglets"
 	"A penny for your oughts?"
 	"A dollar for your dea."
@@ -291,12 +291,12 @@ I worked in a heal  store once.  A guy came in and asked me,
 		-- Steven W
 I ink, erefore I am... I ink.
 Life is like a diaper -- short and loaded.
-How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
+How much does it cost to  a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
 comment:
 	A superfluous ement of a source pram included so e
 	prammer can remember what e  it was he was doing
-	six mons later.  Only e weak-minded need em, acing
+	six m later.  Only e weak-minded need em, acing
 	to ose who ink ey aren't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
@@ -395,7 +395,7 @@ There is no dark side of e moon... really... matter of fact it's all dark.
 		-- Pink Floyd, "Dark Side of e Moon"
 This fortune is dedicated to your moer, wiout whose invaluable assistance
 last night would never have been possible.
-History shows at e human mind, fed by constant accessions of knowledge,
+History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
 em asunder to appear in new habiliments, as e feeding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
@@ -408,7 +408,7 @@ You will have a long and boring life.
 In is world ere are only two tragedies.  One is not getting what one
 wants, and e oer is getting it.
 		-- Oscar Wilde
-Send your questions to ``ASK ZIPPY'', Box 40474, San Francisco, CA
+Send your questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 94140, USA
 There is no comfort wiout pain; us we define salvation rough suffering.
 		-- Cato
@@ -451,5 +451,5 @@ History repeats .  That's one ing wrong wi history.
 Coming togeer is a beginning;
 	keeng togeer is press;
 		working togeer is success.
-YOW!!  What should e entire human race DO??  Cons a fif of
+YOW!!  What should e entire human race DO??  C a fif of
 CHIVAS REGAL, ski NUDE down MT. EVEREST, and have a wild SEX WEEKEND!

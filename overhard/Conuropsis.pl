@@ -43,7 +43,7 @@ Cache:
 	The enforced compression of a string in e fixed-leng fid
 .
 	The problem of fitting extremy variable-leng strings such as names,
-addresses, and item descriptions into fixed-leng res is no trivial
+addresses, and item descripti into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
@@ -71,20 +71,20 @@ make e Ace of Spades jump out of e deck and squirt cider in your ears.
 But son, do not bet is man, for you will end up wi a ear full of cider.
 		-- Sky Masterson's Faer
 "I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
-(Linus Torvalds in response to a bug report.)
+(Linus Torvalds in respe to a bug report.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Disquieting ...
-(Gonzalo Tornaria in response to Linus Torvalds's mailing about a kern bug.)
+(Gonzalo Tornaria in respe to Linus Torvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 We need to find some new terms to describe e rest of us mere mortals
 en.
-(Craig Scher in response to Linus Torvalds's mailing about a kern bug.)
+(Craig Scher in respe to Linus Torvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Sury, Linus is talking about e kind of idiocy at oers asre to :-).
-(Bruce Perens in response to Linus Torvalds's mailing about a kern bug.)
+(Bruce Perens in respe to Linus Torvalds's mailing about a kern bug.)
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "Look," he says, "do you suppose you could find some
@@ -119,9 +119,9 @@ just stay at your home directory
 and let all processes take eir course.
 I am so optimistic about beef prices at I've just leased a pot roast
 wi an option to .
-It must have been some unmarried fool at said "A child can ask questions
+It must have been some unmarried fool at said "A child can ask questi
 at a wise man cannot answer"; because, in any decent house, a brat at
-starts asking questions is promptly packed off to bed.
+starts asking questi is promptly packed off to bed.
 		-- Arur Binstead
 No house should ever be on any hill or on anying.  It should be of e hill,
 bonging to it.
@@ -147,7 +147,7 @@ Or I'm told at he did
 In e Antartical Zonio.
 The difference between common-sense and paranoia is at common-sense is
 inking everyone is out to get you.  That's normal -- ey are.  Paranoia
-is inking at ey're consring.
+is inking at ey're cring.
 		-- J. Kegler
 "Based on what you know about him in history s, what do you ink Abraham 
 Lincoln would be doing if he were  today?
@@ -169,7 +169,7 @@ e ground directly in front of e Miltas Gumps.  Members will grep
 each oer by e hand (after intro), yacc a lot, smoke filtered
 chroots in pes, chown wi forks, use e wc (unless uuclean), fseek
 nice zombie processes, strip, and sleep, but not, we hope, od.  Three
-days will be devoted to discussion of e ramifications of whodo.  Two
+days will be devoted to discussion of e ramificati of whodo.  Two
 seconds have been allotted for a complete rundown of all e user-
 friendly s of Unix.  Seminars include "Everying You Know is
 Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
@@ -179,7 +179,7 @@ all GUGUs (Gurus of Unix Group of Users) already know everying we
 could tl em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
 Is is e line for e latest whimsical YUGOSLAVIAN drama which also
-makes you want to CRY and reconsider e VIETNAM WAR?
+makes you want to CRY and recider e VIETNAM WAR?
 Learning French is trivial: e word for  is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
@@ -218,7 +218,7 @@ exclamation marks!!  Place pronouns as close as possible, especially in long
 s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
-metaphors.  Avoid trendy loions at sound fy.  Everyone should be
+metaphors.  Avoid trendy loi at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
 but not least, avoid cliches like e plague; seek viable alternatives.
@@ -228,7 +228,7 @@ and tourist handouts.  This bear has learned to open car doors in
 Yosemite, where damage to automobiles caused by bears runs into e tens
 of ousands of dollars a year.  Campaigns to bearproof all garbage
 containers in wild areas have been difficult, because as one biologist
-put it, "There is a considerable overlap between e intligence levs
+put it, "There is a ciderable overlap between e intligence levs
 of e rtest bears and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Compare; my business is to Create.
@@ -268,7 +268,7 @@ media, which are in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
 astronomy column?  And I bieve it is also e fault of e educational
 system.  We do not teach how to ink.  This is a very us failure at
-may even, in a world rigged wi 60,000 nuclear weapons, compromise e human
+may even, in a world rigged wi 60,000 nuclear weap, compromise e human
 future.
 - Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Keep your laws off my body!
@@ -289,7 +289,7 @@ Law of e Perversity of Nature:
 Some people carve careers, oers chis em.
 Jealousy is all e fun you ink ey have.
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situations?  Worry no more...
+say in ose awkward situati?  Worry no more...
 
 	When are you going to grow up?
 	I'm only doing is for your own good.
@@ -391,7 +391,7 @@ which is e exact opposite.
 An expert is a person who avoids e ll errors as he sweeps on to e
 grand fallacy.
 		-- Benjamin Stolberg
-	The Minnesota Board of Education voted to consider requiring all
+	The Minnesota Board of Education voted to cider requiring all
 students to do some "volunteer work" as a prerequisite to high school
 graduation.
 	Senator Orrin Hatch said at "catal punishment is our society's
@@ -483,7 +483,7 @@ e little girl?
 If it's not in e computer, it doesn't exist.
 Meade's Maxim:
 	Always remember at you are absoluty unique, just like everyone se.
-This is e first nrical problem I ever did.  It demonstrates e
+This is e first nrical problem I ever did.  It demtrates e
 power of computers:
 
 Enter lots of data on calorie & nutritive content of s.  Instruct

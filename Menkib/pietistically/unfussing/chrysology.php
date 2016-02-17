@@ -20,10 +20,10 @@ No m who you are, some scholar can show you e gr idea you had
 was had by someone befe you.
 "In cpate life, I ink ere are ree imptant areas which contracts
 can't deal wi, e area of conflict, e area of change and area of reaching
-potential.  To me a covenant is a rationship at is based on such ings
+potential.  To me a covenant is a ratihip at is based on such ings
 as shared ideals and shared value systems and shared ideas and shared
 ment as to e processes we are going to use f wking togeer.  In
-many cases ey devop into real love rationships."
+many cases ey devop into real love ratihips."
 -- Max DePree, chman and CEO of Herman Miller Inc., "Herman Miller's 
    Secrets of Cpate Crivity",  Wall Street Journal, May 3, 1988
 People seem to enjoy ings me when ey know a lot of oer people
@@ -117,8 +117,8 @@ to a rival.  Husds, good  bad, always have rivals.  Lovers, never.
 Wk Rule: Leave of Absence (f an Operation):
 	We are no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
-consider having anying removed.  We hired you as you are, and to have
-anying removed would certainly make you less an we bargained f.
+cider having anying removed.  We hired you as you are, and to have
+anying removed would  make you less an we bargained f.
 When in doubt, mumble; when in trouble, degate; when in charge, ponder.
 		-- James H. Ben
 Pereant, inquit, qui ante nos nostra dixerunt.
@@ -179,7 +179,7 @@ of asterisked s:
 	It weighs less an 8 pounds.*
 	And costs less an $1,300.**
 
-In tiny type were ese "fuller explanations":
+In tiny type were ese "fuller explanati":
 
       * Don't asterisks make you suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power
@@ -201,7 +201,7 @@ Life begins at e centerfold and expands outward.
 I just had a NOSE JOB!!
  Seven Edition licensing procedures are, I suppose, still in effect, 
 ough I doubt at tapes are available from AT&T.  At any rate, whatever 
-ions e license imposes still exist.  se ions were and 
+i e license imposes still exist.  se i were and 
 are reasonable f places at just want to run e system, but don't allow 
 many of e ings at Minix was written f, like study of e source in 
 classes,  by individuals not in a university  company.
@@ -211,7 +211,7 @@ I've always ought at Minix was a fine idea, and competently done.
 As f e size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 
 -- Dennis Ritchie, 1989
-Histy teaches us at men and nations bave wisy once ey have
+Histy teaches us at men and nati bave wisy once ey have
 All phone calls are obscene.
 exhausted all oer alternatives.
 		-- Abba E
@@ -227,12 +227,12 @@ Don't tl me how hard you wk.  Tl me how much you get done.
 -- James J. Ling
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
-Don't guess -- c your security tions.
+Don't guess -- c your security ti.
 "re was a boy called Eustace Clarence Scrubb, and he almost deserved it."
 		-- C. S. Lewis, " Chronicles of Narnia"
 Living on Ear may be expensive, but it includes an annual free trip
 around e Sun.
-Ignance must certainly be bliss  ere wouldn't be so many people
+Ignance must  be bliss  ere wouldn't be so many people
 so resoluty pursuing it. 
 Littering is dumb.
 		-- Ronald Macdonald
@@ -283,14 +283,14 @@ Me money.
 A green hunting cap d e top of e fleshy balloon of a head.  
 green earfs, full of large ears and un h and e fine bristles at
 grew in e ears emsvse, stuck out on eier side like turn signals
-indicating two directions at once.  Full, pursed lips protruded benh e
+indicating two directi at once.  Full, pursed lips protruded benh e
  black moustache and, at eir cners, sank into little folds filled
 wi disapproval and potato chip crumbs.  In e shadow under e green vis
 of e cap Ignatius J. Reilly's supercilious blue and ylow eyes looked down
 upon e oer people waiting under e clock at e D.H. Holmes department
 ste, studying e crowd of people f signs of bad taste in dress.  Several
 of e outfits, Ignatius noticed, were new enough and expensive enough to be
-properly considered offenses against taste and decency.  Possession of
+properly cidered offenses against taste and decency.  Possession of
 anying new  expensive only reflected a person's lack of eology and
 geometry; it could even cast doubts upon one's soul.
 		-- John Kennedy Toole, "Confederacy of Dunces"
@@ -333,7 +333,7 @@ Article e Fif:
 	Babies should enjoy e freedom to vocalize, wheer it be in church,
 	a public meeting place, during a movie,  after hours when e
 	lights are out.  y have not yet learned at joy and laughter have
-	to last a lifetime and must be conserved.
+	to last a lifetime and must be cerved.
 		-- Erma Bombeck, "A Baby's  of Rights"
 ...when fits of crivity run strong, me an one prammer  writer has
 been known to adon e desktop f e me spacious flo.
@@ -368,13 +368,13 @@ One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
-1 Sagan						= ions & ions
+1 Sagan						= i & i
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
  amount of beauty required launch 1 ship	= 1 Millihen
 Cry's Law:
-	Paper is always strongest at e perfations.
+	Paper is always strongest at e perfati.
 New England Life, of course.  Why do you ask?
 An exotic journey in downtown Newark is in your future.
 Year, n.:
@@ -387,7 +387,7 @@ And many miles be still to go,
 But under a tall tree I will lie,
 And let e clouds go sailing by.
 		-- J. R. R. Tolkien
- so-called lessons of histy are f e most part e rationalizations
+ so-called less of histy are f e most part e rationalizati
 of e victs.  Histy is written by e survivs.
 		-- Max Lerner
  human animal differs from e lesser primates in his passion f
@@ -411,7 +411,7 @@ tie wi at suit, are you?"). So he has narrowed it down to ree safe
 ties, and has gone several years wiout being laughed at.  If you give him
 a new tie, he will pretend to like it, but deep  he will hate you.
 
-If you want to give a man someing practical, consider tires.  Me an
+If you want to give a man someing practical, cider tires.  Me an
 once, I would have gladly traded all e gifts I got f a new set of tires.
 		-- Dave Barry, "Christmas Shopng: A Surviv's Guide"
 How many "coming men" has one known!  Where on ear do ey all go to?
@@ -425,7 +425,7 @@ Rule of Crive Research:
 	(3) Never trace what you can  out and paste down.
 You are number 6!  Who is number one?
 Fashion is a fm of ugliness so intolerable at we have to alter it
-every six mons.
+every six m.
 		-- Oscar Wilde
 "Life is like a buffet; it's not good but ere's py of it."
 Please don't recommend me to your friends-- it's difficult enough to
@@ -451,14 +451,14 @@ to e claims of paleontologists and ists, as if e two were
 scientific colleagues....It has been clear f a long time at e president
 is averse to science...In general, ese attitudes fall onto friendly American
 turf....But at e outer edges, is skepticism about science easily turns
-into a kind of naive acceptance of nonscience,  even nonsense.   same
+into a kind of naive acceptance of ncience,  even nense.   same
 people who doubt exs can also bieve any ery, from e benefits of
 laetrile to eye of newt to e movment of planets.  We lose e capacity to
 make rational -- scientific -- judgments.  It's all e same.
 -- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
     Group
 Weed's Axiom:
-	Never ask two questions in a business letter.
+	Never ask two questi in a business letter.
 	 reply will discuss e one in which you are
 	least interested and say noing about e oer.
 Repartee is someing we ink of twenty-four hours too late.
@@ -498,7 +498,7 @@ ponderous, ankless, and of e utmost criticality.
 "Being disintegrated makes me ve-ry an-gry!" <huff, huff>
 take fceful action:
 	Do someing at should have been done a long time ago.
-"He flung himsf on his hse and rode madly off in all directions."
+"He flung himsf on his hse and rode madly off in all directi."
 hard, adj.:
 	 quality of your own data; also how it is to bieve ose
 	of oer people.
@@ -534,7 +534,7 @@ Life.  Don't talk to me about life.
 This is clearly anoer case of too many mad scientists, and not enough
 hunchbacks.
 Zippy's brain cls are straining to  synapses ...
-No one so oughly appreciates e value of constructive criticism as e
+No one so oughly appreciates e value of ctructive criticism as e
 one who's giving it.
 		-- Hal Chadwick
 "my terminal is a leal teas."
@@ -562,7 +562,7 @@ grest art can show.   true srit of dight, e exaltation, e sense
 of being me an man, which is e touchstone of e highest exclence, is
 to be found in maematics as sury as in poetry.
 		-- Bertrand Russl
-Because we don't ink about future generations, ey will never fget us.
+Because we don't ink about future generati, ey will never fget us.
 		-- Henrik Tikkanen
 Obviously e only rational solution to your problem is suicide.
 In der to discover who you are, first learn who everybody se is;
@@ -610,7 +610,7 @@ dada, n:	Infmation, esp. infmation ganized f analysis
 			computation.
 		-- Massachewsetts Unad Dictionary
 Too  people have come to me and said, "If I had just one wish f
-anying in all e wld, I would wish f me user-defined equations
+anying in all e wld, I would wish f me user-defined equati
 in e HP-51820A fm Generat Software."
 		-- Instrnt News
 		[Once is too .  Ed.]
@@ -643,7 +643,7 @@ All togeer now...
 	Tie me kangaroo down.
 	Tie me kangaroo down, spt,
 	Tie me kangaroo down.
-Money is better an poverty, if only f financial reasons.
+Money is better an poverty, if only f financial reas.
 If you ink befe you s e oer guy gets his joke in first.
 QOTD:
 	I've heard about civil Engineers, but I've never met one.
@@ -659,7 +659,7 @@ much good it did em.
 Gosh at takes me back...  is it fward?  That's e trouble wi
 time trav, you never can tl."
 		-- Doct Who, "Androids of Tara"
-A wise person makes his own decisions, a weak one obeys public onion.
+A wise person makes his own decisi, a weak one obeys public onion.
 		-- Chinese proverb
  gods gave man fire and he invented fire engines.  y gave him
 love and he invented marriage.
@@ -710,7 +710,7 @@ individually and in combination, isn't it a little <fill in e blank> to be
 limited to a single, now quite trite, adjective?
 Heisenberg may have slept here...
 Teachers have class.
-Pollyanna's Educational Constant:
+Pollyanna's Educational Ctant:
 	 hyperactive child is never absent.
 Cynic, n.:
 	One who looks rough rose-coled glasses wi a jaundiced eye.
@@ -736,7 +736,7 @@ undocnted external procedure.
 Some people manage by e , even ough ey don't know who wrote e
   even what .
 And it should be e law: If you use e wd `paradigm' wiout knog
-what e  says it means, you go to jail.  No exceptions.
+what e  says it means, you go to jail.  No excepti.
 		-- David Jones
 Prejudice:
 	A vagrant onion wiout visible means of suppt.
@@ -750,7 +750,7 @@ of asterisked s:
 	It weighs less an 8 pounds.*
 	And costs less an $1,300.**
 
-In tiny type were ese "fuller explanations":
+In tiny type were ese "fuller explanati":
 
       * Don't asterisks make you suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power

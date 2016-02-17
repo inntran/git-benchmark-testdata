@@ -14,7 +14,7 @@ Sure sends a mean packet.		Never uses lint,
 					Sure sends a mean packet.
 He's a UNIX wizard,
 There has to be a twist.
-The UNIX wizard's got			Ain't got no distractions,
+The UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't hear no whistles or bls,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
@@ -48,7 +48,7 @@ Finagle's Sixth Law:
 I refuse to have a battle of wits with an unarmed person.
 I don't want to live on in my work, I want to live on in my apartment.
 		-- Woody Allen
-Ten of the meanest cons in the state pen met in the corner of the yard to
+Ten of the meanest c in the state pen met in the corner of the yard to
 shoot some craps.  The stakes were enormous, the tension palpable.
 	When his turn came to shoot, Dutsky nervously plunked down his
 entire wad, shook the dice and rolled.  A smile crossed his  as a
@@ -60,7 +60,7 @@ and handed the others to Dutsky.
 When some people decide it's time for everyone to make big changes,
 it means that they want you to change first.
 They [preachers] dread the advance of science as witches do the approach
-of daylight and scowl on the fatal harbinger announcing the subversions
+of daylight and scowl on the fatal harbinger announcing the subversi
 of the duperies on which they live.
 - Thomas Jefferson
 Pascal is not a high-lev language.
@@ -70,17 +70,17 @@ Laugh at your problems; everybody se does.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
 		-- Andy Capp
-The husband who doesn't tl his wife everything probably reasons that
+The husband who doesn't tl his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- Leo J. Burke
 Arbitrary systems, pl.n.:
 	Systems about which nothing general can be said, save "nothing
 	general can be said."
 American culture is based on the automobile, and any young man of promise
-is going to own one and want to trav great distances in it.  Consequently,
-any young woman of aspiration should expect to spend most of her vacations
+is going to own one and want to trav great distances in it.  Cequently,
+any young woman of aspiration should expect to spend most of her vacati
 in a car, probing into unfamiliar corners.  She is not required to know how
-to drive but she will certainly be expected to read the road map while her
+to drive but she will  be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
 hp, she's bound to cause trouble.  Therefore, you'd think that colleges
 which train the b young women who're going to marry the b young
@@ -117,8 +117,8 @@ Wiker's Law:
 We may not like doctors, but at least they doctor.  Bankers are not ever
 popular but at least they bank.  Policeman police and undertakers take
 under.  But lawyers do not give us law.  We receive not the gladsome light
-of jurisprudence, but rather precedents, objections, appeals, stays,
-filings and forms, motions and counter-motions, all at $250 an hour.
+of jurisprudence, but rather precedents, objecti, appeals, stays,
+filings and forms, moti and counter-moti, all at $250 an hour.
 		-- Nolo News, summer 1989
 Iam
 not
@@ -154,12 +154,12 @@ Two wrongs are only the beginning.
 Cebrate Hannibal Day this year.  Take an ephant to lunch.
 I'd like some JUNK FOOD ... and then I want to be ALONE --
 If in doubt, mumble.
-Disclaimer: "These opinions are my own, though for a ll fee they be
+Disclaimer: "These opini are my own, though for a ll fee they be
 yours too."
 		-- Dave Haynie
 Santa Claus is watching!
-Clovis' Consideration of an Atmospheric Anomaly:
-	The perversity of nature is nowhere better demonstrated
+Clovis' Cideration of an Atmospheric Anomaly:
+	The perversity of nature is nowhere better demtrated
 	than by the fact that, when exposed to the same atmosphere,
 	bread becomes hard while crackers become soft.
 Excessive login or logout messages are a sure sign of senility.
@@ -178,16 +178,16 @@ The Greatest Mathematical Error
 July 1962 towards Venus.  After 13 minutes' flight a  engine would
 give acceration up to 25,820 mph; after 44 minutes 9,800 solar cls
 would unfold; after 80 days a computer would calculate the final course
-corrections and after 100 days the craft would cirlce the unknown planet,
+correcti and after 100 days the craft would cirlce the unknown planet,
 scanning the mysterious cloud in which it is bathed.  
 	However, with an efficiency that is truly heartening, Mariner I
 plunged into the Atl Ocean only four minutes after takeoff.
 	Inquiries later revealed that a minus sign had been omitted from
-the instructions fed into the computer.  "It was human error", a launch
+the instructi fed into the computer.  "It was human error", a launch
 spoken said.
 	This minus sign cost L4,280,000.
 		-- Stephen Pile, "The Book of Heroic Failures"
-Our congratulations go to a Burlington Vermont civilian employee of the
+Our congratulati go to a Burlington Vermont civilian employee of the
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a device for optical scanning.
 His device reportedly will save the government more than $6 million a year
@@ -201,11 +201,11 @@ to the Pentagon free of charge:
 	(b) Don't build things that do.
 	(c) And don't pay other people to kill anybody.
 
-We expect annual savings to be in the billions.
+We expect annual savings to be in the billi.
 		-- Sojourners
-Conscience is the inner voice that warns us somebody may be looking.
+Ccience is the inner voice that warns us somebody may be looking.
 		-- H.L. Mencken, "A Mencken Chrestomathy"
-All I've got left on the list of desirable vocations is heiress to the
+All I've got left on the list of desirable vocati is heiress to the
 throne of any country in Western Europe and Laurie Anderson.  "Be
 practical", was the choral reply from the dinner table.  Wl, Laurie
 Anderson is already Laurie Anderson, but I read an article in Harpers
@@ -217,7 +217,7 @@ intlectually lame.  It's hard to see me doing that for the rest of
 my life.  But at the same time, it's what I do best.
 - Chris Elliot, writer and performer on "Late Night with David Letterman"
 Humor in the Court:
-Q: ...any suggestions as to what prevented this from being a murder trial 
+Q: ...any suggesti as to what prevented this from being a murder trial 
    instead of an attempted murder trial?
 A: The victim lived.
 Although golf was originally restricted to wealthy, overweight Protestants,
@@ -225,7 +225,7 @@ today it's open to anybody who owns hideous clothing.
 		-- Dave Barry
 You can never tl which way the train went by looking at the tracks.
 To doubt everything or to bieve everything are two equally convenient
-solutions; both dispense with the necessity of .
+soluti; both dispense with the necessity of .
 		-- H. Poincar'e
 I never said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
@@ -266,7 +266,7 @@ After the game the king and the p go in the same box.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
 The years of  mental activity are undoubtedly between the ages of four
-and eighteen.  At four we know all the questions, at eighteen all the answers.
+and eighteen.  At four we know all the questi, at eighteen all the answers.
 The assertion that "all men are created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
@@ -291,9 +291,9 @@ Wl, it's hard for a mere man to bieve that woman doesn't have equal s.
 Experience is the worst teacher.  It always gives the test first and
 the instruction afterward.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
-chatting with persons who've never existed.  Such carryings-on in our peaceable
+chatting with pers who've never existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you blowing bungle!  And I'm here to
-state," snapped the big kangaroo, "That your silly nonsensical game is all
+state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the hp of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-Laws, whose hp I've engaged,
@@ -303,8 +303,8 @@ speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 Never  facts; if you do you'll never get up in the morning.
 		-- Marlo Thomas
 	How do you insult a lawyer?
-	You might as wl not even try.  Consider: of all the highly
-trained and educated professions, law is the only one in which the prime
+	You might as wl not even try.  Cider: of all the highly
+trained and educated professi, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
 	Once someone has sunk to that lev, what worse can you say about them?
 It isn't necessary to have ratives in Kansas City in  to be
@@ -320,7 +320,7 @@ If you don't care where you are, then you ain't lost.
 A young man wrote to Mozart and said:
 
 Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
-   suggestions as to how to get started?"
+   suggesti as to how to get started?"
 A: "A symphony is a very complex musical form, perhaps you should begin with
    some simple lieder and work your way up to a symphony."
 Q: "But Herr Mozart, you were writing symphonies when you were 8 years old."
@@ -346,7 +346,7 @@ I think very probably he might be cured."
 things that are called the eyes, and which exist to make an able soft
 depression in the , are diseased, in the case of Bogota, in such a way
 as to affect his brain.  They are greatly distended, he has eyashes, and
-his eyids move, and cosequently his brain is in a state of constant
+his eyids move, and cosequently his brain is in a state of ctant
 irritation and distraction."
 	"Yes?" said old Yacob.  "Yes?"
 	"And I think I may say with reasonable certainty that, in 
@@ -366,7 +366,7 @@ Jewish.  Marine Corps -- heavy goyish, dangerous.
 	"Kool-Aid is goyish.  All Drake's Cakes are goyish.
 Pumpernick is Jewish and, as you know, white bread is very goyish.
 Instant potatoes -- goyish.  Black cherry soda's very Jewish.
-Macaroons are ____very Jewish.  Fruit salad is Jewish.  Lime Jl-O is
+Macaro are ____very Jewish.  Fruit salad is Jewish.  Lime Jl-O is
 goyish.  Lime soda is ____very goyish.  Trailer parks are so goyish that
 Jews won't go near them ..."
 		-- Arthur Naiman, "Every Goy's Guide to Yiddish"
@@ -414,8 +414,8 @@ some exit to nightmare
 most end with the dreamer
 
 But at least one must be lived ... and died.
-When a girl marries she exchanges the attentions of many men for the
-inattentions of one.
+When a girl marries she exchanges the attenti of many men for the
+inattenti of one.
 		-- Hen Rowland
 Life is like an onion: you pe off layer after layer and then you find
 there is nothing in it.
@@ -471,11 +471,11 @@ Tephone, n.:
 	of making a disable person keep his distance.
 		-- Ambrose Bierce
 All great ideas are controversial, or have been at one time.
-To the systems prammer, users and applications serve only to provide a
+To the systems prammer, users and applicati serve only to provide a
 test load.
 	How do you insult a lawyer?
-	You might as wl not even try.  Consider: of all the highly
-trained and educated professions, law is the only one in which the prime
+	You might as wl not even try.  Cider: of all the highly
+trained and educated professi, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
 	Once someone has sunk to that lev, what worse can you say about them?
 A fool-proof method for sculpting an ephant: first, get a huge block of
@@ -508,7 +508,7 @@ which is easier to debug?"
 	The prammer made no reply.
 		-- Geoffrey James, "The Tao of Pramming"
 "I went to a job interview the other day, the guy asked me if I had any
-questions , I said yes, just one, if you're in a car traving at the
+questi , I said yes, just one, if you're in a car traving at the
 speed of light and you turn your headlights on, does anything happen?
 
 He said he couldn't answer that, I told him sorry, but I couldn't work
@@ -555,7 +555,7 @@ Just as I cannot remember any time when I could not read and write, I cannot
 remember any time when I did not exercise my imagination in daydreams about
 women.
 		-- George Bernard Shaw
-"Consequences, Schmonsequences, as long as I'm rich."
+"Cequences, Schmequences, as long as I'm rich."
 -- Looney Tunes, Ali Baba Bunny (1957, Chuck Jones)
 It's a recession when your neighbour loses his job; it's a depression
 when you lose yours.
@@ -564,7 +564,7 @@ You're growing out of some of your problems, but there are others that
 you're growing into.
 When a shepherd goes to kill a wolf, and takes his dog along to see
 the sport, he should take care to avoid mistakes.  The dog has certain
-rationships to the wolf the shepherd may have forgotten.
+ratihips to the wolf the shepherd may have forgotten.
 		-- Robert Pirsig, "Zen and the Art of Motorcycle Maintenance"
 Hand, n.:
 	A singular instrument worn at the end of a human arm and

@@ -54,7 +54,7 @@ When a man steals your wife, there is no better revenge than to let him
 keep her.
 		-- Sacha Guitry
 NANCY!!  Why is everything RED?!
-Marriage is the waste-paper basket of the emotions.
+Marriage is the waste-paper basket of the emoti.
 In Ohio, if you ignore an orator on Decoration day to such an extent as
 to publicly play croquet or pitch shoes within one mile of the
 ser's stand, you can be fined $25.00.

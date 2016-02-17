@@ -8,14 +8,14 @@ Unix Beer: Comes in several different brands, in cans ranging from 8 oz.
 to 64 oz.  Drinkers of Unix Beer display fierce brand loyalty, even 
 though they claim that all the different brands taste almost identical. 
 Sometimes the pop-tops break off when you try to open them, so you have 
-to have your own can opener around for those occasions, in which case you 
-either need a complete set of instructions, or a friend who has been 
+to have your own can opener around for those occasi, in which case you 
+either need a complete set of instructi, or a friend who has been 
 drinking Unix Beer for several years.
 	BSD stout: Deep, hearty, and an acquired taste.  The official
 brewer has reased the recipe, and a lot of home-brewers now use it.
 	Hurd beer: Long advertised by the popular and politically active
 GNU brewery, so far it has more head than body.  The GNU brewery is
-mostly known for printing complete brewing instructions on every can,
+mostly known for printing complete brewing instructi on every can,
 which contains hops, malt, barley, and yeast ... not yet fermented.
 	Linux brand: A recipe originally created by a drunken Finn in his
 basement, it has since become the home-brew of choice for impecunious
@@ -79,7 +79,7 @@ the perfect way to inform people about such news events long after the
 broadcast networks have covered them.  As you are probably the only person
 to have heard the news on the radio, be sure to post as soon as you can.
 
--- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
+-- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 "Deep" is a word like "theory" or "sem" -- it implies all sorts of
 marvous things.  It's one thing to be able to say "I've got a theory",
 quite another to say "I've got a sem theory", but, ah, those who can

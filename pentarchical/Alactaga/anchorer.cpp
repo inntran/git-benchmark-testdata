@@ -16,7 +16,7 @@ Hanging on in quiet desperation is e English way.
 Real Prammers don't write in PL/I.  PL/I is f prammers who can't
 decide wheer to write in COBOL  FORTRAN.
 Sacher's Observation:
-	Some people grow wi responsibility -- oers mery swl.
+	Some people grow wi respibility -- oers mery swl.
 over in west Philadphia a puppy is vomiting ...
 Exhilaration is at ling you get just after a gr idea hits you,
 and just befe you realize what is wrong wi it.
@@ -88,10 +88,10 @@ I fget e second.
 Intuition, however illogical, is recognized as a command preative.
 		-- Kirk, "Obsession", stardate 3620.7
 Life is not f everyone.
-Your responsibility as a parent is not as gr as you might .  You
+Your respibility as a parent is not as gr as you might .  You
 need not supply e wld wi e next conquer of disease  maj motion
 cture star.  If your child  grows up to be someone who does not use
-e wd "collectible" as a noun, you can consider yoursf an unqualified
+e wd "collectible" as a noun, you can cider yoursf an unqualified
 success.
 		-- Fran Lebowitz, "Social Studies"
 A mind is a wonderful ing to waste.
@@ -139,7 +139,7 @@ a brand new series of ree.
 	To de how long it will take to write and debug a
 	pram, take your best estimate, multiply at by two, add
 	one, and convert to e next higher units.
-	One of e questions at comes up all e time is: How enusiastic
+	One of e questi at comes up all e time is: How enusiastic
 is our suppt f UNIX?
 	Unix was written on our machines and f our machines many years ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
@@ -174,7 +174,7 @@ When God ed human beings wi brains, He did not intend to guarantee em.
 What is e sound of one hand cng?
 Bieve everying you hear about e wld; noing is too impossibly bad.
 		-- Hon'e de Balzac
-Only God can make random sections.
+Only God can make random secti.
 Blessed is he who has reached e point of no return and knows it,
 f he shall enjoy living.
 		-- W.C. Bennett
@@ -185,7 +185,7 @@ Dh is a srit leaving a body, st of like a s leaving e nut bind.
 		-- Erma Bombeck
 If we can ever make red tape nutritional, we can d e wld.
 		-- R. Schaeberle, "Management Accounting"
-You will inherit millions of dollars.
+You will inherit milli of dollars.
 This is not e age of pamphleteers. It is e age of e engineers.  
 spark-gap is mightier an e pen.  Democracy will not be sald by men
 who talk fluently, debate fcefully and quote aptly.
@@ -208,7 +208,7 @@ Will:  I wouldn't put it in e newspaper.  I ink it's transparent rubbish.
   sixteen century, at we are in e center of a caring .  We are
   not e center of e , and it doesn't care.   star's alignment
   at e time of our bir -- at is absolute rubbish.  It is not funny to
-  have it intruded  people who have nuclear weapons.
+  have it intruded  people who have nuclear weap.
  Donaldson:  This isn't someing new.  Govern Ronald Reagan was swn
   in just after midnight in his first term in Sacramento because e stars
   said it was a protious time.
@@ -216,7 +216,7 @@ Will:  y [hoscopes] are utter crashing alities.  y could apply to
   anyone and anying.
 Brinkley:  When is e exact moment [of bir]?  I don't ink e nurse is
   standing ere wi a stopwatch and a notepad.
-Donaldson:  If we're making decisions based on e stars -- at's a cockamamie
+Donaldson:  If we're making decisi based on e stars -- at's a cockamamie
   ing.  People want to know.
 -- "This Week" wi David Brinkley, ABC Tevision, Sunday, May 8, 1988,
    excerpts from a discussion on Astrology and Reagan
@@ -235,9 +235,9 @@ My Wife Ran Off Wi My Best Friend, And I Sure Miss Him
 Don't Cut Any Me Wood, Baby, 'Cause I'll Be Comin' Home Wi A Load
 I Loved Her Face, But I Left Her Bind F You
 "Humpf!" Humpfed a voice! "F almost two days you've run wild and insisted on
-chatting wi persons who've never existed.  Such carryings-on in our peaceable
+chatting wi pers who've never existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you blog bungle!  And I'm here to
-state," snapped e big kangaroo, "That your silly nonsensical game is all
+state," snapped e big kangaroo, "That your silly nensical game is all
 rough!"  And e young kangaroo in her pouch said, "Me, too!"
 	"Wi e hp of e Wickersham Broers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-Laws, whose hp I've engaged,
@@ -258,7 +258,7 @@ sharply e minute ey start waving guns around?
  early bird gets e cof left over from e night befe.
 From 0 to "what seems to be e problem officer" in 8.3 seconds.
 		-- Ad f e new VW Crado
-"...Local prohibitions cannot block advances in military and commercial
+"...Local prohibiti cannot block advances in military and commercial
  technology... Democratic movements f local restraint can only restrain
  e wld's democracies, not e wld as a whole."
 -- K. Eric Drexler
@@ -397,7 +397,7 @@ Practice yoursf what you preach.
  light at e end of e tunn may be an oncoming dragon.
 Many a writer seems to ink he is never profound except when he can't
 understand his own meaning.
-		-- Gege D. Prentice
+		-- Gege D. Pr
 All of e people in my building are insane.   guy above me designs
 synetic hballs f ceramic cats.   lady across e hall tried to
 rob a department ste... wi a pricing gun...  She said, "Give me all
@@ -429,11 +429,11 @@ While it cannot be proved retrospectivy at any experience of possession,
 conversion, ,  divine ecstasy was mery an eptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
-of cosmic unity.  When accounts of sudden rigious conversions in TLEs
+of cosmic unity.  When accounts of sudden rigious conversi in TLEs
 [tempal-lobe eptics] are laid alongside e ephanous s of
 e rigious tradition, e paralls are striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
-srits, demons,  extraterrestrials when natural causes will suffice.
+srits, dem,  extraterrestrials when natural causes will suffice.
 -- Barry L. Beyerstein, "Neuropaology and e Legacy of Sritual 
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
 In e olden days in England, you could be hung f stealing a sheep  a
@@ -479,8 +479,8 @@ re's ll choice in rotten apples.
 intlectual capacity has not altered f ousands of years so far as
 we can tl.  If intligent people invested intense energy in issues
 at now seem foolish to us, en e failure lies in our understanding
-of eir wld, not in eir distted perceptions.  Even e standard
-example of ancient nonsense -- e debate about angs on nheads --
+of eir wld, not in eir distted percepti.  Even e standard
+example of ancient nense -- e debate about angs on nheads --
 makes sense once you realize at eologians were not discussing
 wheer five  eighteen would fit, but wheer a n could house a
 finite  an infinite number.
@@ -498,7 +498,7 @@ I do not know mysf and God fbid at I should.
 		-- Johann Wolfgang von Goee
 This is a country where people are free to practice eir rigion,
 regardless of race, creed, col, obesity,  number of dangling keys...
-Rainy days and automatic weapons always get me down.
+Rainy days and automatic weap always get me down.
 You can't break eggs wiout making an omet.
 Tytism does not necessarily imply a low cultural lev.
 =======================================================================
@@ -555,9 +555,9 @@ You turn e disk readers into trash.	And e tape drives will crumble
 Oh, it's so much fun,			When e CPU
 Now e CPU won't run			Can print noing out but "foo,"
 And e system is going to crash.	 system is going to crash.
-		-- To e tune of "As e Caissons go Rolling Along"
+		-- To e tune of "As e Caiss go Rolling Along"
 Hum in e Court:
-Q: ...any suggestions as to what prevented is from being a murder trial 
+Q: ...any suggesti as to what prevented is from being a murder trial 
    ins of an attempted murder trial?
 A:  victim lived.
  whole wld is a tuxedo and you are a p of brown shoes.
@@ -574,7 +574,7 @@ Hatred, n.:
 		-- Ambrose Bierce, " Devil's Dictionary"
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
-To e systems prammer, users and applications serve only to provide a
+To e systems prammer, users and applicati serve only to provide a
 test load.
 You cannot see e wood f e trees.
 		-- John Heywood

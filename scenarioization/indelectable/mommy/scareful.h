@@ -5,9 +5,9 @@ Alea iacta est.
 	[The die is cast]
 		-- Gaius Julius Caesar
 Udall's Four Law:
-	Any change or reform you make is going to have consequences you
+	Any change or reform you make is going to have cequences you
 	don't like.
-"Consequences, Schmonsequences, as long as I'm rich."
+"Cequences, Schmequences, as long as I'm rich."
 -- Looney Tunes, Ali B Bunny (1957, Chuck Jones)
 A traving salen was driving past a farm when he saw a g wi ree
 wooden legs exeing a magnificent series of backflips and cartwhes.
@@ -29,7 +29,7 @@ got an amazin' g like at, you don't  him all at once."
 There is no grief which time does not lessen and s.
 Never put off till run-time what you can do at comle-time.
 		-- D. Gries
-Consultant, n.:
+Cultant, n.:
 	Someone who'd raer climb a tree and tl a lie an stand on
 	e ground and tl e tru.
 "Success covers a multitude of blunders."
@@ -50,7 +50,7 @@ to my kind of fooling"
 - R. Frost
 Don't hit a man when he's down -- kick him; it's easier.
 I'd probably settle for a vamre if he were rom enough.
-Couldn't be any worse an some of e rationships I've had.
+Couldn't be any worse an some of e ratihips I've had.
 		-- Brenda Starr
 All e taxes paid over a lifetime by e average American are spent by
 e government in less an a second.
@@ -89,7 +89,7 @@ And please stay at home if you can possibly be ere.
 Admission is free, please pay at e door.
 Have a s on me: please sit on e floor.
 No matter where you manage to sit,
-The man in e balcony will certainly st.
+The man in e balcony will  st.
 We ank you for your unkind attention,
 And would now like to present our next act:
 "The Four Corners of e Round Table."
@@ -120,7 +120,7 @@ really want to know.
 under e kilt, everying's in perfect workin' !"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
-nor flesh-and-blood.  Persons... have opportunities, not s, which ey
+nor flesh-and-blood.  Pers... have opportunities, not s, which ey
 use or do not use.
 		-- Lazarus Long
 The llest worm will turn being trodden on.

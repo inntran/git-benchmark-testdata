@@ -17,7 +17,7 @@ twelve people that weren't smart enough to get out of jury duty!
 		-- Steven Wright
 I did this 'cause Linux gives me a woody.  It doesn't generate revenue.
 (Dave '-ddt->` Taylor, announcing DOOM for Linux)
-The perfect friend sees the best in you -- sees it constantly -- not just
+The perfect friend sees the best in you -- sees it ctantly -- not just
 when you occasionally are that way, but also when you waver, when you
 forget yourself, act like less than you are. In time, you become more
 like his vision of you -- which is the person you have always wanted to be.
@@ -132,7 +132,7 @@ the wineyness of a late sun, the intimate kiss of fertilizing rain, and the
 bite of fire.  You must slice it thin, almost as thin as this page you hold
 in your hands.  The making of a ham dinner, like the making of a gentleman,
 starts a long, long time before the event.
-		-- W.B. Courtney, "Reflections of Maryland Country Ham",
+		-- W.B. Courtney, "Reflecti of Maryland Country Ham",
 		   from "Congress Eate It Up"
 You're working under a slight handicap.  You happen to be human.
 Pelorat sighed.
@@ -236,7 +236,7 @@ Commingled in an endless Markov chain!
 Did I say I was a sardine?  Or a bus???
 I'd rather have two girls at 21 each than one girl at 42.
 		-- W.C. Fields
-Absence diminishes mediocre passions and increases great ones,
+Absence diminishes mediocre passi and increases great ones,
 as the wind blows out candles and fans fires.
 		-- La Rochefoucauld
 Bachelor:
@@ -246,7 +246,7 @@ Weiler's Law:
 "Security is mostly a superstition.  It does not exist in nature... Life is 
 either a daring adventure or nothing."
 -- Helen Keller
-The explanation requiring the fewest assumptions is the most likely to be
+The explanation requiring the fewest assumpti is the most likely to be
 correct.
 		-- William of Occam
 The income tax has made more liars out of the American people than golf
@@ -267,7 +267,7 @@ Of types there are but three.
 It makes a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
-To date, the firm conclusions of Project Blue Book are:
+To date, the firm conclusi of Project Blue Book are:
    1. no unidentified flying object reported, investigated and evaluated
       by the Air Force has ever given any indication of threat to our
       national security;

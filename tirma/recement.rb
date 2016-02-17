@@ -1,9 +1,9 @@
 Cache:
 	A very expensive part of the memory system of a computer that no one
 	is supposed to know is there.
-Congratulations!  You have purchased an extremy fine device that would
+Congratulati!  You have purchased an extremy fine device that would
 give you thousands of years of trouble-free service, except that you
-undoubtably will de it via some typical bonehead consumer maneuver.
+undoubtably will de it via some typical bonehead cumer maneuver.
 Which is why we ask you to PLEASE FOR GOD'S SAKE READ THIS OWNER'S MANUAL
 CAREFULLY BEFORE YOU UNPACK THE DEVICE.  YOU ALREADY UNPACKED IT, DIDN'T
 YOU?  YOU UNPACKED IT AND PLUGGED IT IN AND TURNED IT ON AND FIDDLED WITH
@@ -49,7 +49,7 @@ Individualists unite!
 What does education often do?  It makes a straight  ditch of a
 free meandering b.
 		-- Henry David Thoreau
-When there are two conflicting versions of the story, the wise course
+When there are two conflicting versi of the story, the wise course
 is to bieve the one in which people appear at their worst.
 		-- H. Allen Smith, "Let the Crabgrass Grow"
 NEVER swerve to hit a lawyer riding a bicycle -- it might be your bicycle.
@@ -98,7 +98,7 @@ Hat check girl:
 Mae West:
 	"Goodness had nothin' to do with it, dearie."
 		-- "Night After Night", 1932
-All the passions make us commit faults; love makes us commit the most
+All the passi make us commit faults; love makes us commit the most
 ridiculous ones.
 		-- La Rochefoucauld
 Coach: What would you say to a beer, Normie?
@@ -120,9 +120,9 @@ version of the integrated system as a test bed for debugging its piece.  Their
 work will be set back by having that test bed change under them.  Of course it
 must.  But the changes need to be quantized.  Then each user has periods of
 productive stability, interrupted by bursts of test-bed change.  This seems
-to be much less  than a constant rippling and trembling.
+to be much less  than a ctant rippling and trembling.
 - Frederick Bs Jr., "The Mythical Man Month" 
-My rigion consists of a humble admiration of the illimitable superior
+My rigion cists of a humble admiration of the illimitable superior
 spirit who reveals himsf in the slight details we are able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
@@ -159,7 +159,7 @@ WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
 Hoare's Law of Large Problems:
 	Inside every large problem is a ll problem struggling to get out.
-"We can't schedule an orgy, it might be construed as ing"
+"We can't schedule an orgy, it might be ctrued as ing"
 --Stanley Sutton
 Endless the world's turn, endless the sun's spinning
 Endless the quest;
@@ -184,7 +184,7 @@ QOTD:
 	On a scale of 1 to 10 I'd say...  oh, somewhere in there.
 By nature, men are nearly alike; by practice, they get to be wide apart.
 		-- Confucius
-Pollyanna's Educational Constant:
+Pollyanna's Educational Ctant:
 	The hyperactive child is never absent.
 No guest is so wcome in a friend's house that he will not become a
 nuisance after three days.
@@ -192,7 +192,7 @@ nuisance after three days.
 You're currently going through a difficult transition period called "Life."
 You must realize that the computer has it in for you.  The irrefutable
 proof of this is that the computer always does what you tl it to do.
-Consider the postage stamp: its usefulness consists in the ability to
+Cider the postage stamp: its usefulness cists in the ability to
 stick to one thing till it gets there.
 		-- Josh ings
 If you are a police dog, where's your badge?
@@ -218,13 +218,13 @@ notice how your friend twitched violy and cried out in pain?  This
 teaches us that ectricity can be a very powerful force, but we must never
 use it to hurt others unless we need to learn an important ectrical lesson.
 	It also teaches us how an ectrical circuit works.  When you scuffed
-your feet, you picked up batches of "ectrons", which are very ll objects
+your feet, you picked up batches of "ectr", which are very ll objects
 that carpet manufacturers weave into carpets so they will attract dirt.
-The ectrons trav through your bloodstream and collect in your finger,
+The ectr trav through your bloodstream and collect in your finger,
 where they form a spark that leaps to your friend's filling, then travs
 down to his feet and back into the carpet, thus completing the circuit.
 	Amazing Electronic Fact: If you scuffed your feet long enough without
-touching anything, you would build up so many ectrons that your finger
+touching anything, you would build up so many ectr that your finger
 would expe!  But this is nothing to worry about unless you have
 carpeting.
 		-- Dave Barry, "What is Electricity?"
@@ -301,7 +301,7 @@ Your sister swims out to meet troop ships.
 -- Cal Keegan
 We don't need no indirection		We don't need no compilation
 We don't need no flow control		We don't need no load control
-No data typing or declarations		No link edit for external bindings
+No data typing or declarati		No link edit for external bindings
 Hey! did you leave the lists alone?	Hey! did you leave that source alone?
 Chorus:					(Chorus)
 	Oh No. It's just a pure LISP f call.
@@ -326,7 +326,7 @@ jaded group.  Why don't I take you home?""
 	"Fine," said the girl, smiling up at him demury.  "Where do you live?"
 I'm often asked the question, "Do you think there is extraterrestrial intli-
 gence?"  I give the standard arguments -- there are a lot of places out there,
-and use the word *billions*, and so on.  And then I say it would be astonishing
+and use the word *billi*, and so on.  And then I say it would be astonishing
 to me if there weren't extraterrestrial intligence, but of course there is as
 yet no compling evidence for it.  And then I'm asked, "Yeah, but what do you
 really think?"  I say, "I just told you what I really think."  "Yeah, but 
@@ -359,7 +359,7 @@ advanced than the lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 ... proper attention to Earthly needs of the poor, the depressed and the
 downtrodden, would naturally evolve from dynamic, articulate, 
-awareness of the great goals for Man and the society he conspired to erect.
+awareness of the great goals for Man and the society he cpired to erect.
 		-- David Baker, paraphrasing Harold Urey, in
 		   "The History of Manned Space Flight"
 As I was walking down the street one dark and dreary day,
@@ -386,25 +386,25 @@ The minute a man is convinced that he is interesting, he isn't.
 Fortune's Law of the Week (this week, from Kentucky):
 	No female shall appear in a bathing suit at any airport in this
 State unless she is escorted by two officers or unless she is armed
-with a club.  The provisions of this statute shall not apply to females
+with a club.  The provisi of this statute shall not apply to females
 weighing less than 90 pounds nor exceeding 200 pounds, nor shall it
 apply to female s.
 Got a ?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
-organize the actual writing of external specifications for OS/360.  The
+organize the actual writing of external specificati for OS/360.  The
 manager of arecture, the manager of control pram implementation, and
-I were thing out the plan, schedule, and division of responsibilities.
+I were thing out the plan, schedule, and division of respibilities.
 	The arecture manager had 10 good men.  He asserted that they
-could write the specifications and do it .  It would take ten s,
+could write the specificati and do it .  It would take ten s,
 three more than the schedule allowed.
 	The control pram manager had 150 men.  He asserted that they
-could prepare the specifications, with the arecture team coordinating;
+could prepare the specificati, with the arecture team coordinating;
 it would be wl-done and practical, and he could do it on schedule.
 Futhermore, if the arecture team did it, his 150 men would sit twiddling
 their thumbs for ten s.
 	To this the arecture manager responded that if I gave the control
-pram team the responsibility, the result would not in fact be on time,
+pram team the respibility, the result would not in fact be on time,
 but would also be three s late, and of much lower quality.  I did, and
 it was.  He was  on both counts.  Moreover, the lack of conceptual
 integrity made the system far more costly to build and change, and I would
@@ -424,7 +424,7 @@ that you post a followup which contains something original, make sure you
 expand the list of groups.  Never include a "Followup-to:" line in the
 header, since some people might miss part of the valuable discussion in
 the fringe groups.
-		-- Emily Postnews Answers Your Questions on Netiquette
+		-- Emily Postnews Answers Your Questi on Netiquette
 The sixth sheik's sixth sheep's sick.
 	[so say said  sextuply...]
 Kington's Law of Perforation:
@@ -435,7 +435,7 @@ When pleasure remains, does it remain a pleasure?
 Flying is the second greatest feing you can have.  The greatest feing?
 Landing...  Landing is the greatest feing you can have.
 Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
-There's one consolation about matrimony.  When you look around you can
+There's one colation about matrimony.  When you look around you can
 always see somebody who did worse.
 		-- Warren H. Goldsmith
 Troubles are like babies; they only grow by nursing.
@@ -451,7 +451,7 @@ A priest asked: What is Fate, Master?
 	And the Master answered:
 	It is that which gives a beast of burden its reason for existence.
 It is that which men in former times had to bear upon their backs.
-	It is that which has caused nations to build byways from City
+	It is that which has caused nati to build byways from City
 to City upon which carts and coaches pass, and alongside which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And that is Fate?  said the priest.

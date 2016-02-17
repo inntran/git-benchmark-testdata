@@ -50,7 +50,7 @@ First Rule of History:
 	History doesn't repeat itself -- historians me repeat each other.
 Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.
-		-- Richard Bach, "Illusions"
+		-- Richard Bach, "Illusi"
 This is the tomorrow you worried about yesterday.  And now you know why.
 Imagine if every Thursday your shoes exploded if you tied them the usual
 way.  This happens to us all the time with computers, and nobody thinks of
@@ -117,7 +117,7 @@ Eschew obfuscation.
 Harry is heavily into camping, and every year in the late fall, he makes us
 all go to Assateague, which is an island on the Atl Ocean famous for
 its wild s.  I realize that the concept of wild s probably stirs
-rom notions in many of you, but this is because you have never met any
+rom noti in many of you, but this is because you have never met any
 wild s in person.  In person, they are like enormous hooved rats.  They
 amble up to your camp site, and their attitude is: "We're wild s.
 We're going to eat your food, knock down your tent and poop on your shoes.
@@ -149,7 +149,7 @@ in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of self-confessed "car nuts"
 are making money doing what they love: writing code and driving fast.
 -- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
-Before Xerox, five carbons were the maximum extension of anybody's ego.
+Before Xerox, five carb were the maximum extension of anybody's ego.
 Spock: The odds of surviving another attack are 13562190123 to 1, Captain.
 quark:
 	The sound made by a well bred duck.
@@ -181,7 +181,7 @@ The correct answer is (d).  Tail lights are used in some foreign
 countries to signal turns.
 In God we trust; all else we walk through.
 Thus spake the master prammer:
-	"You can demonstrate a pram for a corporate executive, but you
+	"You can demtrate a pram for a corporate executive, but you
 	can't make him computer literate."
 		-- Geoffrey James, "The Tao of Pramming"
 The evolution of the human race will not be accomplished in the ten thousand
@@ -208,7 +208,7 @@ Fog Lamps, n.:
 	Excessively (often obnoxiously) b lamps mounted on the fronts
 	of automobiles; used on dry, clear nights to indicate that the
 	driver's brain is in a fog.  See also "Idiot Lights".
-The moss on the tree does not fear the talons of the hawk.
+The moss on the tree does not fear the tal of the hawk.
 Drawing on my fine command of language, I said nothing.
 In Pierre Trudeau, Canada has finally produced a Prime Minister worthy of
 assassination.
@@ -250,14 +250,14 @@ It's likely to last.
 "From there to here, from here to there, funny things are everywhere."
 -- Dr. Seuss
 Rome wasn't burnt in a day.
-"But don't you worry, its for a cause -- feeding global corporations' paws."
+"But don't you worry, its for a cause -- feeding global corporati' paws."
 Gordon's Law:
 	If you think you have the solution, the question was poorly phrased.
 Fine day for friends.
 So-so day for you.
 Murphy's Law is recursive.  Washing your car to make it rain doesn't work.
 Just how difficult it is to write biography can be reckoned by anybody
-who sits down and considers just how many people know the real truth
+who sits down and ciders just how many people know the real truth
 about his or her love affairs.
 		-- Rebecca West
 I've enjoyed just about as much of this as I can stand.
@@ -268,11 +268,11 @@ for he seems to be passing a critical judgment on them, when he may be
 simply making a limiting statement about himself.
 		-- Sidney H
 I am having FUN...  I wonder if it's NET FUN or GROSS FUN?
-Be circumspect in your liaisons with women.  It is better to be seen at
+Be circumspect in your liais with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
 Wedding, n:
-	A ceremony at which two persons undertake to become one, one undertakes
+	A ceremony at which two pers undertake to become one, one undertakes
 	to become nothing and nothing undertakes to become supportable.
 		-- Ambrose Bierce
 Brigands will demand your money or your life, but a woman will demand both.
@@ -326,12 +326,12 @@ The abuse of greatness is when it disjoins remorse from power.
 He who wonders discovers that this in itself is wonder.
 		-- M.C. Escher
 Air Force Inertia Axiom:
-	Consistency is always easier to defend than correctness.
+	Cistency is always easier to defend than correctness.
 Words can never express what words can never express.
 The health of a democratic society may be measured by the quality
-of functions performed by private citizens.
+of functi performed by private citizens.
 		-- Alexis de Tocqueville
-Fortune Documents the Great Legal Decisions:
+Fortune Documents the Great Legal Decisi:
 
 We think that we may take judicial notice of the fact that the term "bitch"
 may imply some feeling of endearment when applied to a female of the canine
@@ -349,10 +349,10 @@ Gong, n: Medieval term for privy, or what pased for them in that era.
 Today used whimsically to describe the aftermath of a bogon attack. Think
 of our community as the Galapagos of the English language.
 
-"Vogons may read you bad poetry, but bogons make you study obsolete RFCs."
+"Vog may read you bad poetry, but bog make you study obsolete RFCs."
 		-- Dave Mills
 There is no such thing as inner peace.  There is only nervousness or death.
-Any attempt to prove otherwise constitutes unacceptable behaviour.
+Any attempt to prove otherwise ctitutes unacceptable behaviour.
 		-- Fran Lebowitz, "Metropolitan Life"
 Function reject.
 Zero Mostel: That's it baby!  When you got it, flaunt it!  Flaunt it!
@@ -370,10 +370,10 @@ If pregnancy were a book they would cut the last two chapters.
 Democracy is the worst form of government except all those other
 forms that have been tried from time to time.
 		-- Winston Churchill
-	I made it a rule to forbear all direct contradictions to the sentiments
+	I made it a rule to forbear all direct contradicti to the sentiments
 of others, and all positive assertion of my own.  I even forbade myself the use
 of every word or expression in the language that imported a fixed opinion, such
-as "certainly", "undoubtedly", etc.   I adopted instead of them "I conceive",
+as "", "undoubtedly", etc.   I adopted instead of them "I conceive",
 "I apprehend", or "I imagine" a thing to be so or so; or "so it appears to me
 at present".
 	When another asserted something that I thought an error, I denied
@@ -382,8 +382,8 @@ immediately some absurdity in his proposition.  In answering I began by
 observing that in certain cases or circumstances his opinion would be ,
 but in the present case there appeared or semed to me some difference, etc.
 	I soon found the advantage of this change in my manner; the
-conversations I engaged in went on more pleasantly.  The modest way in which I
-proposed my opinions procured them a readier reception and less contradiction.
+conversati I engaged in went on more pleasantly.  The modest way in which I
+proposed my opini procured them a readier reception and less contradiction.
 I had less mortification when I was found to be in the wrong, and I more easily
 prevailed with others to give up their mistakes and join with me when I
 happened to be in the .

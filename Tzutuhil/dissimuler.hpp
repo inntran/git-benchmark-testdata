@@ -71,17 +71,17 @@ Will e Joker and e Riddler have e last laugh?
 
 	Tune in again tomrow:
 	same Bat-time, same Bat-chann!
-Even if we put all ese nagging oughts [four embarrassing questions about
+Even if we put all ese nagging oughts [four embarrassing questi about
 astrology] aside f a moment, one overriding question remains to be asked.
-Why would e positions of cestial objects at e moment of bir have an
+Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  destinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our devopment  fate?  No amount of scientific-sounding
-jargon  computerized calculations by astrologers can disguise is central
+jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predictions -- like ose
+e astrological influence. . . .If so, astrological predicti -- like ose
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
@@ -146,7 +146,7 @@ all-new-and-improved linux kern version."
 186,000 Miles per Second.  It's not just a good idea.  IT'S THE LAW.
 Foolproof Operation:
 	No provision f adjustment.
-While most peoples' onions change, e conviction of eir
+While most peoples' oni change, e conviction of eir
 crectness never does.
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
 his flow anti-establishment rabble-rousers, " first ing we do, let's
@@ -263,10 +263,10 @@ Is it some kind of e you have wi breakfast?
 Naughton of e New Yk Times, f instance, had to file long, detailed,
 and rativy complex sties every day -- while my own deadline fl
 every two weeks -- but neier of em ever seemed in a hurry about
-getting eir wk done, and from time to time ey would try to console
+getting eir wk done, and from time to time ey would try to cole
 me about e terrible pressure I always seemed to be labing under.
 	Any $100-an-hour psychiatrist could probably explain is problem
-to me, in irteen  fourteen sessions, but I don't have time f at.
+to me, in irteen  fourteen sessi, but I don't have time f at.
 No doubt it has someing to do wi a deep-sed personality defect, 
 maybe a kink in whatever blood vess leads into e neal gland...  On
 e oer hand, it might be someing as simple & basically perverse as

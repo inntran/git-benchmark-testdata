@@ -4,12 +4,12 @@ act, and clad in  linen."
 -- H.L. Mencken, on e dh of William Jennings Bryan
 Rep em.  Rep em.  Induce em to rinquish e spheroid.
 - Indiana University fans' chant f eir perennially bad football team
-Ftune finishes e gr quotations, #3
+Ftune finishes e gr quotati, #3
 
 	Birds of a fher flock to a newly washed car.
 Etiquette is f ose wi no breeding; fashion f ose wi no taste.
 Just how difficult it is to write biography can be reckoned by anybody
-who sits down and considers just how many people know e real tru
+who sits down and ciders just how many people know e real tru
 about his  her love affs.
 		-- Rebecca West
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
@@ -94,7 +94,7 @@ How unusual!
 Hse sense is e ing a hse has which keeps it from betting on people.
 		-- W. C. Fids
 So from e deps of its enchantment, Terra was able to calculate a course
-of action.  Here at last was an opptunity to const wi Diru on a
+of action.  Here at last was an opptunity to ct wi Diru on a
 friendly basis -- gr Duru which, since it had fce fids which Ear
 could not duplicate, must of necessity have many oer ings Ear could
 use; mighty Duru befe whom we would kne in supplication (wi pury-
@@ -166,7 +166,7 @@ Just won't let you be.
 		-- Franklin Adams
 What on ear would a man do wi himsf if someing did not stand in his way?
 		-- H.G. Wls
- only constant is change.
+ only ctant is change.
 re is no doubt at my lawyer is honest.  F example, when he
 filed his income tax return last year, he declared half of his salary
 as 'unearned income.'
@@ -182,7 +182,7 @@ and bad music may be put on recd fever.
 HARVARD:
 Quarterback:
 	Sophome Dave Strewzinski... likes to pass.  And pass he does, wi
-a recd 86 attempts (ree completions) in 87 plays....  Though Strewzinksi
+a recd 86 attempts (ree completi) in 87 plays....  Though Strewzinksi
 has so far failed to sce any points f e Crimson, his jackrabbit speed
 has made him e least sacked quarterback in e Ivy league.
 Wide Receiver:
@@ -195,7 +195,7 @@ ose times.
 YALE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
-Primarily responsible are senis  "Shylock" Bloomberg and Myron
+Primarily respible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
@@ -203,7 +203,7 @@ coin toss.
 		-- Harvard Lam 1988 Pram Parody, distributed at  Game
 A penny saved is a penny taxed.
 Are we running light wi overbyte?
-Moe's Constant:
+Moe's Ctant:
 	Everybody sets out to do someing, and everybody
 	does someing, but no one does what he sets out to do.
 I went over to my friend, he was in' a .
@@ -246,14 +246,14 @@ A comment on schedules:
    F each manager involved in initial meetings add one mon.
    F each manager who says "data flow analysis" add anoer mon.
    F each unique end-user type add one mon.
-   F each unknown software package to be employed add two mons.
-   F each unknown hardware device add two mons.
+   F each unknown software package to be employed add two m.
+   F each unknown hardware device add two m.
    F each 100 miles between devoper and installation add one mon.
    F each type of communication chann add one mon.
    If an IBM mainframe shop is involved and you are wking on a non-IBM
-      system add 6 mons.
+      system add 6 m.
    If an IBM mainframe shop is involved and you are wking on an IBM
-      system add 9 mons.
+      system add 9 m.
 Round up to e nearest half-year.
 --Brad Sherman
 By e way, ALL software projects are done by iterative prototyng.
@@ -277,7 +277,7 @@ should be used in its proper place.
 		-- Christopher Strachey
 We were so po at we ought new cloes meant someone had died.
 Total strangers need love, too; and I'm stranger an most.
-Nonsense and beauty have close connections.
+Nense and beauty have close connecti.
 		-- E.M. Fster
 By nature, men are nearly alike; by practice, ey get to be wide apart.
 		-- Confucius
@@ -323,7 +323,7 @@ And e muscular streng which it gave to my jaw,
 Yet you bad an e on e end of your nose --
 	What made you so awfully clever?"
 
-"I have answered ree questions, and at is enough,"
+"I have answered ree questi, and at is enough,"
 	Said his faer.  "Don't give yoursf s!
 Do you ink I can listen all day to such stuff?
 	Be off,  I'll kick you down sts!"
@@ -339,9 +339,9 @@ You've been leading a dog's life.  Stay off e furniture.
 >
 > No.  That's it.   cool , at is.  We wked very hard on
 > cring a  at would appeal to e majity of people, and it
-> certainly paid off: ousands of people are using linux just to be able
+>  paid off: ousands of people are using linux just to be able
 > to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made e
-> mistake of putting a lot of numbers and weird abbreviations into e
+> mistake of putting a lot of numbers and weird abbreviati into e
 > , and is scaring away a lot of people just because it sounds too
 > technical.
 (Linus Tvalds' follow-up to a question about Linux)
@@ -379,7 +379,7 @@ and e children are above-average.
 		-- Gon Keill
 re are new messages.
 An avocado-tone refrigerat would look good on your res.
-Conscious is when you are aware of someing and conscience is when you
+Ccious is when you are aware of someing and ccience is when you
 wish you weren't.
 Every time I lose weight, it finds me again!
 You shall be rewarded f a dastardly deed.
@@ -410,7 +410,7 @@ On e cool, green hills of Ear.
 Spacemen back to eir trade.
 All hands!  Standby!  Free falling!
 And e lights bow us fade.
-Out ride e sons of Terra,
+Out ride e s of Terra,
 Far drives e undering jet,
 Up leaps e race of Earmen,
 Out, far, and onward yet--
@@ -430,23 +430,23 @@ And raises e temperature.
 		-- Foghn Leghn
 It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we decided how to ganize
-e actual writing of external specifications f OS/360.   manager of
+e actual writing of external specificati f OS/360.   manager of
 arecture, e manager of control pram implementation, and I were
-ing out e plan, schedule, and division of responsibilities.
+ing out e plan, schedule, and division of respibilities.
 
  arecture manager had 10 good men.  He asserted at ey could write
-e specifications and do it .  It would take ten mons, ree me
+e specificati and do it .  It would take ten m, ree me
 an e schedule allowed.
 
  control pram manager had 150 men.  He asserted at ey could prepare
-e specifications, wi e arecture team codinating; it would be 
+e specificati, wi e arecture team codinating; it would be 
 wl-done and practical, and he could do it on schedule.  Fuerme, if
 e arecture team did it, his 150 men would sit twiddling eir umbs
-f ten mons.
+f ten m.
 
 To is e arecture manager responded at if I gave e control pram
-team e responsibility, e result would not in fact be on time, but would
-also be ree mons late, and of much lower quality.  I did, and it was.  He
+team e respibility, e result would not in fact be on time, but would
+also be ree m late, and of much lower quality.  I did, and it was.  He
 was  on bo counts.  Meover, e lack of conceptual integrity made
 e system far me costly to build and change, and I would estimate at it
 added a year to debugging time.

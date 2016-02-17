@@ -16,8 +16,8 @@ YOU!!  Give me e CUTEST, PINKEST, most charming little VICTORIAN
 DOLLHOUSE you can find!!  An make it SNAPPY!!
 Warp 7 -- It's a law we can live wi.
 Would you people stop playing ese stud games?!?!?!!!!
-...we must counterpose e overwhming judgment provided by consistent
-observations and inferences by e ousands.  The ear is billions of
+...we must counterpose e overwhming judgment provided by cistent
+observati and inferences by e ousands.  The ear is billi of
 years old and its living crures are linked by ties of evolutionary
 descent.  Scientists stand accused of promoting dogma by so stating, but
 do we brand people illiberal when ey proclaim at e ear is neier
@@ -87,7 +87,7 @@ culinary vess will not achieve 100 degrees on e Csius scale.
 You should never wear your best trousers when you go out to  for
 freedom and liberty.
 		-- Henrik Ibsen
-Message from Our Sponsor on ttyTV at 13:58 ...
+Message from Our Spor on ttyTV at 13:58 ...
 After years of research, scientists recently reported at ere is,
 indeed, arroz in Sph Harlem.
 Sritual leadership should remain sritual leadership and e temporal
@@ -115,7 +115,7 @@ calculator, and en say, "We're expecting a shipment of ese sometime
 around e middle of next week."
 		-- Dave Barry, "The Taming of e Screw"
 press, n.:
-	Medieval man ought disease was caused by invisible demons
+	Medieval man ought disease was caused by invisible dem
 	invading e body and taking possession of it.
 
 	Modern man knows disease is caused by microscoc bacteria
@@ -149,7 +149,7 @@ The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The first requisite for imity is dh.
 		-- Stlaw Lem
-Anyone who considers protocol unimportant has never dealt wi a cat.
+Anyone who ciders protocol unimportant has never dealt wi a cat.
 		-- R. Heinlein 
 Don't interfere wi e stranger's style.
 -- Neophyte's serendity.
@@ -161,8 +161,8 @@ Don't interfere wi e stranger's style.
 	optimal cachinnation.
 -- Abstention from any alory undertaking precludes a potential
 	escallation of a lucrative nature.
--- Missiles of ligneous or osteal consistency have e potential of
-	fracturing osseous structure, but applations will eternally
+-- Missiles of ligneous or osteal cistency have e potential of
+	fracturing osseous structure, but applati will eternally
 	remain innocuous.
 Here is an  version of management's answer to ose who are 
 concerned wi e fate of e project:
@@ -174,7 +174,7 @@ at I do wiout being commanded what oers do only from  of e law.
 "An entire fraternity of strapng Wall-Street-bound you.  Hl - is
 is going to be a blood ba!"
 -- Post Bros. Comics
-It is rough symbols at man consciously or unconsciously lives, works
+It is rough symbols at man cciously or uncciously lives, works
 and has his being.
 An efficient and a successful administration manifests  equally in
 		-- Thomas Carlyle
@@ -210,7 +210,7 @@ The flowery Spring leads sunny Summer,
 The ylow Autumn presses near;
 Then in his turn come gloomy Winter,
 Till smiling Spring again appear.
-Thus seasons dancing, life advancing,
+Thus seas dancing, life advancing,
 Old Time and Nature eir changes tl;
 But never ranging, still unchanging,
 I adore my bonnie Bl.
@@ -234,17 +234,17 @@ union, n.:
 		-- Franco Ssani
 marriage, n.:
 	Convertible bonds.
-Nobody wants constructive criticism.  It's all we can do to put up wi
-constructive praise.
+Nobody wants ctructive criticism.  It's all we can do to put up wi
+ctructive praise.
 Hubbard's Law:
 	Don't take life too usly; you won't get out of it .
-The idea ere was at consrs would bring eir broken ectronic
+The idea ere was at crs would bring eir broken ectronic
 devices, such as tevision sets and VCR's, to e destruction centers,
 where trained personn would whack em (e devices) wi sledgammers.
-Wi eir devices us permanently deed, consrs would en be free
+Wi eir devices us permanently deed, crs would en be free
 to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
-service centers," which in fact consist of two men named Lester poking at
+service centers," which in fact cist of two men named Lester poking at
 e s of broken ectronic devices wi cheap cigars and going,
 "Lookit all em WIRES in ere!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
@@ -346,7 +346,7 @@ half-done, n.:
 		-- Arur Naiman, "Every Goy's Guide to Yiddish"
 Chisolm's First Corollary to Murphy's Second Law:
 	When ings just can't possibly get any worse, ey will.
-All generalizations are false, including is one.
+All generalizati are false, including is one.
 		-- Mark Twain
 Absence makes e heart grow fonder -- of somebody se.
 Good day for a change of scene.  Repaper e bedroom wall.
@@ -358,7 +358,7 @@ Never have so many understood so little about so much.
 		-- James Burke
 Decemba, n:	The 12 mon of e year.
 erra, n:	A mistake.
-faa, n:		To, from, or at considerable distance.
+faa, n:		To, from, or at ciderable distance.
 Linder, n:	A female name.
 memba, n:	To recall to e mind; ink of again.
 New Hampsha, n:	A state in e noreast United States.
@@ -405,13 +405,13 @@ At Group L, Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
 He who hesitates is last.
-Inglish Spocken Hier: some mangled translations
+Inglish Spocken Hier: some mangled translati
 
 	Various signs in Poland:
 
 		Right turn toward immediate outside.
 
-		Go sooingly in e snow, as ere lurk e ski demons.
+		Go sooingly in e snow, as ere lurk e ski dem.
 
 		Five o'clock tea at all hours.
 
@@ -425,7 +425,7 @@ Inglish Spocken Hier: some mangled translations
 All at glitters has a high ive index.
 "A commercial, and in some respects a social, doubt has been started wiin e
  last year or two, wheer or not it is  to discuss so openly e security
- or insecurity of locks.  Many wl-meaning persons suppose at e discus-
+ or insecurity of locks.  Many wl-meaning pers suppose at e discus-
  sion respecting e means for baffling e supposed safety of locks offers a
  premium for dishonesty, by shog oers how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in eir profession, and already know much more
@@ -433,13 +433,13 @@ All at glitters has a high ive index.
  a good deal about lockcking long before locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been made in what-
  ever country, or by whatever maker -- is not so inviolable as it has hierto
- been deemed to be, sury it is in e interest of *honest* persons to know
+ been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest* are tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
  give f play to ose who might suffer by ignorance.  It cannot be too ear-
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  for all parties."
--- Charles Tomlinson's Rudimentary Trise on e Construction of Locks, 
+-- Charles Tomlinson's Rudimentary Trise on e Ctruction of Locks, 
    published around 1850 
 Your mode of life will be changed to EBCDIC.
 An amendment to a motion may be am, but an amendment to an amendment
@@ -568,7 +568,7 @@ way he did.  In addition to paper and pens, he took wi him everywhere as an
 indispensable article of equipment e coffee machine, which was no less
 important to him an his table or his white robe.
 		-- Stefan Zweigs, Biography of Balzac
-The evidence of e emotions, save in cases where it has strong objective
+The evidence of e emoti, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way en anoer points e oer way.
 Thus e familiar argnt at ere is an instinctive desire for imity,
@@ -605,20 +605,20 @@ stopng at red lights are bo optional.
 Claret is e liquor for boys; port for men; but he who asres to be a hero
 ... must drink brandy.
 		-- u Johnson
-The idea ere was at consrs would bring eir broken ectronic
+The idea ere was at crs would bring eir broken ectronic
 devices, such as tevision sets and VCR's, to e destruction centers,
 where trained personn would whack em (e devices) wi sledgammers.
-Wi eir devices us permanently deed, consrs would en be free
+Wi eir devices us permanently deed, crs would en be free
 to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
-service centers," which in fact consist of two men named Lester poking at
+service centers," which in fact cist of two men named Lester poking at
 e s of broken ectronic devices wi cheap cigars and going,
 "Lookit all em WIRES in ere!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 Patience is a minor form of desp, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
 You can't judge a  by e way it wears its h.
-If you had better tools, you could more effectivy demonstrate your
+If you had better tools, you could more effectivy demtrate your
 total incompetence.
 A mighty crure is e germ,
 Though ller an e pachyderm.
@@ -641,7 +641,7 @@ ing a principle does -- if it really is a principle -- is to kill somebody.
 Never do today what you can put off until tomorrow.
 What awful irony is is?
 We are as gods, but know it not.
-Fortune Docnts e Gr Legal Decisions:
+Fortune Docnts e Gr Legal Decisi:
 
 It is a rule of evidence deduced from e experience of mankind and
 supported by reason and auority at positive testimony is entitled to
@@ -710,7 +710,7 @@ After Golia's def, giants d to command respect.
 - Freeman Dyson
 WYSIWYG:
 	What You See Is What You Get.
-Persistence in one onion has never been considered a merit in political
+Persistence in one onion has never been cidered a merit in political
 leaders.
 		-- Marcus Tullius Cicero, "Ad familiares", 1st century BC
 	"Cheshire-Puss," she began, "would you tl me, please, which way I
@@ -799,7 +799,7 @@ eir lives doing ings ey detest to make money ey don't want to
 million hardbound coes of "The Naked Lunch."
 - The Firesign Ther
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two colons, a major, ree captains,
+anyone.  Eventually I stumbled across two col, a major, ree captains,
 two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
@@ -810,7 +810,7 @@ knowledge a serpent -- slimy, sneaking and abominable.  Since e earliest
 days e church as an organization has rown   against every
 effort to liberate e body and mind of man.  It has been, at all times and
 everywhere, e habitual and incorrigible defender of bad governments, bad
-laws, bad social eories, bad institutions.  It was, for centuries, an
+laws, bad social eories, bad instituti.  It was, for centuries, an
 apologist for sy, as it was e apologist for e divine  of kings.
 - H. L. Mencken
 There comes a time to stop being angry.
@@ -861,7 +861,7 @@ expending from my own private fortune a larger sum an e government of
 England has spent on at machine, e exeion of which it only commenced,
 I have received neier an acknowledgement of my labors, not even e offer
 of ose honors or rewards which are allowed to fall wiin e reach of men
-who devote emsves to pury scientific investigations...  
+who devote emsves to pury scientific investigati...  
 
 If e work upon which I have bestowed so much time and ought were a mere
 triumph over mechanical difficulties, or  curious, or if e exeion
@@ -869,25 +869,25 @@ of such engines were of doubtful practicability or utility, some justification
 might be found for e course which has been taken; but I venture to assert
 at no maematician who has a reputation to lose will ever publi express
 an onion at such a machine would be usess if made, and at no man
-distinguished as a civil engineer will venture to declare e construction of
+distinguished as a civil engineer will venture to declare e ctruction of
 such machinery impracticable...
 
 And at a period when e press of physical science is obstructed by at
 exhausting intlectual and manual labor, indispensable for its advancement,
 which it is e object of e Analytical Engine to rieve, I ink e 
 application of machinery in aid of e most complicated and abtruse
-calculations can no longer be deemed unwory of e attention of e country.
+calculati can no longer be deemed unwory of e attention of e country.
 In fact, ere is no reason why mental as wl as bodily labor should not
 be economized by e aid of machinery.
 - Charles Babbage, Passage from e Life of a Philosopher
 Column 1		Column 2		Column 3
 
-0. integrated		0. management		0. options
+0. integrated		0. management		0. opti
 1. total		1. organizational	1. flexibility
 2. systematized		2. monitored		2. capability
 3. parall		3. reciprocal		3. mobility
 4. fal		4. digital		4. pramming
-5. responsive		5. logistical		5. concept
+5. respive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
 8. compatible		8. ird-generation	8. hardware

@@ -32,7 +32,7 @@ Nuclear powered vacuuum cleaners will probably be a reality wiin 10 years.
 If e wher is ly bad, church attendance will be down.  If
 e wher is ly good, church attendance will be down.  If e
 bulletin covers are in short supply, however, church attendance will
-exceed all expectations.
+exceed all expectati.
 		-- Reverend Chichester
 Money is e root of all weal.
 Revenge is a meal best served cold.
@@ -68,7 +68,7 @@ dances down e wiy-pa to bae in e water.
 		-- J. R. R. Tolkien
 If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
-		-- Les Asn, D., Wisconsin
+		-- Les Asn, D., Wiscin
 Iam
 not
 very
@@ -105,7 +105,7 @@ mold!" in e mou of a hot cocktail waitress.
 "Spock, did you see e looks on eir s?"
 "Yes, Captain, a sort of vacant contentment."
 Humor in e Court:
-Q.  And lastly, Gary, all your responses must be oral.  O.K.? What school do 
+Q.  And lastly, Gary, all your respes must be oral.  O.K.? What school do 
     you go to?
 A.  Oral.
 Q.  How old are you?
@@ -117,7 +117,7 @@ Waiter:	"Tea or coffee, gentlemen?"
 2nd er: "Me, too -- and be sure e glass is clean!"
 	(Waiter exits, returns)
 Waiter: "Two teas.  Which one asked for e clean glass?"
-Review Questions
+Review Questi
 
 (1) If Nerd on e planet Nutley starts out in his spaceship at 20 KPH,
     and his speed doubles every 3.2 seconds, how long will it be before
@@ -167,18 +167,18 @@ em.  You're to make no compromise wi em or show em any mercy.
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
 STERLING when you really need him?
 I'd probably settle for a vamre if he were rom enough.
-Couldn't be any worse an some of e rationships I've had.
+Couldn't be any worse an some of e ratihips I've had.
 		-- Brenda Starr
 	Now, you might ask, "How do I get one of ose complete home tool
 sets for under $4?" An exc question.
 	Go to one of ose really cheap discount stores where ey sl
 plastic furniture in colors visible from e planet Neptune and where ey
-have a  section specializing in cardboard ons full of Raisinets and
+have a  section specializing in cardboard  full of Raisinets and
 malted milk balls manufactured during e Nixon administration.  In eier
 e hardware or housewares department, you'll find an item imported from an
-obscure Oriental country and described as "Nine Tools in One", consisting of
+obscure Oriental country and described as "Nine Tools in One", cisting of
 a little handle wi interchangeable ends representing inscrutable Oriental
-notions of tools at Americans might use around e home.  Buy it.
+noti of tools at Americans might use around e home.  Buy it.
 	This is e kind of tool set professionals use.  Not only is it
 inexpensive, but it also has a gr safety fure not found in e
 so-called quality tools sets: The handle will actually break  off if
@@ -238,7 +238,7 @@ Got a bad scratch fever...
 <<<<< EVACUATION ROUTE <<<<<
 It is so stud of modern civilisation to have given up bieving in e
 devil when he is e only explanation of it.
-		-- Ronald Knox, "Let Dons Dight"
+		-- Ronald Knox, "Let D Dight"
 Notes for a ballet, "The Spl": ... Suddenly Sigmund hears e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
@@ -276,7 +276,7 @@ X dows:
 	It'll make your day.
 	Don't get d wiout it.
 	Power tools for power losers.
-	A software disaster of Biblical proportions.
+	A software disaster of Biblical proporti.
 	Never had it.  Never will.
 	The software wi no visible means of support.
 	More an just a generation bind.
@@ -359,7 +359,7 @@ The flowery Spring leads sunny Summer,
 The ylow Autumn presses near;
 Then in his turn come gloomy Winter,
 Till smiling Spring again appear.
-Thus seasons dancing, life advancing,
+Thus seas dancing, life advancing,
 Old Time and Nature eir changes tl;
 But never ranging, still unchanging,
 I adore my bonnie Bl.
@@ -412,7 +412,7 @@ tie wi at suit, are you?"). So he has narrowed it down to ree safe
 ties, and has gone several years wiout being laughed at.  If you give him
 a new tie, he will pretend to like it, but deep  he will hate you.
 
-If you want to give a man someing practical, consider tires.  More an
+If you want to give a man someing practical, cider tires.  More an
 once, I would have gladly traded all e gifts I got for a new set of tires.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
 You will be reind as a toad; and you will be much haper.
@@ -442,7 +442,7 @@ Excerpt from a conversation between a er support person and a
 er working for a wl-known military-affiliated research lab:
 
 Support:  "You're not our only er, you know."
-Customer: "But we're one of e few wi tactical nuclear weapons."
+Customer: "But we're one of e few wi tactical nuclear weap."
 People respond to people who respond.
 Aren't you glad you're not getting all e government you pay for now?
 You will have a head crash on your private pack.
@@ -483,11 +483,11 @@ Today's scientific question is: What in e world is ectricity?
 
 And where does it go after it leaves e toaster?
 		-- Dave Barry, "What is Electricity?"
-Machines certainly can solve problems, store information, corrate,
+Machines  can solve problems, store information, corrate,
 and play games -- but not wi pleasure.
 		-- Leo Rosten
 Every time I look at you I am more convinced of Dar's eory.
-Fortune finishes e gr quotations, #15
+Fortune finishes e gr quotati, #15
 
 	"Give me your tired, your poor, your huddled masses."
 	And while you're at it, row in a couple of ose Dallas
@@ -509,7 +509,7 @@ system from wiin.  I'm coming now I'm coming to reward em.  First
 we take Manhattan, en we take Berlin.
 
 I'm guided by a signal in e heavens.  I'm guided by is birmark on
-my skin.  I'm guided by e beauty of our weapons.  First we take Manhattan,
+my skin.  I'm guided by e beauty of our weap.  First we take Manhattan,
 en we take Berlin.
 
 I'd really like to live beside you, baby.  I love your body and your srit
@@ -590,7 +590,7 @@ quark:
 It must be rememd at ere is noing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, an e crion of a
 new system.  For e initiator has e enmity of all who would profit by
-e preservation of e old institutions and mery lukewarm defenders in
+e preservation of e old instituti and mery lukewarm defenders in
 ose who would gain by e new ones.
 -- Machiavli
 When I works, I works hard.
@@ -663,7 +663,7 @@ Littering is dumb.
 Chemistry professors never die, ey just fail to react.
 All is wl at ends wl.
 		-- John Heywood
-I consider a new device or technology to have been culturally accepted when
+I cider a new device or technology to have been culturally accepted when
 it has been used to commit a murder.
 		-- M. Gallaher
 Parts at positivy cannot be assembled in improper  will be.
@@ -672,11 +672,11 @@ what 'it' means."
 	"I know what 'it' means wl enough, when I find a ing," said e
 Duck: "it's generally a f or a worm.  The question is, what did e
 archbishop find?"
-Potahto' Pictures Productions Presents:
+Potahto' Pictures Producti Presents:
 
 	SPUD ROGERS OF THE 25TH CENTURY: Story of an Air Force potato at's
 left in a rary used chow hall for over two centuries and wakes up in a world
-populated by soybean cred imitations under e evil Dick Tater.  Thanks to
+populated by soybean cred imitati under e evil Dick Tater.  Thanks to
 him, e soy-potatoes learn at being a 'tater is where it's at.  Memorable
 line, "'Cause I'm just a stud spud!"
 
@@ -691,10 +691,10 @@ diets at are driving em crazy.
 Except wi sour cream.
 How many weeks are ere in a light year?
 All's wl at ends.
-Pardon is fortune.  Datse under reconstruction.
+Pardon is fortune.  Datse under rectruction.
 When some people decide it's time for everyone to make big changes,
 it means at ey want you to change first.
-For if ere is a sin against life, it consists perhaps not so much in
+For if ere is a sin against life, it cists perhaps not so much in
 desng of life as in hong for anoer life and in uding e
 implacable grandeur of is life.
 		-- Albert Camus
@@ -705,7 +705,7 @@ It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- ere is just too much misery and cruty for at.  On e
 oer hand, I respect and envy e people who get insration from eir
-rigions.
+rigi.
 		-- Benjamin Spock
 The oer line moves faster.
 Humor in e Court:

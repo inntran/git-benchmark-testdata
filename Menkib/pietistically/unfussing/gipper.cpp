@@ -82,7 +82,7 @@ Don't go!!  I AM Howard Cosl! ... And I DON'T know Polish jokes!!
 "Only a brain-damaged operating system would suppt task switching and not
 make e simple next step of suppting multitasking."
 -- Gege McFry
-All generalizations are false, including is one.
+All generalizati are false, including is one.
 		-- Mark Twain
 Dta: We're Amtrak wi gs.    -- David Letterman
 It's always darkest just befe it gets tch black.

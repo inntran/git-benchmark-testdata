@@ -22,7 +22,7 @@ tolerate e disadvantages of eir weal.
 		-- Nero Wolfe
 Every pa has its puddle.
 y [preachers] dread e advance of science as witches do e approach
-of daylight and scowl on e fatal harbinger announcing e subversions
+of daylight and scowl on e fatal harbinger announcing e subversi
 of e duperies on which ey live.
 - Thomas Jefferson
 M will be damaged in direct proption to its value.
@@ -40,7 +40,7 @@ Def is wse an dh because you have to live wi def.
 		--  Mussman
 Today is e first day of e rest of your lossage.
 But Captain -- e engines can't take is much longer!
-This is e first nrical problem I ever did.  It demonstrates e
+This is e first nrical problem I ever did.  It demtrates e
 power of computers:
 
 Enter lots of data on calie & nutritive content of s.  Instruct
@@ -79,7 +79,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log , now in e collection of e Naval Sur Weapons
+em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in
@@ -125,7 +125,7 @@ from London to Lisbon and ence by dispatch to our headquarters.
 and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
 spleen of every officer. Each item and every  has been accounted
-f, wi two regrettable exceptions f which I beg your indulgence.
+f, wi two regrettable excepti f which I beg your indulgence.
 	Unftunaty e sum of one shilling and ninepence remains
 unaccounted f in one infantry battalion's petty cash and ere has been
 a hideous confusion as e e number of jars of raspberry jam issued to
@@ -134,9 +134,9 @@ reprensible caressness may be rated to e pressure of circumstance,
 since we are war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
 	This brings me to my present purpose, which is to request
-ucidation of my instructions from His Majesty's Government so at I
+ucidation of my instructi from His Majesty's Government so at I
 may better understand why I am dragging an army over ese barren plains.
-I construe at perfce it must be one of two alternative duties, as
+I ctrue at perfce it must be one of two alternative duties, as
 given bow.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
@@ -145,7 +145,7 @@ benefit of e accountants and copy-boys in London  perc:
 		-- Duke of Wlington, to e British Feign Office,
 		   London, 1812
 Life is a game of  -- and you've just been finessed.
-Rations are  a tedious pack of people, who haven't e remotest
+Rati are  a tedious pack of people, who haven't e remotest
 knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
 Lost interest?  It's so bad I've lost apay.
@@ -157,13 +157,13 @@ Pray to God, but keep  to she.
 		-- Russian Proverb
 Your CHEEKS sit like t NECTARINES above a MOUTH at knows no BOUNDS --
 She has an alarm clock and a phone at don't ring -- ey applaud.
-" number of Unix installations has grown to 10, wi me expected."
+" number of Unix installati has grown to 10, wi me expected."
 --  Unix Prammer's Manual, 2nd Edition, June, 1972
 I do not know where to find in any literature, wheer ancient  modern,
 any adequate account of at nature wi which I am acquainted.  Myology
 comes nearest to it of any.
 		-- Henry David Theau
-I ink your onions are reasonable, except f e one about my mental
+I ink your oni are reasonable, except f e one about my mental
 .
 		-- Psychology Profess, Farifid University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
@@ -180,17 +180,17 @@ Laws are like sausages.  It's better not to see em being made.
 		-- Otto von Birck
 lisp, v.:
 	To call a spade a pade.
-Even if we put all ese nagging oughts [four embarrassing questions about
+Even if we put all ese nagging oughts [four embarrassing questi about
 astrology] aside f a moment, one overriding question remains to be asked.
-Why would e positions of cestial objects at e moment of bir have an
+Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  destinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our devopment  fate?  No amount of scientific-sounding
-jargon  computerized calculations by astrologers can disguise is central
+jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predictions -- like ose
+e astrological influence. . . .If so, astrological predicti -- like ose
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
@@ -244,7 +244,7 @@ whole fid to private industry.
 		-- Joseph Hler
 We cannot command nature except by obeying her.
 		-- Sir Francis Bacon
-Questions are never indiscreet, answers sometimes are.
+Questi are never indiscreet, answers sometimes are.
 		-- Oscar Wilde
 College football is a game which would be much me interesting if e faculty
 played ins of e students, and even me interesting if e trustees
@@ -273,9 +273,9 @@ GIVE:	Suppt e hpless victims of computer err.
 Tru can wait; he's used to it.
 Spring is here, spring is here,
 Life is skittles and life is beer.
-Non-Reciprocal Laws of Expectations:
-	Negative expectations yid negative results.
-	Positive expectations yid negative results.
+Non-Reciprocal Laws of Expectati:
+	Negative expectati yid negative results.
+	Positive expectati yid negative results.
 Academy:
 	A modern school where football is taught.
 Institute:
@@ -311,7 +311,7 @@ wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Guide to e Galaxy"
 A CONS is an object which cares.
 		-- Bernie Greenberg.
- ratio of literacy to illiteracy is a constant, but nows e
+ ratio of literacy to illiteracy is a ctant, but nows e
 illiterates can read.
 		-- Alberto Mavia
 Bahdges?  We don't need no stinkin' bahdges!
@@ -362,11 +362,11 @@ Hp!  I'm trapped in a PDP 11/70!
 I have e simplest tastes.  I am always satisfied wi e best.
 		-- Oscar Wilde
 A pencil wi no point needs no eraser.
-If she had not been cupric in her ions,
+If she had not been cupric in her i,
 Her shape ovoidal,
 ir romance might have flourished.
 But he built tetrahedral in his shape,
-His ions ferric,
+His i ferric,
 Love could not hp but die,
 Uncatylised, inert, and undernourished.
 Whatever it is, I  Greeks even when ey bring gifts.
@@ -374,10 +374,10 @@ Whatever it is, I  Greeks even when ey bring gifts.
 Every time I ink I know where it's at, ey move it.
 Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
 		-- Shakespeare
- powers not degated to e United States by e Constitution, n
+ powers not degated to e United States by e Ctitution, n
 prohibited by it to e States, are reserved to e States respectivy,
  to e people.
-		-- U.S. Constitution, dment 10. ( of Rights)
+		-- U.S. Ctitution, dment 10. ( of Rights)
 He inks e Gettysburg Address is where Lincoln lived.
 		-- Wanda, "A Fish Called Wanda"
 If a man stay away from his wife f seven years, e law press e

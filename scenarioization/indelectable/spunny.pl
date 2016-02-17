@@ -94,14 +94,14 @@ Nobody knows what goes between his cold toes and his warm ears.
 		-- Roy Harper
 The Czechs announced after Sputnik that they, too, would launch a satellite.
 Of course, it would orbit Sputnik, not Earth!
-A consultant is a person who borrows your watch, tells you what time it
+A cultant is a person who borrows your watch, tells you what time it
 is, pockets the watch, and sends you a bill for it.
 Stop searching forever.  Happiness is unattainable.
 Is there life before breakfast?
 "You should, without hesitation, pound your typewriter into a plowshare,
 your paper into fertilizer, and enter agriculture"
 		-- Business Professor, University of Georgia
-What really shapes and conditions and makes us is somebody only a few of
+What really shapes and conditi and makes us is somebody only a few of
 us ever have the courage to face: and that is the child you once were,
 long before formal education ever got its claws into you -- that
 impatient, all-demanding child who wants love and power and can't get
@@ -135,7 +135,7 @@ it bother anyone else that half the world is being told all of our hard-won
 secrets of computer technology?  Remember how all the lawyers cried foul
 when "How to Avoid Probate" was published?  Are they taking no-fault
 insurance lying down?  No way!  But at the current rate it won't be long
-before there are stacks of the "Transactions on Information Theory" at the
+before there are stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
 engineers then?  Are we, as the saying goes, giving away the store?
 		-- Robert W. Lucky, IEEE President
@@ -178,7 +178,7 @@ gyroscope, n.:
 	each other and the axis of spin so that a rotation of one of the
 	two mutually perpendicular axes results from application of
 	torque to the other when the wheel is spinning and so that the
-	entire apparatus offers considerable opposition depending on
+	entire apparatus offers ciderable opposition depending on
 	the angular momentum to any torque that would change the direction
 	of the axis of spin.
 		-- Webster's Seventh New Collegiate Dictionary
@@ -206,7 +206,7 @@ were quite a struggle.
 There are no threads in a.b.p.erotica,  so there's no  gain in using a
 threaded news reader.
 (Unknown source)
-"If I do not return to the pulpit this weekend, millions of people will go
+"If I do not return to the pulpit this weekend, milli of people will go
 to hell."
 -- Jimmy Swaggart, 5/20/88
 Often statistics are used as a drunken man uses lampposts -- for support
@@ -285,13 +285,13 @@ Ray's thinking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just then, Karen Carpenter walks in, sits down at the drums, and says:
 "'Close to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
-The husband who doesn't tell his wife everything probably reasons that
+The husband who doesn't tell his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- Leo J. Burke
 Every country has the government it deserves.
 		-- Joseph De Maistre
 Absinthe makes the tart grow fonder.
-The idea of male and female are universal constants.
+The idea of male and female are universal ctants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
 Marriage, n.:
 	The evil aye.
@@ -428,13 +428,13 @@ Life sucks, but death doesn't put out at all.
 		-- Thomas J. Kopp
 The public is an old woman.  Let her maunder and mumble.
 		-- Thomas Carlyle
-Einstein argued that there must be simplified explanations of nature, because
+Einstein argued that there must be simplified explanati of nature, because
 God is not capricious or arbitrary.  No such faith comforts the software
 engineer.
 - Fred Brooks, Jr.
 Never use "etc." -- it makes people think there is more where there is not
 or that there is not space to list it all, etc.
-Just as most issues are seldom black or white, so are most good solutions
+Just as most issues are seldom black or white, so are most good soluti
 seldom black or white.  Beware of the solution that requires one side to be
 totally the loser and the other side to be totally the winner.  The reason
 there are two sides to begin with usually is because neither side has all
@@ -472,7 +472,7 @@ Pascal is not a high-level language.
 		-- Steven Feiner
 Everything is possible.  Pass the word.
 		-- Rita Mae Brown, "Six of One"
-Insanity is considered a ground for divorce, though by the very same
+Insanity is cidered a ground for divorce, though by the very same
 token it is the shortest detour to marriage.
 		-- Wilson Mizner
 To err is humor.
@@ -499,7 +499,7 @@ I think...  I think it's in my basement... Let me go upstairs and check.
 		-- Escher
 Both models are identical in performance, functional operation, and
 interface circuit details.  The two models, however, are not compatible
-on the same communications line connection.
+on the same communicati line connection.
 		-- Bell System Technical Reference
 I dread success.  To have succeeded is to have finished one's business on
 earth, like the male spider, who is killed by the female the moment he has

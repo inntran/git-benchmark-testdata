@@ -1,12 +1,12 @@
 America: born free and taxed to death.
-My religion consists of a humble admiration of the illimitable superior
+My religion cists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight details we are able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
 flowchart, n. & v.:
 	[From flow "to ripple down in rich profusion, as hair" + chart
 "a cryptic hidden-treasure map designed to mislead the uninitiated."]
-1. n. The solution, if any, to a class of Mascheroni construction
+1. n. The solution, if any, to a class of Mascheroni ctruction
 problems in which given algorithms require geometrical representation
 using only the 35 basic ideograms of the ANSI template.  2. n. Neronic
 doodling while the system burns.  3. n. A low-cost substitute for
@@ -14,13 +14,13 @@ wallpaper.  4. n.  The innumerate misleading the illiterate.  "A
 thousand pictures is worth ten lines of code." -- The Programmer's
 Little Red Vade Mecum, Mao Tse T'umps.  5. v.intrans. To produce
 flowcharts with no particular object in mind.  6. v.trans. To obfuscate
-(a problem) with esoteric cartoons.
+(a problem) with esoteric carto.
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
 Wings of OS/400: 
 The airline has bought ancient DC-3s, arguably the best and safest planes
 that ever flew, and painted "747" on their tails to make them look as if
 they are fast. The flight attendants, of course, attend to your every need,
-though the drinks cost $15 a pop. Stupid questions cost $230 per hour,
+though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
 unless you have SupportLine, which requires a first class ticket and
 membership in the frequent flyer club. Then they cost $500, but your
 accounting department can call it overhead.
@@ -35,7 +35,7 @@ Each one serves until they screw up, at which point they rotate.
 		-- Dennis Miller
 ...difference of opinion is advantageious in religion.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
-attainable?  Millions of innocent men, women, and children, since the
+attainable?  Milli of innocent men, women, and children, since the
 introduction of Christianity, have been burnt, tortured, fined, imprisoned;
 yet we have not advanced one inch towards uniformity.
 - Thomas Jefferson, "Notes on Virginia"
@@ -135,7 +135,7 @@ WORKINGS of this POTATO!!
 A bad marriage is like a horse with a broken leg, you can shoot
 the horse, but it don't fix the leg.
 He who lives without folly is less wise than he believes.
-The louder he talked of his honour, the faster we counted our spoons.
+The louder he talked of his honour, the faster we counted our spo.
 		-- Ralph Waldo Emerson
 When I was 16, I thought there was no hope for my father.  By the time I was
 20, he had made great improvement.
@@ -155,15 +155,15 @@ Easiest Color to Solve on a Rubik's Cube:	Black.
 
 Simply remove all the little colored stickers on the cube, and each of
 side of the cube will now be the original color of the plastic underneath
--- black.  According to the instructions, this means the puzzle is solved.
+-- black.  According to the instructi, this means the puzzle is solved.
 		-- Steve Rubenstein
 	"Logic and practical information do not seem to apply here."
 	"You admit that?"
 	"To deny the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
-"The strength of the Constitution lies entirely in the determination of each
+"The strength of the Ctitution lies entirely in the determination of each
 citizen to defend it.  Only if every single citizen feels duty bound to do
-his share in this defense are the constitutional rights secure."
+his share in this defense are the ctitutional rights secure."
 -- Albert Einstein
 "All the people are so happy now, their heads are caving in.  I'm glad they
 are a snowman with protective rubber skin" 
@@ -173,7 +173,7 @@ You're either part of the solution or part of the problem.
 		-- Eldridge Cleaver
 Rebellion lay in his way, and he found it.
 		-- William Shakespeare, "Henry IV"
-Politics, as a practice, whatever its professions, has always been the
+Politics, as a practice, whatever its professi, has always been the
 systematic organisation of hatreds.
 		-- Henry Adams, "The Education of Henry Adams"
 Women are like elephants to me: I like to look at them, but I wouldn't
@@ -200,7 +200,7 @@ longer believe you.
 When it's dark enough you can see the stars.
 		-- Ralph Waldo Emerson,
 "The vast majority of successful major crimes against property are
-perpetrated by individuals abusing positions of trust."
+perpetrated by individuals abusing positi of trust."
 -- Lawrence Dalzell
 People who think they know everything greatly annoy those of us who do.
 Love means nothing to a tennis player.
@@ -228,9 +228,9 @@ outside"
 (By Linus Torvalds)
 What this country needs is a good five cent nickel.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
-chatting with persons who've never existed.  Such carryings-on in our peaceable
+chatting with pers who've never existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
-state," snapped the big kangaroo, "That your silly nonsensical game is all
+state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-Laws, whose help I've engaged,
@@ -348,7 +348,7 @@ YOW!!  The land of the rising SONY!!
 Bore, n.:
 	A person who talks when you wish him to listen.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-No woman can call herself free until she can choose consciously whether
+No woman can call herself free until she can choose cciously whether
 she will or will not be a mother.
 		-- Margaret H. Sanger
 Only two kinds of witnesses exist.  The first live in a neighborhood where
@@ -410,7 +410,7 @@ in the head.
 Life is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
 Nondeterminism means never having to say you are wrong.
-Before Xerox, five carbons were the maximum extension of anybody's ego.
+Before Xerox, five carb were the maximum extension of anybody's ego.
 Burn's Hog Weighing Method:
 	(1) Get a perfectly symmetrical plank and balance it across a sawhorse.
 	(2) Put the hog on one end of the plank.
@@ -458,7 +458,7 @@ Extreme feminine beauty is always disturbing.
 		-- Spock, "The Cloud Minders", stardate 5818.4
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
-A healthy male adult bore consumes each year one and a half times his own
+A healthy male adult bore cumes each year one and a half times his own
 weight in other people's patience.
 		-- John Updike
 Some people around here wouldn't recognize subtlety if it hit them on the head.
@@ -522,7 +522,7 @@ A priest asked: What is Fate, Master?
 	And the Master answered:
 	It is that which gives a beast of burden its reason for existence.
 It is that which men in former times had to bear upon their backs.
-	It is that which has caused nations to build byways from City
+	It is that which has caused nati to build byways from City
 to City upon which carts and coaches pass, and alongside which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And that is Fate?  said the priest.
@@ -554,7 +554,7 @@ and I don't even know her name.  Could I have asked her to get under my
 umbrella without seeming insulting?
 
 Gentle Reader:
-Certainly.  Consideration for those less fortunate than you is always proper,
+Certainly.  Cideration for those less fortunate than you is always proper,
 although it would be more convincing if you stopped babbling about how
 attractive she is.  In order not to give Good Samaritanism a bad name, Miss
 Manners asks you to allow her two or three rainy days of unmolested protection
@@ -563,18 +563,18 @@ Prediction is very difficult, especially of the future.
 		-- Niels Bohr
 An engineer, a physicist and a mathematician find themselves in an
 anecdote, indeed an anecdote quite similar to many that you have no doubt
-already heard.  After some observations and rough calculations the
+already heard.  After some observati and rough calculati the
 engineer realizes the situation and starts laughing.  A few minutes later
 the physicist understands too and chuckles to himself happily as he now
 has enough experimental evidence to publish a paper.  This leaves the
 mathematician somewhat perplexed, as he had observed right away that he
 was the subject of an anecdote, and deduced quite rapidly the presence of
-humour from similar anecdotes, but considers this anecdote to be too
+humour from similar anecdotes, but ciders this anecdote to be too
 trivial a corollary to be significant, let alone funny.
-The primary purpose of the DATA statement is to give names to constants;
+The primary purpose of the DATA statement is to give names to ctants;
 instead of referring to pi as 3.141592653589793 at every appearance, the
 variable PI can be given that value with a DATA statement and used instead
-of the longer form of the constant.  This also simplifies modifying the
+of the longer form of the ctant.  This also simplifies modifying the
 program, should the value of pi change.
 		-- FORTRAN manual for Xerox Computers
 Air pollution is really making us pay through the nose.
@@ -583,7 +583,7 @@ Air pollution is really making us pay through the nose.
 Linux Symposium)
 What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, "The Opium of the Intellectuals"
-Given its constituency, the only thing I expect to be "open" about [the
+Given its ctituency, the only thing I expect to be "open" about [the
 Open Software Foundation] is its mouth.
 		-- John Gilmore
 Just remember: when you go to court, you are trusting your fate to

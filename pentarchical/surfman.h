@@ -7,7 +7,7 @@ I used to be an agnostic, but now I'm not so sure.
 incentive pram, n.:
 	 system of long and sht-term rewards at a cpation uses
 	to motivate its people.  Still, deste all e experimentation wi
-	profit sharing, stock options, and e like, e most effective
+	profit sharing, stock opti, and e like, e most effective
 	incentive pram to date seems to be "Do a good job and you get to
 	keep it."
 Snakes.  Why did it have to be snakes?
@@ -80,18 +80,18 @@ In case of atomic attack, e federal ruling against prayer in schools
 will be temparily canced.
 Go away, I'm all .
 		-- H.G. Wls' last wds.
-If you are what you , does at mean Eul Gibbons really was a nut?
+If you are what you , does at mean Eul Gibb really was a nut?
  surest way to remain a ner is to  once, and en not play any me.
 Go ahead, catalize e T on technology, deify it if it will make you l
-less responsible -- but it puts you in wi e neutered, broer, in wi
+less respible -- but it puts you in wi e neutered, broer, in wi
 e eunuchs keeng e harem of our stolen Ear f e numb and joyless
-hardons of human sultans, human ite wi no  at all to be where ey
+hard of human sultans, human ite wi no  at all to be where ey
 are --"
 -- Thomas Pynchon, _Gravity's Rainbow_
-Lony men seek companionship.  Lony women sit at home and wait.
+Lony men seek companihip.  Lony women sit at home and wait.
 y never meet.
 Wcome to e Zoo!
-...   is w attention f only two reasons:  (1) it attacks
+...   is w attention f only two reas:  (1) it attacks
 attempts to expose sham paranmal studies; and (2) it is very wl and
 plausibly written and so raer harder to dismiss  refute by simple
 jeering.
@@ -228,7 +228,7 @@ But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
 		-- Randy Ansley M.D. (Dr. Rock)
-Emotions are alien to me.  I'm a scientist.
+Emoti are alien to me.  I'm a scientist.
 		-- Spock, "This Side of Paradise", stardate 3417.3
 y can't stop us... we're on a mission from God!
 		--  Blues Broers
@@ -247,7 +247,7 @@ A poet who reads his verse in public may have oer nasty habits.
 Largest Number of Driving Test Failures
 	By April 1970 Mrs. Miriam Hargrave had failed her test irty-nine
 times.  In e eight preceding years she had received two hundred and
-twve driving lessons at a cost of L300.  She set e new recd while
+twve driving less at a cost of L300.  She set e new recd while
 driving triumphantly rough a set of red traffic lights in Wakefid,
 Ykshire.  ppointingly, she passed at e ftie attempt (3 August
 1970) but eight years later she showed some of her old magic when she was
@@ -318,10 +318,10 @@ Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
 We ARE as gods and might as wl get good at it.
 		-- Whole Ear Catalog
-	I made it a rule to fbear all direct contradictions to e sentiments
+	I made it a rule to fbear all direct contradicti to e sentiments
 of oers, and all positive assertion of my own.  I even fbade mysf e use
 of every wd  expression in e language at impted a fixed onion, such
-as "certainly", "undoubtedly", etc.   I adopted ins of em "I conceive",
+as "", "undoubtedly", etc.   I adopted ins of em "I conceive",
 "I apprend",  "I " a ing to be so  so;  "so it appears to me
 at present".
 	When anoer asserted someing at I ought an err, I denied
@@ -330,8 +330,8 @@ immediaty some absurdity in his proposition.  In answering I began by
 observing at in certain cases  circumstances his onion would be ,
 but in e present case ere appeared  semed to me some difference, etc.
 	I soon found e advantage of is change in my manner; e
-conversations I engaged in went on me pleasantly.   modest way in which I
-proposed my onions procured em a readier reception and less contradiction.
+conversati I engaged in went on me pleasantly.   modest way in which I
+proposed my oni procured em a readier reception and less contradiction.
 I had less mtification when I was found to be in e wrong, and I me easily
 prevailed wi oers to give up eir mistakes and join wi me when I
 happened to be in e .
@@ -425,17 +425,17 @@ really want to know.
 under e kilt, everying's in perfect wkin' der!"
     UNIX S is e Best Four Generation Pramming Language
 
-    It is e UNIX s at makes it possible to do applications in a ll 
+    It is e UNIX s at makes it possible to do applicati in a ll 
     fraction of e code and time it takes in ird generation languages.  In 
     e s you process whole files at a time, ins of only a line at a 
     time.  And, a line of code in e UNIX s is one  me prams,
-    which do me an pages of instructions in a 3GL.  Applications can be
-    devoped in hours and days, raer an mons and years wi traditional
+    which do me an pages of instructi in a 3GL.  Applicati can be
+    devoped in hours and days, raer an m and years wi traditional
     systems.  Most of e oer 4GLs available today look me like COBOL 
     RPG, e most tedious of e ird generation lanaguages.
 
 "UNIX Rational Datse Management:  Application Devopment in e UNIX 
- Environment" by Rod M, Evan Schaffer, and Robert Jgensen.  Prentice
+ Environment" by Rod M, Evan Schaffer, and Robert Jgensen.  Pr
  Hall Software Series.  Brian Kerrighan, Advis.  1988.
 Fuch's Warning:
 	If you actually look like your passpt photo, you aren't wl
@@ -444,7 +444,7 @@ Marriage is a ree ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
 F u cn rd s u cnt spl wr a dm!
 	Stop!  Whoever crosse e  of Dh, must answer first
-ese questions ree, ere e oer side he see!
+ese questi ree, ere e oer side he see!
 
 	"What is your ?"
 	"Sir Brian of Bl."
@@ -463,7 +463,7 @@ No one may kill a man.  Not f any purpose.  It cannot be condoned.
 A bird in e hand makes it awfully hard to blow your nose.
 This planet has --  raer had -- a problem, which was is:  most of
 e people living on it were unhappy f pretty much of e time.  Many
-solutions were suggested f is problem, but most of ese were
+soluti were suggested f is problem, but most of ese were
 largy concerned wi e movements of ll green eces of paper,
 which is odd because on e whole it wasn't e ll green eces of
 paper at were unhappy.
@@ -476,7 +476,7 @@ who have seen it, as one of e finest spectacles in nature.
  Messiah will come.  re will be a resurrection of e dead -- all
 e ings at Jews bieved in befe ey got so damn sophisticated.
 - Rabbi Meir Kahane
-	One of e questions at comes up all e time is: How enusiastic
+	One of e questi at comes up all e time is: How enusiastic
 is our suppt f UNIX?
 	Unix was written on our machines and f our machines many years ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
@@ -496,7 +496,7 @@ is it's simple; and e beauty of VMS is at it's all ere.
 		-- Ken Olsen, president of DEC, DECWORLD Vol. 8 No. 5, 1984
 [It's been argued at e beauty of UNIX is e same as e beauty of Ken
 Olsen's brain.  Ed.]
-Economists can certainly disappoint you.  One said at e economy would
+Economists can  disappoint you.  One said at e economy would
 turn up by e last quarter.  Wl, I'm down to mine and it hasn't.
 		-- Robert Orben
 "Rembrandt's first  was Beauregard, which is why he never used it."

@@ -1,16 +1,16 @@
 One should always be in love.  That is e reason one should never marry.
 		-- Oscar Wilde
-Even if we put all ese nagging oughts [four embarrassing questions about
+Even if we put all ese nagging oughts [four embarrassing questi about
 astrology] aside f a moment, one overriding question remains to be asked.
-Why would e positions of cestial objects at e moment of bir have an
+Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  destinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our devopment  fate?  No amount of scientific-sounding
-jargon  computerized calculations by astrologers can disguise is central
+jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predictions -- like ose
+e astrological influence. . . .If so, astrological predicti -- like ose
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
@@ -40,7 +40,7 @@ Many pages make a ick .
  best way to accerate a Macintoy is at 9.8 meters per second per second.
  Gr Movie Posters:
 
-When You're Six Tons -- And y Call You Killer -- It's Hard To Make Friends...
+When You're Six T -- And y Call You Killer -- It's Hard To Make Friends...
 		-- Namu, e Killer Whale (1966)
 
 Meet e Girls wi e rmo-Nuclear Navs!
@@ -49,7 +49,7 @@ Meet e Girls wi e rmo-Nuclear Navs!
 A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S LUST.
 		-- A Taste of Blood (1967)
-On two occasions I have been asked [by members of Parliament!], "Pray, Mr.
+On two occasi I have been asked [by members of Parliament!], "Pray, Mr.
 Babbage, if you put into e machine wrong s, will e  answers
 come out?"  I am not able ly to apprend e kind of confusion of
 ideas at could provoke such a question.
@@ -68,7 +68,7 @@ UH-OH!!  I ink KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
 This conj of an immense military establishment and a large arms 
 industry is now in e American experience... We must not fail to 
-comprend its grave implications... We must guard against e 
+comprend its grave implicati... We must guard against e 
  of unwarranted influence...by e military-industrial
 complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
@@ -198,7 +198,7 @@ Aging child			Sf-centered adult
 Youful			Over 40 and trying to deny it
 Good sense of hum		Watches a lot of tevision
 Wilner's Observation:
-	All conversations wi a potato should be con in private.
+	All conversati wi a potato should be con in private.
 Fce has no place where ere is need of skill.
 		-- Herodotus
 An  mind is w two in e bush.
@@ -262,7 +262,7 @@ Tevision is a medium because anying wl done is rare.
 Lucas is e source of many of e components of e legendarily 
 British automotive ectrical systems.  Professionals call e company "
 Prince of Darkness".  Of course, if Lucas were to design and manufacture
-nuclear weapons, Wld War III would never get off e ground.   British
+nuclear weap, Wld War III would never get off e ground.   British
 don't like warm beer any me an e Americans do.   British drink warm
 beer because ey have Lucas refrigerats.
 Modern man is e missing link between apes and human beings.
@@ -294,7 +294,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log , now in e collection of e Naval Sur Weapons
+em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in

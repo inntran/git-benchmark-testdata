@@ -7,7 +7,7 @@ yourself to God.
 Strange things are done to be number one
 In selling the computer			The Druids were entrepreneurs,
 IBM has their strategem			And they built a granite box
-Which steadily grows acuter,		It tracked the moon, warned of monsoons,
+Which steadily grows acuter,		It tracked the moon, warned of mo,
 And Honeywell competes like Hell,	And forecast the equinox
 But the story's missing link		Their price was , their future
 Is the system old at Stonemenge sold		b,
@@ -49,7 +49,7 @@ If God is One, what is bad?
 -- Pulchritude possesses solely cutaneous profundity.
 -- It is fruitless to become lachrymose over precipitately departed
 	lacteal fluid.
--- Freedom from incrustations of grime is contiguous to rectitude.
+-- Freedom from incrustati of grime is contiguous to rectitude.
 -- It is fruitless to attempt to indoctrinate a superannuated
 	canine with innovative maneuvers.
 -- Eschew the implement of correction and vitiate the scion.
@@ -78,7 +78,7 @@ And sunny clusters ripened for the wine:
 I tell you this across the blackened vine.
 		-- Edna St. Vincent Millay, "Even in the Moment of
 		   Our Earliest Kiss", 1931
-One of the major difficulties Trillian experienced in her relationship with
+One of the major difficulties Trillian experienced in her relatihip with
 Zaphod was learning to distinguish between him pretending to be stupid just
 to get people off their guard, pretending to be stupid because he couldn't
 be bothered to think and wanted someone else to do it for him, pretending
@@ -110,12 +110,12 @@ outsiders who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
-and the like, would entail fundamental revisions of the foundations of
+and the like, would entail fundamental revisi of the foundati of
 neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
-- Barry L. Beyerstein, "The Brain and Conciousness: Implications for Psi
+- Barry L. Beyerstein, "The Brain and Conciousness: Implicati for Psi
    Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 After Goliath's defeat, giants d to command respect.
 - Freeman Dyson
@@ -125,7 +125,7 @@ It is wrong always, everywhere and for everyone to believe anything upon
 insufficient evidence.
 - W. K. Clifford, British philosopher, circa 1876
 The best man for the job is often a woman.
-Fortune finishes the great quotations, #2
+Fortune finishes the great quotati, #2
 
 	If at first you don't succeed, think how many people
 	you've made happy.
@@ -188,7 +188,7 @@ and acts that are contrary to habit...
 The best you get is an even break.
 		-- Franklin Adams
 The complexity of software is an  property, not an accidental one.
-Hence, descriptions of a software entity that abstract away its complexity
+Hence, descripti of a software entity that abstract away its complexity
 often abstract away its essence.
 - Fred Bs, Jr.
 You can always tell the Christmas season is here when you start getting
@@ -243,7 +243,7 @@ Only the hypocrite is really rotten to the core.
 : is not an identifier
 miracle:  an extremely outstanding or unusual event, thing, or accomplishment.
 -- Webster's Dictionary
-The sum of the intelligence of the world is constant.  The population is,
+The sum of the intelligence of the world is ctant.  The population is,
 of course, growing.
 Lonesome?
 
@@ -256,7 +256,7 @@ JUST SCREW-UP ONE MORE TIME!!!!!!!
 The Least Successful Police Dogs
 	America has a very strong candidate in "La Dur", a fearsome looking
 schnauzer hound, who was retired from the Orlando police force in Florida
-in 1978.  He consistently refused to do anything which might ruffle or
+in 1978.  He cistently refused to do anything which might ruffle or
 offend the criminal classes.
 	His handling officer, Rick Grim, had to admit: "He just won't go up
 and bite them.  I got sick and tired of doing that dog's work for him."
@@ -285,7 +285,7 @@ Between infinite and short there is a big difference.
 The more we disagree, the more chance there is that at least one of us is .
 The Seventh Edition licensing procedures are, I suppose, still in effect, 
 though I doubt that tapes are available from AT&T.  At any rate, whatever 
-restrictions the license imposes still exist.  These restrictions were and 
+restricti the license imposes still exist.  These restricti were and 
 are reasonable for places that just want to run the system, but don't allow 
 many of the things that Minix was written for, like study of the source in 
 classes, or by individuals not in a university or company.
@@ -307,11 +307,11 @@ tolerate the disadvantages of their wealth.
 		-- Nero Wolfe
 "It was a virgin forest, a place where the Hand of Man had never set foot."
 You have an ability to sense and know higher truth.
-I treasure this strange combination found in very few persons: a fierce
+I treasure this strange combination found in very few pers: a fierce
 desire for life as well as a lucid perception of the ultimate futility of
 the quest.
 		-- Madeleine Gobeil
-I treasure this strange combination found in very few persons: a fierce
+I treasure this strange combination found in very few pers: a fierce
 desire for life as well as a lucid perception of the ultimate futility of
 the quest.
 		-- Madeleine Gobeil
@@ -320,14 +320,14 @@ perfect guest:
 Quit worrying about your health.  It'll go away.
 		-- Robert Orben
 Elephant, n.:
-	A mouse built to government specifications.
-Once I finally d out all of life's answers, they changed the questions.
+	A mouse built to government specificati.
+Once I finally d out all of life's answers, they changed the questi.
 Please stand for the National Anthem:
 
 	O Canada
 	Our home and native land
 	True patriot love
-	In all thy sons' command
+	In all thy s' command
 	With glowing hearts we see thee rise
 	The true north strong and free
 	From far and wide, O Canada
@@ -339,12 +339,12 @@ Please stand for the National Anthem:
 Thank you.  You may resume your seat.
 Are we on STRIKE yet?
 "Rights" is a fictional abstraction.  No one has "Rights", neither machines
-nor flesh-and-blood.  Persons... have opportunities, not s, which they
+nor flesh-and-blood.  Pers... have opportunities, not s, which they
 use or do not use.
 		-- Lazarus Long
 And I alone am returned to wag the tail.
 Necessity is a mother.
-The perversity of nature is nowhere better demonstrated by the fact that, when
+The perversity of nature is nowhere better demtrated by the fact that, when
 exposed to the same atmosphere, bread becomes hard while crackers become soft.
 	A young girl, Carmen Cohen, was called by her last name by her father,
 and her first name by her mother.  By the time she was ten, didn't know if she
@@ -422,7 +422,7 @@ the perfect way to inform people about such news events long after the
 broadcast networks have covered them.  As you are probably the only person
 to have heard the news on the radio, be sure to post as soon as you can.
 
--- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
+-- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 A Roman divorced from his wife, being highly blamed by his friends, who
 demanded, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
 holding out his shoe, asked them whether it was not new and well made.
@@ -433,7 +433,7 @@ Conquest is easy. Control is not.
 I have no doubt that it is a part of the destiny of the human race, 
 in its gradual improvement, to leave off eating animals.    
 		-- Thoreau
-The Constitution may not be perfect, but it's a lot better than what we've got!
+The Ctitution may not be perfect, but it's a lot better than what we've got!
 Patience is the best remedy for every trouble.
 		-- Titus Maccius Plautus
 There are places I'll remember
@@ -467,7 +467,7 @@ it's going to be up all night.
 Many of our students have gone on to achieve great success in all fields of
 pramming.  One former student developed the concept of the personalized
 form letter.  Does the phrase, "Dear Mr.(insert name), You may already be a
-winner!," sound familiar?  Another student writes "After only five lessons I
+winner!," sound familiar?  Another student writes "After only five less I
 sold a "My Most Unforgettable Pram" article to Corrosive Computing magazine.
 Another of our graduates writes, "I recently completed a database-management
 pram for my department manager.  My pram touched him so deeply that he
@@ -485,29 +485,29 @@ of outsiders who eventually overthrew entrenched scientific orthodoxies,
 but they prevailed with irrefutable data.  More often, egregious findings
 that contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
-and the like, would entail fundamental revisions of the foundations of
+and the like, would entail fundamental revisi of the foundati of
 neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
 		-- Barry L. Beyerstein, "The Brain and Conciousness:
-		   Implications for Psi Phenomena".
+		   Implicati for Psi Phenomena".
 You can do very well in speculation where land or anything to do with dirt
 is concerned.
 A prominent broadcaster, on a big-game safari in Africa, was taken to a
 watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and described the scene into his
 tape reer, he saw two gnus grazing peacefully. So preoccupied were
-they that they failed to observe the approach of a pride of lions led
-by two magnificent specimens, obviously the leaders. The lions charged,
+they that they failed to observe the approach of a pride of li led
+by two magnificent specimens, obviously the leaders. The li charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
-the gnus and here, once again, are the head lions."
+the gnus and here, once again, are the head li."
 A woman was in love with fourteen soldiers.  It was clearly platoonic.
 This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
 You're not my type.  For that matter, you're not even my species!!!
-"We never make assertions, Miss Taggart," said Hugh Akston.  "That is
+"We never make asserti, Miss Taggart," said Hugh Akston.  "That is
 the moral crime peculiar to our enemies.  We do not tell -- we *show*.
 We do not claim -- we *prove*."  
 -- Ayn Rand, _Atlas Shrugged_
@@ -515,11 +515,11 @@ It destroys one's nerves to be amiable every day to the same human being.
 		-- Benjamin Disraeli
 Some of you ... may have decided that, this year, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
-cranberries and exchanging humble, handmade gifts, like on "The Waltons".
+cranberries and exchanging humble, handmade gifts, like on "The Walt".
 Well, you can forget it.  If everybody pulled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
-which would spend billions and billions of tax dollars to buy Barbie dolls
+which would spend billi and billi of tax dollars to buy Barbie dolls
 and electronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Pram.  This means you should get a large
@@ -540,7 +540,7 @@ Dear Editor:
 that.  On USENET, this is known as a summary.  It lets people read all the
 replies without annoying newsreaders getting in the way.  Do the same when
 summarizing a vote.
-		-- Emily Postnews Answers Your Questions on Netiquette
+		-- Emily Postnews Answers Your Questi on Netiquette
 The hearing ear is always found close to the sing , a custom
 whereof the memory of man run not howsomever to the contrary, nohow.
 Up against the net, redneck mother,
@@ -556,11 +556,11 @@ An exhibit of works by the artist known only as Pretzel.
 The exhibit includes several large conceptual works using non-traditional
 media and found objects including old sofa-beds, used mace cters,
 discarded sanitary napkins and parts of freeways.  The artist explores
-our dehumanization due to high technology and unresponsive governmental
+our dehumanization due to high technology and unrespive governmental
 structures in a post-industrial world.  She/he (the artist prefers to
 remain without gender) strives to create dialogue between viewer and
 creator, to aid us in our quest to experience contemporary life with its
-inner-city tensions, homelessness, global warming and gender and
+inner-city tensi, homelessness, global warming and gender and
 class-based stress.  The works are arranged to lead us to the essence of
 the argument: that the alienation of the person/machine boundary has
 sapped the strength of our voices and must be destroyed for society to
@@ -577,7 +577,7 @@ the hats turned down'll be there, but no more housewives and little men in
 the street and foreign presidents.  It's goin' to be back to the fighter who
 comes to town, smells a flower, visits a hospital, blows a horn and says
 he's in shape.  Old hat.  I was the onliest boxer in history people asked
-questions like a senator.
+questi like a senator.
 		-- Muhammad Ali
 How's it going in those MODULAR LOVE UNITS??
 Nobody shot me.
@@ -638,7 +638,7 @@ Trying to find what is ailing,
 Living in the land of the free.
 Some of them are running from lovers,
 Leaving no forward address.
-Some of them are running tons of ganja,
+Some of them are running t of ganja,
 Some are running from the IRS.
 Late at night you will find them,
 In the cheap hotels and bars.
@@ -698,12 +698,12 @@ A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 A child of five could understand this!  Fetch me a child of five.
-Inadmissible:  Not competent to be considered.  Said of certain kinds of
+Inadmissible:  Not competent to be cidered.  Said of certain kinds of
 testimony which juries are supposed to be unfit to be entrusted with,
 and which judges, therefore, rule out, even of proceedings before themselves
 alone.  Hearsay evidence is inadmissible because the person quoted was
 unsworn and is not before the court for examination; yet most momentous 
-actions, military, political, commercial and of every other kind, are
+acti, military, political, commercial and of every other kind, are
 daily undertaken on hearsay evidence.  There is no religion in the world
 that has any other basis than hearsay evidence.  Revelation is hearsay
 evidence; that the Scriptures are the word of God we have only the
@@ -716,7 +716,7 @@ But as res of courts of justice are admissible, it can easily be proved
 that powerful and malevolent magicians once existed and were a scourge to
 mankind.  The evidence (including confession) upon which certain women
 were convicted of witchcraft and executed was without a flaw; it is still
-unimpeachable.  The judges' decisions based on it were sound in logic and
+unimpeachable.  The judges' decisi based on it were sound in logic and
 in law.  Nothing in any existing court was ever more thoroughly proved than
 the charges of witchcraft and sorcery for which so many suffered death.
 If there were no witches, human testimony and human reason are alike
@@ -765,7 +765,7 @@ blithwapping:
 	Using anything BUT a hammer to hammer a nail into the
 	wall, such as shoes, lamp bases, doorstops, etc.
 		-- "Sniglets", Rich Hall & Friends
-An idea is not responsible for the people who believe in it.
+An idea is not respible for the people who believe in it.
 Good government never depends upon laws, but upon the personal qualities of
 those who govern.  The machinery of government is always subordinate to the
 will of those who administer that machinery.  The most important element of
@@ -779,7 +779,7 @@ been, and never will be wrong.
 		-- Walter Dwight
 It was a JOKE!!  Get it??  I was receiving messages from DAVID LETTERMAN!!
 YOW!!
-White dwarf seeks red giant for binary relationship.
+White dwarf seeks red giant for binary relatihip.
 If you want to know how old a man is, ask his brother-in-law.
 Knowledge without common sense is folly.
 	"Verily and forsooth," replied Goodgulf darkly.  "In the past year
@@ -798,12 +798,12 @@ Robot, n.:
 	University administrator.
 I would much rather have men ask why I have no statue, than why I have one.
 		-- Marcus Procius Cato
-Give thought to your reputation.  Consider changing name and moving to
+Give thought to your reputation.  Cider changing name and moving to
 a new town.
 If men are not afraid to die,
 it is of no avail to threaten them with death.
 
-If men live in constant fear of dying,
+If men live in ctant fear of dying,
 And if breaking the law means a man will be killed,
 Who will dare to break the law?
 
@@ -830,7 +830,7 @@ Changing husbands/wives is only changing troubles.
 To err is human, but when the eraser wears out before the pencil,
 you're overdoing it a little.
 Operating-system software is the pram that orchestrates all the basic
-functions of a computer.
+functi of a computer.
 - The Wall Street Journal, Tuesday, September 15, 1987, page 40
 Try to find the real tense of the report you are reading:  Was it done, is
 it being done, or is something to be done?  Reports are now written in four
@@ -852,7 +852,7 @@ pigmentation of their skin.  They happen to be colored.
 -- Bill Peterson, former Houston Oiler football coach
 If we all work together, we can totally disrupt the system.
 There's a trick to the Graceful Exit.  It begins with the vision to
-recognize when a job, a life stage, a relationship is over -- and to let
+recognize when a job, a life stage, a relatihip is over -- and to let
 go.  It means leaving what's over without denying its validity or its
 past importance in our lives.  It involves a sense of future, a belief
 that every exit line is an entry, that we are moving on, rather than out.
@@ -892,7 +892,7 @@ Colvard's Logical Premises:
 	All probabilities are 50%.
 	Either a thing will happen or it won't.
 
-Colvard's Unconscionable Commentary:
+Colvard's Unccionable Commentary:
 	This is especially true when dealing with someone you're attracted to.
 
 Grelb's Commentary:

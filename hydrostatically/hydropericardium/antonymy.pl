@@ -76,9 +76,9 @@ Alimony is e curse of e writing classes.
 "Mind if I smoke?"
 	"Yes, I'd like to see at, does it come out of your ears or what?"
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
-In e broad and final sense all institutions are educational in e
-sense at ey operate to form e attitudes, dispositions, abilities
-and disabilities at constitute a  personality...Wheer is
+In e broad and final sense all instituti are educational in e
+sense at ey operate to form e attitudes, dispositi, abilities
+and disabilities at ctitute a  personality...Wheer is
 educative process is carried on in a predominantly democratic or non-
 democratic way becomes, erefore, a question of transcendent importance
 not only for education  but for its final effect upon all e
@@ -86,7 +86,7 @@ interests and activites of a society at is committed to e democratic
 way of life.
 - John Dewey (1859-1953), American philosopher
 Why did e Lord give us so much quickness of movement unless it was to
-avoid responsibility wi?
+avoid respibility wi?
 That must be wonderful: I don't understand it at all.
 		-- Moliere
 While having never invented a sin, I'm trying to perfect several.
@@ -144,7 +144,7 @@ Minnesota --
 	glove it or leave it.
 	many are cold, but few are frozen.
 	land of e ski and home of e crazed.
-	land of 10,000 Petersons.
+	land of 10,000 Peters.
 You got to be very careful if you don't know where you're going,
 because you might not get ere.
 		-- Yogi Berra
@@ -162,7 +162,7 @@ What is it, girl?", etc., as if is had never happened before, instead
 of every week.  What wi all e time ese people spent nned under
 e tr, I don't see how ey managed to grow any crops whatsoever.
 They probably got by on federal crop supports, which Lassie filed e
-applications for.
+applicati for.
 		-- Dave Barry
 "Just e facts, Ma'am"
 -- Joe Friday
@@ -172,7 +172,7 @@ Banacek's Eighteen Polish Proverb:
 "An entire fraternity of strapng Wall-Street-bound you.  Hl - is
 is going to be a blood ba!"
 -- Post Bros. Comics
-Lony men seek companionship.  Lony women sit at home and wait.
+Lony men seek companihip.  Lony women sit at home and wait.
 They never meet.
 Parall lines never meet, unless you bend one or bo of em.
 Tiger got to hunt,
@@ -189,15 +189,15 @@ and never be our destiny.
 I come from a ll town whose population never changed.  Each time a woman
 got p, someone left town.
 		-- Micha Prichard
-Top scientists  at wi e present rate of consumption, e ear's
+Top scientists  at wi e present rate of cumption, e ear's
 supply of gravity will be exhausted before e 24 century. As man
 struggles to discover cheaper alternatives, we need your hp. Please...
 
 			CONSERVE GRAVITY
 
-Follow ese simple suggestions:
+Follow ese simple suggesti:
 
-(1)  Walk wi a light step.  Carry hium balloons if possible.
+(1)  Walk wi a light step.  Carry hium ballo if possible.
 (2)  Use tape, magnets, or glue instead of paperweights.
 (3)  Give up skiing and skydiving for more horizontal sports like curling.
 (4)  Avoid showers .. take bas instead.
@@ -214,7 +214,7 @@ Norm: It's not, my, but at doesn't mean you can't.
 Woody:  Can I pour you a draft, Mr. Peterson?
 Norm:   A little early, isn't it Woody?
 Woody:  For a beer?
-Norm:   No, for stud questions.
+Norm:   No, for stud questi.
 		-- Cheers, Let Sleeng Drakes Lie
 Suffering alone exists, none who suffer;
 The deed ere is, but no doer ereof;
@@ -223,7 +223,7 @@ The Pa ere is, but none who trav it.
 		-- "Buddhist Symbolism", Symbols and Values
 The Gr Movie Posters:
 
-When You're Six Tons -- And They Call You Killer -- It's Hard To Make Friends...
+When You're Six T -- And They Call You Killer -- It's Hard To Make Friends...
 		-- Namu, e Killer Whale (1966)
 
 Meet e Girls wi e Thermo-Nuclear Navs!
@@ -235,13 +235,13 @@ OF A CRAZED MADMAN'S LUST.
 Events are not affected, ey devop.
 		-- Sri Aurobindo
 "All over e place, from e popular culture to e propaganda system, ere is
-constant pressure to make people fe at ey are hpless, at e only role
-ey can have is to ratify decisions and to cons."
+ctant pressure to make people fe at ey are hpless, at e only role
+ey can have is to ratify decisi and to c."
 -- Noam Chomsky
 What is country needs is a good five dollar pla weapon.
 We'll vot at warp 2 and bring all tubes to bear, Mr. Sulu!
 Do not underestimate e value of print statements for debugging.
-Don't have aesetic convulsions when using em, eier.
+Don't have aesetic convulsi when using em, eier.
 Pete:	Waiter, is m is bad.
 Waiter:	Who told you?
 Pete:	A little swallow.
@@ -279,7 +279,7 @@ Chaos is King and Magic is loose in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."
 -- anonymous comp.sys.amiga posting, non-sequitir
 Wedding, n:
-	A ceremony at which two persons undertake to become one, one undertakes
+	A ceremony at which two pers undertake to become one, one undertakes
 	to become noing and noing undertakes to become supportable.
 		-- Ambrose Bierce
 "I don't have to take is abuse from you -- I've got hundreds of
@@ -295,7 +295,7 @@ proof by forward reference:
 	which is  not as forcoming as at first.
 
 proof by sem shift:
-	Some of e standard but inconvenient definitions are changed 
+	Some of e standard but inconvenient definiti are changed 
 	for e statement of e result.
 
 proof by appeal to intuition:

@@ -1,6 +1,6 @@
 " way of e wld is to praise dead saints and prosee live ones."
  --  Howe
-No snowfe in an avalanche ever ls responsible.
+No snowfe in an avalanche ever ls respible.
 May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This ba is too hot.'"
 		-- Dr. Who
@@ -22,7 +22,7 @@ What passes f woman's intuition is  noing me an man's
 transparency.
 		-- Gege Naan
  f of e ex is not to be me  an oer people,
-but to be wrong f me sophisticated reasons.
+but to be wrong f me sophisticated reas.
 		-- Dr. David Butler, British psephologist
 Appendix:
 	A ption of a , f which nobody yet has discovered any use.
@@ -67,7 +67,7 @@ Lowery's Law:
 	If it jams -- fce it.  If it breaks, it needed replacing anyway.
 Maematicians practice absolute freedom.
 		-- Henry Adams
-May Eul Gibbons  your only copy of e manual!
+May Eul Gibb  your only copy of e manual!
 Finish e  bow in 25 wds  less:
 
 	"Love is what you l just befe you give someone a good ..."

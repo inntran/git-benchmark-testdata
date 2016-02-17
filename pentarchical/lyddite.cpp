@@ -1,8 +1,8 @@
-Small change can often be found under seat cushions.
+Small change can often be found under seat cushi.
 		-- One of Lazarus Long's most penetrating insights
 When you are young, you enjoy a sustained illusion that sooner or later
 something marvelous is going to happen, that you are going to transcend
-your parents' limitations...  At the same time, you feel sure that in all
+your parents' limitati...  At the same time, you feel sure that in all
 the wilderness of possibility; in all the forests of opinion, there is a
 vital something that can be known -- known and grasped.  That we will
 eventually know it, and convert the whole mystery into a coherent
@@ -41,7 +41,7 @@ bend a disk.
 		   commenting on the benefits of using computers in support
 		   of their movement.
 How come we never talk anymore?
-All I've got left on the list of desirable vocations is heiress to the
+All I've got left on the list of desirable vocati is heiress to the
 throne of any country in Western Europe and Laurie Anderson.  "Be
 practical", was the choral reply from the dinner table.  Well, Laurie
 Anderson is already Laurie Anderson, but I read an article in Harpers
@@ -66,7 +66,7 @@ as the months passed, became very fond of him.  Patriarchs took to
 discussing abtruse theological problems with him, and each evening the
 children all gathered to hear the many stories with which he was programmed.
 Therefore it came as a great shock to them when, just as their journey was
-ending, he abruptly wore out.  Even Feghoot couldn't console them.
+ending, he abruptly wore out.  Even Feghoot couldn't cole them.
 	"It may be true, Ferdinand Feghoot," said Moses, "that our friend
 Yewtoo Artoo was soulless, but we cannot believe it.  He must be properly
 interred.  We cannot embalm him as do the Egyptians.  Nor have we wood for
@@ -82,7 +82,7 @@ Pie are not square.  Pie are round.  Cornbread are square.
 Recession is when your neighbor loses his job. Depression is when you
 lose your job.  These economic downturns are very difficult to predict,
 but sophisticated econometric modeling houses like Data Resources and
-Chase Econometrics have successfully predicted 14 of the last 3 recessions.
+Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten remaining blocks of Luke's home
 directory, Luke and PDP-1 sped away from /u/lars, across the surface of the
 Winchester riding Luke's flying read/write head.  PDP-1 had Luke stop at the
@@ -124,7 +124,7 @@ it would have been much better.
 High heels are a device invented by a woman who was tired of being kissed
 on the forehead.
 Stupidity got us into this mess -- why can't it get us out?
-In specifications, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's Law supersedes Ohm's.
 Q:	How many Californians does it take to screw in a lightbulb?
 A:	Five.  One to screw in the lightbulb and four to share the
 		experience.  (Actually, Californians don't screw in
@@ -227,19 +227,19 @@ Norm:  Not for the squeamish, Coach.
 		-- Cheers, Friends, Romans, and Accountants
 No one gets sick on Wednesdays.
 As fathers commonly go, it is seldom a misfortune to be fatherless; and
-considering the general run of sons, as seldom a misfortune to be childless.
+cidering the general run of s, as seldom a misfortune to be childless.
 
 The only solid and lasting peace between a man and his wife is, doubtless,
 a separation.
 		-- Lord Chesterfield, letter to his son, 1763
 The wise man seeks everything in himself; the ignorant man tries to get
 everything from somebody else.
-Solutions are obvious if one only has the optical power to observe them
+Soluti are obvious if one only has the optical power to observe them
 over the horizon.
 		-- K.A. Arsdall
 Disease can be cured; fate is incurable.
 		-- Chinese proverb
-One of the saddest lessons of history is this:  If we've been bamboozled
+One of the saddest less of history is this:  If we've been bamboozled
 long enough, we tend to reject any evidence of the bamboozle.  We're no
 longer interested in finding out the truth.  The bamboozle has captured
 us.  it is simply too painful to acknowledge -- even to ourselves -- that
@@ -297,7 +297,7 @@ was a great idea," said the manager. Then he paused and asked the killer
 question, "NOW what's the least popular vegetable?"
 
 Law: Once you eliminate your #1 problem, #2 gets a promotion.
-	-- Gerald Weinberg, "The Secrets of Consulting"
+	-- Gerald Weinberg, "The Secrets of Culting"
 Old Tom Bombadil is a merry fellow,
 Bright blue his jacket is, and his boots are yellow.
 None has ever caught him yet, for Tom, he is the master:
@@ -314,7 +314,7 @@ Replied the customer, "Avoiding the middleman."
 "He's the kind of man for the times that need the kind of man he is ..."
 Flee at once, all is discovered.
 Cahn's Axiom:
-	When all else fails, read the instructions.
+	When all else fails, read the instructi.
 	"What's that thing?"
 	"Well, it's a highly technical, sensitive instrument we use in
 computer repair.  Being a layman, you probably can't grasp exactly what
@@ -340,8 +340,8 @@ on, your eyes are clouded," said the master.
 who is the one that wants to see it?"
 If while you are in school, there is a shortage of qualified personnel
 in a particular field, then by the time you graduate with the necessary
-qualifications, that field's employment market is glutted.
-		-- Marguerite Emmons
+qualificati, that field's employment market is glutted.
+		-- Marguerite Emm
 Conjecture: All odd numbers are prime.
 	Mathematician's Proof:
 		3 is prime.  5 is prime.  7 is prime.  By induction, all
@@ -375,7 +375,7 @@ Chocolate chip.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
 Are you a parent?  Do you sometimes find yourself unsure as to what to
-say in those awkward situations?  Worry no more...
+say in those awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
@@ -403,7 +403,7 @@ Why, after I'd made my rep, some of the Chicago Syndicate wanted me to work
 for them as a hood -- you know, handling a machine gun.  They offered me
 two hundred and fifty dollars a week and all the protection I needed.  I
 was on the lam at the time and not able to work at my regular line.  But
-I wouldn't consider it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
+I wouldn't cider it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
 		-- Alvin Karpis, "Public Enemy Number One"
 "As I was walking among the fires of Hell, delighted with the enjoyments of
  Genius; which to Angels look like torment and insanity.  I collected some of
@@ -425,8 +425,8 @@ to a rival.  Husbands, good or bad, always have rivals.  Lovers, never.
 	It is a profoundly erroneous truism, repeated by all copy-books and
 by eminent people when they are making speeches, that we should cultivate
 the habit of thinking about what we are doing.  The precise opposite is the
-case.  Civilization advances by extending the numbers of important operations
-which we can perform without thinking about them.  Operations of thought are
+case.  Civilization advances by extending the numbers of important operati
+which we can perform without thinking about them.  Operati of thought are
 like cavalry charges in battle -- they are strictly limited in number, they
 require fresh horses, and must only be made at decisive moments.
 		-- Alfred North Whitehead
@@ -452,15 +452,15 @@ affect the body, or it can begin in the body and affect the mind, both of
 which are served by the same bloodstream.  Attempts to treat most mental
 diseases as though they were completely free of physical causes and attempts
 to treat most bodily diseases as though the mind were in no way involved must
-be considered archaic in the light of new evidence about the way the human
-body functions.
+be cidered archaic in the light of new evidence about the way the human
+body functi.
 		-- Norman Cousins,
 		"Anatomy of an Illness as Perceived by the Patient"
 "Time is an illusion.  Lunchtime doubly so."
 -- Ford Prefect, _Hitchhiker's Guide to the Galaxy_
 E Pluribus Unix
 When you have to kill a man it costs nothing to be polite.
-		-- Winston Churchill, on formal declarations of war
+		-- Winston Churchill, on formal declarati of war
 I put up my thumb... and it blotted out the planet Earth.
 		-- Neil Armstrong
 No guest is so welcome in a friend's house that he will not become a
@@ -479,10 +479,10 @@ Schlattwhapper, n.:
 	The window shade that allows itself to be pulled down,
 	hesitates for a second, then snaps up in your face.
 		-- Rich Hall, "Sniglets"
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
+Work cists of whatever a body is obliged to do.
+Play cists of whatever a body is not obliged to do.
 		-- Mark Twain
-Conscience is the inner voice that warns us somebody may be looking.
+Ccience is the inner voice that warns us somebody may be looking.
 		-- H.L. Mencken, "A Mencken Chrestomathy"
 Yow!  Are you the self-frying president?
 Afternoon very favorable for romance.  Try a single person for a change.

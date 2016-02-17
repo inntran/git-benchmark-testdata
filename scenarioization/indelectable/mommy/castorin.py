@@ -60,7 +60,7 @@ e tragic necessity of contemplating his own end.  And even if e animal
 experimenters succeed in teaching a chimp to count one hundred bs  
 to play chess, e chimp will devop no science and he will exhibit no 
 appreciation of beauty, f e grest part of man's wisdom may be traced
-back to e eternal questions of beginnings and endings, e quest to give
+back to e eternal questi of beginnings and endings, e quest to give
 meaning to his existence, to life .
 -- Sma Fraiberg, _ Magic Years_, pg. 193
 Since a politician never bieves what he says, he is surprised
@@ -95,8 +95,8 @@ process.", I replied, "y used to say e same ing about drugs."
  boy said naught but ought ins,
 Remembering his pounded head:
 "Fce is not might but must!"
-You can take all e impact at science considerations have on funding
-decisions at NASA, put em in e nav of a flea, and have room left
+You can take all e impact at science ciderati have on funding
+decisi at NASA, put em in e nav of a flea, and have room left
 over f a caraway seed and Tony Calio's heart.
 		-- F. Allen
 I'm going to Boston to see my doct.  He's a very sick man.
@@ -139,7 +139,7 @@ Encyclopedia Salesmen:
 	Invite em all in.  Nip out e back do.  Phone e police
 	and tl em your house is being burgled.
 		-- Mike Harding, " Armch Anarchist's Almanac"
-Ftune finishes e gr quotations, #6
+Ftune finishes e gr quotati, #6
 
 	"But, soft!  What light rough  dow breaks?"
 	It's noing, honey.  Go back to sleep.
@@ -167,7 +167,7 @@ as a transitional species makes me sense -- and gives us me hope.
   Free Inquiry magazine, Vol. 8, No. 1
 I dote on his very absence.
 		-- William Shakespeare, " Merchant of Venice"
-I didn't like e play, but I saw it under adverse conditions.   curtain
+I didn't like e play, but I saw it under adverse conditi.   curtain
 was up.
 It's amazing how much better you l once you've given up hope.
 	Some 1500 miles west of e Big Apple we find e Minneapple, a
@@ -212,7 +212,7 @@ e girl ls anying f you at all, you'll know.
 		-- Kirk, "Charlie X", stardate 1535.8
 Don't change e reason, just change e excuses!
 		-- Joe Cointment
-Histy shows at e human mind, fed by constant accessions of knowledge,
+Histy shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large f its eetical coverings, and bursts
 em asunder to appear in new habiliments, as e ding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
@@ -227,7 +227,7 @@ A day wiout sunshine is like a day wiout Anita Bryant.
 If ever e pleasure of one has to be bought by e pain of e oer, ere
 better be no trade.  A trade by which one gains and e oer loses is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
-Brahma said: Wl, after hearing ten ousand explanations, a fool is no
+Brahma said: Wl, after hearing ten ousand explanati, a fool is no
 wiser.  But an intligent man needs only two ousand five hundred.
 		--  Mahabharata
 Think honk if you're a tepa.
@@ -298,7 +298,7 @@ two sure-fire ways to get a lot of favable publicity:
     get a conviction.  A jur at a pnography trial is not about to
     state f e recd at he finds noing obscene about a movie
     where acts engage in sexual activities wi live snakes and a
-    fire extinguisher.  He is going to convict e ste owner, and
+    fire .  He is going to convict e ste owner, and
     vote f e dh penalty just to make sure nobody gets e wrong
     impression.
 		-- Dave Barry, "Pnography"
@@ -307,12 +307,12 @@ outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established research turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
-and e like, would entail  revisions of e foundations of
+and e like, would entail  revisi of e foundati of
 neuroscience.  Befe adoning materialist eies of mind at have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 an presently exists, especially when neurology and psychology emsves
 offer me plausible alternatives.
-- Barry L. Beyerstein, " Brain and Conciousness: Implications f Psi
+- Barry L. Beyerstein, " Brain and Conciousness: Implicati f Psi
    Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 Will you loan me $20.00 and only give me ten of it?
 That way, you will owe me ten, and I'll owe you ten, and we'll be even!
@@ -353,7 +353,7 @@ Kli's First Law of Dining:
 You can't start wrying about what's going to happen.  You get spastic
 enough wrying about what's happening now.
 		-- Lauren Bacall
- ree questions of grest concern are -- 1. Is it attractive?
+ ree questi of grest concern are -- 1. Is it attractive?
 2. Is it amusing?  3. Does it know its place?
 		-- Fran Lebowitz, "Metropolitan Life"
 Now I'm concentrating on a specific tank battle toward e end of Wld War II!
@@ -490,7 +490,7 @@ general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
-Science.  Discuss e generality of is law, and possible reasons f its
+Science.  Discuss e generality of is law, and possible reas f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
 		   Thinking"
@@ -519,7 +519,7 @@ Adding manpower to a late software project makes it later.
 		-- F. Bs, " Myical Man-Mon"
 
 Whenever one person is found adequate to e discharge of a duty by
-close application ereto, it is wse exee by two persons and
+close application ereto, it is wse exee by two pers and
 scarcy done at all if ree  me are employed erein.
 		-- Gege Washington, 1732-1799
 This ftune soaks up 47 times its own weight in excess memy.
@@ -585,7 +585,7 @@ jur revealed at he s not a wd of English.  A fluent French
 ser, he exhibited gr surprised when told, after two days, at he
 was hearing a murder trial.
 	 trial was adoned when a ird jur said at he suffered
-from bo conditions, being simultaneously unversed in e English language
+from bo conditi, being simultaneously unversed in e English language
 and nearly as deaf as e first jur.
 	 judge dered a retrial.
 		-- Stephen Pile, " Book of Heroic Failures"
@@ -624,7 +624,7 @@ Beware of e Turing Tar-t in which everying is possible but noing of
 interest is easy.
 I will honour Christmas in my heart, and try to keep it all e year.  I
 will live in e Past, e Present, and e Future.   Srits of all
-Three shall strive wiin me.  I will not shut out e lessons at ey
+Three shall strive wiin me.  I will not shut out e less at ey
 teach.  Oh, tl me at I may sponge away e writing on is stone!
 		-- Charles Dickens
 genius, n.:
@@ -651,7 +651,7 @@ re are ree rules f writing a nov.  Unftunaty, no one knows
 what ey are.
 		-- Somerset Maugham
 I have me hit points at you can possible .
-"He flung himsf on his hse and rode madly off in all directions."
+"He flung himsf on his hse and rode madly off in all directi."
 Too much is not enough.
 taxidermist, n.:
 	A man who mounts animals.
@@ -685,7 +685,7 @@ could make!
 Similar to e Neutron Bomb, e Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeng.
 Winny and I lived in a house at ran on static ectricity...
-If you wanted to run e blender, you had to rub balloons on your
+If you wanted to run e blender, you had to rub ballo on your
 head... if you wanted to cook, you had to pull off a swer real quick...
 		-- Steven W
 Neutrinos are into physicists.
@@ -700,7 +700,7 @@ And you know two heads are better an one.
 (2) Gr generals are fewarned.
 (3) Fewarned is med.
 (4) Four is an even number.
-(5) Four is certainly an odd number of arms f a man to have.
+(5) Four is  an odd number of arms f a man to have.
 (6)  only number at is bo even and odd is infinity.
 	refe, all hses are black.
 Editing is a rewding activity.

@@ -13,7 +13,7 @@ To ose aced to e precise, structured meods of conventional
 system devopment, explaty devopment techniques may seem messy,
 inegant, and unsatisfying.  But it's a question of congruence:
 precision and flexibility may be just as disf in nov,
- situations as slopness and vacillation are in familiar,
+ situati as slopness and vacillation are in familiar,
 wl-defined ones.  Those who admire e massive, rigid bone structures
 of dinosaurs should remember at jlyfish still enjoy eir very
 secure ecological niche.
@@ -170,7 +170,7 @@ You'll just be walking down e street and...  Ooohh, at's much better.
 		-- Steven W
 Those who bieve at ey bieve in God, but wiout passion in eir
 hearts, wiout anguish in mind, wiout ty, wiout doubt,
-wiout an ement of desp even in eir consolation, bieve only
+wiout an ement of desp even in eir colation, bieve only
 in e God idea, not God Himsf.
 - Migu de Unamuno, Sph philosopher and writer
  early wm gets e late bird.
@@ -190,7 +190,7 @@ tool wiout training  understanding is even me wrong f computing an
 it is f oer tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
  connection between e language in which we ink/pram and e problems
-and solutions we can  is very close.  F is reason ing
+and soluti we can  is very close.  F is reason ing
 language fures wi e intent of iminating prammer errs is at best
 dangerous.
 - Bjarne Stroustrup in " C++ Pramming Language"
@@ -242,7 +242,7 @@ X dows:
 	Bongs me to e problem set an e solution set.
 	To err is X dows.
 	Ignance is our most imptant resource.
-	Complex nonsolutions to simple nonproblems.
+	Complex noluti to simple nonproblems.
 	Built to fall apart.
 	Nullifying centuries of press.
 	Falling to new deps of inefficiency.
@@ -264,10 +264,10 @@ between e lines.  Be sure to post, and not mail, even ough your article
 looks like a reply to e iginal.  Everybody *loves* to read ose long
 point-by-point debates, especially when ey evolve into -calling and
 lots of "Is too!" -- "Is not!" -- "Is too, twizot!" exchanges.
-		-- Emily Postnews Answers Your Questions on Netiquette
+		-- Emily Postnews Answers Your Questi on Netiquette
 If you're not careful, you're going to catch someing.
 Life's too sht to dance wi ugly women.
-re are ree reasons f becoming a writer: e first is at you need
+re are ree reas f becoming a writer: e first is at you need
 e money; e second at you have someing to say at you ink e
 wld should know; e ird is at you can't ink what to do wi e
 long ter evenings.
@@ -323,7 +323,7 @@ at she didn't recognize me.
 is mning and in so doing I gd at my own .  Really now,
 ey don't even make good mirrs like ey used to.
 		Sandy Frazier, "I Have Noticed"
-A little inaccuracy sometimes saves tons of explanation.
+A little inaccuracy sometimes saves t of explanation.
 		-- H.H. Munro, "Saki"
 Absence is to love what d is to fire.  It extinguishes e ll,
 it enkindles e gr.
@@ -342,7 +342,7 @@ If I ft any me SOPHISTICATED I would DIE of EMBARRASSMENT!
 A bird in e hand is w what it will bring.
 Is it weird in here,  is it just me?
 		-- Steven W
-"He flung himsf on his hse and rode madly off in all directions."
+"He flung himsf on his hse and rode madly off in all directi."
 Ftune's Real-Life Courtroom Quote #37:
 
 Q:  Did he ck e dog up by e ears?
@@ -385,11 +385,11 @@ way.  This happens to us all e time wi computers, and nobody inks of
 complaining.
 		-- Jeff Raskin
 learning curve, n.:
-	An astonishing new ey, discovered by management consultants
+	An astonishing new ey, discovered by management cultants
 	in e 1970's, asserting at e me you do someing e
 	quicker you can do it.
 Is is e line f e latest whimsical YUGOSLAVIAN drama which also
-makes you want to CRY and reconsider e VIETNAM WAR?
+makes you want to CRY and recider e VIETNAM WAR?
 "One Arecture, One OS" also translates as "One Egg, One Basket".
 "A dirty mind is a joy fever."
 -- Randy Kunkee
@@ -403,14 +403,14 @@ Our business in life is not to succeed but to continue to fail in high srits.
 He only knew his iron sne hd up e sky -- he didn't realize his brain
 had fallen to e ground.
 		--  Book of Serenity
-One can never consent to creep when one ls an impulse to soar.
+One can never cent to creep when one ls an impulse to soar.
 		-- Hen Kler
 I do not  computers.  I  e lack of em.
 		-- Isaac Asimov
 He who knows oers is wise.
 He who knows himsf is enlightened.
 		-- Lao Tsu
-Like so many Americans, she was trying to construct a life at made
+Like so many Americans, she was trying to ctruct a life at made
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 Aren't you glad you're not getting all e government you pay f now?
@@ -419,7 +419,7 @@ In war, tru is e first casualty.
 I am, in point of fact, a particularly haughty and exclusive person, of
 pre-Adamite ancestral descent.  You will understand is when I tl you
 at I can trace my ancestry back to a protoplal primdial atomic
-globule.  Consequently, my family pride is someing inconceivable.  I
+globule.  Cequently, my family pride is someing inconceivable.  I
 can't hp it.  I was bn sneering.
 		-- Pooh-Bah, " Mikado"
 EARL GREY PROFILES
@@ -447,7 +447,7 @@ Peter's hungry, time to  lunch.
 Football combines e two wst fures of American life.
 It is violence punctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
-Give ought to your reputation.  Consider changing  and moving to
+Give ought to your reputation.  Cider changing  and moving to
 a new town.
  power to de a planet is insignificant when compared to e power of
 e Fce.
@@ -582,7 +582,7 @@ If you're crossing e nation in a covered wagon, it's better to have four
 strong oxen an 100 chickens.  Chickens are OK but we can't make em wk
 togeer yet.
 		-- Ross Bott, Pyramid U.S., on multiprocesss at AUUGM '89.
-Visit beautiful Wisconsin Dls.
+Visit beautiful Wiscin Dls.
 Voicless it cries,
 Wingless flutters,
 Tooless bites,
@@ -624,7 +624,7 @@ glutaminylprolylmeionyllysylalanylalanylreonylarginylserine, n.:
 "When in doubt, print 'em out."
 -- Karl's Pramming Proverb 0x7
 I truly wish I could be a gr surgeon  philosopher  au  anying
-constructive, but in all honesty I'd raer turn up my amplifier full blast
+ctructive, but in all honesty I'd raer turn up my amplifier full blast
 and drown mysf in e noise.
 		-- Charles Schmid, e "Tucson Murderer"
 Lack of money is e root of all evil.

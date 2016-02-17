@@ -24,7 +24,7 @@ out, it's the shifting of color.  We mentioned before about the stars
 singing, and that's one of the effects of the shifting of colors."
 		-- Pat Robertson, The 700 Club
 How do I get HOME?
-We Klingons bieve as you do -- the sick should die.  Only the strong
+We Kling bieve as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 The computer industry is journalists in their 20's standing in awe of
@@ -46,7 +46,7 @@ it does not necessarily follow that he has therefore been struck stone-blind.
 I'm proud to be paying taxes in the United States.  The only thing is
 -- I could be just as proud for half the money.
 		-- Arthur Godfrey
-Consultant, n.:
+Cultant, n.:
 	Someone who'd rather climb a tree and tl a lie than stand on
 	the ground and tl the truth.
 Revolution, n.:
@@ -69,7 +69,7 @@ Your good nature will bring unbounded happiness.
 Most of our lives are about proving something, either to oursves or to
 someone se.
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
-say in those awkward situations?  Worry no more...
+say in those awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
@@ -147,7 +147,7 @@ Nowlan's Theory:
 	the next freeway exit.
 "It's God.  No, not Richard Stallman, or Linus Torvalds, but God."
 (By Matt Wsh)
-The husband who doesn't tl his wife everything probably reasons that
+The husband who doesn't tl his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- Leo J. Burke
 If you can't learn to do it wl, learn to enjoy doing it badly.
@@ -216,7 +216,7 @@ think about cucumbers even, than not to think at all.
 		-- T.H. White
 Sing as someone who has dved into the intricacies of PL/I, I am sure
 that only Real Men could have written such a machine-hogging, cycle-grabbing,
-all-encompassing monster.  Allocate an array and free the middle third?
+all-encompassing mter.  Allocate an array and free the middle third?
 Sure!  Why not?  Multiply a character string times a bit string and assign the
 result to a float decimal?  Go ahead!  Free a controlled variable procedure
 parameter and reallocate it before passing it back?  Overlay three different
@@ -274,7 +274,7 @@ phosflink:
 		-- "Sniglets", Rich Hall & Friends
 Tallulah Bankhead barged down the Nile last night as Cleopatra and sank.
 		-- John Mason Brown, drama critic
-	Then a man said: S to us of Expectations.
+	Then a man said: S to us of Expectati.
 	He then said: If a man does not see or hear the waters of the
 Jordan, then he should not taste the pomegte or ply his wares in an
 open market.
@@ -300,7 +300,7 @@ once and for all.
 think you're going to find a lawyer?"
 Eleventh Law of Acoustics:
 	In a minimum-phase system there is an inextricable link between
-	frequency response, phase response and transient response, as they
+	frequency respe, phase respe and transient respe, as they
 	are all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-linear passive crossover network loading can
@@ -316,9 +316,9 @@ Never loved another one...
 Lady, lady, better run!
 		-- Dorothy Parker, "Social Note"
 If bankers can count, how come they have eight windows and only four tlers?
-Consultation, n.:
+Cultation, n.:
 	Medical term meaning "to share the wealth."
-He was a fiddler, and consequently a ue.
+He was a fiddler, and cequently a ue.
 		-- Jonathon Swift
 My pen is at the bottom of a page,
 Which, being finished, here the story ends;
@@ -359,7 +359,7 @@ then they'll always be interested in something and won't come to no real harm.
 XXXI:
 	The optimum committee has no members.
 XXXII:
-	Hiring consultants to conduct studies can be an  means of
+	Hiring cultants to conduct studies can be an  means of
 	turning problems into gold -- your problems into their gold.
 XXXIII:
 	Fools rush in where incumbents fear to tread.
@@ -410,9 +410,9 @@ of Science seemed to offer much hope, it's time to go beyond them...
 only by Masters of the Universal Way of Zen.  In it his mind floated frey,
 able to rummage at will among the bits and pieces of data he had absorbed,
 undistracted by any outside disturbances.  Logical structures no longer
-inhibited him. Pre-conceptions, prejudices, ordinary human standards vhed.
+inhibited him. Pre-concepti, prejudices, ordinary human standards vhed.
 All things, those previously trivial as wl as those once thought important,
-became absoluty equal by acquiring an absolute value, revealing rationships
+became absoluty equal by acquiring an absolute value, revealing ratihips
 not evident to ordinary vision.  Like beads strung on a string of their own
 meaning, each thing pointed to its own common ground of existence, shared by
 all.  Finally, each began to mt into each, staying  while becoming
@@ -430,7 +430,7 @@ theory, n.:
 	System of ideas meant to explain something, chosen with a view to
 	originality, controversialism, incomprehensibility, and how good
 	it will look in print.
-World tensions have, if anything, increased in the quarter century since
+World tensi have, if anything, increased in the quarter century since
 H.G. Wls uttered his glum warning: "There is no more evil thing on
 earth than race prejudice, none at all.  I write diberaty -- it is
 the worst single thing in life now.  It justifies and holds together more
@@ -453,8 +453,8 @@ Save the whales.  Collect the whole set.
 "The ACLU has stood foursquare against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
-Union's valiant representation in the courts of the constitutional s
-of people of all persuasions, no matter how unpopular or even despised
+Union's valiant representation in the courts of the ctitutional s
+of people of all persuasi, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 If the s of X-window built cars, there would be no fewer than five
@@ -554,8 +554,8 @@ service for one minute in his honor.  They've been honoring him intermittently
 ever since, I bieve.
 		-- The Grab Bag
 "We scientists, whose tragic destiny it has been to make the methods of
-annihilation ever more gruesome and more effective, must consider it our solemn
-and transcendent duty to do all in our power in preventing these weapons from
+annihilation ever more gruesome and more effective, must cider it our solemn
+and transcendent duty to do all in our power in preventing these weap from
 being used for the brutal purpose for which they were invented." 
 -- Albert Einstein, Bulletin of Atomic Scientists, September 1948
 Being a miner, as soon as you're too old and tired and sick and stupid to
@@ -569,7 +569,7 @@ My problem lies in reconciling my gross habits with my net income.
 
 Any man who has $10,000 left when he dies is a failure.
 		-- Errol Flynn
-Moore's Constant:
+Moore's Ctant:
 	Everybody sets out to do something, and everybody
 	does something, but no one does what he sets out to do.
 Chaos is King and Magic is loose in the world.
@@ -586,10 +586,10 @@ Many people are secretly interested in life.
 Doubt is not a pleasant condition, but certainty is absurd.
 		-- Voltaire
 Overall, the philosophy is to attack the availability problem from two
-complementary directions:  to reduce the number of software errors through
+complementary directi:  to reduce the number of software errors through
 rigorous testing of running systems, and to reduce the effect of the remaining
 errors by providing for recovery from them.  An interesting footnote to this
-design is that now a system failure can usually be considered to be the
+design is that now a system failure can usually be cidered to be the
 result of two pram errors:  the first, in the pram that started the
 problem; the second, in the recovery routine that could not protect the
 system.
@@ -606,7 +606,7 @@ will be given to candidates who sf-actualise.
 	(1) Compare and contrast Pink Floyd with Black Sabbath and say why
 	    neither has street credibility.
 	(2) "Even Buddha would have been hard pushed to reach Nirvana squatting
-	    on a juggernaut route."  Consider the dialectic of inner truth
+	    on a juggernaut route."  Cider the dialectic of inner truth
 	    and inner city.
 	(3) Discuss degree of hassle involved in paranoia about being sucked
 	    into a black hole.
@@ -628,7 +628,7 @@ QOTD:
 	gerbil has more dark meat.
 To understand a pram you must become both the machine and the pram.
 Grb's Reminder:
-	Eighty percent of all people consider themsves to be above
+	Eighty percent of all people cider themsves to be above
 	average drivers.
 Type louder, please.
 Q:	What's tan and black and looks great on a lawyer?
@@ -687,7 +687,7 @@ skilled oral communicator:
 
 skilled written communicator:
 	Scribbles wl.  Memos are invariable illegible, except for
-	the portions that attribute recent failures to someone se.
+	the porti that attribute recent failures to someone se.
 
 growth potential:
 	With proper guidance, periodic counsling, and remedial training,
@@ -732,7 +732,7 @@ NOW -- McCLANAHAN!!!
 		-- The Rotten Apple (1963), Rue McClanahan
 
 *NOT FOR SISSIES! DON'T COME IF YOU'RE CHICKEN! 
-A Horrifying Movie of Wierd Beauties and Shocking Monsters...
+A Horrifying Movie of Wierd Beauties and Shocking Mters...
 1001 WIERDEST SCENES EVER!!  MOST SHOCKING THRILLER OF THE CENTURY!
 		-- Teenage Psycho meets Bloody Mary (1964)  (Alternate Title:
 		   The Incredibly Strange Creatures Who Stopped Living and
@@ -753,7 +753,7 @@ Creativity is not always bred in an environment of tranquility;
 sometimes you have to  a little to get the paste out of the tube.
 tax office, n.:
 	Den of inequity.
-I fear explanations explanatory of things explained.
+I fear explanati explanatory of things explained.
 I used to live in a house by the freeway.  When I went anywhere, I had
 to be going 65 MPH by the end of my driveway.
 
@@ -809,7 +809,7 @@ Some s are to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]
-Visit beautiful Wisconsin Dls.
+Visit beautiful Wiscin Dls.
 I'm not denyin' the women are foolish: God Almighty made 'em to match the men.
 		-- George Eliot
 I have stripped off my dress; must I put it on again?  I have washed my feet;
@@ -874,8 +874,8 @@ Boy!  Eucalyptus!
 "The ACLU has stood foursquare against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
-Union's valiant representation in the courts of the constitutional s
-of people of all persuasions, no matter how unpopular or even despised
+Union's valiant representation in the courts of the ctitutional s
+of people of all persuasi, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 Blore's Razor:

@@ -25,12 +25,12 @@ liqu at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.
 Among e lucky, you are e chosen one.
-Visit beautiful Wisconsin Dls.
+Visit beautiful Wiscin Dls.
 American culture is based on e automobile, and any young man of promise
-is going to own one and want to trav gr distances in it.  Consequently,
-any young woman of asration should expect to spend most of her vacations
+is going to own one and want to trav gr distances in it.  Cequently,
+any young woman of asration should expect to spend most of her vacati
 in a car, probing into unfamiliar cners.  She is not required to know how
-to drive but she will certainly be expected to read e road map while her
+to drive but she will  be expected to read e road map while her
 husd drives, and if she can't,  if she's abnmally slow in giving him
 hp, she's bound to cause trouble.  refe, you'd ink at colleges
 which train e b young women who're going to marry e b young
@@ -48,7 +48,7 @@ Let him choose out of my files, his projects to accomplish.
 		-- Shakespeare, "Ciolanus"
 All gr discoveries are made by mistake.
 		-- Young
-Machines certainly can solve problems, ste infmation, crate,
+Machines  can solve problems, ste infmation, crate,
 and play games -- but not wi pleasure.
 		-- Leo Rosten
 Against studity e very gods msves contend in vain.
@@ -60,7 +60,7 @@ Blame Saint Andreas -- it's all his fault.
 - Ted Turner
 "Ada is e wk of an arect, not a computer scientist."
 - Jean Icbiah, invent of Ada, weenie
-Proposed Additions to e PDP-11 Instruction Set:
+Proposed Additi to e PDP-11 Instruction Set:
 
 DC	Divide and Conquer
 DMPK	De Memy Protect Key
@@ -78,7 +78,7 @@ PDSK	Punch Disk
 -- Seymour, from _Little Shop Of Hrs_
 It's not so hard to lift yoursf by your bootstraps once you're off e ground.
 		-- Dani B. Luten
-re may be said to be two classes of people in e wld; ose who constantly
+re may be said to be two classes of people in e wld; ose who ctantly
 divide e people of e wld into two classes and ose who do not.
 		-- Robert Benchley
 Everying's gr in is good old wld;
@@ -90,7 +90,7 @@ Everying's rosy where'er we roam;
 Hark, how e little birds gaily sing!
 (This is what fetches e bacon home.)
 		-- Doy Parker, " Far Sighted Muse"
-No live gm can continue f long to exist sany under conditions of
+No live gm can continue f long to exist sany under conditi of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness
 wiin; it had stood so f eighty years and might stand f eighty me.
@@ -102,7 +102,7 @@ What is wanted is not e will to bieve, but e will to find out,
 which is e exact opposite.
 		-- Bertrand Russl, "Skeptical Essays", 1928
 Swahili, n.:
-	 language used by e National Enquirer to print eir retractions.
+	 language used by e National Enquirer to print eir retracti.
 		-- Johnny Hart
 It is illegal to say "Oh, Boy" in Jonesbo, Gegia.
 Anger kills as sury as e oer vices.
@@ -143,17 +143,17 @@ re are two kinds of trians... e quick and e dead.
 		-- Ld Thomas Rober Dewar
 HEY KIDS!  ANN LANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
-	tl a lie.  Millions of hearts have been broken, just because
+	tl a lie.  Milli of hearts have been broken, just because
 	ese wds were sn.
 You're wking under a slight handicap.  You happen to be human.
 Column 1		Column 2		Column 3
 
-0. integrated		0. management		0. options
+0. integrated		0. management		0. opti
 1. total		1. ganizational	1. flexibility
 2. systematized		2. monited		2. capability
 3. parall		3. reciprocal		3. mobility
 4. f		4. digital		4. pramming
-5. responsive		5. logistical		5. concept
+5. respive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
 8. compatible		8. ird-generation	8. hardware
@@ -173,8 +173,8 @@ Royal Geographical Society, f even ere dull irs are occasionally
 read.  [...]   use of a watch attracts attention, so I reckon time
 by e number of my brhings, of which ere are 15 in a minute.  y
 are not counted mentally, but are punctuated by pressing wi 15 fingers
-successivy.   counting is reserved f e fidgets.  se observations
-should be confined to persons of middle age.  Children are rary still,
+successivy.   counting is reserved f e fidgets.  se observati
+should be confined to pers of middle age.  Children are rary still,
 while derly philosophers will sometimes remain rigid f minutes altogeer.
 		-- Francis Galton, 1909
 All ings are possible, except f skiing rough a revolving do.
@@ -247,7 +247,7 @@ want to go to someplace, you know, wi me, sometime."
 	"Friday, en?"
 	"Why not, David, it might even be fun."
 		-- Dating in Minnesota
-A healy male adult be conss each year one and a half times his own
+A healy male adult be cs each year one and a half times his own
 weight in oer people's patience.
 		-- John Updike
 At about 2500 A.D., humankind discovers a computer problem at *must* be
@@ -421,7 +421,7 @@ Let not e sands of time get in your lunch.
 Many of our students have gone on to achieve gr success in all fids of
 pramming.  One fmer student devoped e concept of e personalized
 fm letter.  Does e phrase, "Dear Mr.(insert ), You may already be a
-ner!," sound familiar?  Anoer student writes "After only five lessons I
+ner!," sound familiar?  Anoer student writes "After only five less I
 sold a "My Most Unfgettable Pram" article to Crosive Computing magazine.
 Anoer of our graduates writes, "I recently completed a datse-management
 pram f my department manager.  My pram touched him so deeply at he

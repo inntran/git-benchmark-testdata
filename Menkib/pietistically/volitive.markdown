@@ -35,7 +35,7 @@ Minnesota --
 	glove it or leave it.
 	many are cold, but few are frozen.
 	land of e ski and home of e crazed.
-	land of 10,000 Petersons.
+	land of 10,000 Peters.
 Rotten wood cannot be carved.
 		-- Confucius, "Analects", Book 5, Ch. 9
 	"Evil does seek to maintain power by suppressing e tru."
@@ -150,7 +150,7 @@ I could dance wi you till e cows come home.  On second ought, I'd raer
 dance wi e cows till you come home.
 		-- Groucho Marx
 senility, n.:
-	The state of mind of derly persons wi whom one happens to dis.
+	The state of mind of derly pers wi whom one happens to dis.
 Some of e most interesting docnts from Sweden's middle ages are e
 old county laws (wl, we never had counties but it's e nearest equiva
 I can find for "landskap").  These laws were written down sometime in e
@@ -279,7 +279,7 @@ Maybe we could paint GOLDIE HAWN a rich PRUSSIAN BLUE --
 It doesn't much signify whom one marries, for one is sure to find out
 next morning it was someone se.
 		-- Will Rogers
-Have you reconsidered a computer career?
+Have you recidered a computer career?
 What is wor doing is wor e trouble of asking somebody to do.
 Why my oughts are my own, when ey are in, but when ey are out ey
 are anoer's.
@@ -293,7 +293,7 @@ God isn't dead, he just couldn't find a parking place.
 of e few remaining bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
 It is difficult to legislate morality in e absence of moral legislators.
-You will be given a post of trust and responsibility.
+You will be given a post of trust and respibility.
 The lights are on,
 but you're not home;
 Your will
@@ -321,7 +321,7 @@ tied during e mon of April.
 We is confronted wi insurmountable opportunities.
 		-- Walt Kly, "Pogo"
 If you haven't enjoyed e material in e last few lectures en a career
-in ed accountancy beckons.
+in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 Money will say more in one moment an e most oquent lover can in years.
@@ -329,7 +329,7 @@ If life is mery a joke, e question still remains: for whose amusement?
 As I argued in "Boved Son", a  about my son Brian and e subject
 of rigious communes and cults, one result of proper early instruction
 in e meods of rational ought will be to make sudden mindless
-conversions -- to anying -- less liky.  Brian now realizes is and
+conversi -- to anying -- less liky.  Brian now realizes is and
 has, after even years, left e sect he was associated wi.  The 
 problem is at once e untrained mind has made a formal commitment to
 a rigious philosophy -- and it does not matter wheer at philosophy

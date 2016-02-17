@@ -2,7 +2,7 @@ Do you think that illiterate people get the full effect of alphabet soup?
 [A computer is] like an Old Testament god, with a lot of rules and no mercy.
 		-- Joseph Campbell
 Just how difficult it is to write biography can be reckoned by anybody
-who sits down and considers just how many people know the real truth
+who sits down and ciders just how many people know the real truth
 about his or her love affairs.
 		-- Rebecca West
 Three Rings for the Elven-kings under the sky,
@@ -61,7 +61,7 @@ Expense Accounts, n.:
 First as to speech.  That privilege rests upon the premise that
 there is no proposition so uniformly acknowledged that it may not be
 lawfully challenged, questioned, and debated.  It need not rest upon
-the further premise that there are no propositions that are not
+the further premise that there are no propositi that are not
 open to doubt; it is enough, even if there are, that in the end it is
 worse to suppress dissent than to run the risk of heresy.  Hence it
 has been again and again unconditionally proclaimed that there are
@@ -72,12 +72,12 @@ will generally to some extent change his conduct, and may even evoke
 conduct that the law forbids.
 
 [cf. Learned Hand, The Spirit of Liberty, University of Chicago Press, 1952;
-The Art and Craft of Judging: The Decisions of Judge Learned Hand,
+The Art and Craft of Judging: The Decisi of Judge Learned Hand,
 edited and annotated by Hershel Shanks, The MacMillian Company, 1968.]
 The average Ph.D thesis is nothing but the transference of bones from
 one graveyard to another.
 		-- J. Frank Dobie, "A Texan in England"
-Greatness is a transitory experience. It is never consistent.
+Greatness is a transitory experience. It is never cistent.
 Do you guys know what you're doing, or are you just hacking?
 You will never know hunger.
 You can get much further with a kind word and a gun than you can with a
@@ -97,8 +97,8 @@ He that would govern others, first should be the master of himself.
 Whip it, whip it good!
 Perfect day for scrubbing the floor and other exciting things.
 Murphy's Law is recursive.  Washing your car to make it rain doesn't work.
-"Unlike most net.puritans, however, I feel that what OTHER consenting computers
- do in the privacy of their own phone connections is their own business."
+"Unlike most net.puritans, however, I feel that what OTHER centing computers
+ do in the privacy of their own phone connecti is their own business."
 -- John Woods, jfw@eddie.mit.edu
 Be careful what you set your heart on -- for it will su be yours.
 		-- James Baldwin, "Nobody Knows My Name"
@@ -113,7 +113,7 @@ have been all over it.
 		-- Julia Child on nouvelle cuisine.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
-The notes blatted skyward as they rose over the Canada geese, feathered
+The notes blatted  as they rose over the Canada geese, feathered
 rumps mooning the day, webbed appendages frally pedaling unseen
 bicycles in their search for sustenance, driven by cruel Nature's maxim,
 'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
@@ -134,7 +134,7 @@ The verdict of a jury is the a priori opinion of that juror who smokes
 the worst cigars.
 		-- H. L. Mencken
 "...very few phenomena can pull someone out of Deep Hack Mode, with two
-noted exceptions: being struck by lightning, or worse, your *computer*
+noted excepti: being struck by lightning, or worse, your *computer*
 being struck by lightning."
 (By Matt Welsh)
 Secrecy is the beginning of tyranny.
@@ -175,7 +175,7 @@ Please stand for the National Anthem:
 	O Canada
 	Our home and native land
 	True patriot love
-	In all thy sons' command
+	In all thy s' command
 	With glowing hearts we see thee rise
 	The true north strong and free
 	From far and wide, O Canada
@@ -217,7 +217,7 @@ Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
 	a public meeting place, during a movie, or after hours when the
 	lights are out.  They have not yet learned that joy and laughter have
-	to last a lifetime and must be conserved.
+	to last a lifetime and must be cerved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
 No extensible language will be universal.
 		-- T. Cheatham
@@ -309,17 +309,17 @@ What does not destroy me, makes me stronger.
 		-- Nietzsche
 A bureaucrat's idea of cleaning up his files is to make a copy of everything
 before he destroys it.
-If you had better tools, you could more effectively demonstrate your
+If you had better tools, you could more effectively demtrate your
 total incompetence.
 Be valiant, but not too venturous.
 Let thy attire be comely, but not costly.
 		-- John Lyly
 Oxygen is a very toxic gas and an extreme fire hazard.  It is fatal in
-concentrations of as little as 0.000001 p.p.m.  Humans exposed to the
-oxygen concentrations die within a few minutes.  Symptoms resemble very
+concentrati of as little as 0.000001 p.p.m.  Humans exposed to the
+oxygen concentrati die within a few minutes.  Symptoms resemble very
 much those of cyanide poisoning (blue face, etc.).  In higher
-concentrations, e.g. 20%, the toxic effect is somewhat delayed and it
-takes about 2.5 billion inhalations before death takes place.  The reason
+concentrati, e.g. 20%, the toxic effect is somewhat delayed and it
+takes about 2.5 billion inhalati before death takes place.  The reason
 for the delay is the difference in the mechm of the toxic effect of
 oxygen in 20% concentration.  It apparently contributes to a complex
 process called aging, of which very little is known, except that it is
@@ -328,7 +328,7 @@ always fatal.
 However, the main disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
 sufficient to make oxygen addiction permanent.  After that, any
-considerable decrease in the daily oxygen doses results in death with
+ciderable decrease in the daily oxygen doses results in death with
 symptoms resembling those of cyanide poisoning.
 
 Oxygen is an extreme fire hazard.  All of the fires that were reported in
@@ -375,7 +375,7 @@ The sum of the Universe is zero.
 You will soon forget this.
 Never keep up with the Joneses. Drag them down to your level.
 		-- Quentin Crisp
-Only God can make random selections.
+Only God can make random selecti.
 Nothing succeeds like the appearance of success.
 		-- Christopher Lascl
 An age is called Dark not because the light fails to shine, but because
@@ -384,7 +384,7 @@ people refuse to see it.
 As I argued in "oved Son", a book about my son Brian and the subject
 of religious communes and cults, one result of proper early instruction
 in the methods of rational thought will be to make sudden mindless
-conversions -- to anything -- less likely.  Brian now realizes this and
+conversi -- to anything -- less likely.  Brian now realizes this and
 has, after eleven years, left the sect he was associated with.  The 
 problem is that once the untrained mind has made a formal commitment to
 a religious philosophy -- and it does not matter whether that philosophy
@@ -409,7 +409,7 @@ As they spoke a Multics system hacker walked by.  "Is it true", asked the
 student, "that PL-1 has many of the same data types as Lisp?"  Almost before
 the student had finished his question, Greenblatt shouted, "FOO!", and hit
 the student with a stick.
-Like you,  I am frequently haunted by profound questions related to man's
+Like you,  I am frequently haunted by profound questi related to man's
 place in the Scheme of Things.  Here are just a few:
 
 	Q -- Is there life after death?
@@ -428,7 +428,7 @@ You know you are getting old when you think you should drive the speed limit.
 A clash of doctrine is not a disaster -- it is an opportunity.
 	Take the folks at Coca-Cola.  For many years, they were content
 to sit back and make the same old carbonated beverage.  It was a good
-beverage, no question about it; generations of people had grown up
+beverage, no question about it; generati of people had grown up
 drinking it and doing the experiment in sixth grade where you put a
 nail into a glass of Coke and after a couple of days the nail dissolves
 and the teacher says: "Imagine what it does to your TEETH!"  So Coca-Cola
@@ -440,7 +440,7 @@ Wingless flutters,
 Toothless bites,
 Mouthless mutters.
 No self-made man ever did such a good job that some woman didn't
-want to make some alterations.
+want to make some alterati.
 		-- Kim Hubbard
 Fortunate is he for whom the belle toils.
 This is the tomorrow you worried about yesterday.  And now you know why.

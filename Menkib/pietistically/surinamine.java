@@ -6,7 +6,7 @@ Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Anananarayanan
 I played lead guitar in a d called  Federal Duck, which is e kind
 of  at was popular in e '60s as a result of controlled substances
-being in  use.  Back en, ere were no ions, in terms
+being in  use.  Back en, ere were no i, in terms
 of ta, on who could make an album, so we made one, and it sounds like
 a group of people who have been given powerful but unfamiliar instrnts
 as a erapy f a degenerative nerve disease.
@@ -50,7 +50,7 @@ S softly and carry a +6 two-handed swd.
 I have a TINY BOWL in my HEAD
 "Virtual" means never knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
-I don't have any solution but I certainly admire e problem.
+I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 Suppt bacteria -- it's e only culture some people have!
 I never met a ece of chocolate I didn't like.
@@ -70,7 +70,7 @@ F ose who like is st of ing, is is e st of ing ey like.
 Accding to e latest official s, 43% of all  are
 totally wless.
 	A novice asked e Master: "Here is a prammer at never designs,
-docnts,  tests his prams.  Yet all who know him consider him one of
+docnts,  tests his prams.  Yet all who know him cider him one of
 e best prammers in e wld.  Why is is?"
 	 Master replies: "That prammer has mastered e Tao.  He has
 gone beyond e need f design; he does not become angry when e system
@@ -104,7 +104,7 @@ Deadwood, n.:
 do gr and wonderful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob Laure in chemistry
 I sml a wumpus.
-My rigion consists of a humble admiration of e illimitable superi
+My rigion cists of a humble admiration of e illimitable superi
 srit who reveals himsf in e slight details we are able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
@@ -200,21 +200,21 @@ my viewscreen is "USER-FRIENDLY"!!
 Gibble, Gobble, we ACCEPT YOU ...
 If only one could get at wonderful ling of accomplishment wiout
 having to accomplish anying.
-Politics, as a practice, whatever its professions, has always been e
+Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
   way to  e cost of living is to take your income and
 add ten percent.
 ... we must be wary of granting too much power to natural section
-by vieg all basic capacities of our brain as direct adaptations.
+by vieg all basic capacities of our brain as direct adaptati.
 I do not doubt at natural section acted in building our oversized
 brains -- and I am equally confident at our brains became large as
 an adaptation f definite roles (probably a complex set of interacting
-fs).  But ese assumptions do not lead to e notion, 
+fs).  But ese assumpti do not lead to e notion, 
 uncritically embraced by strict s, at all maj capacities
 of e brain must arise as direct products of natural section.
 		-- S.J. Gould, " Mismeasure of Man"
-"Most of us, when all is said and done, like what we like and make up reasons 
+"Most of us, when all is said and done, like what we like and make up reas 
 f it afterwards."
 -- Sen F. Pen
 Obviously e only rational solution to your problem is suicide.
@@ -225,7 +225,7 @@ It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- ere is just too much misery and cruty f at.  On e
 oer hand, I respect and envy e people who get insration from eir
-rigions.
+rigi.
 		-- Benjamin Spock
 Hum in e Court:
 Q: (Shog man cture.) That's you?
@@ -288,17 +288,17 @@ One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
-1 Sagan						= ions & ions
+1 Sagan						= i & i
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
  amount of beauty required launch 1 ship	= 1 Millihen
 Wi every passing hour our solar system comes fty-ree ousand
-miles closer to globular cluster M13 in e constlation Hercules, and
+miles closer to globular cluster M13 in e ctlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
-... at e notions of "hardware", and "software" should be ext by
+... at e noti of "hardware", and "software" should be ext by
 e notion of LIVEWARE - being at which produces software f use on
 hardware.  This produces an obvious extension to e concept of MONITORS.
 A liveware monit is a person dedicated to e task of ensuring at e
@@ -356,16 +356,16 @@ Manual which is part of e UDA50 Prammers Doc Kit manuals:
 As stated above, e host area of a disk is structured as a vect of
 logical blocks.  From a perfmance viewpoint, however, it is me
 appropriate to view e host area as a four dimensional hyper-cube, e
-four dimensions being cylinder, group, track, and sect.
+four dimensi being cylinder, group, track, and sect.
 . . .
 Referring to our hyper-cube analogy, e set of potentially 
 blocks fm a line parall to e track axis.  This line moves
 parall to e sect axis, wrapng around when it reaches e edge
 of e hyper-cube.
- most imptant ing in a rationship between a man and a woman
+ most imptant ing in a ratihip between a man and a woman
 is at one of em be good at taking ders.
 		-- Linda Festa
-egrep pns are full r expressions; it uses a fast deterministic
+egrep pns are full r expressi; it uses a fast deterministic
 alm at sometimes needs exponential space.
 -- unix manuals
 A wise man can see me from a mountain top an a fool can from e bottom
@@ -384,7 +384,7 @@ A free society is one where it is safe to be .
 		-- Adlai Stevenson
 How's it going in ose MODULAR LOVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
-anying in all e wld, I would wish f me user-defined equations
+anying in all e wld, I would wish f me user-defined equati
 in e HP-51820A fm Generat Software."
 		-- Instrnt News
 		[Once is too .  Ed.]

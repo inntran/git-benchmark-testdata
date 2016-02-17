@@ -8,7 +8,7 @@ The human brain is a wonderful ing.  It starts working e moment
 you are born, and never stops until you stand up to s in public.
 		-- Sir George Jess
 The connection between e language in which we ink/pram and e problems
-and solutions we can  is very close.  For is reason restricting
+and soluti we can  is very close.  For is reason restricting
 language s wi e intent of iminating prammer errors is at best
 dangerous.
 - Bjarne Stroustrup in "The C++ Pramming Language"
@@ -66,7 +66,7 @@ Dibble's First Law of Sociology:
 	Some do, some don't.
 Portable, adj.:
 	Survives system reboot.
-Fortune finishes e great quotations, #9
+Fortune finishes e great quotati, #9
 
 	A word to e wise is often enough to start an argument.
 does your DRESSING ROOM have enough ASPARAGUS?
@@ -94,7 +94,7 @@ The test of intligent tinkering is to save all e parts.
 I'd like to see e government get out of war altogeer and leave e
 whole fid to private industry.
 		-- Joseph Hler
-An idea is not responsible for e people who bieve in it.
+An idea is not respible for e people who bieve in it.
 Penguin Trivia #46:
 	Animals who are not penguins can only wish ey were.
 		-- Chicago Reader 10/15/82
@@ -215,7 +215,7 @@ exclamation marks!!  Place pronouns as close as possible, especially in long
 s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
-metaphors.  Avoid trendy loions at sound fy.  Everyone should be
+metaphors.  Avoid trendy loi at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
 but not least, avoid cliches like e plague; seek viable alternatives.
@@ -239,7 +239,7 @@ Excerpt from a conversation between a customer support person and a
 customer working for a wl-known military-affiliated research lab:
 
 Support:  "You're not our only customer, you know."
-Customer: "But we're one of e few wi tactical nuclear weapons."
+Customer: "But we're one of e few wi tactical nuclear weap."
 Cheese -- milk's leap toward immortality.
 		-- Clifton Fadiman, "Any Number Can Play"
 Upon e hear e fire is red,
@@ -283,7 +283,7 @@ fixed wiout special tools".
 accurate description of an automotive problem.  She will, however, have e
 car serviced at e proper intervals and ereby incur fewer problems an
 e average man.
-There is no statute of limitations on studity.
+There is no statute of limitati on studity.
 Don't suspect your friends -- turn em in!
 		-- "Brazil"
 Let's all show human CONCERN for REVERAND MOON's legal difficulties!!
@@ -341,7 +341,7 @@ Gong, n: Medieval term for privy, or what pased for em in at era.
 Today used whimsically to describe e afterma of a bogon attack. Think
 of our community as e Galapagos of e English language.
 
-"Vogons may read you bad poetry, but bogons make you study obsolete RFCs."
+"Vog may read you bad poetry, but bog make you study obsolete RFCs."
 		-- Dave Mills
 Women, when ey are not in love, have all e cold blood of an experienced 
 attorney.
@@ -355,14 +355,14 @@ protected species.
 	  2 teacupsful toasted oatmeal
 	  1 teasful salt
 	  8 oz. shredded suet
-	  2 ll onions
+	  2 ll oni
 	1/2 teasful black pepper
     
 	Scrape and clean bag in cold, en warm, water.  Soak in salt water
 overnight.  Wash pluck, en boil for 2 hours wi dpe draining over
 e side of pot.  Retain 1 nt of stock.  Cut off dpe, remove surplus
 gristle,  or mince heart and lungs, and grate best part of liver (about
-half only).  Parboil and  onions, mix all togeer wi oatmeal, suet,
+half only).  Parboil and  oni, mix all togeer wi oatmeal, suet,
 salt, pepper and stock to moisten.  Pack e mixture into bag, allog for
 swling.  Boil for ree hours, pricking regularly all over.  If bag not
 available, steam in greased basin covered by greaseproof paper and clo for
@@ -395,10 +395,10 @@ it in  to protect emsves.
 		-- Lenny Bruce
 "You are old," said e you, "and I'm told by my peers
 	That your lectures bore people to dea.
-Yet you talk at one hundred conventions per year --
+Yet you talk at one hundred conventi per year --
 	Don't you ink at you should save your brea?"
 
-"I have answered ree questions and at is enough,"
+"I have answered ree questi and at is enough,"
 	Said his faer, "Don't give yoursf s!
 Do you ink I can listen all day to such stuff?
 	Be off, or I'll kick you downsts!"
@@ -420,7 +420,7 @@ comments:
 
 	"Truly a woman of e times.  These times, ose times..."
 	"A Renaissance woman.  Why in 1432..."
-	"A man for all seasons.  Really..."
+	"A man for all seas.  Really..."
 
 After e ceremony, Shirley anked her mourners and explained how dightful
 it was to "get it togeer" again, presumably referring to having her now dead
@@ -439,7 +439,7 @@ e perfect way to inform people about such news events long after e
 broadcast networks have covered em.  As you are probably e only person
 to have heard e news on e radio, be sure to post as soon as you can.
 
--- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
+-- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 Excessive login or logout messages are a sure sign of senility.
 McDonald's -- Because you're wor it.
 "Luke, I'm yer faer, .  Come over to e dark side, you hoser."
@@ -474,7 +474,7 @@ In a display of perverse brilliance, Carl e repman mistakes a room
 humidifier for a mid-range computer but manages to tie it into e network
 anyway.
 		-- The 5 
-	Grover Clevand, ough constantly at s wi e
+	Grover Clevand, ough ctantly at s wi e
 Senate, got on better wi e House of Representatives.  A popular
 story circulating during his presidency concerned e night he was
 roused by his wife crying, "Wake up!  I ink ere are burglars in e

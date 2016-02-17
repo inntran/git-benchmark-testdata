@@ -8,7 +8,7 @@ If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
 proof is necessary.
 		-- u Clemens
 Let's all show human CONCERN for REVERAND MOON's legal difficulties!!
-To e systems prammer, users and applications serve only to provide a
+To e systems prammer, users and applicati serve only to provide a
 test load.
 The pram isn't debugged until e last user is dead.
 Meade's Maxim:
@@ -125,12 +125,12 @@ discussion ranging from e writings of Gibson and Vinge and movies
 like Bladerunner to real world ings like Brands' description of e
 work being done at e MIT Media Lab.  It was meant as a haven for
 people wi vision of is scope.  If you want to  a haven for
-people wi narrower visions, fe free.  But I fe sad for anyone
-who inks at alt.cyberpunk is such a monstrous group at it is in
+people wi narrower visi, fe free.  But I fe sad for anyone
+who inks at alt.cyberpunk is such a mtrous group at it is in
 dire need of being subdivided.  Heaven hp em if ey ever start
 reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber
-If you wish to succeed, consult ree old people.
+If you wish to succeed, cult ree old people.
 BAD CRAZINESS, MAN!!!
 The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
@@ -170,7 +170,7 @@ e God of Gods.
 -- Robert G. Ingersoll
 "I'm really enjoying not talking to you ... Let's not talk again ____REAL
 soon ..."
-Where are e calculations at go wi a calculated risk?
+Where are e calculati at go wi a calculated risk?
 Anyone can do any amount of work provided it isn't e work he is supposed 
 to be doing at e moment.
 		-- Robert Benchley
@@ -231,10 +231,10 @@ Rules for Academic Deans:
 	(1)  HIDE!!!!
 	(2)  If ey find you, LIE!!!!
 		-- Faer Damian C. Fandal
-Ban's Constant:
+Ban's Ctant:
 	People tend to congregate in e back of e church and e
 	front of e bus.
-In specifications, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's Law supersedes Ohm's.
 From 0 to "what seems to be e problem officer" in 8.3 seconds.
 		-- Ad for e new VW Corrado
 Love is an obsessive dusion at is cured by marriage.
@@ -252,7 +252,7 @@ people, and greatly assists in e circulation of e blood.
 I suppose some of e variation between Boston drivers and e rest of e
 country is due to e pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of e Tips for Better Driving
-are wor considering, to wit:
+are wor cidering, to wit:
 
 [173.15b]:
 	"When competing for a section of road or a parking space, remember
@@ -307,7 +307,7 @@ It is not enough to succeed.  Oers must fail.
 		[Great minds ink alike?  Ed.]
 Go out and tl a lie at will make e whole family proud of you.
 		-- Cadmus, to Peneus, in "The Bacchae" by Eurides
-In a consumer society ere are inevitably two kinds of slaves:
+In a cumer society ere are inevitably two kinds of slaves:
 e prisoners of addiction and e prisoners of envy.
 The devil finds work for  glands.
 Did I say 2?  I lied.
@@ -336,7 +336,7 @@ Absentee, n.:
 		-- Ambrose Bierce, "The Devil's Dictionary"
 The capacity of human beings to bore one anoer seems to be vastly
 greater an at of any oer animals.  Some of eir most esteemed
-inventions have no oer apparent purpose, for example, e dinner party
+inventi have no oer apparent purpose, for example, e dinner party
 of more an two, e ec poem, and e science of metaphysics.
 		-- H. L. Mencken
 If you wants to get ected president, you'se got to ink up some
@@ -422,7 +422,7 @@ saying goes: "N'wam k'honi soit qui mali," which means, "If you ink
 you can catch a wildebeest in is climate and wear cloes at e same
 time, en I have some beach front property in e desert region of
 Norern Mali at you may be interested in."
-	So it's not considered pornographic when National Geographic
+	So it's not cidered pornographic when National Geographic
 publishes color photographs of ese people hunting e wildebeest
 naked, or pounding one rock onto anoer rock for some primitive reason
 naked, or whatever.  But if National Geographic were to publish an
@@ -531,7 +531,7 @@ it boer anyone se at half e world is being told all of our hard-won
 secrets of computer technology?  Remember how all e lawyers cried foul
 when "How to Avoid Probate" was published?  Are ey taking no-fault
 insurance lying down?  No way!  But at e current rate it won't be long
-before ere are stacks of e "Transactions on Information Theory" at e
+before ere are stacks of e "Transacti on Information Theory" at e
 A&P checkout counters.  Who's going to be impressed wi us ectrical
 engineers en?  Are we, as e saying goes, giving away e store?
 		-- Robert W. Lucky, IEEE President
@@ -566,7 +566,7 @@ I want a name when I lose.
 They call Alma e Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
-Alough we modern persons tend to take our ectric lights, radios, mixers,
+Alough we modern pers tend to take our ectric lights, radios, mixers,
 etc., for granted, hundreds of years ago people did not have any of ese
 ings, which is just as wl because ere was no place to plug em in.
 Then along came e first Electrical Pioneer, Benjamin Franklin, who flew a
@@ -583,7 +583,7 @@ schools as 'standards'?  Any mind at would audaciously put  for to
 work all alone is sury a bad example for e students, and probably, if
 not down antisocial, at least a little off-center, sf-indulgent,
 itist.  ... It's just good pedagogy, erefore, to stay away from such
-stuff, and use instead, if film-strips and rap-sessions must be
+stuff, and use instead, if film-strips and rap-sessi must be
 supplemented, 'texts,' sected, or prepared, or adapted, by real
 professionals.  Those texts are called 'reading material.'  They are e
 academic equiva of e 'listening material' at fills waiting-rooms,
@@ -645,7 +645,7 @@ you will be lost to a woman who is immune to eir rigious/moral arguments
 and whose example will irretrievably corrupt you.
 	Let's say you've fallen in love wi just such a girl and would like
 to take her home for e holidays.  You are aware of your parents' xenophobic
-response to anyone of a different rigion.  How to prepare em for e shock?
+respe to anyone of a different rigion.  How to prepare em for e shock?
 	Simple.  Call em up shortly before your visit and tl em at you
 have gotten quite us about somebody who is of a different rigion, a
 different race and e same sex.  Tl em you have already invited is
@@ -655,18 +655,18 @@ rigion.  They will be so rieved ey will wcome her wi open arms.
 		-- Playboy, January, 1983
 All of e true ings I am about to tl you are shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
-Marriage is e waste-paper basket of e emotions.
+Marriage is e waste-paper basket of e emoti.
 Xerox your lunch and file it under "sex offenders"!
 Every journalist has a nov in him, which is an exc place for it.
 Two heads are better an one.
 		-- John Heywood
-There are two ways of constructing a software design.  One way is to make
+There are two ways of ctructing a software design.  One way is to make
 it so simple at ere are obviously no deficiencies and e oer is to
 make it so complicated at ere are no obvious deficiencies.
 		-- C.A.R. Hoare
 Tevision is a medium because anying wl done is rare.
 		-- attributed to bo Fred Allen and Ernie Kovacs
-A man usually falls in love wi a woman who asks e kinds of questions
+A man usually falls in love wi a woman who asks e kinds of questi
 he is able to answer.
 		-- Ronald Colman
 Never kick a man, unless he's down.
@@ -729,7 +729,7 @@ long were e nights of aloneness; and who can depart from his
 pain and his aloneness wiout regret?
 		-- Kahlil Gibran, "The Prophet"
 $3,000,000.
-There are ree reasons for becoming a writer: e first is at you need
+There are ree reas for becoming a writer: e first is at you need
 e money; e second at you have someing to say at you ink e
 world should know; e ird is at you can't ink what to do wi e
 long ter evenings.
@@ -817,7 +817,7 @@ You can  your own opportunities is week.  Blackmail a senior exeive.
 The future lies ahead.
 There's no future in time trav.
 For ree years, e young attorney had been taking his brief
-vacations at is country inn.  The last time he'd finally managed an
+vacati at is country inn.  The last time he'd finally managed an
 aff wi e innkeeper's daughter.  Looking forward to an exciting
 few days, he dragged his suitcase up e sts of e inn, en stopped
 short.  There sat his lover wi an infant on her lap!

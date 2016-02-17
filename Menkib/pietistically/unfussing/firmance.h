@@ -19,7 +19,7 @@ In olden times sacrifices were made at the altar -- a practice which is
 still continued.
 		-- Helen Rowland
 OVER the underpass!  UNDER the overpass!  Around the FUTURE and BEYOND REPAIR!!
-Absolute:  Independent, irresponsible.  An absolute monarchy is one in which
+Absolute:  Independent, irrespible.  An absolute monarchy is one in which
 the sovereign does as he pleases so long as he pleases the assassins.  Not
 many absolute monarchies are left, most of them having been replaced by
 limited monarchies, where the soverign's power for evil (and for good) is
@@ -30,7 +30,7 @@ since I first called my brother's father dad.
 		-- William Shakespeare, "Kind John"
 People who have no faults are terrible; there is no way of taking
 advantage of them.
-Let's not complicate our relationship by trying to communicate with each other.
+Let's not complicate our relatihip by trying to communicate with each other.
 We lie loudest when we lie to ourselves.
 	-- Eric Hoffer
 No one knows like a woman how to say things that are at once gentle and deep.
@@ -76,7 +76,7 @@ You have an ambitious nature and may make a name for yourself.
 It must be remembered that there is nothing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, than the creation of
 a new system.  For the initiator has the emnity of all who would profit
-by the preservation of the old institutions and merely lukewarm defenders
+by the preservation of the old instituti and merely lukewarm defenders
 in those who would gain by the new ones.
 		-- Niccolo Machiavelli, 1513
 Q:	How do you stop an elephant from charging?

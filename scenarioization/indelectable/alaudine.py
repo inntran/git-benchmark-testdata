@@ -17,14 +17,14 @@ lists of "Ten Best".
 		-- H. Allen Smith
 Mr. Rockford, this is the Thomas Crown  of Dance and Contemporary
 Etiquette.  We aren't going to call again!  Now you want these free
-lessons or what?
+less or what?
 		-- "The Rockford Files"
 The shifts of Fortune test the riability of friends.
 		-- Marcus Tullius Cicero
 No, my friend, the way to have good and safe government, is not to trust it
 all to one, but to divide it among the many, distributing to every one exactly
 the fs he is competent to.  It is by dividing and subdividing these
-republics from the national one down through all its subordinations, until it
+republics from the national one down through all its subordinati, until it
 ends in the administration of every man's farm by himsf; by placing under
 every one what his own eye may superintend, that all will be done for the best.
 		-- Thomas Jefferson, to Joseph Cabl, 1816
@@ -37,7 +37,7 @@ Yea, tho I walk through the valley of surprise quizzes,
 	I will fear no prof, for my calculator is there to hearten me.
 It prepareth a log table to comfort me, it prepareth an
 	arc sin for me in the presence of my teachers.
-It annoints my homework with correct solutions, my interpolations are
+It annoints my homework with correct soluti, my interpolati are
 	over.
 Sury, both precision and accuracy shall follow me all the days of my
 	life, and I shall dwl in the house of Texas instruments forever.
@@ -59,7 +59,7 @@ Fame may be fleeting but obscurity is forever.
 A box without hinges, key, or lid,
 Yet golden treasure inside is hid.
 		-- J.R.R. Tolkien
-When all se fails, read the instructions.
+When all se fails, read the instructi.
 I am two fools, I know, for loving, and for saying so.
 		-- John Donne
 The problem with people who have no vices is that generally you can
@@ -84,7 +84,7 @@ Corporation defines a robot as 'Your Plastic Pal Who's Fun To Be With'.
 The Hitch Hiker's Guide to the Galaxy defines the marketing division of the
 Sirius Cybernetics Corporation as 'a bunch of mindless jerks who'll be the
 first against the wall when the revolution comes', with a footnote to effect
-that the editors would wcome applications from anyone interested in taking
+that the editors would wcome applicati from anyone interested in taking
 over the post of robotics correspondent.
 	Curiously enough, an edition of the Encyclopaedia Galactica that
 had the good fortune to fall through a time warp from a thousand years in
@@ -94,7 +94,7 @@ wall when the revolution came'.
 		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
 One good turn usually gets most of the blanket.
 Like punning, pramming is a play on words.
-While most peoples' opinions change, the conviction of their
+While most peoples' opini change, the conviction of their
 correctness never does.
 Fishbowl, n.:
 	A glass-enclosed isolation cl where newly promoted managers are
@@ -155,7 +155,7 @@ Thank you.  You may resume your seat.
 Perilous to all of us are the devices of an art deeper than we oursves
 possess.
 		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
-"I have not the slightest confidence in 'spiritual manifestations.'"
+"I have not the slightest confidence in 'spiritual manifestati.'"
 -- Robert G. Ingersoll
 At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.  The only difficulty is that the problem is NP complete and will
@@ -181,7 +181,7 @@ the earth came back, they were presented with the answer:
 A proud member of TeamLinux \_________\/
 (By CHaley (HAC), haley@unm.edu, ch008cth@pi.lanl.gov)
 You will receive a legacy which will place you above want.
-"OK, now let's look at four dimensions on the blackboard."
+"OK, now let's look at four dimensi on the blackboard."
 		-- Dr. Joy
 Should I start with the time I SWITCHED personalities with a BEATNIK
 hair stylist or my failure to refer five TEENAGERS to a good OCULIST?
@@ -244,7 +244,7 @@ We see you silver blossom blown!
 		-- J. R. R. Tolkien
 ...difference of opinion is advantageious in rigion.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
-attainable?  Millions of innocent men, women, and children, since the
+attainable?  Milli of innocent men, women, and children, since the
 introduction of ity, have been burnt, tortured, fined, imprisoned;
 yet we have not advanced one inch towards uniformity.
 - Thomas Jefferson, "Notes on Virginia"
@@ -294,7 +294,7 @@ liberty and even life  are but dreary things.  And let us reflect
 that having bhed from our land that rigious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
-bloody perseions.
+bloody persei.
 - Thomas Jefferson
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
@@ -316,7 +316,7 @@ VIII:
 	The most unsuccessful four years in the education of a cost-estimator
 	is fifth grade arithmetic.
 IX:
-	Acronyms and abbreviations should be used to the maximum extent
+	Acronyms and abbreviati should be used to the maximum extent
 	possible to make trivial ideas profound.  Q.E.D.
 X:
 	Bulls do not win bull s; people do.
@@ -340,12 +340,12 @@ be in love with somebody se is an admission of unfaithfulness to one's
 boved.
 		-- Russl Baker
 	Something mysterious is formed, born in the silent void.  Waiting
-alone and unmoving, it is at once still and yet in constant motion.  It is
+alone and unmoving, it is at once still and yet in ctant motion.  It is
 the source of all prams.  I do not know its name, so I will call it the
 Tao of Pramming.
 	If the Tao is great, then the operating system is great.  If the
 operating system is great, then the compiler is great.  If the compiler is
-greater, then the applications is great.  The user is pleased and there is
+greater, then the applicati is great.  The user is pleased and there is
 harmony in the world.
 	The Tao of Pramming flows far away and returns on the wind of
 morning.
@@ -397,7 +397,7 @@ QOTD:
 	The forest may be quiet, but that doesn't mean
 	the snakes have gone away.
 I'm RELIGIOUS!!  I love a man with a HAIRPIECE!!  Equip me with MISSILES!!
-Be circumspect in your liaisons with women.  It is better to be seen at
+Be circumspect in your liais with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
 A husband is what is left of the lover after the nerve has been extracted.
@@ -424,7 +424,7 @@ Proof techniques #2: Proof by Oddity.
 	SAMPLE: To prove that s have an infinite number of legs.
 (1) Horses have an even number of legs.
 (2) They have two legs in back and fore legs in front.
-(3) This makes a total of six legs, which certainly is an odd number of
+(3) This makes a total of six legs, which  is an odd number of
     legs for a .
 (4) But the only number that is both odd and even is infinity. 
 (5) Therefore, s must have an infinite number of legs.
@@ -433,10 +433,10 @@ Topics is be covered in future issues include proof by:
 	Intimidation
 	Gesticulation (handwaving)
 	"Try it; it works"
-	Constipation (I was just sitting there and ...)
+	Ctipation (I was just sitting there and ...)
 	Blatant assertion
 	Changing all the 2's to _n's
-	Mutual consent
+	Mutual cent
 	Lack of a counterexample, and
 	"It stands to reason"
 Never put off till tomorrow what you can avoid all together.
@@ -472,14 +472,14 @@ as revant as the question of whether submarines can swim.
 In the Halls of Justice the only justice is in the halls.
 		-- Lenny Bruce
 Identify your visitor.
-Every man is apt to form his notions of things difficult to be apprehended,
+Every man is apt to form his noti of things difficult to be apprehended,
 or less familiar, from their analogy to things which are more familiar.
 Thus, if a man bred to the sea life, and accustomed to think and talk
 only of matters rating to navigation, enters into discourse upon any other
-subject; it is wl known, that the language and the notions proper to his
+subject; it is wl known, that the language and the noti proper to his
 own profession are infused into every subject, and all things are measured
 by the rules of navigation: and if he should take it into his head to
 philosophize concerning the faculties of the mind, it cannot be doubted,
-but he would draw his notions from the fabric of the ship, and would find
+but he would draw his noti from the fabric of the ship, and would find
 in the mind, sails, masts, rudder, and compass.
 		-- Thomas Reid, "An Inquiry into the Human Mind", 1764

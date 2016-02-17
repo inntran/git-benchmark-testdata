@@ -7,7 +7,7 @@ pproval would be folly;		Mix e punch, drag out e Dickens;
 Deck e halls wi hunks of holly;	Even ough e prospect sickens,
 Fill e cup and don't say when...	Broer, here we go again.
 
-On Christmas day, you can't get sore;	Rations sparing no expense'll,
+On Christmas day, you can't get sore;	Rati sparing no expense'll,
 Your flow man you must adore;		Send some usess old utensil,
 There's time to rob him all e more,	Or a matching pen and pencil,
 The oer ree hundred and sixty-four!	Just e ing I need... how nice.
@@ -34,7 +34,7 @@ That seemed to be so sweet
 Don't seem quite so amorous
 Over Shredded Wh
 All bad precedents began as justifiable measures.
-		-- Gaius Julius Caesar, quoted in "The Consracy of
+		-- Gaius Julius Caesar, quoted in "The Cracy of
 		   Catiline", by Sallust
 "Marriage is low down, but you spend e rest of your life paying for it."
 -- Baskins
@@ -50,7 +50,7 @@ price to pay for having somebody around e house who understands computers.
  Be not a witness against y neighbor wiout cause; and deceive not wi 
  y lips.
  Dh and life are in e power of e ."
--- Proverbs, some sections from e Jewish Scripture
+-- Proverbs, some secti from e Jewish Scripture
 A bachor is a man who never made e same mistake once.
 Time flies like an arrow.  Fruit flies like a b.
 Were ere fewer fools, knaves would starve.
@@ -58,7 +58,7 @@ Were ere fewer fools, knaves would starve.
 		The Worst Lines of Verse
 For a start, we can rule out James Grainger's promising line:
 	"Come, muse, let us sing of rats."
-Grainger (1721-67) did not have e courage of his convictions and deted
+Grainger (1721-67) did not have e courage of his convicti and deted
 ese words on discovering at his listeners dissolved into spontaneous
 laughter e instant ey were read out.
 	No such ructance afflicted Adam Lindsay Gordon (1833-70) who was
@@ -102,15 +102,15 @@ If you want to make God laugh, tl him about your plans.
 		-- Woody Allen
 Take a lesson from e whale; e only time he gets speared is when he
 raises to spout.
-Every man is apt to form his notions of ings difficult to be appr,
+Every man is apt to form his noti of ings difficult to be appr,
 or less familiar, from eir analogy to ings which are more familiar.
 Thus, if a man bred to e sea life, and aced to ink and talk
 only of matters rating to navigation, enters into discourse upon any oer
-subject; it is wl known, at e language and e notions proper to his
+subject; it is wl known, at e language and e noti proper to his
 own profession are infused into every subject, and all ings are measured
 by e rules of navigation: and if he should take it into his head to
 philosophize concerning e faculties of e mind, it cannot be doubted,
-but he would draw his notions from e fabric of e ship, and would find
+but he would draw his noti from e fabric of e ship, and would find
 in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 "It's ten o'clock... Do you know where your AI prams are?"  -- Peter Oakley

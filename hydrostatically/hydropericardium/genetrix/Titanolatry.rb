@@ -52,7 +52,7 @@ Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
 was the biggest game we had.  Africa is primerally inhabited by Elks, Moose
 and Knights of Pithiests.
 	The elks live up in the mountains and come down once a year for their
-annual conventions.  And you should see them gathered around the water hole,
+annual conventi.  And you should see them gathered around the water hole,
 which they leave immediately when they discover it's full of water.  They
 weren't looking for a water hole.  They were looking for an alck hole.
 	One morning I shot an elephant in my pajamas, how he got in my
@@ -74,7 +74,7 @@ folding it.  People ask me where I live, and I say, "E6".
 		-- Steven Wright
 Too clever is dumb.
 		-- Ogden Nash
-The fortune program is supported, in part, by user contributions and by
+The fortune program is supported, in part, by user contributi and by
 a major grant from the National Endowment for the Inanities.
 In most countries selling harmful things like drugs is punishable.
 Then howcome people can sell Microsoft software and go unpunished?
@@ -84,6 +84,6 @@ Egotist:  A person of low taste, more interested in himself than in me.
 If you're going to do something tonight that you'll be sorry for tomorrow
 morning, sleep late.
 		-- Henny Youngman
-Millions long for immortality who do not know what to do with themselves on a
+Milli long for immortality who do not know what to do with themselves on a
 rainy Sunday afternoon.
 		-- Susan Ertz

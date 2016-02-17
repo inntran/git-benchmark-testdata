@@ -31,11 +31,11 @@ at he was more intligent an dolphins because he had achieved so
 much -- e whe, New York, wars and so on -- whilst all e dolphins
 had ever done was muck about in e water having a good time.  But
 conversy, e dolphins had always bieved at ey were far more
-intligent an man -- for precisy e same reasons.
+intligent an man -- for precisy e same reas.
 
 Curiously enough, e dolphins had long known of e impending
 destruction of e of e planet Ear and had made many attempts to
-alert mankind to e danger; but most of eir communications were
+alert mankind to e danger; but most of eir communicati were
 misinterpreted ...
 		-- Douglas Admas "The Hitchhikers' Guide To The Galaxy"
 "It was a Roman who said it was sweet to die for one's country.  The

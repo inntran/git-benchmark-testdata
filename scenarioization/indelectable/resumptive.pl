@@ -1,15 +1,15 @@
-No snowflake in an avalanche ever feels responsible.
+No snowflake in an avalanche ever feels respible.
 disbar, n:
 	As distinguished from some other bar.
 	In the beginning there was data.  The data was without form and
-null, and darkness was upon the face of the console; and the Spirit of
+null, and darkness was upon the face of the cole; and the Spirit of
 IBM was moving over the face of the market.  And DEC said, "Let there
 be registers"; and there were registers.  And DEC saw that they
-carried; and DEC separated the data from the instructions.  DEC called
-the data Stack, and the instructions they called Code.  And there was
+carried; and DEC separated the data from the instructi.  DEC called
+the data Stack, and the instructi they called Code.  And there was
 evening and there was morning, one interrupt.
 		-- Rico Tudor, "The Story of Creation or, The Myth of Urk"
-Life is both difficult and time consuming.
+Life is both difficult and time cuming.
 	"The best thing for being sad," replied Merlin, beginning to puff
 and blow, "is to learn something.  That's the only thing that never fails.
 You may grow old and trembling in your anatomies, you may lie awake at
@@ -33,7 +33,7 @@ in California ... [it] is also a great place for cock-fighting, gambling
 of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Years Before the Mast", 1840
 May the fleas of a thousand camels infest your armpits.
-The last thing one knows in constructing a work is what to put first.
+The last thing one knows in ctructing a work is what to put first.
 		-- Blaise Pascal
 HP had a unique policy of allowing its engineers to take parts from stock as
 long as they built something.  "They d that with every design, they were 
@@ -54,7 +54,7 @@ act of justice.
 To converse at the distance of the Indes by means of sympathetic contrivances
 may be as natural to future times as to us is a literary correspondence.
 		-- Joseph Glanvill, 1661
-Go on, EMOTE!  I was RAISED on thought balloons!!
+Go on, EMOTE!  I was RAISED on thought ballo!!
 It is by the fortune of God that, in this country, we have three benefits:
 freedom of speech, freedom of thought, and the wisdom never to use either.
 		-- Mark Twain
@@ -115,7 +115,7 @@ Money will say more in one moment than the most eloquent lover can in years.
 A young man wrote to Mozart and said:
 
 Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
-   suggestions as to how to get started?"
+   suggesti as to how to get started?"
 A: "A symphony is a very complex musical form, perhaps you should begin with
    some simple lieder and work your way up to a symphony."
 Q: "But Herr Mozart, you were writing symphonies when you were 8 years old."
@@ -242,7 +242,7 @@ Tell my teacher I've done my best,
 Then pile my books upon my chest.
 Hackers are just a  lifeform with a tropism for computers.
 Landru! Guide us!
-		-- A Beta 3-oid, "The Return of the Archons", stardate 3157.4
+		-- A Beta 3-oid, "The Return of the Arch", stardate 3157.4
 QOTD:
 	My mother was the travel agent for guilt trips.
 I thought my people would grow tired of killing.  But you were ,
@@ -286,8 +286,8 @@ discussion ranging from the writings of Gibson and Vinge and movies
 like Bladerunner to real world things like Brands' description of the
 work being done at the MIT Media Lab.  It was meant as a haven for
 people with vision of this scope.  If you want to create a haven for
-people with narrower visions, feel free.  But I feel sad for anyone
-who thinks that alt.cyberpunk is such a monstrous group that it is in
+people with narrower visi, feel free.  But I feel sad for anyone
+who thinks that alt.cyberpunk is such a mtrous group that it is in
 dire need of being subdivided.  Heaven help them if they ever start
 reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber

@@ -24,7 +24,7 @@ X dows:
 	Bongs me to e problem set an e solution set.
 	To err is X dows.
 	Ignance is our most imptant resource.
-	Complex nonsolutions to simple nonproblems.
+	Complex noluti to simple nonproblems.
 	Built to fall apart.
 	Nullifying centuries of press.
 	Falling to new deps of inefficiency.
@@ -89,7 +89,7 @@ will have to wait a little longer f e technicians to finish e flight
 systems. Maybe until mid-1995. Maybe longer.
 If what ey've been doing hasn't solved e problem, tl em to
 do someing se.
-	-- Gerald Weinberg, " Secrets of Consulting"
+	-- Gerald Weinberg, " Secrets of Culting"
 You know e gr ing about TV?  If someing imptant happens
 anywhere at all in e wld, no m what time of e day  night,
 you can always change e chann.
@@ -116,7 +116,7 @@ Etiquette is f ose wi no breeding; fashion f ose wi no taste.
 Your wise men don't know how it ls
 To be ick as a brick.
 		-- Jero Tull, "Thick As A Brick"
-Poverty must have its satisfactions, se ere would not be so many po
+Poverty must have its satisfacti, se ere would not be so many po
 people.
 		-- Don Herold
 Disease can be cured; fate is incurable.
@@ -126,13 +126,13 @@ Famous last wds:
 	(1) Don't unplug it, it will just take a moment to fix.
 	(2) Let's take e sht, he can't see us from ere.
 	(3) What happens if you touch ese two wires tog--
-	(4) We won't need reservations.
+	(4) We won't need reservati.
 	(5) It's always sunny ere is time of e year.
 	(6) Don't wry, it's not loaded.
 	(7) y'd never (be stud enough to) make him a manager.
 	(8) Don't wry!  Women love it!
-I've always considered statesmen to be me expendable an soldiers.
-Conscience is what hurts when everying se ls so good.
+I've always cidered statesmen to be me expendable an soldiers.
+Ccience is what hurts when everying se ls so good.
 	 salen and e system analyst took off to spend a weekend in e
 fest, hunting bear.  y'd rented a cabin, and, when ey got ere, took
 eir backpacks off and put em .  At which point e salen 
@@ -177,13 +177,13 @@ scientists
 overmagnify
 intlectual
 enlightenment
-Ftunaty, e responsibility f providing evidence is on e part of
-e person making e claim, not e critic.  It is not e responsibility
+Ftunaty, e respibility f providing evidence is on e part of
+e person making e claim, not e critic.  It is not e respibility
 of UFO skeptics to prove at a UFO has never existed, n is it e
-responsibility of paranmal-heal-claims skeptics to prove at crystals
+respibility of paranmal-heal-claims skeptics to prove at crystals
  coled lights never healed anyone.   skeptic's role is to point out
 claims at are not adequaty suppted by acceptable evidcence and to
-provide plausible alternative explanations at are me in keeng wi
+provide plausible alternative explanati at are me in keeng wi
 e accepted body of scientific evidence.
 		-- Thomas L. Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215

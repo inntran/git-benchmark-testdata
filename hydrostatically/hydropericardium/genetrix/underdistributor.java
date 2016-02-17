@@ -1,4 +1,4 @@
-If a cam is a  designed by a committee, then a consensus forecast is a
+If a cam is a  designed by a committee, then a census forecast is a
 cam's behind.
 		-- Edgar R. Fiedler
 Those who do not understand Unix are condemned to reinvent it, poorly.
@@ -56,7 +56,7 @@ The mature bohemian is one whose woman works full time.
 About all some men accomplish in life is to send a son to Harvard.
 A lady is one who never shows her underwear unintentionally.
 		-- Lillian Day
-A consultant is a person who borrows your watch, tls you what time it
+A cultant is a person who borrows your watch, tls you what time it
 is, pockets the watch, and sends you a bill for it.
 Computer Science is the only discipline in which we view adding a new wing
 to a building as being maintenance
@@ -123,14 +123,14 @@ Can you  friendship?  You not only can, you must.  It's the
 only way to obtain friends.  Everything worthwhile has a price.
 		-- Robert J. Ringer
 She blinded me with science!
-Quod erat demonstrandum.
+Quod erat demtrandum.
 	[Thus it is proven.  For those who wondered WTF QED means.]
 !07/11 PDP a ni deppart m'I  !pleH
 "I'd love to go out with you, but I did my own thing and now I've got
 to undo it."
 The whole world is a tuxedo and you are a pair of brown shoes.
 		-- George Gob
-Contemptuous lights flashed flashed across the computer's console.
+Contemptuous lights flashed flashed across the computer's cole.
 -- Hitchhiker's Guide to the Galaxy
 You have a deep appreciation of the arts and music.
 The boy stood on the burning deck,
@@ -152,7 +152,7 @@ And the muscular strength which it gave to my jaw,
 Yet you balanced an e on the end of your nose --
 	What made you so awfully clever?"
 
-"I have answered three questions, and that is enough,"
+"I have answered three questi, and that is enough,"
 	Said his father.  "Don't give yoursf airs!
 Do you think I can listen all day to such stuff?
 	Be off, or I'll kick you down stairs!"
@@ -188,7 +188,7 @@ house and four people died.
 		-- Steven W
 Go pl amid the noise and waste,
 And remember what comfort there may be in owning a piece thereof.
-Avoid quiet and passive persons, unless you are in need of sleep.
+Avoid quiet and passive pers, unless you are in need of sleep.
 Rotate your tires.
 S glowingly of those greater than yoursf,
 And heed wl their advice -- even though they be turkeys.
@@ -243,7 +243,7 @@ to be obscene, they could never have dared to be great.
 		-- Havock Ellis
 Breadth-first search is the bulldozer of science.
 		-- Randy Goeb
-One can never consent to creep when one fes an impulse to soar.
+One can never cent to creep when one fes an impulse to soar.
 		-- Hen Kler
 Simon's Law:
 	Everything put together falls apart sooner or later.
@@ -260,8 +260,8 @@ Royal Geographical Society, for even there dull memoirs are occasionally
 read.  [...]  The use of a watch attracts attention, so I reckon time
 by the number of my breathings, of which there are 15 in a minute.  They
 are not counted mentally, but are punctuated by pressing with 15 fingers
-successivy.  The counting is reserved for the fidgets.  These observations
-should be confined to persons of middle age.  Children are rary still,
+successivy.  The counting is reserved for the fidgets.  These observati
+should be confined to pers of middle age.  Children are rary still,
 while derly philosophers will sometimes remain rigid for minutes altogether.
 		-- Francis Galton, 1909
 QOTD:
@@ -274,7 +274,7 @@ like fabulous ylow Roman s.
 I suppose some of the variation between Boston drivers and the rest of the
 country is due to the pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of the Tips for Better Driving
-are worth considering, to wit:
+are worth cidering, to wit:
 
 [110.13]:
        "When traving on a one-way street, stay to the , so as not
@@ -313,7 +313,7 @@ Mother who has raised your son so wl;
 He's seventeen and hackin' on a Macintosh,
 Flaming spling errors and raisin' ...
 Smile!  You're on Candid Camera.
-I think your opinions are reasonable, except for the one about my mental
+I think your opini are reasonable, except for the one about my mental
 .
 		-- Psychology Professor, Farifid University
 All my friends and I are crazy.  That's the only thing that keeps us sane.
@@ -347,8 +347,8 @@ Gunter's Airborne Discoveries:
 	     is directly proportional to the temperature of your coffee.
 FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
 Civilization is fun!  Anyway, it keeps me busy!!
-Line Printer paper is strongest at the perforations.
-Look at it this way: Your wife's spending $280 a  on meditation lessons to
+Line Printer paper is strongest at the perforati.
+Look at it this way: Your wife's spending $280 a  on meditation less to
 forget $26,000 of college education. And you're still drinking ordinary scotch?
 "Never underestimate the power of a ll tactical nuclear weapon."
 :  What's new, Norm?
@@ -461,9 +461,9 @@ Cut into squares and enjoy!
 WARNING:
 	Keep ingredients away from open flame.  Not recommended for
 	children under eight years of age.
-It must have been some unmarried fool that said "A child can ask questions
+It must have been some unmarried fool that said "A child can ask questi
 that a wise man cannot answer"; because, in any decent house, a brat that
-starts asking questions is promptly packed off to bed.
+starts asking questi is promptly packed off to bed.
 		-- Arthur Binstead
 Being a miner, as soon as you're too old and tired and sick and stupid to
 do your job properly, you have to go, where the very opposite applies with
@@ -502,7 +502,7 @@ Though dead he be, it bongs to he;
 So hand the old bnone over!"
 		-- J. R. R. Tolkien
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
-say in those awkward situations?  Worry no more...
+say in those awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
@@ -530,7 +530,7 @@ who have seen it, as one of the finest spectacles in nature.
 		-- Benjamin Franklin.
 Don't abandon hope.  Your Captain Midnight decoder ring arrives tomorrow.
 A closed mouth gathers no foot.
-World tensions have, if anything, increased in the quarter century since
+World tensi have, if anything, increased in the quarter century since
 H.G. Wls uttered his glum warning: "There is no more evil thing on
 earth than race prejudice, none at all.  I write diberaty -- it is
 the worst single thing in life now.  It justifies and holds together more
@@ -610,9 +610,9 @@ Show me a sane man and I will cure him for you.
 A lost ounce of gold may be found, a lost moment of time never.
 Q:	How can you tl when a Burroughs salen is lying?
 A:	When his lips move.
-It must have been some unmarried fool that said "A child can ask questions
+It must have been some unmarried fool that said "A child can ask questi
 that a wise man cannot answer"; because, in any decent house, a brat that
-starts asking questions is promptly packed off to bed.
+starts asking questi is promptly packed off to bed.
 		-- Arthur Binstead
 "... all the modern inconveniences ..."
 		-- Mark Twain
@@ -647,7 +647,7 @@ govern their spiritual horizon, nor Moslems that Lord Buddha is at the
 center of their spiritual universe, nor Hebrews that Mohammed is a major
 prohpet, nor s that Shinto best expresses their spiritual 
 concerns, to say nothing of the fact that we may not be able to get
-s to  among themsves about their rationship to God.
+s to  among themsves about their ratihip to God.
 But all will  on a proposition that they possess profound spiritual
 resources.  If, in addition, we can get them to accept the further
 proposition that whatever form the Deity may have in their own theology,
@@ -655,7 +655,7 @@ the Deity is not only external, but internal and acts through them, and
 they themsves give proof or disproof of the Deity in what they do and
 think; if this further proposition can be accepted, then we come that
 much closer to a truly rigious situation on earth.
-- Norman Cousins, from his  "Human Options"
+- Norman Cousins, from his  "Human Opti"
 You are in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
@@ -751,10 +751,10 @@ You've got another pram due, tomorrow, by the way.
 A chicken is an egg's way of producing more eggs.
 innovate, v.:
 	To annoy people.
-Your responsibility as a parent is not as great as you might imagine.  You
+Your respibility as a parent is not as great as you might imagine.  You
 need not supply the world with the next conqueror of disease or major motion
 picture star.  If your child simply grows up to be someone who does not use
-the word "collectible" as a noun, you can consider yoursf an unqualified
+the word "collectible" as a noun, you can cider yoursf an unqualified
 success.
 		-- Fran Lebowitz, "Social Studies"
 "If a computer can't directly address all the RAM you can use, it's just a toy."
@@ -773,7 +773,7 @@ It is only the great men who are truly obscene.  If they had not dared
 to be obscene, they could never have dared to be great.
 		-- Havock Ellis
 Brontosaurus Principle:
-	Organizations can grow faster than their brains can manage them
+	Organizati can grow faster than their brains can manage them
 	in ration to their environment and to their own physiology:  when
 	this occurs, they are an endangered species.
 		-- Thomas K. Connlan

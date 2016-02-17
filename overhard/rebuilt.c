@@ -11,7 +11,7 @@ If a subdinate asks you a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase e question back at him.
  test of intligent tinkering is to save all e parts.
 		-- Aldo Leopold
-Politics, as a practice, whatever its professions, has always been e
+Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
 "Hey Ivan, c your six."
@@ -71,7 +71,7 @@ is not capable; f in politics ere is no honour.
 Things fall apart; e centre cannot hold.
 Necessity has no law.
 		-- St. Augustine
-United Nations, New Yk, December 25.   peace and joy of e Christmas
+United Nati, New Yk, December 25.   peace and joy of e Christmas
 season was marred by a proclamation of a general strike of all e military
 fces of e wld.  Panic reigns in e hearts of all e patriots of
 every persuasion.  Meanwhile, s of universal disaster sank to an all-time
@@ -101,7 +101,7 @@ Time sure flies when you don't know what you're doing.
 I drink to make oer people interesting.
 		-- Gege Jean Naan
 Do not wry about which side your bread is buttered on: you  BOTH sides.
-Ftune Docnts e Gr Legal Decisions:
+Ftune Docnts e Gr Legal Decisi:
 
 We ink at we may take judicial notice of e fact at e term "bitch"
 may imply some ling of endearment when applied to a female of e canine
@@ -119,8 +119,8 @@ e mous of people who have had to live.
 	 big  f us in e wld of chess is Gibaud, a French chess
 master.  
 	In Paris during 1924 he was ben after only four moves by a
-Monsieur Lazard.  Haply f posterity, e moves are recded and so
-chess enusiasts may reconstruct is magnificent colse in e comft
+Mieur Lazard.  Haply f posterity, e moves are recded and so
+chess enusiasts may rectruct is magnificent colse in e comft
 of eir own homes.
 	Lazard was black and Gibaud white:
 	1: P-Q4, Kt-KB3
