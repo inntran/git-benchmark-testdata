@@ -2,12 +2,12 @@ It looks like blind screaming hedonism won out.
 And miles to go before I sleep.
 		-- Robert Frost
 	A German, a Pole and a Czech left camp for a hike rough e woods.
-After being reported missing a day or two later, rangers found two bears,
+After being reported missing a day or two later, rangers found two bs,
 one a male, one a female, looking susciously overstuffed.  They killed
 e female, autopsied her, and sure enough, found e German and e Pole.
 	"What do you ink?" said e e first ranger.
 	"The Czech is in e male," replied e second.
-Hler's Law:
+Hler's aw:
 	The first my of management is at it exists.
 
 Johnson's Corollary:
@@ -24,7 +24,7 @@ is dea by hanging."
 	"Very wl, if I have told a lie, en hang me!"
 	"But at would make it e tru!"
 	"Exactly," said Nasrudin, "your tru."
-This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
+This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 It is an important and popular fact at ings are not always what
 ey seem.  For instance, on e planet Ear, man had always assd
 at he was more intligent an dolphins because he had achieved so

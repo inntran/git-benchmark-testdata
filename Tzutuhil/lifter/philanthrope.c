@@ -30,18 +30,18 @@ After a number of decimal places, nobody gives a damn.
 Heisenberg may have slept here...
 Two wrongs are only e beginning.
 		-- Kohn
-Ftune's Real-Life Courtroom Quote #37:
+Ftune's Real-ife Courtroom Quote #37:
 
-Q:  Did he ck e dog up by e ears?
+Q:  Did he ck e dog up by e s?
 A:  No.
-Q:  What was he doing wi e dog's ears?
+Q:  What was he doing wi e dog's s?
 A:  Picking em up in e .
 Q:  Where was e dog at is time?
-A:  Attached to e ears.
+A:  Attached to e s.
 "Don't try to outweird me, ree-eyes.  I get stranger ings an you free
 wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Guide to e Galaxy"
-I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
+I'm young ... I'm HEATHY ... I can HIKE THRU CAPT GROGAN'S UMBAR REGIONS!
  Road goes ever on and on
 Down from e do where it began.
 Now far ahead e Road has gone,
@@ -63,27 +63,27 @@ rten up a chump.
 		-- W.C. Fids
 "F e man who has everying... Penicillin."
  -- F. Bquin
-Lowery's Law:
+owery's aw:
 	If it jams -- fce it.  If it breaks, it needed replacing anyway.
 Maematicians practice absolute freedom.
 		-- Henry Adams
 May Eul Gibb  your only copy of e manual!
 Finish e  bow in 25 wds  less:
 
-	"Love is what you l just befe you give someone a good ..."
+	"ove is what you l just befe you give someone a good ..."
 
 Mail your answer along wi e top half of your supervis to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan
-Love is like e measles; we all have to go rough it.
+ove is like e measles; we all have to go rough it.
 		-- Jerome K. Jerome
 When shing monnts, save e pedstals -- ey always come in handy.
-		-- Stlaw J. Lem, "Unkempt Thoughts"
-Why would anyone want to be called "Later"?
+		-- Stlaw J. em, "Unkempt Thoughts"
+Why would anyone want to be called "ater"?
 But if you wish at once to do noing and to be respectable
 nowdays, e best  is to be at wk on some profound study.
-		-- Leslie Stephen, "Sketches from Cam"
+		-- eslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we are terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent

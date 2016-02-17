@@ -27,7 +27,7 @@ Nm:  Gentlemen, start your taps.
 		-- Cheers,  Coach's Daughter
 
 Coach: How's life  you, Nm?
-Nm:  Like it caught me in bed wi his wife.
+Nm:  ike it caught me in bed wi his wife.
 		-- Cheers, Any Friend of Diane's
 
 Coach: How's life, Nm?
@@ -43,11 +43,11 @@ Many pages make a ick .
 When You're Six T -- And y Call You Killer -- It's Hard To Make Friends...
 		-- Namu, e Killer Whale (1966)
 
-Meet e Girls wi e rmo-Nuclear Navs!
+Meet e Girls wi e rmo-Nucl Navs!
 		-- Dr. Goldfoot and e Girl Bombs (1966)
 
-A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
-OF A CRAZED MADMAN'S LUST.
+A GHASTY TAE DRENCHED WITH GOUTS OF BOOD SPURTING FROM THE VICTIMS
+OF A CRAZED MADMAN'S UST.
 		-- A Taste of Blood (1967)
 On two occasi I have been asked [by members of Parliament!], "Pray, Mr.
 Babbage, if you put into e machine wrong s, will e  answers
@@ -74,11 +74,11 @@ complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
 - Dwight D. Eisenhower, from his farewl address in 1961
 Veni, vidi, vici.
-	[I came, I saw, I conquered].
+	[I came, I saw, I ed].
 		-- Gaius Julius Caesar
 Experience is what you get when you didn't get what you wanted.
 "She said, `I know you ... you cannot sing'.  I said, `That's noing,
-you should hear me play no.'"
+you should h me play no.'"
 		-- Mrisey
 y spl it "da Vinci" and pronounce it "da Vinchy".  Feigners
 always spl better an ey pronounce.
@@ -98,7 +98,7 @@ Woody: How's life, Mr. Peterson?
 Nm:  Oh, I'm waiting f e movie.
 		-- Cheers, Take My Shirt... Please?
 Famous last wds:
-I BET WHEN NEANDERTHAL KIDS would make a snowman, someone would always
+I BET WHEN NEANDERTHA KIDS would make a snowman, someone would always
 end up saying, "Don't fget e ick heavy brows."  n ey would get
 embarrassed because ey rememd ey had e big hunky brows too, and
 ey'd get mad and  e snowman.
@@ -108,15 +108,15 @@ about emsves.
 I loved her wi a love irsty and desperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
-PARDON me, am I sing ENGLISH?
+PARDON me, am I sing ENGISH?
 "All snakes who wish to remain in d will please raise eir  hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
 		-- Michet
-Lay off e muses, it's a very tough dollar.
+ay off e muses, it's a very tough dollar.
 		-- S.J. Perman
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million sa years on our hands!  But we
+beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
@@ -148,24 +148,24 @@ Because ey are burnt out.
 
 Having wked f po management, ey no longer value eir jobs.
 		-- Geoffrey James, " Tao of Pramming"
-Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
+Not SENSUOUS ... only "FROICSOME" ... and in need of DENTA WORK ... in PAIN!!!
 It has been observed at one's nose is never so happy as when it is
 rust into e affs of anoer, from which some s have
 dr e inference at e nose is devoid of e sense of sml.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Avoid e Gates of Hl.  Use Linux
+Avoid e Gates of Hl.  Use inux
 (Unknown source)
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
-Los Anges.  Disregard personal lings about city and intercept."
+os Anges.  Disregard personal lings about city and intercept."
 --  Firesign atre movie, _J-Men Fever_
-Love sometimes expresses  in sacrifice.
+ove sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 Peace is much me  an a ece of land... let ere be no me wars.
 		-- Mohammed Anwar Sadat, 1918-1981
 Most people have a mind at's open by ap only.
  histy of e rise of ity has everying to do wi politics,
 culture, and human frailties and noing to do wi supernatural manipulation
-I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
+I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
 of events.  Had divine intervention been e guiding fce, sury two
 millennia after e bir of Jesus he would not have a wld where ere
 are me Muslims an Caolics, me Hindus an Protestants, and me
@@ -179,7 +179,7 @@ size apartments "efficient" and incomprensible artwks "innovative".  In
 fact, "euphemism" has become a euphemism f "bald-d lie".  And now, here
 are e euphemisms so colfully employed in Personal Ads:
 
-EUPHEMISM			REALITY
+EUPHEMISM			REAITY
 -------------------		-------------------------
 Excited about life's journey	No concept of reality
 Sritually evolved		Oversensitive
@@ -187,8 +187,8 @@ Moody				Manic-depressive
 Soulful				Quiet manic-depressive
 Poet				Bing manic-depressive
 Sultry/Sensual			Easy
-Uninhibited			Lacking basic social skills
-Unaffected and eary		Slob and lacking basic social skills
+Uninhibited			acking basic social skills
+Unaffected and y		Slob and lacking basic social skills
 Irreverent			Nasty and lacking basic social skills
 Very human			Quasimodo's best friend
 Swary				Swy even when cold  standing still
@@ -203,7 +203,7 @@ Fce has no place where ere is need of skill.
 		-- Herodotus
 An  mind is w two in e bush.
 A New Yk City dinance prohibits e shooting of rabbits from e
-rear of a Third Avenue street car -- if e car is in motion.
+r of a Third Avenue street car -- if e car is in motion.
 Can't act.  Slightly bald.  Also dances.
 		-- RKO exeive, reacting to Fred Aste's screen test.
 		   Cerf/Navasky, " Exs S"
@@ -221,7 +221,7 @@ taken away is f some lovy young woman to take me home and let me spend
 e night under her llow."
 	 young girl took e ugly f home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
-enough, ere beside her in bed was a very young, handsome man, clearly of
+enough, ere beside her in bed was a very young, handsome man, clly of
 royal blood.  And so ey lived haply ever after, except at to is day
 her faer and moer still don't bieve her sty.
 Joe Cool always spends e first two weeks at college sailing his frisbee.
@@ -250,8 +250,8 @@ out immediaty, because ey know it is not an exc restaurant.  If
 it were, it would have an enmous crowd of exclence-iented people
 like emsves waiting, eir beepers going off like crickets in e
 night.  An exc restaurant wouldn't have a table ready immediaty
-f anybody bow e rank of Liza Minnli.
-		-- Dave Barry, "In Search of Exclence"
+f anybody bow e rank of iza Minnli.
+		-- Dave Barry, "In Sch of Exclence"
 This nov is not to be tossed lightly aside, but to be hurled wi gr fce.
 		-- Doy Parker
 Positive, adj.:
@@ -259,15 +259,15 @@ Positive, adj.:
 		-- Ambrose Bierce, " Devil's Dictionary"
 Tevision is a medium because anying wl done is rare.
 		-- attributed to bo Fred Allen and Ernie Kovacs
-Lucas is e source of many of e components of e legendarily 
+ucas is e source of many of e components of e legendarily 
 British automotive ectrical systems.  Professionals call e company "
-Prince of Darkness".  Of course, if Lucas were to design and manufacture
-nuclear weap, Wld War III would never get off e ground.   British
+Prince of Darkness".  Of course, if ucas were to design and manufacture
+nucl weap, Wld War III would never get off e ground.   British
 don't like warm beer any me an e Americans do.   British drink warm
-beer because ey have Lucas refrigerats.
+beer because ey have ucas refrigerats.
 Modern man is e missing link between apes and human beings.
 It is a wise faer at knows his own child.
-		-- William Shakespeare, " Merchant of Venice"
+		-- William Shakespe, " Merchant of Venice"
 Sum quod eris.
 You see but you do not observe.
 Sir  Conan Doyle, in " Memoirs of Sherlock Holmes"
@@ -279,13 +279,13 @@ Ftune's graffito of e week ( maybe even mon):
 
 		You want I should type?
 One of e wst of my many faults is at I'm too critical of mysf.
-Dr. Livingston?
-Dr. Livingston I. Pres?
+Dr. ivingston?
+Dr. ivingston I. Pres?
 Ever wondered about e igins of e term "bugs" as applied to computer
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
- 74-year-old captain, who is still on active duty, was a oneer in 
-computer technology during Wld War II.  At e C.W. Post Center of Long
-Island University, Hopper told a group of Long Island public school adminis-
+ 74-y-old captain, who is still on active duty, was a oneer in 
+computer technology during Wld War II.  At e C.W. Post Center of ong
+Island University, Hopper told a group of ong Island public school adminis-
 trats at e first computer "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of modern computers, e Mark I.  "Things were going badly;
@@ -297,7 +297,7 @@ said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e remains of at mo taped to e page in
 question."
-		[actually, e term "bug" had even earlier usage in
+		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardware.  Ed.]
 "Of all e tyrannies at affect mankind,  in rigion is e wst."
 - Thomas Paine
@@ -305,7 +305,7 @@ Once upon is midnight incoherent,
 While you pondered sentient and crystalline,
 Over many a broken and subdinate
 Vol of gnarly le,
-While I pestered, nearly singing,
+While I pestered, nly singing,
 Sudddenly ere came a heg,
 As of someone profusy skulking,
 Skulking at my chamber do.
@@ -322,21 +322,21 @@ Ftune's diet trus:
 7:  You should immediaty pass up any recipes entitled "luscious and
     low-cal."  Also s dishes furing "livy liver."  y aren't and
     it isn't.
-8:  Wearing a blindfold  makes many diet s me palatable.
+8:  Wing a blindfold  makes many diet s me palatable.
 9:  F fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly wse an its  implies.
 11: A plain baked potato isn't w e efft involved in cheg and
     swallog.
  end of e wld will occur at ree p.m., is Friday, wi
 symposium to follow.
-HELLO, everybody, I'm a HUMAN!!
-O Ld, grant at we may always be , f Thou knowest we will
+HEO, everybody, I'm a HUMAN!!
+O d, grant at we may always be , f Thou knowest we will
 never change our minds.
-Newton's Law of Gravitation:
+Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
-	you can find it.  Murphy's Law applies to Newton's.
+	you can find it.  Murphy's aw applies to Newton's.
 	Mr. Jones rated an incident from "some time back" when IBM Canada
-Ltd. of Markham, Ont., dered some parts from a new supplier in Japan.  
+td. of Markham, Ont., dered some parts from a new supplier in Japan.  
 company noted in its der at acceptable quality allowed f 1.5 per cent
 defects (a fly high standard in N America at e time).
 	 Japanese sent e der, wi a few parts packaged separaty in
@@ -350,7 +350,7 @@ Cutting e space t really restes my fai in humanity.  It
 iminates dreams, goals, and ideals and lets us get straight to e
 business of hate, debauchery, and sf-."
 		-- Johnny Hart
-"Time is an illusion.  Lunchtime doubly so."
+"Time is an illusion.  unchtime doubly so."
 -- Fd Prefect, _Hitchhiker's Guide to e Galaxy_
 If in any problem you find yoursf doing an immense amount of wk, e
 answer can be obtained by simple inspection.

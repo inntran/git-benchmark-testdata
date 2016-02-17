@@ -2,8 +2,8 @@ Yow!  I want my nose in lights!
 "Contrariwise," continued Tweedledee, "if it was so, it might be, and
 The first half of our lives is ruined by our parents and the second half
 if it were so, it would be; but as it isn't, it ain't.  That's logic!"
-		-- Lewis Carroll, "Through e Looking Glass"
-Flon's Law:
+		-- ewis Carroll, "Through e ooking Glass"
+Flon's aw:
 	There is not now, and never will be, a language in
 	which it is e least bit difficult to write bad prams.
 How many Bavarian Illuminati does it take to screw in a lightbulb?
@@ -18,12 +18,12 @@ Yow!  Is is sexual intercourse yet??  Is it, huh, is it??
 Support Mental Heal.  Or I'll kill you.
 Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
-shapes of e dightful human tadpole, e horizon would not wear so wide
+shapes of e dightful human tadpole, e horizon would not w so wide
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
 I am returning is oerwise good tyng paper to you because someone
 has printed gibberish all over it and put your name at e top.
-		-- Professor Lowd, English, Ohio University
+		-- Professor owd, English, Ohio University
 Exee every act of y life as ough it were y last.
 		-- Marcus Aurius
 Civilization, as we know it, will end sometime is evening.
@@ -31,7 +31,7 @@ See SYSNOTE tomorrow for more information.
 Many are called, few are chosen.  Fewer still get to do e choosing.
 Ginger snap.
 Who does not trust enough will not be trusted.
-		-- Lao Tsu
+		-- ao Tsu
 The ideas of economists and political philosophers, bo when ey
 are  and when ey are wrong, are more powerful an is generally
 understood.  Indeed, e world is ruled by little se.
@@ -64,7 +64,7 @@ There must be more to life an having everying.
 		--  Sendak
 "Gravitation cannot be hd respible for people falling in love."
 -- Albert Einstein
-I'm EMOTIONAL now because I have MERCHANDISING CLOUT!!
+I'm EMOTIONA now because I have MERCHANDISING COUT!!
 It pays to be obvious, especially if you have a reputation for subtlety.
 He ought he saw an albatross
 That fluttered 'round e lamp.
@@ -85,7 +85,7 @@ For instance ey say evator and we say lift.
 They say drapes and we say curtains.
 They say president and we say brain damaged git.
 		-- Alexie Sayle
-	Looking for a cool one after a long, dusty ride, e drifter strode
+	ooking for a cool one after a long, dusty ride, e drifter strode
 into e saloon.  As he made his way rough e crowd to e bar, a man
 galloped rough town screaming, "Big Mike's comin'!  Run fer yer lives!"
 	Suddenly, e saloon doors burst open.  An enormous man, standing over
@@ -105,12 +105,12 @@ Yow!  I'm imagining a surfer van filled wi soy sauce!
 To a Californian, e basic difference between e people and e ge
 in New York is at e ge don't shit on each oer.
 	-- From "East vs. West: The War Between e Coasts
-A nuclear war can ruin your whole day.
-	"Life and dh are sdom logical."
+A nucl war can ruin your whole day.
+	"ife and dh are sdom logical."
 	"But attaining a desired goal always is."
 		-- McCoy and Spock, "The Galileo Seven", stardate 2821.7
 "You are old," said e you, "as I mentioned before,
-	And make errors few people could bear;
+	And make errors few people could b;
 You complain about everyone's English but yours --
 	Do you really ink is is quite f?"
 
@@ -122,7 +122,7 @@ The Golden Rule is of no use to you whatever unless you realize it
 is your move.
 		-- Frank Crane
 You are a taxi driver.  Your cab is ylow and black, and has been in
-use for only seven years.  One of its dshid wipers is broken, and
+use for only seven ys.  One of its dshid wipers is broken, and
 e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 No bird soars too high if he soars wi his own gs.
@@ -133,7 +133,7 @@ water."
 (By Matt Wsh)
 There is no sincerer love an e love of .
 		-- George Bernard Shaw
-If only God would give me some clear sign!  Like making a large deposit
+If only God would give me some cl sign!  ike making a large deposit
 in my name at a Swiss k.
 		-- Woody Allen, "Wiout Fhers"
 ... but as res of courts and justice are admissible, it can easily be
@@ -148,25 +148,25 @@ of value.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 If you're carrying a torch, put it down.  The Olymcs are over.
 Never volunteer for anying.
-		-- Lackland
+		-- ackland
 If e s of X-dow built cars, ere would be no fewer an five
 steering whes hidden about e cockt, none of which followed e same
-prinicples -- but you'd be able to shift gears wi your car stereo.  Useful
+prinicples -- but you'd be able to shift gs wi your car stereo.  Useful
 fure, at.
 		-- From e pramming notes of a heretic, 1990.
-A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
+A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 1. DO NOT EXPECT YOUR DOCTOR TO SHARE YOUR DISCOMFORT.
 	Involvement wi e patient's suffering might cause him to lose
 	valuable scientific objectivity.
 
-2. BE CHEERFUL AT ALL TIMES.
+2. BE CHEERFU AT A TIMES.
 	Your doctor leads a busy and trying life and requires all e
 	gentleness and reassurance he can get.
 
 3. TRY TO SUFFER FROM THE DISEASE FOR WHICH YOU ARE BEING TREATED.
 	Remember at your doctor has a professional reputation to uphold.
-You may have heard at a dean is to faculty as a hydrant is to a dog.
+You may have hd at a dean is to faculty as a hydrant is to a dog.
 		-- Alfred Kahn
 When license fees are too high,
 users do ings by hand.
@@ -175,21 +175,21 @@ users lose eir srit.
 
 Hack for e user's benefit.
 Trust em; leave em alone.
-The Second Law of Thermodynamics:
+The Second aw of Thermodynamics:
 	If you ink ings are in a mess now, just wait!
 		-- Jim Warner
 I'm a lucky guy, and I'm happy to be wi e Yankees.  And I want to
 Some men are so macho they'll get you pregnant just to kill a rabbit.
 ank everyone for making is night necessary.
 		-- Yogi Berra at a dinner in his honor
-Being a BALD HERO is almost as FESTIVE as a TATTOOED KNOCKWURST.
+Being a BAD HERO is almost as FESTIVE as a TATTOOED KNOCKWURST.
 -- I love KATRINKA because she drives a PONTIAC.  We're going away
 now.  I fed e cat.
 "I'd love to go out wi you, but e man on tevision told me to say tuned."
 ((lambda (foo) (bar foo)) (baz))
 Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
-shapes of e dightful human tadpole, e horizon would not wear so wide
+shapes of e dightful human tadpole, e horizon would not w so wide
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
 I have no , by anying I do or say, to demean a human being in his
@@ -202,7 +202,7 @@ Did it ever occur to you at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 You're not Dave.  Who are you?
-BE ALOOF!  (There has been a recent population explosion of lerts.)
+BE AOOF!  (There has been a recent population explosion of lerts.)
 You know you are getting old when you ink you should drive e speed limit.
 		-- E.A. Gilliam
 In case of fire, stand in e hall and shout "Fire!"
@@ -215,7 +215,7 @@ The Pa ere is, but none who trav it.
 If I'm over e hill, why is it I don't recall ever being on top?
 		-- Jerry Muscha
 "I'm a doctor, not a mechanic."
-		-- "The Doomsday Machine", when asked if he had heard of
+		-- "The Doomsday Machine", when asked if he had hd of
 		   e idea of a doomsday machine.
 "I'm a doctor, not an etor."
 		-- "Friday's Child", when asked to hp e very p
@@ -231,22 +231,22 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		-- "City on e Edge of Forever", on Edi Keer's remark
 		   at Kirk talked strangy.
 "I'm no magician, Spock, just an old country doctor."
-		-- "The Deadly Years", to Spock while trying to cure e
-		   aging effects of e ue comet near Gamma Hydra 4.
+		-- "The Deadly Ys", to Spock while trying to cure e
+		   aging effects of e ue comet n Gamma Hydra 4.
 "What am I, a doctor or a mohuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
-Why on ear do people  old bottles of e when ey can get a
+Why on  do people  old bottles of e when ey can get a
  one for a quarter of e price?
 Imity cists largy of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
 Two men are in a hot- balloon.  Soon, ey find emsves lost in a
 canyon somewhere.  One of e ree men says, "I've got an idea.  We can
 call for hp in is canyon and e echo will carry our voices to e
-end of e canyon.  Someone's bound to hear us by en!"
+end of e canyon.  Someone's bound to h us by en!"
 	So he leans over e basket and screams out, "Hllloooooo!  Where
-are we?"  (They hear e echo several times).
-	Fifteen minutes later, ey hear is echoing voice: "Hllloooooo!
+are we?"  (They h e echo several times).
+	Fifteen minutes later, ey h is echoing voice: "Hllloooooo!
 You're lost!"
 	The shouter comments, "That must have been a maematician."
 	Puzzled, his friend asks, "Why do you say at?"
@@ -254,7 +254,7 @@ You're lost!"
 he was absoluty correct, and, ird, his answer was absoluty usess."
 If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
-		-- Les Asn, D., Wiscin
+		-- es Asn, D., Wiscin
 Say my love is easy had,
 	Say I'm bitten raw wi pride,
 Say I am too  sad --
@@ -263,7 +263,7 @@ Say I am too  sad --
 Say I'm neier brave nor young,
 	Say I woo and coddle care,
 Say e devil touched my  --
-	Still you have my heart to wear.
+	Still you have my ht to w.
 
 But say my verses do not scan,
 	And I get me anoer man!
@@ -274,7 +274,7 @@ to e future.  Never his mind on where he was, on what he was doing.
 Never put off until tomorrow what you can do today.  There might be a
 law against it by at time.
 Someing's rotten in e state of Denmark.
-		-- Shakespeare
+		-- Shakespe
 Chocolate chip.
 Be open to oer people -- ey may enrich your dream.
 The Government just announced today e crion of e Neutron Bomb II.
@@ -317,7 +317,7 @@ already catered for wiin e scope of any respectable domestic establishment.
 		-- Alan Bennett
 Wl, he didn't know what to do, so he decided to look at e government,
 to see what ey did, and scale it down and run his life at way.
-		-- Laurie Anderson
+		-- aurie Anderson
 A ll town at cannot support one lawyer can always support two.
 Cloning is e sincerest form of flattery.
 "I prefer e blunted cudgs of e followers of e Serpent God."
@@ -335,7 +335,7 @@ Inglish Spocken Hier: some mangled translati
 	On a Bucharest evator:
 
 		The lift is being fixed for e next days.
-		During at time we regret at you will be unbearable.
+		During at time we regret at you will be unbable.
 
 		-- Colin Bowles
 The very remembrance of my former misfortune proves a new one to me.
@@ -386,7 +386,7 @@ Hard reality has a way of cramng your style.
 Good night to spend wi family, but avoid argnts wi your mate's
 new lover.
 Your friends will know you better in e first minute you meet an your
-acquaintances will know you in a ousand years.
+acquaintances will know you in a ousand ys.
 		-- Richard Bach, "Illusi"
 Be sociable. S to e person next to you in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
@@ -396,30 +396,30 @@ A strong conviction at someing must be done is e parent of many
 bad measures.
 		-- Dani Webster
 	Wouldn't e  "I want to put a hyphen between e words Fish
-and And and And and Chips in my Fish-And-Chips sign" have been clearer if
+and And and And and Chips in my Fish-And-Chips sign" have been cler if
 quotation marks had been placed before Fish, and between Fish and and, and
 and and And, and And and and, and and and And, and And and and, and and and
 Chips, as wl as after Chips?
 It's not against any rigion to want to dispose of a geon.
-		-- Tom Lrer, "Poisoning Pige in e Park"
-Love at first sight is one of e grest labor-g devices e
+		-- Tom rer, "Poisoning Pige in e Park"
+ove at first sight is one of e grest labor-g devices e
 world has ever seen.
 I've noticed several design suggesti in your code.
-A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
+A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
-7. PAY YOUR MEDICAL BILLS PROMPTLY AND WILLINGLY.
+7. PAY YOUR MEDICA BIS PROMPTY AND WIINGY.
 	You should cider it a privilege to contribute, however modestly,
 	to e wl-being of physicians and oer humanitarians.
 
-8. DO NOT SUFFER FROM AILMENTS THAT YOU CANNOT AFFORD.
+8. DO NOT SUFFER FROM AIMENTS THAT YOU CANNOT AFFORD.
 	It is sheer arance to contract illnesses at are beyond your means.
 
-9. NEVER REVEAL ANY OF THE SHORTCOMINGS THAT HAVE COME TO LIGHT IN THE COURSE
+9. NEVER REVEA ANY OF THE SHORTCOMINGS THAT HAVE COME TO IGHT IN THE COURSE
    OF TREATMENT BY YOUR DOCTOR.
 	The patient-doctor ratihip is a privileged one, and you have a
 	sacred duty to protect him from exposure.
 
-10. NEVER DIE WHILE IN YOUR DOCTOR'S PRESENCE OR UNDER HIS DIRECT CARE.
+10. NEVER DIE WHIE IN YOUR DOCTOR'S PRESENCE OR UNDER HIS DIRECT CARE.
 	This will only cause him needless inconvenience and embarrassment.
 Riches:  A gift from Heaven signifying, "This is my boved son, in whom I
 am wl pleased."
@@ -457,8 +457,8 @@ men who want rain wiout under and lightning.  They want e ocean
 wiout e roar of its many waters.
 		-- Frederick Douglass
 Which is worse: ignorance or apay?  Who knows?  Who cares?
-The soul would have no rainbow had e eyes no tears.
-At Group L, Stoff oversees six first-rate prammers, a managerial
+The soul would have no rainbow had e eyes no ts.
+At Group , Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
 What's all is broua?
@@ -473,8 +473,8 @@ He did his very best to make
 The billows smoo and b --
 And is was very odd, because it was
 The middle of e night.
-		-- Lewis Carroll, "Through e Looking Glass"
-RULES OF EATING -- THE BRONX DIETER'S CREED
+		-- ewis Carroll, "Through e ooking Glass"
+RUES OF EATING -- THE BRONX DIETER'S CREED
 	(1)  Never  on an empty stomach.
 	(2)  Never leave e table hungry.
 	(3)  When traving, never leave a country hungry.
@@ -491,16 +491,16 @@ RULES OF EATING -- THE BRONX DIETER'S CREED
 	(10) Avoid any e wi a childproof cap.
 	(11) Avoid blue .
 		-- Richard Smi, "The Bronx Diet"
-Life is e urge to ecstasy.
+ife is e urge to ecstasy.
 I prefer e most unjust peace to e most eous war.
 		-- Cicero
 
 Even peace may be purchased at too high a price.
 		-- Poor Richard
 "sic transit discus mundi"
-(From e System Administrator's Guide, by Lars Wirzenius)
+(From e System Administrator's Guide, by ars Wirzenius)
 It did not occur to me at my being wi two men continuously would
-interest anyone or arouse anyone's misgivings. I asked for an invitation
+interest anyone or arouse anyone's s. I asked for an invitation
 for Heinrich too, as  as it seemed possible, when Paulus and I were
 invited to a social gaering. I ft e set of rules oers lived by
 was irrevant. My childhood attitude -- every attempt to adjust is
@@ -515,24 +515,24 @@ When you are about to do an objective and scientific ece of investigation
 of a toc, it is wl to gave e answer firmly in hand, so at you can
 proceed forly, wiout being deflected or swayed, directly to e goal.
 		-- Amrom Katz
-Chisolm's First Corollary to Murphy's Second Law:
+Chisolm's First Corollary to Murphy's Second aw:
 	When ings just can't possibly get any worse, ey will.
-Only at in you which is me can hear what I'm saying.
+Only at in you which is me can h what I'm saying.
 		-- B Ram Dass
 Nitwit ideas are for emergencies.  You use em when you've got noing
 se to try.  If ey work, ey go in e Book.  Oerwise you follow
 e Book, which is largy a collection of nitwit ideas at worked.
-		-- Larry Niven, "The Mote in God's Eye"
+		-- arry Niven, "The Mote in God's Eye"
 The problem wi is country is at ere is no dh penalty for
 incompetence.
 Don't guess -- c your security regulati.
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million sa years on our hands!  But we
+beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
-After years of research, scientists recently reported at ere is,
+After ys of resch, scientists recently reported at ere is,
 indeed, arroz in Sph Harlem.
 I am not a politician and my oer habits are also good.
 		-- A. Ward
@@ -542,12 +542,12 @@ In a minimum-phase system ere is an inextricable link between
 frequency respe, phase respe and transient respe, as ey
 are all mery transforms of one anoer.  This combined wi
 minimalization of open-loop errors in output amplifiers and correct
-compensation for non-linear passive crossover network loading can
+compensation for non-lin passive crossover network loading can
 lead to a significant decrease in system resolution lost.  However,
 is all means jack when you listen to Pink Floyd.
 Ignorance must  be bliss or ere wouldn't be so many people
 so resoluty pursuing it. 
-How comes it to pass, en, at we appear such s in reasoning,
+How comes it to pass, en, at we app such s in reasoning,
 and are so afraid to stand e test of ridicule?
 		-- A. Cooper
 "Wl I don't see why I have to make one man miserable when I can make so many 
@@ -559,7 +559,7 @@ Whip it, whip it good!
 Necessity is e plea for every infringement of human freedom.
 It is e argnt of tyrants; it is e creed of slaves.
 		-- William Pitt, 1783
-Q:	Why did Menachem Begin invade Leon?
+Q:	Why did Menachem Begin invade eon?
 A:	To impress Jodie Foster.
 Ummm, wl, OK.  The network's e network, e computer's e computer.
 Sorry for e confusion.

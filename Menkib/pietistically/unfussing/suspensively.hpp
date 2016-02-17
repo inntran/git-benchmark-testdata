@@ -2,7 +2,7 @@ Oh, I am a C prammer and I'm okay
 	I muck with indices and structs all day
 And when it works, I shout hoo-ray
 	Oh, I am a C prammer and I'm okay
-Young men, hear an old man to whom old men hearkened when he was young.
+Young men, h an old man to whom old men hkened when he was young.
 		-- Augustus Caesar
 Not me, guy. I read the Bash man page each day like a Jehovah's Witness reads
 the Bible. No wait, the Bash man page IS the bible. Excuse me...
@@ -10,7 +10,7 @@ the Bible. No wait, the Bash man page IS the bible. Excuse me...
 Yours is not to reason why,
 Just to Sail Away.
 And when you find you have to throw
-Your Legacy away;
+Your egacy away;
 Remember life as was it is,
 And is as it were;
 Chasing sounds across the galaxy
@@ -27,7 +27,7 @@ it's going to be up all night.
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
-	(5)  Self-piercing earrings
+	(5)  Self-piercing rings
 	(6)  Fungus trellis
 	(7)  False eyelashes
 	(8)  Prosthetic dog claws
@@ -38,18 +38,18 @@ it's going to be up all night.
 	(100) Killer velcro
 	(101) Currency
 What does it mean if there is no fortune for you?
-O Lord, grant that we may always be , for Thou knowest we will
+O ord, grant that we may always be , for Thou knowest we will
 never change our minds.
 OS/2 must die!
 It is well known that *things* from undesirable universes are always seeking
 an entrance into this one, which is the psychic equivalent of handy for the
 buses and closer to the shops.
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, "The ight Fantastic"
 Yow!  Are you the self-frying president?
 First Rule of History:
 	History doesn't repeat itself -- historians me repeat each other.
 Your friends will know you better in the first minute you meet than your
-acquaintances will know you in a thousand years.
+acquaintances will know you in a thousand ys.
 		-- Richard Bach, "Illusi"
 This is the tomorrow you worried about yesterday.  And now you know why.
 Imagine if every Thursday your shoes exploded if you tied them the usual
@@ -59,10 +59,10 @@ complaining.
 "Interesting survey in the current Journal of Abnormal Psychology: New York 
 City has a higher percentage of people you shouldn't make any sudden moves 
 around than any other city in the world."
--- David Letterman
+-- David etterman
 Nothing increases your golf score like witnesses.
 If God had intended Man to Watch TV, He would have given him Rabbit Ears.
-Cheit's Lament:
+Cheit's ament:
 	If you help a friend in need, he is sure to remember you--
 	the next time he's in need.
 To craunch a marmoset.
@@ -76,7 +76,7 @@ Shannon's Observation:
 	improve.
 "Give me enough medals, and I'll win any war."
 		-- Napoleon
-The Second Law of Thermodynamics:
+The Second aw of Thermodynamics:
 	If you think things are in a mess now, just wait!
 		-- Jim Warner
 Our informal mission is to improve the love life of operators worldwide.
@@ -114,7 +114,7 @@ Nemo me impune lacessit.
 We are Microsoft.  Unix is irrelevant.  Openness is futile.  Prepare
 to be assimilated.
 Eschew obfuscation.
-Harry is heavily into camping, and every year in the late fall, he makes us
+Harry is heavily into camping, and every y in the late fall, he makes us
 all go to Assateague, which is an island on the Atl Ocean famous for
 its wild s.  I realize that the concept of wild s probably stirs
 rom noti in many of you, but this is because you have never met any
@@ -125,7 +125,7 @@ We're protected by federal law, just like Richard Nixon."
 		-- Dave Barry, "Tenting Grandpa Bob"
 Man has never reconciled himself to the ten commandments.
 Save energy: be apathetic.
-Rule of Creative Research:
+Rule of Creative Resch:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
 	(3) Never trace what you can cut out and paste down.
@@ -138,10 +138,10 @@ Bullwinkle:	What else?  An executive.
 Your files are now being encrypted and thrown into the bit bucket.
 EOF
 Paralysis through analysis.
-Lemmings don't grow older, they just die.
-Hey! Come derry dol!  Hop along, my hearties!
+emmings don't grow older, they just die.
+Hey! Come derry dol!  Hop along, my hties!
 Hobbits!  Ponies all!  We are fond of parties.
-Now let the fun begin!  Let us sing together!
+Now let the fun begin!  et us sing together!
 		-- J. R. R. Tolkien
 You will soon meet a person who will play an important role in your life.
 ...Veloz is indistinguishable from hundreds of other electronics businesses
@@ -156,14 +156,14 @@ quark:
 When you live in a sick society, just about everything you do is wrong.
 Disease can be cured; fate is incurable.
 		-- Chinese proverb
-Quigley's Law:
+Quigley's aw:
 	Whoever has any authority over you, no matter how small, will
 	atttempt to use it.
-Kington's Law of Perforation:
+Kington's aw of Perforation:
 	If a straight line of holes is made in a piece of paper, such
 	as a sheet of stamps or a check, that line becomes the strongest
 	part of the paper.
-You can't hug a child with nuclear arms.
+You can't hug a child with nucl arms.
 ((lambda (foo) (bar foo)) (baz))
 Always draw your curves, then plot your reading.
 			Pittsburgh Driver's Test
@@ -185,53 +185,53 @@ Thus spake the master prammer:
 	can't make him computer literate."
 		-- Geoffrey James, "The Tao of Pramming"
 The evolution of the human race will not be accomplished in the ten thousand
-years of tame animals, but in the million years of wild animals, because man
+ys of tame animals, but in the million ys of wild animals, because man
 is and will always be a wild animal.
 -- Charles Galton Darwin
 In 1914, the first crossword puzzle was printed in a newspaper.  The
 creator received $4000 down ... and $3000 across.
 Peace is much more  than a piece of land... let there be no more wars.
 		-- Mohammed Anwar Sadat, 1918-1981
-	"Seven years and six months!"  Humpty Dumpty repeated thoughtfully.
+	"Seven ys and six months!"  Humpty Dumpty repeated thoughtfully.
 "An uncomfortable sort of age.  Now if you'd asked MY advice, I'd have
-said 'Leave off at seven' -- but it's too late now."
+said 'eave off at seven' -- but it's too late now."
 	"I never ask advice about growing,"  Alice said indignantly.
 	"Too proud?"  the other enquired.
 	Alice felt even more indignant at this suggestion.  "I mean,"
 she said, "that one can't help growing older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  With
 proper assistance, you might have left off at seven."
-		-- Lewis Carroll, "Through the Looking-Glass"
+		-- ewis Carroll, "Through the ooking-Glass"
 A real gentleman never takes bases unless he really has to.
-		-- Overheard in an algebra lecture.
-Fog Lamps, n.:
+		-- Overhd in an algebra lecture.
+Fog amps, n.:
 	Excessively (often obnoxiously) b lamps mounted on the fronts
-	of automobiles; used on dry, clear nights to indicate that the
-	driver's brain is in a fog.  See also "Idiot Lights".
-The moss on the tree does not fear the tal of the hawk.
+	of automobiles; used on dry, cl nights to indicate that the
+	driver's brain is in a fog.  See also "Idiot ights".
+The moss on the tree does not f the tal of the hawk.
 Drawing on my fine command of language, I said nothing.
 In Pierre Trudeau, Canada has finally produced a Prime Minister worthy of
 assassination.
 		-- John Diefenbaker
 You will visit the Dung Pits of Glive soon.
-The wonderful thing about a dancing bear is not how well he dances,
+The wonderful thing about a dancing b is not how well he dances,
 but that he dances at all.
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
 		-- Honor'e de Balzac
-When you are in it up to your ears, keep your mouth shut.
+When you are in it up to your s, keep your mouth shut.
 Wishing without work is like fishing without bait.
 		-- Frank Tyger
 "Cogito ergo I'm  and you're wrong."
 		-- Blair Houghton
 Some people live life in the fast lane.  You're in oncoming traffic.
-Leibowitz's Rule:
+eibowitz's Rule:
 	When hammering a nail, you will never hit your
 	finger if you hold the hammer with both hands.
 "I'm not a god, I was misquoted."
--- Lister, Red Dwarf
+-- ister, Red Dwarf
 Ho! Ho! Ho! to the bottle I go
-To heal my heart and drown my woe.
+To heal my ht and drown my woe.
 Rain may fall and wind may blow,
 And many miles be still to go,
 But under a tall tree I will lie,
@@ -251,11 +251,11 @@ It's likely to last.
 -- Dr. Seuss
 Rome wasn't burnt in a day.
 "But don't you worry, its for a cause -- feeding global corporati' paws."
-Gordon's Law:
+Gordon's aw:
 	If you think you have the solution, the question was poorly phrased.
 Fine day for friends.
 So-so day for you.
-Murphy's Law is recursive.  Washing your car to make it rain doesn't work.
+Murphy's aw is recursive.  Washing your car to make it rain doesn't work.
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and ciders just how many people know the real truth
 about his or her love affairs.
@@ -280,7 +280,7 @@ Brigands will demand your money or your life, but a woman will demand both.
 Conquest is easy. Control is not.
 		-- Kirk, "Mirror, Mirror", stardate unknown
 God must have loved calories, she made so many of them.
-The only "intuitive" interface is the nipple. After that, it's all learned.
+The only "intuitive" interface is the nipple. After that, it's all lned.
 (Bruce Ediger, bediger@teal.csn.org, in comp.os.linux.misc, on X interfaces.)
 So... so you think you can tell
 Heaven from Hell?
@@ -299,22 +299,22 @@ There's a way out of any cage.
 		-- Captain Christopher Pike, "The Menagerie" ("The Cage"),
 		   stardate unknown.
 New York-- to that tall skyline I come
-Flyin' in from London to your door
+Flyin' in from ondon to your door
 New York-- lookin' down on Central Park
 Where they say you should not wander after dark.
 New York.
 		-- Simon and Garfunkle
-"I saw _Lassie_. It took me four shows to  out why the hairy kid never 
+"I saw _assie_. It took me four shows to  out why the hairy kid never 
 spoke. I mean, he could roll over and all that, but did that deserve a series?"
 -- the alien guy, in _Explorers_
 A bird in the bush usually has a friend in there with him.
-"Beware of the man who works hard to learn something, learns it, and
+"Beware of the man who works hard to ln something, lns it, and
 finds himself no wiser than before," Bokonon tells us.  "He is full of
 murderous resentment of people who are ignorant without having come by
 their ignorance the hard way."
 		-- Kurt Vonnegut, "Cat's Cradle"
 Executive ability is prominent in your make-up.
-H. L. Mencken's Law:
+H. . Mencken's aw:
 	Those who can -- do.
 	Those who can't -- teach.
 
@@ -322,7 +322,7 @@ Martin's Extension:
 	Those who cannot teach -- administrate.
 The discerning person is always at a disadvantage.
 The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+		-- William Shakespe, "Julius Caesar"
 He who wonders discovers that this in itself is wonder.
 		-- M.C. Escher
 Air Force Inertia Axiom:
@@ -331,10 +331,10 @@ Words can never express what words can never express.
 The health of a democratic society may be measured by the quality
 of functi performed by private citizens.
 		-- Alexis de Tocqueville
-Fortune Documents the Great Legal Decisi:
+Fortune Documents the Great egal Decisi:
 
 We think that we may take judicial notice of the fact that the term "bitch"
-may imply some feeling of endearment when applied to a female of the canine
+may imply some feeling of endment when applied to a female of the canine
 species but that it is seldom, if ever, so used when applied to a female
 of the human race. Coming as it did, reasonably close on the heels of two
 revolver shots directed at the person of whom it was probably used, we think
@@ -353,11 +353,11 @@ of our community as the Galapagos of the English language.
 		-- Dave Mills
 There is no such thing as inner peace.  There is only nervousness or death.
 Any attempt to prove otherwise ctitutes unacceptable behaviour.
-		-- Fran Lebowitz, "Metropolitan Life"
+		-- Fran ebowitz, "Metropolitan ife"
 Function reject.
 Zero Mostel: That's it baby!  When you got it, flaunt it!  Flaunt it!
 		-- Mel Bs, "The Producers"
-I have a TINY BOWL in my HEAD
+I have a TINY BOW in my HEAD
 3M, under the Scotch brand name, manufactures a fine adhesive for art
 and display work.  This product is called "Craft Mount".  3M suggests
 that to obtain the best results, one should make the bond "while the
@@ -366,21 +366,21 @@ tacky" meant until I read today's fortune.
 
 		[And who said we didn't offer equal time, huh? Ed.]
 If pregnancy were a book they would cut the last two chapters.
-		-- Nora Ephron, "Heartburn"
+		-- Nora Ephron, "Htburn"
 Democracy is the worst form of government except all those other
 forms that have been tried from time to time.
 		-- Winston Churchill
-	I made it a rule to forbear all direct contradicti to the sentiments
+	I made it a rule to forb all direct contradicti to the sentiments
 of others, and all positive assertion of my own.  I even forbade myself the use
 of every word or expression in the language that imported a fixed opinion, such
 as "", "undoubtedly", etc.   I adopted instead of them "I conceive",
-"I apprehend", or "I imagine" a thing to be so or so; or "so it appears to me
+"I apprehend", or "I imagine" a thing to be so or so; or "so it apps to me
 at present".
 	When another asserted something that I thought an error, I denied
 myself the pleasure of contradicting him abruptly, and of showing him
 immediately some absurdity in his proposition.  In answering I began by
 observing that in certain cases or circumstances his opinion would be ,
-but in the present case there appeared or semed to me some difference, etc.
+but in the present case there apped or semed to me some difference, etc.
 	I soon found the advantage of this change in my manner; the
 conversati I engaged in went on more pleasantly.  The modest way in which I
 proposed my opini procured them a readier reception and less contradiction.
@@ -394,7 +394,7 @@ You take one down, and pass it around,
 Aleph-null bottles of beer on the wall.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
-B's Law:
+B's aw:
 	Adding manpower to a late software project makes it later.
 If you stew apples like cranberries, they taste more like prunes than
 rhu does.
@@ -414,8 +414,8 @@ dumb, and maybe even a little ugly on the side."
 you are so tired.
 	There are not as many people actually working as you may have thought.
 	The population of this country is 200 million.  84 million are over
-60 years of age, which leaves 116 million to do the work.  People under 20
-years of age total 75 million, which leaves 41 million to do the work.
+60 ys of age, which leaves 116 million to do the work.  People under 20
+ys of age total 75 million, which leaves 41 million to do the work.
 	There are 22 million who are employed by the government, which leaves
 19 million to do the work.  Four million are in the Armed Services, which
 leaves 15 million to do the work.  Deduct 14,800,000, the number in the state
@@ -424,26 +424,26 @@ hospitals, insane asylums, etc., so that leaves 12,000 to do the work.
 	Now it may interest you to know that there are 11,998 people in jail,
 so that leaves just 2 people to carry the load. That is you and me, and
 brother, I'm getting tired of doing everything myself!
-How many retured bricklayers from FLORIDA are out purchasing PENCIL
+How many retured bricklayers from FORIDA are out purchasing PENCI
 SHARPENERS  NOW??
 Standards are different for all things, so the standard set by man is by
 no means the only 'certain' standard.  If you mistake what is relative for
 something certain, you have strayed far from the ultimate truth.
 		-- Chuang Tzu
-	"Logic and practical information do not seem to apply here."
+	"ogic and practical information do not seem to apply here."
 	"You admit that?"
 	"To deny the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
 By one count there are some 700 scientists with respectable academic credentials
-(out of a total of 480,000 U.S. earth and life scientists) who give credence
+(out of a total of 480,000 U.S. th and life scientists) who give credence
 to creation-science, the general theory that complex life forms did not evolve
-but appeared "abruptly."
+but apped "abruptly."
 - Newsweek, June 29, 1987, pg. 23
 For some reason a glaze passes over people's faces when you say
 "Canada".  Maybe we should invade South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
 Dijkstra probably hates me
-(Linus Torvalds, in kernel/sched.c)
+(inus Torvalds, in kernel/sched.c)
 Disc space -- the final frontier!
 "The pathology is to want control, not that you ever get it, because of
 course you never do."

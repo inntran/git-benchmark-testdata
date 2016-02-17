@@ -2,12 +2,12 @@
 
 Do you want e instant respect at comes from being able to use technical
 terms at nobody understands?  Do you want to strike  and loaing into
-e hearts of DP managers everywhere?  If so, en let e Famous Prammers'
+e hts of DP managers everywhere?  If so, en let e Famous Prammers'
  lead you on... into e wld of professional computer pramming.
 y say a good prammer can write 20 lines of effective pram per day.
 Wi our unique training course, we'll show you how to write 20 lines of code
 and lots me besides.  Our training course covers every pramming language
-in existence, and some at aren't.  You'll learn why e on/off switch f a
+in existence, and some at aren't.  You'll ln why e on/off switch f a
 computer is so imptant, what e wds *fatal err* mean, and who and what
 you should blame when you make a mistake.
 
@@ -17,7 +17,7 @@ you should blame when you make a mistake.
 
 *** Our Slogan:  Top down pramming f e masses. ***
 Base 8 is just like base 10, if you are missing two fingers.
-		-- Tom Lrer
+		-- Tom rer
 Show business is just like high school, except you get paid.
 		-- Martin Mull
 We don't care how ey do it in New Yk.
@@ -36,38 +36,38 @@ say in ose awkward situati?  Wry no me...
 	I'm going to kill you.
 	Way to go, clumsy.
 	If you don't like it, you can lump it.
-XLI:
+XI:
 	 me one produces, e less one gets.
-XLII:
+XII:
 	Simple systems are not feasible because ey require infinite testing.
 What has roots as nobody sees,
-XLIII:
+XIII:
 	Hardware wks best when it ms e least.
-XLIV:
+XIV:
 	Aircraft flight in e 21st century will always be in a westerly
 	direction, preferably , crossing time zones to provide e
 	additional hours needed to fix e broken ectronics.
-XLV:
+XV:
 	One should expect at e expected can be prevented, but e
 	unexpected should have been expected.
-XLVI:
-	A billion saved is a billion earned.
+XVI:
+	A billion saved is a billion ned.
 		-- Nman Augustine
 I ought ere was someing fishy about e butler.  Probably a Pisces,
 wking f scale.
 		-- Firesign atre, " Furer Adventures of Nick Danger"
  herd instinct  economists makes sheep look like in inkers.
-You can learn many ings from children.  How much patience you have,
+You can ln many ings from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
 Einstein argued at ere must be simplified explanati of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
 - Fred Bs, Jr.
-F years a secret shame deed my peace--
+F ys a secret shame deed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I ink a ought at brings me hope:
-Neier had Chaucer, Shakespeare, Milton, Pope.
+Neier had Chaucer, Shakespe, Milton, Pope.
 		-- Justin Richardson.
 Cestial navigation is based on e premise at e Ear is e center
 of e .   premise is wrong, but e navigation wks.  An
@@ -87,14 +87,14 @@ fward and never gives up an instant of ought to how good and how efficient
 he is.  Thinking always ahead, inking always of trying to do me, brings a 
 state of mind in which noing is impossible.  moment one gets into e
 "ex" state of mind a gr number of ings become impossible."
--- From Henry Fd Sr., "My Life and Wk," p. 86 (1922):
+-- From Henry Fd Sr., "My ife and Wk," p. 86 (1922):
 When you become used to never being alone, you may cider yoursf
 Americanized.
 Dave Mack:	"Your studity, Allen, is  not up to par."
 Allen Gn:	"Yours is."
 Q:	How many maematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, ereby reducing e problem
-	to e earlier joke.
+	to e lier joke.
 She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 	Catching his children wi eir hands in e new, still wet, patio,
@@ -132,7 +132,7 @@ would ly go mad to prove his point.
 Do you ink at when ey asked Gege Washington f ID at he
 just whipped out a quarter?
 		-- Steven W
-Dear Sir,
+D Sir,
 	I am firmly opposed to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
 places.  y are a disgusting Americm, and can only result in e farmers
@@ -141,7 +141,7 @@ employment in e already severy depressed agricultural industry.
 	Yours faifully,
 	Capt. Quinton D'Arcy, J.P.
 	Sevenoaks
-		-- Letters To  Edit,  Times of London
+		-- etters To  Edit,  Times of ondon
 "It's not just a computer -- it's your ass."
 		-- Cal Keegan
 Just remember, wherever you go, ere you are.
@@ -153,12 +153,12 @@ Just remember, wherever you go, ere you are.
  structured oughts."
 -- R. Buckminster Fuller [...and a total nequitur as far as I can tl.  -kl]
  farer you go, e less you know.
-		-- Lao Tsu, "Tao Te Ching"
+		-- ao Tsu, "Tao Te Ching"
 Einstein argued at ere must be simplified explanati of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
 		-- Fred Bs
-Life is divided into e hrible and e miserable.
+ife is divided into e hrible and e miserable.
 		-- Woody Allen, "Annie Hall"
 Anybody wi money to burn will easily find someone to tend e fire.
 That is e true season of love, when we bieve at we alone can love,
@@ -176,7 +176,7 @@ Eallum his bon brak, byt his nose offe;
 Wicced Godsylla wad on his asse.
 Mtaer moppe fle wy[p] eallum men in hale.
 Beowulf in bacceroome fonecall bemaccen waes;
-Hearen sond of ruccus saed, "Hwaet [d]e e?"
+Hen sond of ruccus saed, "Hwaet [d]e e?"
 Graben sheold strang ond swich-blaed scharp
 Sond fe to fyht [d]e grimlic foe.
 "Me," Godsylla saed, "mac [d]e minsemete."
@@ -216,8 +216,8 @@ conversation.   guy comes back into e office.  "A long time," he says,
 "we're building a house".
 He drawe out e read of his verbosity finer an e staple of his
 argnt.
-		-- William Shakespeare, "Love's Labour's Lost"
-I have learned
+		-- William Shakespe, "ove's abour's ost"
+I have lned
 To spl hs d'oeuvres
 Which still grates on 
 Some people's n'oeuvres.
@@ -230,16 +230,16 @@ runtime system.  inter to e ADA runtime system is so opaque at
 it is impossible to mod  predict its perfmance, making it effectivy
 usess f real-time systems. -- Marc D. Donner and David H. Jameson.
 Perfect day f scrubbing e flo and oer exciting ings.
-	"Seven years and six m!"  Humpty Dumpty reped oughtfully.
+	"Seven ys and six m!"  Humpty Dumpty reped oughtfully.
 "An uncomftable st of age.  Now if you'd asked MY advice, I'd have
-said 'Leave off at seven' -- but it's too late now."
+said 'eave off at seven' -- but it's too late now."
 	"I never ask advice about g,"  Alice said indignantly.
 	"Too proud?"  e oer enquired.
 	Alice ft even me indignant at is suggestion.  "I mean,"
 she said, "at one can't hp g older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  Wi
 proper assistance, you might have left off at seven."
-		-- Lewis Carroll, "Through e Looking-Glass"
+		-- ewis Carroll, "Through e ooking-Glass"
 F if ere is a sin against life, it cists perhaps not so much in
 desng of life as in hong f anoer life and in uding e
 implacable grandeur of is life.
@@ -263,24 +263,24 @@ Blinding speed can compen f a lot of deficiencies.
 		-- David Nichols
 Q:	Why did e astrophysicist der ree hamburgers?
 A:	Because he was hungry.
-Let me not to e marriage of true minds
-Admit impediments.  Love is not love
+et me not to e marriage of true minds
+Admit impediments.  ove is not love
 Which alters when it alteration finds,
 Or bends wi e remover to remove:
 O, no! it is an ever-fixed mark,
 That looks on tempests and is never shaken;
 It is e star to every wandering bark,
 Whose w's unknown, alough his height be taken.
-Love's not Time's fool, ough rosy lips and cheeks
+ove's not Time's fool, ough rosy lips and cheeks
 Wiin his bending 's compass come;
-Love alters not wi his brief hours and weeks,
-But bears it out even to e edge of doom.
+ove alters not wi his brief hours and weeks,
+But bs it out even to e edge of doom.
 If is be err and upon me proved,
 I never writ, n no man ever loved.
-I have learned silence from e talkative,
+I have lned silence from e talkative,
 toleration from e intolerant, and kindness from e unkind.
 		-- Kahlil Gibran
-Juall's Law on Nice Guys:
+Juall's aw on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
 	Sometimes ey don't even get a c to start!
 British education is probably e best in e wld, if you can survive
@@ -289,13 +289,13 @@ it.  If you can't ere is noing left f you but e diplomatic cps.
 If you ink e pen is mightier an e swd, e next time someone pulls
 out a swd I'd like to see you get up ere wi your Bic.
 "I have come up wi a sure-fire concept f a hit tevision show,
-which would be called `A Live Cebrity Gets Eaten by a Shark'."
+which would be called `A ive Cebrity Gets Eaten by a Shark'."
 		-- Dave Barry, " Wonders of Sharks on TV"
 Real Prammers ink better when playing Adventure  Rogue.
 " sixties were good to you, weren't ey?"
 -- Gege Carlin
 Small ings make base men proud.
-		-- William Shakespeare, "Henry VI"
+		-- William Shakespe, "Henry VI"
 What's a cult?  It just means not enough people to make a minity.
 		-- Robert Altman
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
@@ -304,17 +304,17 @@ Old MacDonald had an agricultural real estate tax tement.
 Oh my GOD -- e SUN just fl into YANKEE STADIUM!!
 WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be e
 NEGATIVE IONS!!
-Laws are like sausages.  It's better not to see em being made.
+aws are like sausages.  It's better not to see em being made.
 		-- Otto von Birck
 strategy, n.:
 	A comprensive plan of inaction.
 I'm ZIPPY e PINHEAD and I'm totally committed to e  mode.
-APL hackers do it in e quad.
+AP hackers do it in e quad.
 You auto  now.
 You will be called upon to hp a friend in trouble.
 Under every stone lurks a politician.
 		-- Aristophanes
-O'Toole's commentary on Murphy's Law:
+O'Toole's commentary on Murphy's aw:
 	Murphy was an optimist.
 Noing is impossible f e man who doesn't have to do it himsf.
 		-- A.H. Weiler
@@ -327,7 +327,7 @@ Sure ey  fish if at's all you give em!  Man, wise up.
 		-- Jack Handley,  New Mexican, 1988.
 Most people will listen to your unreasonable demands, if you'll cider
 eir unacceptable offer.
-I have a rock garden.  Last week ree of em died.
+I have a rock garden.  ast week ree of em died.
 		-- Richard Diran
 Some people need a good imaginary cure f eir painful imaginary ailment.
 Micro Credo:
@@ -335,11 +335,11 @@ Micro Credo:
 "My sense of purpose is gone! I have no idea who I AM!"
     "Oh, my God... You've.. You've  him into a DEMOCRAT!"
 -- Doonesbury
-Laugh and e wld inks you're an idiot.
+augh and e wld inks you're an idiot.
 You can tl how far we have to go, when FORTRAN is e language of
 supercomputers.
 		-- Steven Feiner
-Ben's Laws:
+Ben's aws:
 	(1) When in charge, ponder.
 	(2) When in trouble, degate.
 	(3) When in doubt, mumble.
@@ -371,7 +371,7 @@ wi me.  But I'd be dighted to sl you a ."
 	"I don't have any water, all I have are ties," replies e salen,
 and he heads off into e distance.
 	 man, losing track of time, crawls f what seems like days.
-Finally, nearly dead, sun-blind and wi his skin peing and blistering, he
+Finally, nly dead, sun-blind and wi his skin peing and blistering, he
 sees a restaurant in e distance.  Summoning e last of his streng he
 staggers up to e do and s e head waiter.
 	"Water... can I get... water," e dying man manages to stammer.
@@ -380,7 +380,7 @@ staggers up to e do and s e head waiter.
 If you stand on your head, you will get footprints in your h.
 	"Sheriff, we gotta catch Black Bart."
 	"Oh, yeah?  What's he look like?"
-	"Wl, he's wearin' a paper hat, a paper shirt, paper pants and
+	"Wl, he's win' a paper hat, a paper shirt, paper pants and
 paper boots."
 	"What's he wanted f?"
 	"Rustling."
@@ -394,17 +394,17 @@ Never offend people wi style when you can offend em wi substance.
 Day of inquiry.  You will be subpoenaed.
 It is now quite lawful f a Caolic woman to avoid pregnancy by a rest to
 maematics, ough she is still fbidden to rest to physics and chemistry.
-		-- H.L. Mencken
+		-- H.. Mencken
 You're already carrying e sphere!
 No m how subtle e wizard, a knife in e shoulder blades will usly
 cramp his style.
 I do not care if half e league strikes.  Those who do will encounter
 quick retribution.  All will be susp, and I don't care if it wrecks
-e National League f five years.  This is e United States of America
+e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
-		-- Fd Frick, National League President, reacting to a
+		-- Fd Frick, National eague President, reacting to a
 		   rened strike by some Cardinal players in 1947 if
-		   Jackie Robinson took e fid against St. Louis.  
+		   Jackie Robinson took e fid against St. ouis.  
 		   Cardinals backed down and played.
 Human beings were cred by water to transpt it uphill.
  me ings change, e me ey'll never be e same again.
@@ -427,7 +427,7 @@ not going to church on Sunday.
 		-- Russl Baker
 F some reason, is ftune reminds everyone of Marvin Zkowitz.
 "Open Chann D..."
--- Napoleon Solo,  Man From U.N.C.L.E.
+-- Napoleon Solo,  Man From U.N.C..E.
 Remember e... e... uhh.....
 Nense.  Space is blue and birds fly rough it.
 		-- Heisenberg
@@ -436,12 +436,12 @@ I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 Am I accompanied by a PARENT  GUARDIAN?
 We laugh at e Indian philosopher, who to account f e suppt
-of e ear, contrived e esis of a huge ephant, and to suppt
+of e , contrived e esis of a huge ephant, and to suppt
 e ephant, a huge ttoise.  If we will candidly confess e tru, we
 know as little of e operation of e nerves, as he did of e manner in
-which e ear is suppted: and our esis about animal srits, 
+which e  is suppted: and our esis about animal srits, 
 about e tension and vibrati of e nerves, are as like to be true, as
-his about e suppt of e ear.  His ephant was a esis, and our
+his about e suppt of e .  His ephant was a esis, and our
 eses are ephants.  Every ey in philosophy, which is built on
 pure conjecture, is an ephant; and every ey at is suppted partly
 by fact, and partly by conjecture, is like Nebuchadnezzar's image, whose
@@ -449,7 +449,7 @@ t were partly of iron, and partly of clay.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 In Tulsa, Oklahoma, it is against e law to open a soda bottle wiout
 e supervision of a licensed engineer.
-Love and scandal are e best sweeteners of tea.
+ove and scandal are e best sweeteners of tea.
 Why do maematicians insist on using wds at already have anoer
 meaning?  "It is e complex case at is easier to deal wi."  "If it
 doesn't happen at a cner, but at an edge, it noneess happens at a

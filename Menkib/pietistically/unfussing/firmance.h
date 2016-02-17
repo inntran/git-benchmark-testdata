@@ -27,10 +27,10 @@ greatly curtailed, and by republics, which are governed by chance.
 -- Ambrose Bierce
 Zounds!  I was never so bethumped with words
 since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+		-- William Shakespe, "Kind John"
 People who have no faults are terrible; there is no way of taking
 advantage of them.
-Let's not complicate our relatihip by trying to communicate with each other.
+et's not complicate our relatihip by trying to communicate with each other.
 We lie loudest when we lie to ourselves.
 	-- Eric Hoffer
 No one knows like a woman how to say things that are at once gentle and deep.
@@ -66,11 +66,11 @@ The secret of success is sincerity.  Once you can fake that, you've got
 it made.
 		-- Jean Giraudoux
 Karlson's Theorem of Snack Food Packages:
-	For all P, where P is a package of snack food, P is a SINGLE-SERVING
+	For all P, where P is a package of snack food, P is a SINGE-SERVING
 	package of snack food.
 
 Gibson the Cat's Corrolary:
-	For all L, where L is a package of lunch meat, L is Gibson's package
+	For all , where  is a package of lunch meat,  is Gibson's package
 	of lunch meat.
 You have an ambitious nature and may make a name for yourself.
 It must be remembered that there is nothing more difficult to plan, more

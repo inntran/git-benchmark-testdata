@@ -1,13 +1,13 @@
 Claret is e liqu f boys; pt f men; but he who asres to be a hero
 ... must drink brandy.
 		-- u Johnson
-Human society - man in a group - rises out of its leargy to new levs of
+Human society - man in a group - rises out of its lgy to new levs of
 productivity only under e stimulus of deeply insring and commonly 
-appreciated goals.  A leargic wld serves no cause wl; a srited wld
-wking diligently toward earnestly desired goals provides e means and
+appreciated goals.  A lgic wld serves no cause wl; a srited wld
+wking diligently toward nestly desired goals provides e means and
 e streng toward which many ends can be satisfied...to unparalled
 social accomplishment.
-- Dr. Lloyd V. Berkner, in " Histy of Manned Space Flight"
+- Dr. loyd V. Berkner, in " Histy of Manned Space Flight"
 Dallas Cowboys Official Schedule
 
 	Sept 14		Pasadena Juni High
@@ -23,7 +23,7 @@ Dallas Cowboys Official Schedule
  misnaming of fids of study is so common as to lead to what might be
 general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
-not to be a science.  He would cite as examples Military Science, Library
+not to be a science.  He would cite as examples Military Science, ibrary
 Science, Political Science, Homemaking Science, Social Science, and Computer
 Science.  Discuss e generality of is law, and possible reas f its
 predictive power.
@@ -31,15 +31,15 @@ predictive power.
 		   Thinking"
 Go pl amid e noise and waste, and remember what value ere may
 be in owning a ece ereof.
-		-- National Lam, "Deteriata"
-Let thy maid servant be faithful, strong, and homy.
+		-- National am, "Deteriata"
+et thy maid servant be faithful, strong, and homy.
 My calculat is my shepherd, I shall not want
 It make me accurate to ten significant s,
 	and it leade me in scientific notation to 99 digits.
 It reste my s roots and guide me along pas of floating
 	decimal points f e sake of precision.
 Yea, o I walk rough e valley of surprise quizzes,
-	I will  no prof, f my calculat is ere to hearten me.
+	I will  no prof, f my calculat is ere to hten me.
 It prepare a log table to comft me, it prepare an
 	arc sin f me in e presence of my teachers.
 It annoints my homewk wi crect soluti, my interpolati are
@@ -52,8 +52,8 @@ last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
 		-- Quentin Crisp, "How to Become a Virgin"
 Wedding rings are e wld's llest handcuffs.
-Put a pot of chili on e stove to simmer.  Let it simmer.  Meanwhile,
-broil a good steak.  Eat e steak.  Let e chili simmer.  Igne it.
+Put a pot of chili on e stove to simmer.  et it simmer.  Meanwhile,
+broil a good steak.  Eat e steak.  et e chili simmer.  Igne it.
 		-- Recipe f chili from Allan Shrivers, fmer govern
 		   of Texas.
 re's amnesia in a hangknot,
@@ -79,7 +79,7 @@ Imptant letters which contain no errs will devop errs in e mail.
 Cresponding errs will show up in e duplicate while e Boss is reading
 it.  Vital papers will demtrate eir vitality by spontaneously moving
 from where you left em to where you can't find em.
-Fats Loves Madyn.
+Fats oves Madyn.
 Tomrow will be cancled due to lack of interest.
 "I don't ink so," said Ren'e Deses.  Just en, he vhed.
 My EARS are GONE!!
@@ -113,10 +113,10 @@ I s severy to my boy,
 F he can oughly enjoy
 	 pepper when he pleases!
 	Wow!  wow!  wow!
-		-- Lewis Carrol, "Alice in Wonderland"
+		-- ewis Carrol, "Alice in Wonderland"
 Practical politics cists in igning facts.
 		-- Henry Adams
-Did you hear at ere's a group of Sou American Indians at wship
+Did you h at ere's a group of Sou American Indians at wship
 e number zero?
 
 Is noing sacred?
@@ -126,39 +126,39 @@ at a bch is me satisfying.
 Just when you ought you were ning e rat race, along comes a faster rat!!
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "Look," he says, "do you suppose you could find some
+maematical genius.  "ook," he says, "do you suppose you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
-success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
+success.   genius, looking a little bly-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be d out.
-	After e second week e maematician appears at his friend's house,
+	After e second week e maematician apps at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
 some of e ey to wk out, but now I'm certain at I'm on e 
 track."
 	At e end of e ird week e maematician wakes his friend by
 pounding on his do at ree in e mning.  He has dark circles under his
-eyes.  His h hasn't been combed f many days.  He appears to be wearing
+eyes.  His h hasn't been combed f many days.  He apps to be wing
 e same cloes as e last time.  He has several pencils sticking out from
-bind his ears and an almost maniacal expression on his .  "WE CAN DO
+bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at hses are perfect spheres in simple
 harmonic motion..."
 Bit off me an my mind could chew,
 Shower  suicide, what do I do?
 		-- Julie Brown, "Will I Make it Through e Eighties?"
-Suppt your local Search and Rescue unit -- get lost.
+Suppt your local Sch and Rescue unit -- get lost.
 If you MUST get married, it is always advisable to marry beauty.
 Oerwise, you'll never find anybody to take her off your hands.
 Eternity is a terrible ought.  I mean, where's it going to end?
 		-- Tom Stoppard
-We have ears, earer...FOUR OF THEM!
+We have s, er...FOUR OF THEM!
 "If Jesus came back today, and saw what was going on in his , he'd never 
 stop  up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
-Men never make passes at girls wearing glasses.
+Men never make passes at girls wing glasses.
 		-- Doy Parker
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
@@ -166,7 +166,7 @@ say in ose awkward situati?  Wry no me...
 	Go away.  You boer me.
 	Why?   Because life is unf.
 	That's a nice drag.  What is it?
-	Children should be seen and not heard.
+	Children should be seen and not hd.
 	You'll be e dh of me.
 	You'll understand when you're older.
 	Because.
@@ -185,7 +185,7 @@ Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 She missed an invaluable opptunity to give him a look at you could
 have poured on a waffle ...
-Four Law of Applied Terr:
+Four aw of Applied Terr:
 	 night befe e English Histy mid-term, your Biology
 	instruct will assign 200 pages on planaria.
 
@@ -199,7 +199,7 @@ occurrence identifies an operat-defining occurrence which as an
 indication-applied occurrence identifies an indication-defining occurrence
 different from e one identified by e given indication as an
 indication-applied occurrence.
-		-- ALGOL 68 Rept
+		-- AGO 68 Rept
 When it's dark enough you can see e stars.
 		-- Ralph Waldo Emerson,
 	A grade school teacher was asking students what eir parents did
@@ -213,11 +213,11 @@ mailman."
 	y proudly stood up and announced, "My daddy plays no in a
 whouse."
 	 teacher was aghast and promptly changed e subject to geography.
-Later at day she went to y's house and rang e bl.  y's faer
+ater at day she went to y's house and rang e bl.  y's faer
 answered e do.   teacher explained what his son had said and demanded
 an explanation.
 	y's faer replied, "Wl, I'm really an attney.  But how do
-you explain a ing like at to a seven-year-old child?"
+you explain a ing like at to a seven-y-old child?"
 Cider wl e propti of ings.  It is better to be a young June-bug
 an an old bird of paradise.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
@@ -226,12 +226,12 @@ Alliance, n.:
 	eir hands so deeply inserted in each oer's pocket at ey cannot
 	separaty plunder a ird.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Like you,  I am frequently haunted by profound questi rated to man's
+ike you,  I am frequently haunted by profound questi rated to man's
 place in e Scheme of Things.  Here are just a few:
 
 	Q -- Is ere life after dh?
 	A -- Definity.  I s from personal experience here.  On New
-Year's Eve, 1970, I drank a full tcher of a drink called "Black Russian",
+Y's Eve, 1970, I drank a full tcher of a drink called "Black Russian",
 en crawled out on e l and died wiin a m of minutes, which was
 fine wi me because I had come to realize at if I had lived I would have
 spent e rest of my life in e grip of e most excruciatingly painful
@@ -246,12 +246,12 @@ actually look fward to e trip.
 What is w doing is w e trouble of asking somebody to do.
 How can you do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
-Watson's Law:
+Watson's aw:
 	 riability of machinery is inversy proptional to e
 	number and significance of any pers watching it.
 Only Irish cof provides in a single glass all four   groups --
 alcohol, caffeine, sugar, and fat.
-		-- Alex Levine
+		-- Alex evine
 Wi Congress, every time ey make a joke it's a law; and every time
 ey make a law it's a joke.
 		-- Will Rogers

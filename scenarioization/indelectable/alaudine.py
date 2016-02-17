@@ -34,7 +34,7 @@ It maketh me accurate to ten significant s,
 It restoreth my square roots and guideth me along paths of floating
 	decimal points for the sake of precision.
 Yea, tho I walk through the valley of surprise quizzes,
-	I will fear no prof, for my calculator is there to hearten me.
+	I will f no prof, for my calculator is there to hten me.
 It prepareth a log table to comfort me, it prepareth an
 	arc sin for me in the presence of my teachers.
 It annoints my homework with correct soluti, my interpolati are
@@ -45,8 +45,8 @@ Positive, adj.:
 	Mistaken at the top of one's voice.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 You are lost in the Swamps of Despair.
-Look DEEP into the OPENINGS!!  Do you see any ELVES or EDSELS ... or a
-HIGHBALL?? ...
+ook DEEP into the OPENINGS!!  Do you see any EVES or EDSES ... or a
+HIGHBA?? ...
 A man does not look behind the door unless he has stood there himsf.
 		-- Du Bois
 I bieve a little incompatibility is the spice of life, particularly if he
@@ -87,13 +87,13 @@ first against the wall when the revolution comes', with a footnote to effect
 that the editors would wcome applicati from anyone interested in taking
 over the post of robotics correspondent.
 	Curiously enough, an edition of the Encyclopaedia Galactica that
-had the good fortune to fall through a time warp from a thousand years in
+had the good fortune to fall through a time warp from a thousand ys in
 the future defined the marketing division of the Sirius Cybernetics
 Corporation as 'a bunch of mindless jerks who were the first against the
 wall when the revolution came'.
 		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
 One good turn usually gets most of the blanket.
-Like punning, pramming is a play on words.
+ike punning, pramming is a play on words.
 While most peoples' opini change, the conviction of their
 correctness never does.
 Fishbowl, n.:
@@ -115,14 +115,14 @@ Uh, that still ain't ...
 The astronomer Francesco Sizi, a contemporary of Galileo, argues that
 Jupiter can have no satlites:
 
-	There are seven windows in the head, two nostrils, two ears, two
+	There are seven windows in the head, two nostrils, two s, two
 eyes, and a mouth; so in the heavens there are two favorable stars, two
 unpropitious, two luminaries, and Mercury alone undecided and indifferent.
 From which and many other similar phenomena of nature such as the seven
 metals, etc., which it were tedious to enumerate, we gather that the number
 of planets is necessarily seven. [...]
 	Moreover, the satlites are invisible to the naked eye and
-therefore can have no influence on the earth and therefore would be usess
+therefore can have no influence on the th and therefore would be usess
 and therefore do not exist.
 You have junk mail.
 Anyone who goes to a psychiatrist ought to have his head examined.
@@ -135,14 +135,14 @@ millisecond?"
 "The Milliard Gargantubrain?" said Deep Thought with unconcealed contempt.
 "A mere abacus.  Mention it not."
 -- Hitchhiker's Guide to the Galaxy
-Nothing in life is to be feared.  It is only to be understood.
+Nothing in life is to be fed.  It is only to be understood.
 Marriage is based on the theory that when a man discovers a brand of beer
 exactly to his taste he should at once throw up his job and go to work
 in the brewery.
 		-- George Jean Nathan
 Please stand for the National Anthem:
 
-	Oh, say can you see by dawn's early light
+	Oh, say can you see by dawn's ly light
 	What so proudly we hailed at the twilight's last gleaming?
 	Whose broad stripes and b stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
@@ -154,12 +154,12 @@ Please stand for the National Anthem:
 Thank you.  You may resume your seat.
 Perilous to all of us are the devices of an art deeper than we oursves
 possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+		-- Gandalf the Grey [J.R.R. Tolkien, "ord of the Rings"]
 "I have not the slightest confidence in 'spiritual manifestati.'"
 -- Robert G. Ingersoll
 At about 2500 A.D., humankind discovers a computer problem that *must* be
-solved.  The only difficulty is that the problem is NP complete and will
-take thousands of years even with the latest optical biologic technology
+solved.  The only  is that the problem is NP complete and will
+take thousands of ys even with the latest optical biologic technology
 available.  The best computer scientists sit down to think up some solution.
 In great diy, one of the C.S. people tls her husband about it.  There
 is only one solution, he says.  Remember physics 103, Modern Physics, general
@@ -168,23 +168,23 @@ a computer problem?"
 	"Remember the twin paradox?"
 	After a few minutes, she says, "I could put the computer on a very
 fast machine and the computer would have just a few minutes to calculate but
-that is the exact opposite of what we want... Of course!  Leave the
-computer here, and accerate the earth!"
+that is the exact opposite of what we want... Of course!  eave the
+computer here, and accerate the th!"
 	The problem was so important that they did exactly that.  When
-the earth came back, they were presented with the answer:
+the th came back, they were presented with the answer:
 
 	IEH032 Error in JOB Control Card.
 ----==-- _                     / /  \
 ---==---(_)__  __ ____  __    / / /\ \
 --==---/ / _ \/ // /\ \/ /   / /_/\ \ \
 -=====/_/_//_/\_,_/ /_/\_\  /______\ \ \
-A proud member of TeamLinux \_________\/
+A proud member of Teaminux \_________\/
 (By CHaley (HAC), haley@unm.edu, ch008cth@pi.lanl.gov)
 You will receive a legacy which will place you above want.
 "OK, now let's look at four dimensi on the blackboard."
 		-- Dr. Joy
 Should I start with the time I SWITCHED personalities with a BEATNIK
-hair stylist or my failure to refer five TEENAGERS to a good OCULIST?
+hair stylist or my failure to refer five TEENAGERS to a good OCUIST?
 I have yet to see any problem, however complicated, which, when
 you looked at it in the  way, did not become still more complicated.
 		-- Poul Anderson
@@ -194,17 +194,17 @@ When one knows women one pities men, but when one studies men,
 one excuses women.
 		-- Horne Tooke
 Hey! now!  Come hoy now!  Whither do you wander?
-Up, down, near or far, here, there or yonder?
-Sharp-ears, Wise-nose, Swish-tail and Bumpkin,
-White-socks my little lad, and old Fatty Lumpkin!
+Up, down, n or far, here, there or yonder?
+Sharp-s, Wise-nose, Swish-tail and Bumpkin,
+White-socks my little lad, and old Fatty umpkin!
 		-- J. R. R. Tolkien
 Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovy entree, followed by
+A:	A crisp salad, a hty soup, a lovy entree, followed by
 	a dicious dessert.
-Those who sweat in flames of hl,	Leaden eared, some thought their bows
-Here's the reason that they fl:	Lispeth forth the sweetest vows.
-While on earth they prayed in SAS,	These they offered up in praise
-PL/1, or other crass,			Thinking all this fetid haze
+Those who sweat in flames of hl,	eaden ed, some thought their bows
+Here's the reason that they fl:	ispeth forth the sweetest vows.
+While on th they prayed in SAS,	These they offered up in praise
+P/1, or other crass,			Thinking all this fetid haze
 Vulgar .				A rapsody sung.
 
 Some the lord did sory try		Jabber of the mindless horde
@@ -216,25 +216,25 @@ The highest rung.			In his bung.
 Because in life they prayed so ill
 And offered god such swinish swill
 Now they sweat in flames of hl
-Sweat from lack of APL
+Sweat from lack of AP
 Sweat dung!
 Others will look to you for stability, so hide when you bite your nails.
 "Pok pok pok, P'kok!"
 -- Superchicken
 New crypt.  See /usr/news/crypt.
-Snow-white!  Snow-white!  O Lady clear!
+Snow-white!  Snow-white!  O ady cl!
 O Queen beyond the Western Sea!
-O Light to us that wander here
+O ight to us that wander here
 Amid the world of woven trees!
 
 	Gilthoni!  O Elbereth!
-	Clear are thy eyes and b thy breath!
+	Cl are thy eyes and b thy breath!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
 
-O stars that in the Sunless Year
+O stars that in the Sunless Y
 With shining hand by her were sown,
-In windy fids now b and clear
+In windy fids now b and cl
 We see you silver blossom blown!
 
 	O Elbereth!  Gilthoni!
@@ -252,7 +252,7 @@ yet we have not advanced one inch towards uniformity.
 what is known about the ubiquity of security vulnerabilities, it seems vastly
 too dangerous for university folks to run with their heads in the sand."
 -- Peter G. Neumann, RISKS moderator, about the Internet virus
-A man arrived home early to find his wife in the arms of his best friend,
+A man arrived home ly to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husband, the
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
 you get a divorce so I can marry her.  If you win, I promise never to see
@@ -284,13 +284,13 @@ to keep from tling her.
 Being owned by someone used to be called slavery -- now it's called commitment.
 You scratch my tape, and I'll scratch yours.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
-a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
+a ONG BACK BEARD and w a BASEBA HAT!! ...  Although I don't know WHY!!
 "Text processing has made it possible to -justify any idea, even
 one which cannot be justified on any other grounds."
 		-- J. Finnegan, USC.
-Let us, then, flow citizens, unite with one heart and one mind.  Let us
+et us, then, flow citizens, unite with one ht and one mind.  et us
 restore to social intercourse that harmony and affection without which
-liberty and even life  are but dreary things.  And let us reflect
+liberty and even life  are but dry things.  And let us reflect
 that having bhed from our land that rigious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
@@ -298,7 +298,7 @@ bloody persei.
 - Thomas Jefferson
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
-pilots very capable. The fleet of Learjets the carrier operates is immense.
+pilots very capable. The fleet of jets the carrier operates is immense.
 Your jet takes off without a hitch, pushing above the clouds, and at 20,000
 feet it explodes without warning.
 He's been like a father to me,
@@ -313,7 +313,7 @@ VII:
 	Decreased business base increases overhead.
 	So does increased business base.
 VIII:
-	The most unsuccessful four years in the education of a cost-estimator
+	The most unsuccessful four ys in the education of a cost-estimator
 	is fifth grade arithmetic.
 IX:
 	Acronyms and abbreviati should be used to the maximum extent
@@ -333,7 +333,7 @@ Vila: "I think I have just made the biggest mistake of my life."
 
 Orac: "It is unliky.  I would predict there are far greater mistakes
       waiting to be made by someone with your obvious talent for it."
-Lord, defend me from my friends; I can account for my enemies.
+ord, defend me from my friends; I can account for my enemies.
 		-- Charles D'Hericault
 In an age when the fashion is to be in love with yoursf, confessing to
 be in love with somebody se is an admission of unfaithfulness to one's
@@ -350,15 +350,15 @@ harmony in the world.
 	The Tao of Pramming flows far away and returns on the wind of
 morning.
 		-- Geoffrey James, "The Tao of Pramming"
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+For a light ht lives long.
+		-- Shakespe, "ove's abour's ost"
 A truth that's told with bad intent
 Beats all the lies you can invent.
 		-- William Blake
 Voodoo Pramming:  Things prammers do that they know shouldn't work but
 they try anyway, and which sometimes actually work, such as recompiling
 everything.
--- Karl Lehenbauer
+-- Karl ehenbauer
 Too clever is dumb.
 		-- Ogden Nash
 To err is human; to admit it, a blunder.
@@ -369,7 +369,7 @@ If  be the music of love, eat up, eat up.
 I love Mickey Mouse more than any woman I've ever known.
 		-- Walt Disney
 Wl, the handwriting is on the floor.
-		-- Joe E. Lewis
+		-- Joe E. ewis
 Q:	Why did the tachyon cross the road?
 A:	Because it was on the other side.
 "Go to Heaven for the climate, Hl for the company."
@@ -396,7 +396,7 @@ When you don't know what you are doing, do it neatly.
 QOTD:
 	The forest may be quiet, but that doesn't mean
 	the snakes have gone away.
-I'm RELIGIOUS!!  I love a man with a HAIRPIECE!!  Equip me with MISSILES!!
+I'm REIGIOUS!!  I love a man with a HAIRPIECE!!  Equip me with MISSIES!!
 Be circumspect in your liais with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
@@ -411,7 +411,7 @@ attorney.
 I'll defend to the death your  to say that, but I never said I'd
 listen to it!
 		-- Tom Galloway with apologies to Voltaire
-A Law of Computer Pramming:
+A aw of Computer Pramming:
 	Make it possible for prammers to write in English
 	and you will find that prammers cannot write in English.
 When you're dining out and you suspect something's wrong, you're probably .
@@ -419,9 +419,9 @@ All we know is the phenomenon: we spend our time sending messages to each
 other, talking and trying to listen at the same time, exchanging information.
 This seems to be our most urgent biological f; it is what we do with
 our lives."
-		-- Lewis Thomas, "The Lives of a Cl"
+		-- ewis Thomas, "The ives of a Cl"
 Proof techniques #2: Proof by Oddity.
-	SAMPLE: To prove that s have an infinite number of legs.
+	SAMPE: To prove that s have an infinite number of legs.
 (1) Horses have an even number of legs.
 (2) They have two legs in back and fore legs in front.
 (3) This makes a total of six legs, which  is an odd number of
@@ -437,11 +437,11 @@ Topics is be covered in future issues include proof by:
 	Blatant assertion
 	Changing all the 2's to _n's
 	Mutual cent
-	Lack of a counterexample, and
+	ack of a counterexample, and
 	"It stands to reason"
 Never put off till tomorrow what you can avoid all together.
 "If Diet Coke did not exist it would have been neccessary to invent it."
--- Karl Lehenbauer
+-- Karl ehenbauer
 The five rules of Socialism:
 	(1) Don't think.
 	(2) If you do think, don't s.
@@ -450,7 +450,7 @@ The five rules of Socialism:
 	(5) If you think, s, write and sign, don't be surprised.
 		-- being told in Poland, 1987
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
-priests are DATING CAREER DIPLOMATS!!
+priests are DATING CAREER DIPOMATS!!
 	A master was explaining the nature of Tao to one of his novices.
 "The Tao is embodied in all software -- regardless of how insignificant,"
 said the master.
@@ -470,7 +470,7 @@ machines can think, a question of which we now know that it is about
 as revant as the question of whether submarines can swim.
 		-- Dijkstra
 In the Halls of Justice the only justice is in the halls.
-		-- Lenny Bruce
+		-- enny Bruce
 Identify your visitor.
 Every man is apt to form his noti of things difficult to be apprehended,
 or less familiar, from their analogy to things which are more familiar.

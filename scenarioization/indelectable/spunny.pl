@@ -1,10 +1,10 @@
-	Idaho state law makes it illegal for a man to give his sweetheart
+	Idaho state law makes it illegal for a man to give his sweetht
 a box of candy weighing less than fifty pounds.
 A large spider in an old house built a beautiful web in which to catch flies.
 Every time a fly landed on the web and was entangled in it the spider devoured
 him, so that when another fly came along he would think the web was a safe and
 quiet place in which to rest.  One day a fairly intelligent fly buzzed around
-above the web so long without lighting that the spider appeared and said,
+above the web so long without lighting that the spider apped and said,
 "Come on down."  But the fly was too clever for him and said, "I never light
 where I don't see other flies and I don't see any other flies in your house."
 So he flew away until he came to a place where there were a great many other
@@ -16,34 +16,34 @@ to the flypaper with all the other flies.
 Moral:  There is no safety in numbers, or in anything else.
 		-- James Thurber, "The Fairly Intelligent Fly"
 An elephant is a mouse with an operating system.
-* * * * * THIS TERMINAL IS IN USE * * * * *
+* * * * * THIS TERMINA IS IN USE * * * * *
 The road to ruin is always in good repair, and the travellers pay the
 expense of it.
 		-- Josh Billings
-If you throw a New Year's Party, the worst thing that you can do would be
+If you throw a New Y's Party, the worst thing that you can do would be
 to throw the kind of party where your guests wake up today, and call you to
 say they had a nice time.  Now you'll be be expected to throw another party
-next year.
+next y.
 	What you should do is throw the kind of party where your guest wake
 up several days from now and call their lawyers to find out if they've been
 indicted for anything.  You want your guests to be so anxious to avoid a
 recurrence of your party that they immediately start planning parties of their
-own, a year in advance, just to prevent you from having another one ...
+own, a y in advance, just to prevent you from having another one ...
 	If your party is successful, the police will knock on your door,
-unless your party is very successful in which case they will lob tear gas
+unless your party is very successful in which case they will lob t gas
 through your living room window.  As host, your job is to make sure that
 they don't arrest anybody.  Or if they're dead set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
-	KOBOLDS topple when you strike them;
+	KOBODS topple when you strike them;
 	Don't feel bad, it's hard to like them.
 		-- The Roguelet's ABC
 Since we're all here, we must not be all there.
 		-- Bob "Mountain" Beck
 Thus spake the master programmer:
-	"Let the programmers be many and the managers few -- then all will
+	"et the programmers be many and the managers few -- then all will
 	be productive."
 		-- Geoffrey James, "The Tao of Programming"
 Depart not from the path which fate has assigned you.
@@ -58,7 +58,7 @@ Q.  What is your brother-in-law's name?
 A.  Borofkin.
 Q.  What's his first name?
 A.  I can't remember.
-Q.  He's been your brother-in-law for years, and you can't remember his first 
+Q.  He's been your brother-in-law for ys, and you can't remember his first 
     name?
 A.  No.  I tell you I'm too excited. (Rising from the witness chair and
     pointing to Mr. Borofkin.) Nathan, for God's sake, tell them your first
@@ -79,24 +79,24 @@ proverb is no proverb to you till your life has illustrated it.
 		-- John Keats
 The most costly of all follies is to believe passionately in the palpably
 not true.  It is the chief occupation of mankind.
-		-- H.L. Mencken
+		-- H.. Mencken
 Alexander Graham Bell is alive and well in New York, and still waiting
 for a dial tone.
 interlard - vt., to intersperse; diversify
--- Webster's New World Dictionary Of The American Language
+-- Webster's New World Dictionary Of The American anguage
 Don't tell me how hard you work.  Tell me how much you get done.
-		-- James J. Ling
+		-- James J. ing
 BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-
 Breast Feeding should not be attempted by fathers with hairy chests,
 since they can make the baby sneeze and give it wind.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
-Nobody knows what goes between his cold toes and his warm ears.
+Nobody knows what goes between his cold toes and his warm s.
 		-- Roy Harper
 The Czechs announced after Sputnik that they, too, would launch a satellite.
 Of course, it would orbit Sputnik, not Earth!
 A cultant is a person who borrows your watch, tells you what time it
 is, pockets the watch, and sends you a bill for it.
-Stop searching forever.  Happiness is unattainable.
+Stop sching forever.  Happiness is unattainable.
 Is there life before breakfast?
 "You should, without hesitation, pound your typewriter into a plowshare,
 your paper into fertilizer, and enter agriculture"
@@ -110,7 +110,7 @@ at last your eyes are closed and all the fools say, "Doesn't he look
 peaceful?" It is those pent-up, craving children who make all the wars
 and all the horrors and all the art and all the beauty and discovery in
 life, because they are trying to achieve what lay beyond their grasp
-before they were five years old.
+before they were five ys old.
 		-- Robertson Davies, "The Rebel Angels"
 Foolproof Operation:
 	No provision for adjustment.
@@ -118,9 +118,9 @@ And on the eighth day, we bulldozed it.
 Frobnicate, v.:
 	To manipulate or adjust, to tweak.  Derived from FROBNITZ. Usually
 abbreviated to FROB.  Thus one has the saying "to frob a frob." See TWEAK
-and TWIDDLE.  Usage: FROB, TWIDDLE, and TWEAK sometimes connote points along
-a continuum.  FROB connotes aimless manipulation; TWIDDLE connotes gross
-manipulation, often a coarse search for a proper setting; TWEAK connotes
+and TWIDDE.  Usage: FROB, TWIDDE, and TWEAK sometimes connote points along
+a continuum.  FROB connotes aimless manipulation; TWIDDE connotes gross
+manipulation, often a coarse sch for a proper setting; TWEAK connotes
 fine-tuning.  If someone is turning a knob on an oscilloscope, then if he's
 carefully adjusting it he is probably tweaking it; if he is just turning it
 but looking at the screen he is probably twiddling it; but if he's just
@@ -138,7 +138,7 @@ insurance lying down?  No way!  But at the current rate it won't be long
 before there are stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
 engineers then?  Are we, as the saying goes, giving away the store?
-		-- Robert W. Lucky, IEEE President
+		-- Robert W. ucky, IEEE President
 Take what you can use and let the rest go by.
 		-- Ken Kesey
 To understand a program you must become both the machine and the program.
@@ -156,7 +156,7 @@ It is your destiny.
 Being a mime means never having to say you're sorry.
 If I had to live my life again, I'd make the same mistakes, only sooner.
 		-- Tallulah Bankhead
-Love is in the offing.
+ove is in the offing.
 		-- The Homicidal Maniac
 I'm DESPONDENT ... I hope there's something DEEP-FRIED under this
 miniature DOMED STADIUM ...
@@ -189,7 +189,7 @@ For flaming youth.
 		-- Noel Coward
 The meta-Turing test counts a thing as intelligent if it seeks to
 devise and apply Turing tests to objects of its own creation.
-		-- Lew Mammel, Jr.
+		-- ew Mammel, Jr.
 Ill-chosen abstraction is particularly evident in the design of the ADA
 runtime system. The interface to the ADA runtime system is so opaque that
 it is impossible to model or predict its performance, making it effectively
@@ -234,7 +234,7 @@ And saw in wonder flowers of gold
 Upon her mantle and her sleeves,
 And her hair like shadow following.
 
-Enchantment healed his weary feet
+Enchantment healed his wy feet
 That over hills were doomed to roam;
 And forth he hastened, strong and fleet,
 And grasped at moonbeams glistening.
@@ -268,13 +268,13 @@ for a small spastic kid,		the official ones were green
 but I was a team member			Nobody ever said anything
 When the team got			to me about my blue jacket;
 their warm-up jackets			the guys were my friends
-I didn't get one			Yet it hurt me all year
-Only the regular team			to wear that blue jacket
+I didn't get one			Yet it hurt me all y
+Only the regular team			to w that blue jacket
 got these jackets, and			among all those green ones
-surely not a manager			Even now, forty years after,
+surely not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
-		-- Bart Lanier Safford III, "An Obscured Radiance"
+		-- Bart anier Safford III, "An Obscured Radiance"
 Error in operator: add beer
 Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
 his death.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
@@ -287,7 +287,7 @@ Just then, Karen Carpenter walks in, sits down at the drums, and says:
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
 The husband who doesn't tell his wife everything probably reas that
 what she doesn't know won't hurt him.
-		-- Leo J. Burke
+		-- eo J. Burke
 Every country has the government it deserves.
 		-- Joseph De Maistre
 Absinthe makes the tart grow fonder.
@@ -328,7 +328,7 @@ It is ridiculous to call this an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they 
 kill me.  You're talking about the American way of survival of the fittest.
 		-- Ray Kroc, founder of McDonald's
-But like the Good Book says... There's BIGGER DEALS to come!
+But like the Good Book says... There's BIGGER DEAS to come!
 Thank God a million billion times you live in Texas.
 Some people need a good imaginary cure for their painful imaginary ailment.
 Stellar rays prove fibbing never pays.  Embezzlement is another matter.
@@ -349,7 +349,7 @@ Half of being smart is knowing what you're dumb at.
 It looks like blind screaming hedonism won out.
 Nothing is impossible for the man who doesn't have to do it himself.
 		-- A.H. Weiler
-The meek shall inherit the earth; but by that time there won't be
+The meek shall inherit the th; but by that time there won't be
 anything left worth inheriting.
 We cannot do everything at once, but we can do something at once.
 		-- Calvin Coolidge
@@ -380,7 +380,7 @@ The Commandments of the EE:
 	embarrassing manner.
 (2)	Cause thou the switch that supplieth large quantities of juice to
 	be opened and thusly tagged, that thy days may be long in this
-	earthly vale of tears.
+	thly vale of ts.
 (3)	Prove to thyself that all circuits that radiateth, and upon
 	which the worketh, are grounded and thusly tagged lest they lift
 	thee to a radio frequency potential and causeth thee to make like
@@ -398,7 +398,7 @@ Oh, Maggie, I wish I'd never seen your face.
 
 You took me away from home,
 Just to save you from being alone;
-You stole my heart, and that's what really hurts.
+You stole my ht, and that's what really hurts.
 
 I suppose I could collect my books and get on back to school,
 Or steal my daddy's cue and make a living out of playing pool,
@@ -424,9 +424,9 @@ forms that have been tried from time to time.
 		-- Winston Churchill
 Marriage causes dating problems.
 May you have many beautiful and obedient daughters.
-Life sucks, but death doesn't put out at all.
+ife sucks, but death doesn't put out at all.
 		-- Thomas J. Kopp
-The public is an old woman.  Let her maunder and mumble.
+The public is an old woman.  et her maunder and mumble.
 		-- Thomas Carlyle
 Einstein argued that there must be simplified explanati of nature, because
 God is not capricious or arbitrary.  No such faith comforts the software
@@ -450,7 +450,7 @@ Rome was not built in one day.
 		-- John Heywood
 Bridge ahead.  Pay troll.
 Auribus teneo lupum.
-	[I hold a wolf by the ears.]
+	[I hold a wolf by the s.]
 	[Boy, it *sounds* good.  But what does it *mean*?]
 Sometimes when I get up in the morning, I feel very peculiar.  I feel
 like I've just got to bite a cat!  I feel like if I don't bite a cat
@@ -463,11 +463,11 @@ The story of the butterfly:
 	"I was in Bogota and waiting for a lady friend.  I was in love,
 a long time ago.  I waited three days.  I was hungry but could not go
 out for food, lest she come and I not be there to greet her.  Then, on
-the third day, I heard a knock."
+the third day, I hd a knock."
 	"I hurried along the old passage and there, in the sunlight,
 there was nothing."
 	"Just," Vance Joy said, "a butterfly, flying away."
-		-- Peter Carey, BLISS
+		-- Peter Carey, BISS
 Pascal is not a high-level language.
 		-- Steven Feiner
 Everything is possible.  Pass the word.
@@ -478,7 +478,7 @@ token it is the shortest detour to marriage.
 To err is humor.
 A man's house is his hassle.
 Semper Fi, dude.
-Let me do my TRIBUTE to FISHNET STOCKINGS ...
+et me do my TRIBUTE to FISHNET STOCKINGS ...
 "I got into an elevator at work and this man followed in after me... I
 pushed '1' and he just stood there... I said 'Hi, where you going?'  He
 said, 'Phoenix.'  So I pushed Phoenix.  A few seconds later the doors
@@ -492,27 +492,27 @@ It seems you have missed your last 17 payments, and the university you
 attended said that they received none of the $17,000 we loaned you... we
 would just like to know what happened to the money?'  I said, 'Mr. Jones,
 I'll give it to you straight.  I gave all of the money to my friend Slick,
-and with it he built a nuclear weapon... and I would appreciate it if you never
+and with it he built a nucl weapon... and I would appreciate it if you never
 called me again."
 		-- Steven Wright
-I think...  I think it's in my basement... Let me go upstairs and check.
+I think...  I think it's in my basement... et me go upstairs and check.
 		-- Escher
 Both models are identical in performance, functional operation, and
 interface circuit details.  The two models, however, are not compatible
 on the same communicati line connection.
 		-- Bell System Technical Reference
 I dread success.  To have succeeded is to have finished one's business on
-earth, like the male spider, who is killed by the female the moment he has
+th, like the male spider, who is killed by the female the moment he has
 succeeded in his courtship.  I like a state of continual becoming, with a
 goal in front and not behind.
 		-- George Bernard Shaw
 It's not the inital skirt length, it's the upcreep.
 You will have long and healthy life.
 In Riemann, Hilbert or in Banach space
-Let superscripts and subscripts go their ways.
+et superscripts and subscripts go their ways.
 Our asymptotes no longer out of phase,
 We shall encounter, counting, face to face.
-		-- Stanislaw Lem, "Cyberiad"
+		-- Stanislaw em, "Cyberiad"
 If you want your spouse to listen and pay strict attention to every
 word you say, talk in your sleep.
 That is the true season of love, when we believe that we alone can love,
@@ -522,7 +522,7 @@ in the same way as us.
 paak, n:	A stadium or inclosed playing field. To put or leave (a
 			a vehicle) for a time in a certain location.
 patato, n:	The starchy, edible tuber of a widely cultivated plant.
-Septemba, n:	The 9th month of the year.
+Septemba, n:	The 9th month of the y.
 shua, n:	Having no doubt; certain.
 sista, n:	A female having the same mother and father as the speaker.
 tamato, n:	A fleshy, smooth-skinned reddish fruit eaten in salads
@@ -531,7 +531,7 @@ troopa, n:	A state policeman.
 Wista, n:	A city in central Masschewsetts.
 yaad, n:	A tract of ground adjacent to a building.
 		-- Massachewsetts Unabridged Dictionary
-From the cradle to the coffin underwear comes first.
+From the cradle to the coffin underw comes first.
 		-- Bertolt Brecht
 Just because you like my stuff doesn't mean I owe you anything.
 		-- Bob Dylan

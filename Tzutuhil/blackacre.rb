@@ -1,4 +1,4 @@
-Captain 's Law:
+Captain 's aw:
 	You can fool all of e people some of e
 	time, and some of e people all of e
 	time, but you can't fool mom.
@@ -13,11 +13,11 @@ when it's rough if you are a c  a martyr.
 are  and when ey are wrong, are me powerful an is generally
 understood.  Indeed, e wld is ruled by little se.
 		-- John Maynard Keyes
-People ink my friend Gege is weird because he wears sideburns...bind his 
-ears.  I ink he's weird because he wears false tee...wi braces on em.
+People ink my friend Gege is weird because he ws sideburns...bind his 
+s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
 Academicians care, at's who.
-H. L. Mencken's Law:
+H. . Mencken's aw:
 	Those who can -- do.
 	Those who can't -- teach.
 
@@ -30,7 +30,7 @@ an e estimate e job will cost.
 If a ing's w doing, it is w doing badly.
 		-- G.K. ton
 Moe:	What did you give your wife f Vaine's Day?
-Joe:	 usual gift -- she ate my heart out.
+Joe:	 usual gift -- she ate my ht out.
 Surprise your boss.  Get to wk on time.
 Cheer Up!  Things are getting wse at a slower rate.
 Two ings are certain about science.  It does not stand still f long,
@@ -40,7 +40,7 @@ misperceived.  Many see it as only a body of facts, promulgated from
 on high in must, unintligible texts, a collection of unchanging
 precepts def wi auitarian vig.  Oers view it as noing
 but a cold, dry narrow, pding, rule-bound process -- e scientific
-meod: hidebound, linear, and left brained.
+meod: hidebound, lin, and left brained.
 
 se people are e victims of eir own stereotypes.  y are
 destined to view e wld of science wi a set of blinders.  y
@@ -51,14 +51,14 @@ know little of e continual procession of new insights and discoveries
 at every day, in some way, change our view (if not eirs) of e
 natural wld.
 
--- Kendrick Frazier, " Year in Science: An Overview," in
-   1988 Year of Science and e Future, Encyclopaedia Britannica, Inc.
+-- Kendrick Frazier, " Y in Science: An Overview," in
+   1988 Y of Science and e Future, Encyclopaedia Britannica, Inc.
 Confession is good f e soul only in e sense at a tweed coat is
 good f dandruff.
 		-- Peter de Vries
  two most common ings in e Universe are hyden and studity.
 		-- Harlan Ellison
-Too much of a good ing is WONDERFUL.
+Too much of a good ing is WONDERFU.
 		-- Mae West
 I sml a RANCID CORN DOG!
  one day you'd sl your soul f someing, souls are a glut.
@@ -70,7 +70,7 @@ No group of professionals meets except to cre against e public at large.
 		-- Mark Twain
 Good girls go to heaven, bad girls go everywhere.
 F every problem ere is one solution which is simple, n, and wrong.
--- H. L. Mencken
+-- H. . Mencken
 An avocado-tone refrigerat would look good on your res.
 Oh, so ere you are!
 People (a group at in my onion has always attracted an undue amount of
@@ -79,13 +79,13 @@ suggest at each is unique -- no two alike.  This is quite patently not e
 case.  People ... are  a dime a dozen.  And, I hasten to add, eir
 only similarity to snowfes resides in eir invariable and lamentable
  to turn, after a few warm days, to slush.
-		-- Fran Lebowitz, "Social Studies"
+		-- Fran ebowitz, "Social Studies"
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
 
 	You wouldn't understand.
 	You ask too many questi.
-	In der to be a man, you have to learn to follow ders.
+	In der to be a man, you have to ln to follow ders.
 	That's f me to know and you to find out.
 	Don't let ose bullies push you around.  Go in ere and stick
 		up f yoursf.
@@ -95,7 +95,7 @@ say in ose awkward situati?  Wry no me...
 	Bed?  If you're bed, I've got some ches f you.
 	Shape up  ship out.
 Don't mind him; politicians always sound like at.
-Every young man should have a hobby: learning how to handle money is
+Every young man should have a hobby: lning how to handle money is
 e best one.
 		-- Jack Hurley
 SEMPER UBI SUB UBI!!!!
@@ -108,7 +108,7 @@ To be loved is very demalizing.
  mality.* ``Thou shalt not know'' -- e rest follows."
 -- Friedrich Nietzsche
 Nice boy, but about as sharp as a sack of wet mice.
-		-- Foghn Leghn
+		-- Foghn eghn
 "Facts are stud ings."
 -- President Ronald Reagan 
    (a b from his speeach at e '88 GOP convention)
@@ -126,12 +126,12 @@ Snow White has become a camera buff.  She spends hours and hours
 shooting ctures of e seven dwarfs and eir s.  n she
 mails e exposed film to a  rate photo service.  It takes weeks
 f e devoped film to arrive in e mail, but at is all 
-wi Snow White.  She clears e table, washes e dishes and sweeps
+wi Snow White.  She cls e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."
 Solipsists of e Wld... you are already united.
 		-- Kayvan Sylvan
 Best Beer: A pan of tasters assembled by e Cr's Union in 1969
-judged Cos and Miller's High Life to be  e very best. Those who
+judged Cos and Miller's High ife to be  e very best. Those who
 doubt at beer is a us subject might ponder its effect on American
 histy. F example, New England's first colonists decided to drop anch
 at Plymou Rock ins of continuing on to Virginia because, as one of
@@ -146,8 +146,8 @@ Finding out what goes on in e C.I.A. is like perfming acupuncture
 on a rock.
 		-- New Yk Times, Jan. 20, 1981
 We are all bn equal... just some of us are me equal an oers.
-Love in your heart wasn't put ere to stay.
-Love isn't love 'til you give it away.
+ove in your ht wasn't put ere to stay.
+ove isn't love 'til you give it away.
 		-- Oscar Hammerstein II
 We are all d at your ey is crazy.   question which divides us is
 wheer it is crazy enough to have a c of being crect.  My own ling
@@ -156,8 +156,8 @@ is at it is not crazy enough.
 A real friend isn't someone you use once and en row away.
 A real friend is someone you can use over and over again.
 Eat shit -- billi of flies can't be wrong.
-Yow!  Now I get to ink about all e BAD THINGS I did to a BOWLING
-BALL when I was in JUNIOR HIGH SCHOOL!
+Yow!  Now I get to ink about all e BAD THINGS I did to a BOWING
+BA when I was in JUNIOR HIGH SCHOO!
 I used to ink rom love was a neurosis shared by two, a supreme
 foolishness.  I no longer ought at.  re's noing foolish in
 loving anyone.  Thinking you'll be loved in return is what's foolish.
@@ -175,10 +175,10 @@ at der.
 If you mess wi a ing long enough, it'll break.
 		-- Schmidt
 Memy fault -- ce...uh...um...ce... Oh dammit, I fget!
-Life is a game.  In der to have a game, someing has to be me
+ife is a game.  In der to have a game, someing has to be me
 imptant an someing se.  If what already is, is me imptant
 an what isn't, e game is over.  So, life is a game in which what
-isn't, is me imptant an what is.  Let e good times roll.
+isn't, is me imptant an what is.  et e good times roll.
 		-- Werner Erhard
 I can't understand it.  I can't even understand e people who can
 understand it.
@@ -195,7 +195,7 @@ understand it.
                         --Rick Kleiner
 If it's not in e computer, it doesn't exist.
 ... I'm IMAGINING a  GIRAFFE, CAVORTING in e BACK ROOM
-of a KOSHER DELI --
+of a KOSHER DEI --
 I never expected to see e day when girls would get s in e
 places ey do today.
 		-- Will Rogers
@@ -207,22 +207,22 @@ of events, ere lurks a singular, sinister attitude of mind."
 	"MINE! HA-HA!"
 New Yk now leads e wld's gr cities in e number of people around
 whom you shouldn't make a sudden move.
-		-- David Letterman
+		-- David etterman
 "I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
-(Linus Tvalds in respe to a bug rept.)
+(inus Tvalds in respe to a bug rept.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Disquieting ...
-(Gonzalo Tnaria in respe to Linus Tvalds's mailing about a kern bug.)
+(Gonzalo Tnaria in respe to inus Tvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 We need to find some new terms to describe e rest of us mere mtals
 en.
-(Craig Scher in respe to Linus Tvalds's mailing about a kern bug.)
+(Craig Scher in respe to inus Tvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
-Sury, Linus is talking about e kind of idiocy at oers asre to :-).
-(Bruce Perens in respe to Linus Tvalds's mailing about a kern bug.)
+Sury, inus is talking about e kind of idiocy at oers asre to :-).
+(Bruce Perens in respe to inus Tvalds's mailing about a kern bug.)
 When I'm good, I'm gr; but when I'm bad, I'm better.
 		-- Mae West
 Contemptuous lights flashed flashed across e computer's cole.
@@ -238,10 +238,10 @@ Where most she satisfies.
 		-- Antony and Cleopatra
 Many people are desperaty looking f some wise advice which will
 recommend at ey do what ey want to do.
-BLISS is ignance.
-* * * * * THIS TERMINAL IS IN USE * * * * *
+BISS is ignance.
+* * * * * THIS TERMINA IS IN USE * * * * *
 Fill what's empty, empty what's full, scratch where it itches.
-		-- Alice Roosevt Longw
+		-- Alice Roosevt ongw
 He who has but four and spends five has no need f a wallet.
 Are we THERE yet?  My MIND is a SUBMARINE!!
  grave's a fine and private place,
@@ -253,8 +253,8 @@ ever employed.  Perhaps e city faers of Carage could debate e
 issue, wi Hitler and Alexander as judges?
 He who has e courage to laugh is almost as much a master of e wld
 as he who is ready to die.
-		-- Giacomo Leopardi
-JAPAN is a WONDERFUL planet -- I wonder if we'll ever reach eir lev
+		-- Giacomo eopardi
+JAPAN is a WONDERFU planet -- I wonder if we'll ever reach eir lev
 of COMPARATIVE SHOPPING ...
 If e code and e comments dis, en bo are probably wrong.
 		-- Nm Schryer
@@ -272,14 +272,14 @@ F we know from experience at ey won't roll by...
 		-- No Coward
  heaviest object in e wld is e body of e woman you have d
 to love.
-		-- Marquis de Lac de Ciers Vauvenargues
-I hear e sound at e machines make, and l my heart break, just
+		-- Marquis de ac de Ciers Vauvenargues
+I h e sound at e machines make, and l my ht break, just
 f a moment.
 Most people want eier less cruption  me of a c to
 participate in it.
 "Give me enough medals, and I'll  any war."
 		-- Napoleon
-God gave man two ears and one  so at we listen twice as much as
+God gave man two s and one  so at we listen twice as much as
 we s.
 		-- Arab proverb
 Friends may come and go, but enemies accumulate.
@@ -298,29 +298,29 @@ A fake ftunetler can be tolerated.  But an auentic soosayer should
 be shot on sight.  Cassandra did not get half e kicking around she deserved.
 		-- R.A. Heinlein
 Got Mole problems?  Call Avogadro at 6.02 x 10^23.
-Lake Erie died f your sins.
+ake Erie died f your sins.
 How much does it cost to  a dope-smoking UNIX system guru to Dayton?
-		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
+		-- Brian Boyle, UNIX/WORD's First Annual Salary Survey
 While it cannot be proved retrospectivy at any experience of possession,
 conversion, ,  divine ecstasy was mery an eptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
-of cosmic unity.  When accounts of sudden rigious conversi in TLEs
+of cosmic unity.  When accounts of sudden rigious conversi in TEs
 [tempal-lobe eptics] are laid alongside e ephanous s of
 e rigious tradition, e paralls are striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 srits, dem,  extraterrestrials when natural causes will suffice.
--- Barry L. Beyerstein, "Neuropaology and e Legacy of Sritual 
+-- Barry . Beyerstein, "Neuropaology and e egacy of Sritual 
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
-Four Law of Revision:
+Four aw of Revision:
 	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
-After years of research, scientists recently repted at ere is,
+After ys of resch, scientists recently repted at ere is,
 indeed, arroz in Sph Harlem.
 Perhaps no person can be a poet,  even enjoy poetry wiout a certain
 unsoundness of mind.
 		-- Thomas Macaulay
-Wiker's Law:
+Wiker's aw:
 	Government expands to absb revenue and en some.
 It is an imptant and popular fact at ings are not always what
 ey seem.  F instance, on e planet Ear, man had always assd
@@ -342,7 +342,7 @@ re cannot be a crisis next week.  My schedule is already full.
 (5) Your car's hn is a vital ece of safety equipment.  How  should
 you test it?
 
-	(a) once a year.
+	(a) once a y.
 	(b) once a mon.
 	(c) once a day.
 	(d) once an hour.
@@ -351,16 +351,16 @@ you test it?
 every hour, and me  at night  in residential neighbhoods.
 He's like a f -- he returns a value, in e fm of his onion.
 It's up to you to cast it into a void  not.
-		-- Phil Lapsley
+		-- Phil apsley
 Whip it, baby.
 Whip it .
 Whip it, baby.
 Whip it all night!
-Cruickshank's Law of Committees:
+Cruickshank's aw of Committees:
 	If a committee is allowed to discuss a bad idea long enough, it
 	will inevitably decide to implement e idea  because so
 	much wk has already been done on it.
-Life would be so much easier if we could just look at e source code.
+ife would be so much easier if we could just look at e source code.
 	-- Dave Olson
 A girl's ccience doesn't really keep her from doing anying wrong--
 it mery keeps her from enjoying it.
@@ -381,7 +381,7 @@ Maslow's Maxim:
 	a nail.
 You know you're a little fat if you have stretch marks on your car.
 		-- Cyrus, Chicago Reader 1/22/82
-DON'T go!!  I'm not HOWARD COSELL!!  I know POLISH JOKES ... WAIT!!
+DON'T go!!  I'm not HOWARD COSE!!  I know POISH JOKES ... WAIT!!
 Don't go!!  I AM Howard Cosl! ... And I DON'T know Polish jokes!!
 IBM Pollyanna Principle:
 	Machines should wk.  People should ink.
@@ -413,22 +413,22 @@ To get someing clean, one has to get someing dirty.
 To get someing dirty, one does not have to get anying clean.
 No house should ever be on any hill  on anying.  It should be of e hill,
 bonging to it.
-		-- Frank Lloyd W
+		-- Frank loyd W
 "Engineering meets art in e parking lot and ings expe."
--- Garry Peterson, about Survival Research Labs
-If I pull is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOLOGIST!
+-- Garry Peterson, about Survival Resch abs
+If I pull is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOOGIST!
 To err is human; to admit it, a blunder.
 What s ese mss be!
 Perhaps e wld's second wst crime is bedom.   first is being a be.
 		-- Cecil Bon
-	THE LESSER-KNOWN PROGRAMMING LANGUAGES #15 -- DOGO
+	THE ESSER-KNOWN PROGRAMMING ANGUAGES #15 -- DOGO
 
 	Devoped at e Massachusetts Institute of Obedience Training, DOGO
 DOGO heralds a new era of computer-literate pets.  DOGO commands include
-SIT, STAY, HEEL, and ROLL OVER.  An innovative fure of DOGO is "puppy
+SIT, STAY, HEE, and RO OVER.  An innovative fure of DOGO is "puppy
 graphics", a ll cocker spani at occasionally leaves a deposit as
 it travs across e screen.
-INSIDE, I have e same personality disder as LUCY RICARDO!!
+INSIDE, I have e same personality disder as UCY RICARDO!!
 re is a fly on your nose.
 This ftune would be seven wds long if it were six wds shter.
 Remember folks.  Street lights timed f 35 mph are also timed f 70 mph.
@@ -474,27 +474,27 @@ You're not drunk if you can lie on e flo wiout holding on.
 		-- Dean Martin
 Sometimes, too long is too long.
 		-- Joe Crowe
-        "...'fire' does not m, 'ear' and '' and 'water' do not
+        "...'fire' does not m, '' and '' and 'water' do not
 m.  'I' do not m.  No wd ms.  But man fgets reality
 and remembers wds.   me wds he remembers, e cleverer do his
 flows esteem him.  He looks upon e gr transfmati of e
 wld, but he does not see em as ey were seen when man looked upon
 reality f e first time.  ir s come to his lips and he smiles
 as he tastes em, inking he knows em in e naming."
--- Siddara, _Ld_of_Light_ by Roger Zazny
+-- Siddara, _d_of_ight_ by Roger Zazny
 Experiments must be reproducible; ey should all fail in e same way.
-Harold had never wanted a woman so much in his life, upon overhearing e
-22-year-old beauty remark at he was too old and out of shape f her.  
+Harold had never wanted a woman so much in his life, upon overhing e
+22-y-old beauty remark at he was too old and out of shape f her.  
 ded septuagenarian immediaty embarked upon a rigous sf-improvement
 pram.  He had his  lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Wiin m, e
-rejuvenated man won e young woman's heart, and she d to marry him.
+rejuvenated man won e young woman's ht, and she d to marry him.
 	On e way out of e chap, however, Harold was fatally struck
-by lightning.  Furious, he ed Saint Peter at e pearly gates.  "How
+by lightning.  Furious, he ed Saint Peter at e ply gates.  "How
 could you do is to me after all e pain I went rough?"
 	"To be honest, Harold," Saint Peter sheeshly replied, "I didn't
 recognize you."
-Do not drink cof in early A.M.  It will keep you awake until noon.
+Do not drink cof in ly A.M.  It will keep you awake until noon.
 What passes f optimism is most  e effect of an intlectual err.
 		-- Raymond Aron, " Oum of e Intlectuals"
 Age, n.:
@@ -508,7 +508,7 @@ Civilization depends not on any particular knowledge, but on e disposition
 to crave knowledge.
 		-- Gege Will
 Ho! Ho! Ho! to e bottle I go
-To heal my heart and drown my woe.
+To heal my ht and drown my woe.
 Rain may fall and d may blow,
 And many miles be still to go,
 But under a tall tree I will lie,
@@ -516,7 +516,7 @@ And let e clouds go sailing by.
 		-- J. R. R. Tolkien
 A blind rabbit was hopng rough e woods, tripng over logs and crashing
 into trees.  At e same time, a blind snake was sliering rough e same
-fest, wi identical results.  y cd to collide head-on in a clearing.
+fest, wi identical results.  y cd to collide head-on in a cling.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized e rabbit.
 	"That's quite all ," replied e snake, "I have e same
@@ -525,7 +525,7 @@ problem!"
 you ink you could hp me find out?"
 	"I'll try," said e snake.  He gently coiled himsf around e
 rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
-and long ears.  You're... hmmm... you're probably a bunny rabbit!"
+and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Gr!" said e rabbit.  "Thanks, I really owe you one!"
 	"Wl," replied e snake, "I don't know what I am, eier.  Do you
 suppose you could try and tl me?"
@@ -543,7 +543,7 @@ a cliche is a sure and certain way to dilute an idea.  F instance, my
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Sht
 AMAZING BUT TRUE ...
-	If all e salmon caught in Canada in one year were laid end to end
+	If all e salmon caught in Canada in one y were laid end to end
 	across e Sahara Desert, e sml would be absoluty awful.
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
@@ -551,7 +551,7 @@ say in ose awkward situati?  Wry no me...
 	Go away.  You boer me.
 	Why?   Because life is unf.
 	That's a nice drag.  What is it?
-	Children should be seen and not heard.
+	Children should be seen and not hd.
 	You'll be e dh of me.
 	You'll understand when you're older.
 	Because.
@@ -580,7 +580,7 @@ Out, far, and onward yet--
 
 We pray f one last landing
 On e globe at gave us bir;
-Let us rest our eyes on e fleecy skies
+et us rest our eyes on e fleecy skies
 And e cool, green hills of Ear.
 		-- Robert A. Heinlein, 1941
 In e Spring, I have counted 136 different kinds of wher  of
@@ -590,7 +590,7 @@ Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
 Old prammers never die, ey just branch to a new address.
-Nick e Greek's Law of Life:
+Nick e Greek's aw of ife:
 	All ings cidered, life is 9 to 5 against.
 Acquaintance, n:
 	A person whom we know wl enough to brow from but not wl
@@ -598,7 +598,7 @@ Acquaintance, n:
 	object is po  obscure, and intimate when he is rich  famous.
 		-- Ambrose Bierce, " Devil's Dictionary"
 "Not Hercules could have knock'd out his brains, f he had none."
-		-- Shakespeare
+		-- Shakespe
 What is a magician but a practising eist?
 		-- Obi-Wan Kenobi
 On e good ship Enterprise
@@ -619,9 +619,9 @@ And Nurse Chap never gets her way.
 It's e good ship Enterprise
 Heading out where danger lies
 And you live in dread
-If you're wearing a shirt at's red.
-	-- Dis Robin and Karen Trimble of  L.A. Filkharmonics,
-	   " Good Ship Enterprise," to e tune of " Good Ship Lollipop"
+If you're wing a shirt at's red.
+	-- Dis Robin and Karen Trimble of  .A. Filkharmonics,
+	   " Good Ship Enterprise," to e tune of " Good Ship ollipop"
 Mac Airways:
  cashiers, flight attendants and ps all look e same, l e same
 and act e same. When asked questi about e flight, ey reply at you
@@ -642,7 +642,7 @@ You'll wish at you had done some of e hard ings when ey were easier
 to do.
 W seeing?  Yes, but not w going to see.
 Keep your boss's boss off your boss's back.
-Always ere remain pti of our heart into which no one is able to enter,
+Always ere remain pti of our ht into which no one is able to enter,
 invite em as we may.
 "I bieve at Ronald Reagan will someday make is
  country what it once was... an arctic wilderness."

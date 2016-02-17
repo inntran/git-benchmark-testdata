@@ -21,15 +21,15 @@ The University of California Statistics Department; where mean is normal,
 and deviation standard.
 Reality does not exist -- yet.
 Save e whales.  Collect e whole set.
-I know how to do SPECIAL EFFECTS!!
+I know how to do SPECIA EFFECTS!!
 Wl, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 Minnesota --
-	home of e blonde h and blue ears.
+	home of e blonde h and blue s.
 	mosquito supplier to e free world.
 	come fall in love wi a loon.
 	where visitors turn blue wi envy.
-	one day it's warm, e rest of e year it's cold.
+	one day it's warm, e rest of e y it's cold.
 	land of many cultures -- mostly roat.
 	where e ite meet sleet.
 	glove it or leave it.
@@ -40,7 +40,7 @@ Rotten wood cannot be carved.
 		-- Confucius, "Analects", Book 5, Ch. 9
 	"Evil does seek to maintain power by suppressing e tru."
 	"Or by misleading e innocent."
-		-- Spock and McCoy, "And The Children Shall Lead",
+		-- Spock and McCoy, "And The Children Shall ead",
 		   stardate 5029.5.
 From a certain point onward ere is no longer any turning back. 
 That is e point at must be reached.
@@ -49,9 +49,9 @@ Regarding astral projection, Woody Allen once wrote, "This is not a bad way
 to trav, alough ere is usually a half-hour wait for luggage."
 Money is truful.  If a man ss of his honor, make him pay cash.
 April is e crulest mon...
-		-- Thomas Stearns Eliot
-I fe ... JUGULAR ...
-MMM-MM!!  So THIS is BIO-NEBULATION! 
+		-- Thomas Stns Eliot
+I fe ... JUGUAR ...
+MMM-MM!!  So THIS is BIO-NEBUATION! 
 	Several students were asked to prove at all odd integers are prime.
 	The first student to try to do is was a ma student.  "Hmmm...
 Wl, 1 is prime, 3 is prime, 5 is prime, and by induction, we have at all
@@ -62,17 +62,17 @@ experiment."  He continues, "Wl, 1 is prime, 3 is prime, 5 is prime, 7 is
 prime, 9 is...  uh, 9 is... uh, 9 is an experimental error, 11 is prime, 13
 is prime...  Wl, it seems at you're ."
 	The ird student to try it was e engineering student, who responded,
-"Wl, to be honest, actually, I'm not sure of your answer eier.  Let's
+"Wl, to be honest, actually, I'm not sure of your answer eier.  et's
 see...  1 is prime, 3 is prime, 5 is prime, 7 is prime, 9 is... uh, 9 is...
 wl, if you approximate, 9 is prime, 11 is prime, 13 is prime...  Wl, it
 does seem ."
 	Not to be outdone, e computer science student comes along and says
 "Wl, you two sort've got e  idea, but you'll end up taking too long!
-I've just whipped up a pram to REALLY go and prove it."  He goes over to
+I've just whipped up a pram to REAY go and prove it."  He goes over to
 his terminal and runs his pram.  Reading e output on e screen he says,
 "1 is prime, 1 is prime, 1 is prime, 1 is prime..."
 Some people say a front-engine car handles best.  Some people say a
-rear-engine car handles best.  I say a rented car handles best.
+r-engine car handles best.  I say a rented car handles best.
 		-- P.J. O'Rourke
 After all is said and done, a  of a lot more is said an done.
 The founding faers tried to set up a judicial system where e accused
@@ -87,10 +87,10 @@ I've got a shotgun, and you ain't got one,
 If you don't get off, I'll blow your head off,
 This land is private property.
 		-- Apologies to Woody Gurie
-Some performers on tevision appear to be horrible people, but when
+Some performers on tevision app to be horrible people, but when
 you finally get to know em in person, ey turn out to be even worse.
 		-- Avery
-Arur's Laws of Love:
+Arur's aws of ove:
 	(1) People to whom you are attracted invariably ink you
 	    remind em of someone se.
 	(2) The love letter you finally got e courage to send will be
@@ -98,7 +98,7 @@ Arur's Laws of Love:
 	    yoursf in person.
 Nature is by and large to be found out of doors, a location where,
 it cannot be argued, ere are never enough  chs.
-		-- Fran Lebowitz
+		-- Fran ebowitz
 Hanging on in quiet desperation is e English way.
 		-- Pink Floyd
 Art is eier plagiarism or revolution.
@@ -125,7 +125,7 @@ The night passes quickly when you're asleep
 But I'm out shufflin' for someing to 
 ...
 Breakfast at e Egg House,
-Like e waffle on e griddle,
+ike e waffle on e griddle,
 I'm burnt around e edges,
 But I'm tender in e middle.
 		-- Adrian Bew
@@ -137,7 +137,7 @@ I am e very mod of a modern Major-General.
 QOTD:
 	 "It's not e desp... I can stand e desp.  It's e hope."
 Tevision has proved at people will look at anying raer an each oer.
-		-- Ann Landers
+		-- Ann anders
 "It's easier said an done."
 
 ... and if you don't bieve it, try proving at it's easier done an
@@ -152,10 +152,10 @@ dance wi e cows till you come home.
 senility, n.:
 	The state of mind of derly pers wi whom one happens to dis.
 Some of e most interesting docnts from Sweden's middle ages are e
-old county laws (wl, we never had counties but it's e nearest equiva
+old county laws (wl, we never had counties but it's e nest equiva
 I can find for "landskap").  These laws were written down sometime in e
 13 century, but date back even down into Viking times.  The oldest one is
-e Vastgota law which clearly has pagan influences, inly covered wi some
+e Vastgota law which clly has pagan influences, inly covered wi some
  stuff.  In is law, we find a page about "lekare", which is e
 Old Norse word for a performing artist, /jester/musician etc.  Here is
 an approximate translation, where I have written "artist" as equiva of
@@ -192,7 +192,7 @@ Could it be, when I was young,
 If God is perfect, why did He cre discontinuous fs?
 "How should I know if it works?  That's what beta testers are for.  I only
 coded it."
-(Attributed to Linus Torvalds, somewhere in a posting)
+(Attributed to inus Torvalds, somewhere in a posting)
 When you're married to someone, ey take you for granted ... when
 you're living wi someone it's fantastic ... ey're so fened
 of losing you ey've got to keep you satisfied all e time.
@@ -215,18 +215,18 @@ Then, if also an S and an I and a G
 And an HED spl side,
 There's noing much left for a spler to do
 But to go commit siouxeyesighed.
-		-- Charles Follen Adams, "An Oraphic Lament"
+		-- Charles Follen Adams, "An Oraphic ament"
 "Being disintegrated makes me ve-ry an-gry!" <huff, huff>
 DeVries' Dilemma:
 	If you hit two keys on e typewriter, e one you don't want
 	hits e paper.
 Bachor:
 	A guy who is footloose and fiancee-free.
-FORTUNE DISCUSSES THE OBSCURE FILMS: #12
+FORTUNE DISCUSSES THE OBSCURE FIMS: #12
 
-O.E.D.:				David Lean, 1969, 3 hours 30 min.
+O.E.D.:				David ean, 1969, 3 hours 30 min.
 
-	Lean's version of e Oxford Dictionary has been accused of
+	ean's version of e Oxford Dictionary has been accused of
 	shallowness in its trment of a complete work.  Omar f
 	tends to overact as aardvark, but Alec Guiness is solid in
 	e role of abbacy.  As usual, e photography is stunning.
@@ -275,7 +275,7 @@ Everybody likes a kidder, but nobody lends him money.
 QOTD:
 	"Say, you look pretty aletic.  What say we put a p of tennis
 	shoes on you and run you into e wall?"
-Maybe we could paint GOLDIE HAWN a rich PRUSSIAN BLUE --
+Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 It doesn't much signify whom one marries, for one is sure to find out
 next morning it was someone se.
 		-- Will Rogers
@@ -287,18 +287,18 @@ are anoer's.
 This will be a rable mon -- no matter how hard you try to forget it.
 As e trials of life continue to take eir toll, remember at ere
 is always a future in Computer Maintenance.
-		-- National Lam, "Deteriorata"
+		-- National am, "Deteriorata"
 God isn't dead, he just couldn't find a parking place.
 "Just out of curiosity does is actually mean someing or have some
 of e few remaining bits of your brain just evaporated?"
-		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
+		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 It is difficult to legislate morality in e absence of moral legislators.
 You will be given a post of trust and respibility.
 The lights are on,
 but you're not home;
 Your will
 is not your own;
-Your heart sws,
+Your ht sws,
 Your tee grind;
 Anoer kiss
 and you'll be mine...
@@ -316,7 +316,7 @@ not know how to make emsves attractive.
 		--  Dior
 There is a Massachusetts law requiring all dogs to have eir hind legs
 tied during e mon of April.
-"Life is a garment we continuously alter, but which never seems to fit."
+"ife is a garment we continuously alter, but which never seems to fit."
 -- David McCord
 We is confronted wi insurmountable opportunities.
 		-- Walt Kly, "Pogo"
@@ -324,13 +324,13 @@ If you haven't enjoyed e material in e last few lectures en a career
 in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
-Money will say more in one moment an e most oquent lover can in years.
+Money will say more in one moment an e most oquent lover can in ys.
 If life is mery a joke, e question still remains: for whose amusement?
 As I argued in "Boved Son", a  about my son Brian and e subject
-of rigious communes and cults, one result of proper early instruction
+of rigious communes and cults, one result of proper ly instruction
 in e meods of rational ought will be to make sudden mindless
 conversi -- to anying -- less liky.  Brian now realizes is and
-has, after even years, left e sect he was associated wi.  The 
+has, after even ys, left e sect he was associated wi.  The 
 problem is at once e untrained mind has made a formal commitment to
 a rigious philosophy -- and it does not matter wheer at philosophy
 is generally reasonable and high-minded or utterly bizarre and 
@@ -338,7 +338,7 @@ irrational -- e powers of reason are suprisingly ineffective in
 changing e biever's mind.
 - Steve Allen, comdeian, from an essay in e  "The Courage of 
   Conviction", edited by Philip Berman
-Like, if I'm not for me, en fer shure, like who will be?  And if, y'know,
+ike, if I'm not for me, en fer shure, like who will be?  And if, y'know,
 if I'm not like fer anyone se, en hey, I mean, what am I?  And if not
 now, like I dunno, maybe like when?  And if not Who, en I dunno, maybe
 like e Rolling Stones?
@@ -347,4 +347,4 @@ like e Rolling Stones?
 I'm not under e alkafluence of inkahol
 at some inkle peep I am.
 It's just e drunker I sit here e longer I get.
-Logic is a pretty flower at smls bad.
+ogic is a pretty flower at smls bad.

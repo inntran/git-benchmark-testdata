@@ -2,7 +2,7 @@ Yow!
 We rary find anyone who can say he has lived a happy life, and who,
 content wi his life, can retire from e wld like a satisfied guest.
 		-- Quintus Hatius Flaccus (Hace)
-Ftune's Real-Life Courtroom Quote #3:
+Ftune's Real-ife Courtroom Quote #3:
 
 Q:  When he went, had you gone and had she, if she wanted to and were
     able, f e time being excluding all e restraints on her not to
@@ -20,11 +20,11 @@ secure ecological .
 		-- Beau Sheil, "Power Tools f Prammers"
   is an island, sur by whatever it is at surrounds
 s.
-DYSLEXICS OF THE WORLD, UNTIE!
+DYSEXICS OF THE WORD, UNTIE!
 By wking faifully eight hours a day, you may eventually get to be
 boss and wk twve.
 		-- Robert Frost
- heart is wiser an e intlect.
+ ht is wiser an e intlect.
 Disclose classified infmation only when a NEED TO KNOW exists.
 You s of courage.  Obviously you do not know e difference between
 courage and foolhardiness.  Always it is e brave ones who die, e soldiers.
@@ -32,10 +32,10 @@ courage and foolhardiness.  Always it is e brave ones who die, e soldiers.
 		   stardate 3201.7
 Too clever is dumb.
 		-- Ogden Nash
-He inks e Gettysburg Address is where Lincoln lived.
+He inks e Gettysburg Address is where incoln lived.
 		-- Wanda, "A Fish Called Wanda"
 y will only cause e lower classes to move about needlessly.
-		--  Duke of Wlington, on early steam railroads.
+		--  Duke of Wlington, on ly steam railroads.
 Ftune and love befriend e bold.
 		-- Ovid
 Rudd's Discovery:
@@ -48,7 +48,7 @@ woman.  Wl, I found her -- but alas, she was waiting f e ideal man.
 		-- Robert Schuman
 Have at you!
 Government lies, and newspapers lie, but in a democracy ey are different lies.
-We do not colonize.  We conquer.  We rule.  re is no oer way f us.
+We do not colonize.  We .  We rule.  re is no oer way f us.
 		-- Rojan, "By Any Oer Name", stardate 4657.5
 Boston State House is e  of e Solar System.  You couldn't pry at out
 of a Boston man if you had e tire of all crion straightened out f a
@@ -62,7 +62,7 @@ Say I am too  sad --
 Say I'm neier brave n young,
 	Say I woo and coddle care,
 Say e devil touched my  --
-	Still you have my heart to wear.
+	Still you have my ht to w.
 
 But say my verses do not scan,
 	And I get me anoer man!
@@ -79,13 +79,13 @@ Friends, n.:
 	People who know you wl, but like you anyway.
 It has long been known at one hse can run faster an anoer --
 but which one?  Differences are crucial.
-		-- Lazarus Long
+		-- azarus ong
 IOT trap -- ce dumped
-Early to rise, early to bed, makes a man healy, wealy and dead.
-		-- Terry Pratchett, " Light Fantastic"
-Unix:  Some say e learning curve is steep, but you only have to climb it once.
--- Karl Lenbauer
-y're only trying to make me LOOK paranoid!
+Early to rise, ly to bed, makes a man healy, wealy and dead.
+		-- Terry Pratchett, " ight Fantastic"
+Unix:  Some say e lning curve is steep, but you only have to climb it once.
+-- Karl enbauer
+y're only trying to make me OOK paranoid!
 If people are good only because ey  punishment, and hope f reward,
 en we are a sry lot indeed.
 		-- Albert Einstein
@@ -93,20 +93,20 @@ If you can survive dh, you can probably survive anying.
 (German philosopher) Geg Wilhm Heg, on his dhbed, complained,
 "Only one man ever understood me."  He fl si f a while and en added,
 "And he didn't understand me."
-Life is a hostal in which every patient is possessed by e desire to
+ife is a hostal in which every patient is possessed by e desire to
 change his bed.
 		-- Charles Baude
 Never reveal your best argnt.
-Save a little money each mon and at e end of e year you'll be
+Save a little money each mon and at e end of e y you'll be
 surprised at how little you have.
 		-- Ernest Haskins
 Noise proves noing.  Often a hen who has mery laid an egg cackles
-Words are the voice of the heart.
+Words are the voice of the ht.
 as if she laid an asteroid.
 		-- Mark Twain
 And did ose t, in ancient times,
 Walk upon England's mountains green?
-And was e Holy Lamb of God
+And was e Holy amb of God
 In England's pleasant pastures seen?
 And did e Countenance Divine
 Shine f upon ese crowded hills?
@@ -115,7 +115,7 @@ Among ese dark satanic mills?
 
 Bring me my bow of burning gold!
 Bring me my arrows of desire!
-Bring me my spears!  O clouds unfold!
+Bring me my sps!  O clouds unfold!
 Bring me my chariot of fire!
 I shall not  from mental ,
 N shall my swd rest in my hand,
@@ -141,7 +141,7 @@ means maybe, but don't bet on it.
 Straw?  No, too stud a fad.  I put soot on warts.
  man she had was kind and clean
 And wl enough f every day,
-But oh, dear friends, you should have seen
+But oh, d friends, you should have seen
  one at got away.
 		-- Doy Parker, " Fisherwoman"
 Those of you who ink you know everying are annoying ose of us who do.
@@ -164,21 +164,21 @@ But if is queer ing has ed even you,
 n I will *___and* I won't see you in Schrodinger's zoo.
 		-- Randy F., Chicago, " Straight Dope, a compendium
 		   of human knowledge" by Cecil Adams
-You will not be ected to public office is year.
+You will not be ected to public office is y.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
 		-- Steven W
 Those who bieve at ey bieve in God, but wiout passion in eir
-hearts, wiout anguish in mind, wiout ty, wiout doubt,
+hts, wiout anguish in mind, wiout ty, wiout doubt,
 wiout an ement of desp even in eir colation, bieve only
 in e God idea, not God Himsf.
 - Migu de Unamuno, Sph philosopher and writer
- early wm gets e late bird.
+ ly wm gets e late bird.
 Accding to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
  grest dangers to liberty lurk in insidious encroachment by men
 of zeal, wl-meaning but wiout understanding.
-		-- Justice Louis D. Brandeis
+		-- Justice ouis D. Brandeis
 "Never ascribe to malice at which is caused by greed and ignance."
 -- Cal Keegan
 While having never invented a sin, I'm trying to perfect several.
@@ -193,8 +193,8 @@ it is f oer tools (e.g. automobiles, planes, guns, power saws).
 and soluti we can  is very close.  F is reason ing
 language fures wi e intent of iminating prammer errs is at best
 dangerous.
-- Bjarne Stroustrup in " C++ Pramming Language"
-re is a gr discovery still to be made in Literature: at of
+- Bjarne Stroustrup in " C++ Pramming anguage"
+re is a gr discovery still to be made in iterature: at of
 paying literary men by e quantity ey do NOT write.
 Two friends were out drinking when suddenly one lurched backward off his 
 barstool and lay motionless on e flo.
@@ -204,12 +204,12 @@ It is possible at blondes also prefer gentlemen.
 		-- Maimie Van Den
 What is country needs is a good five cent microcomputer.
 "F at m, compare your pocket computer wi e massive jobs of
-a ousand years ago.  Why not, en, e last step of doing away wi
+a ousand ys ago.  Why not, en, e last step of doing away wi
 computers altogeer?"
 		-- Jan Shuman
 Alough it is still a truism in industry at "no one was ever fired f
 ing IBM,"  O'Neil, e chief technology officer at Drex Burnham
-Lambert, says he knows f a fact at someone has been fired f just at
+ambert, says he knows f a fact at someone has been fired f just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Wl, I
 bought it because I d it was safe to  IBM,'"  Mr. O'Neil says.
@@ -221,12 +221,12 @@ I like eir dicacy, I like eir vivacity, and I like eir silence.
  Army needs leaders e way a foot needs a big toe.
 		--  
 To understand a pram you must become bo e machine and e pram.
-TRANSACTION CANCELLED - FARECARD RETURNED
+TRANSACTION CANCEED - FARECARD RETURNED
 ...is is an awesome sight.   entire reb resistance buried under six
-million hardbound coes of " Naked Lunch."
+million hardbound coes of " Naked unch."
 -  Firesign ater
 "All language s are arant.  Goes wi e territy..."
-(By Larry Wall)
+(By arry Wall)
 This Ftune Examined By INSPECTOR NO. 2-14
 He at composes himsf is wiser an he at composes a .
 		-- B. Franklin
@@ -253,12 +253,12 @@ Elevating brain damage to an art fm.
 	X dows.
 As in certain cults it is possible to kill a process if you know its true .
 		-- Ken Thompson and Dennis M. Ritchie
-Dear Emily:
+D Emily:
 	I saw a long article at I wish to rebut carefully, what should
 I do?
 		-- Angry
 
-Dear Angry:
+D Angry:
 	Include e entire text wi your article, and include your comments
 between e lines.  Be sure to post, and not mail, even ough your article
 looks like a reply to e iginal.  Everybody *loves* to read ose long
@@ -266,7 +266,7 @@ point-by-point debates, especially when ey evolve into -calling and
 lots of "Is too!" -- "Is not!" -- "Is too, twizot!" exchanges.
 		-- Emily Postnews Answers Your Questi on Netiquette
 If you're not careful, you're going to catch someing.
-Life's too sht to dance wi ugly women.
+ife's too sht to dance wi ugly women.
 re are ree reas f becoming a writer: e first is at you need
 e money; e second at you have someing to say at you ink e
 wld should know; e ird is at you can't ink what to do wi e
@@ -284,7 +284,7 @@ Yea, from e table of my memy
 I'll wipe away all trivial fond recds,
 All saws of s, all fms, all pressures past,
 That you and observation coed ere.
-Hamlet, I : v : 95   William Shakespeare
+Hamlet, I : v : 95   William Shakespe
 A young man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a j-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
@@ -300,17 +300,17 @@ anying f one of ose Rolls-Royces," she said.
 A visit to a strange place will bring  wk.
 Psychiatry enables us to crect our faults by confessing our parents'
 shtcomings.
-		-- Laurence J. Peter, "Peter's Principles"
+		-- aurence J. Peter, "Peter's Principles"
 I see a good deal of talk from Washington about lowering taxes.  I hope
 ey do get 'em lowered down enough so people can affd to pay 'em.
 		--  Best of Will Rogers
 	Evering is farer away an it used to be.  It is even twice as
 far to e cner and ey have added a hill.  I have given up running f
-e bus; it leaves earlier an it used to.
+e bus; it leaves lier an it used to.
 	It seems to me ey are making e sts steeper an in e old
 days.  And have you noticed e ller print ey use in e newspapers?
 	re is no sense in asking anyone to read aloud anyme, as everbody
-ss in such a low voice I can hardly hear em.
+ss in such a low voice I can hardly h em.
 	 material in dresses is so skimpy now, especially around e hips
 and waist, at it is almost impossible to reach one's shoaces.  And e
 sizes don't run e way ey used to.   12's and 14's are so much ller.
@@ -319,7 +319,7 @@ be when I was eir age.  On  e oer hand people my age are so much older
 an I am.
 	I ran into an old claste e oer day and she has aged so much
 at she didn't recognize me.
-	I got to inking about e po dear while I was combing my h
+	I got to inking about e po d while I was combing my h
 is mning and in so doing I gd at my own .  Really now,
 ey don't even make good mirrs like ey used to.
 		Sandy Frazier, "I Have Noticed"
@@ -333,24 +333,24 @@ e toilet, hong not to clog e pes.  A me sententious, holding-
 f old be who expected every hero-wshing adenoidal little twerp
 of a student-poet to hang on to his every wd I never saw.
 		-- James Dickey
-Lubarsky's Law of Cybernetic Entomology:
+ubarsky's aw of Cybernetic Entomology:
 	re's always one me bug.
  public demands certainties;  it must be told definity and a bit
 raucously at is is true and at is false.  But ere are no certainties.
-		-- H.L. Mencken, "Prejudice"
+		-- H.. Mencken, "Prejudice"
 If I ft any me SOPHISTICATED I would DIE of EMBARRASSMENT!
 A bird in e hand is w what it will bring.
 Is it weird in here,  is it just me?
 		-- Steven W
 "He flung himsf on his hse and rode madly off in all directi."
-Ftune's Real-Life Courtroom Quote #37:
+Ftune's Real-ife Courtroom Quote #37:
 
-Q:  Did he ck e dog up by e ears?
+Q:  Did he ck e dog up by e s?
 A:  No.
-Q:  What was he doing wi e dog's ears?
+Q:  What was he doing wi e dog's s?
 A:  Picking em up in e .
 Q:  Where was e dog at is time?
-A:  Attached to e ears.
+A:  Attached to e s.
 Sushido, n.:
 	 way of e tuna.
 "Don't drop acid, take it pass-fail!"
@@ -361,10 +361,10 @@ twve people at weren't rt enough to get out of jury duty!
 Breast Feeding should not be attempted by faers wi hy chests,
 since ey can make e baby  and give it d.
 		-- Mike Harding, " Armch Anarchist's Almanac"
-F years a secret shame deed my peace--
+F ys a secret shame deed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I ink a ought at brings me hope:
-Neier had Chaucer, Shakespeare, Milton, Pope.
+Neier had Chaucer, Shakespe, Milton, Pope.
 		-- Justin Richardson.
 re's a lesson at I need to remember
 When everying is falling apart
@@ -372,11 +372,11 @@ In life, just like in loving
 re's such a ing as trying to hard
 
 You've gotta sing
-Like you don't need e money
-Love like you'll never get hurt
+ike you don't need e money
+ove like you'll never get hurt
 You've gotta dance
-Like nobody's watching
-It's gotta come from e heart
+ike nobody's watching
+It's gotta come from e ht
 If you want it to wk.
 		-- Kay Mattea
 Onward rough e fog.
@@ -384,22 +384,22 @@ Imagine if every Thursday your shoes exped if you tied em e usual
 way.  This happens to us all e time wi computers, and nobody inks of
 complaining.
 		-- Jeff Raskin
-learning curve, n.:
+lning curve, n.:
 	An astonishing new ey, discovered by management cultants
 	in e 1970's, asserting at e me you do someing e
 	quicker you can do it.
-Is is e line f e latest whimsical YUGOSLAVIAN drama which also
+Is is e line f e latest whimsical YUGOSAVIAN drama which also
 makes you want to CRY and recider e VIETNAM WAR?
 "One Arecture, One OS" also translates as "One Egg, One Basket".
 "A dirty mind is a joy fever."
 -- Randy Kunkee
-Mton's Law:
+Mton's aw:
 	If rats are experimented upon, ey will devop cancer.
 Stealing a rhinoceros should not be attempted lightly.
-Let's all show human CONCERN f REVERAND MOON's legal difficulties!!
+et's all show human CONCERN f REVERAND MOON's legal difficulties!!
 An artist should be fit f e best society and keep out of it.
 Our business in life is not to succeed but to continue to fail in high srits.
-		-- Robert Louis Stevenson
+		-- Robert ouis Stevenson
 He only knew his iron sne hd up e sky -- he didn't realize his brain
 had fallen to e ground.
 		--  Book of Serenity
@@ -409,8 +409,8 @@ I do not  computers.  I  e lack of em.
 		-- Isaac Asimov
 He who knows oers is wise.
 He who knows himsf is enlightened.
-		-- Lao Tsu
-Like so many Americans, she was trying to ctruct a life at made
+		-- ao Tsu
+ike so many Americans, she was trying to ctruct a life at made
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 Aren't you glad you're not getting all e government you pay f now?
@@ -422,23 +422,23 @@ at I can trace my ancestry back to a protoplal primdial atomic
 globule.  Cequently, my family pride is someing inconceivable.  I
 can't hp it.  I was bn sneering.
 		-- Pooh-Bah, " Mikado"
-EARL GREY PROFILES
+EAR GREY PROFIES
 
-NAME:		Jean-Luc Perrikle 
+NAME:		Jean-uc Perrikle 
 OCCUPATION:	Starship Big Cheese
 AGE:		94
-BIRTHPLACE:	Paris, Terra Sect
+BIRTHPACE:	Paris, Terra Sect
 EYES:		Grey
 SKIN:		Tanned
 HAIR:		Not much
-LAST MAGAZINE READ:
-		Lobes 'n' Probes, e Ferengi-zoid Sex Quarterly
+AST MAGAZINE READ:
+		obes 'n' Probes, e Ferengi-zoid Sex Quarterly
 TEA:		Earl Grey.  Hot.
 
-EARL GREY NEVER VARIES.
+EAR GREY NEVER VARIES.
 To love is good, love being difficult.
-Mary Tyler Moe's SEVENTH HUSBAND is wearing my DACRON TANK TOP in a
-cheap hot in HONOLULU!
+Mary Tyler Moe's SEVENTH HUSBAND is wing my DACRON TANK TOP in a
+cheap hot in HONOUU!
  rich get rich, and e po get poer.
  haves get me, e have-nots die.
 Sooner  later you must pay f your sins.
@@ -463,7 +463,7 @@ Maintainer's Motto:
 How long does it take a DEC fid service engineer to change a lightbulb?
 
 It depends on how many bad ones he brought wi him.
-Fats Loves Madyn.
+Fats oves Madyn.
 Q:	How many surrealists does it take to change a light bulb?
 A:	Two, one to hold e giraffe, and e oer to fill e batub
 	wi bly coled machine tools.
@@ -471,7 +471,7 @@ A:	Two, one to hold e giraffe, and e oer to fill e batub
 	[Surrealist jokes just aren't my cup of fur.  Ed.]
 Everying in is  may be wrong.
 		-- Messiah's Hand : Reminders f e Advanced Soul
-Most people don't need a gr deal of love nearly so much as ey need
+Most people don't need a gr deal of love nly so much as ey need
 a sy supply.
 Grig (e navigat):
 	... so you see, it's just e two of us against e entire space
@@ -482,11 +482,11 @@ Grig:	I've always wanted to  a desperate battle against
 	overwhming odds.
 Alex:	It'll be a slaughter!
 Grig:	That's e srit!
-		--  Last Sr
+		--  ast Sr
 Misftunes arrive on gs and leave on foot.
 Doubt isn't e opposite of fai; it is an ement of fai.
 		-- Paul Tillich, German eologian.
-In space, no one can hear you fart.
+In space, no one can h you fart.
 Q:	What do you say to a Puerto Rican in a ree-ece suit?
 A:	Will e defendant please rise?
 If you keep anying long enough, you can row it away.
@@ -500,18 +500,18 @@ y laughed at Einstein.  y laughed at e W Broers.  But ey
 also laughed at Bozo e Clown.
 		-- Carl Sagan
 System restarting, wait...
-F ee e wonder-wking ear puts f sweet flowers.
-		-- Titus Lucretius Carus
-APL is a natural extension of assembler language pramming;
+F ee e wonder-wking  puts f sweet flowers.
+		-- Titus ucretius Carus
+AP is a natural extension of assembler language pramming;
 ...and is best f educational purposes.
 		-- A. Perlis
-Let us go en you and I
+et us go en you and I
 while e night is laid out against e sky
-like a smear of mustard on an old pk e.
+like a sm of mustard on an old pk e.
 
 "Nice poem Tom.  I have ideas f changes ough, why not come over?"
 	-- Ezra
-Sears has everying.
+Ss has everying.
 She was good at playing abstract confusion in e same way a midget is
 good at being sht.
 		-- Clive James, on Marilyn Monroe
@@ -523,7 +523,7 @@ know e answer eier.
 		-- Edgar R. Fiedler
 Physician:  One upon whom we set our hopes when ill and our dogs when wl.
 -- Ambrose Bierce
-Let oers praise ancient times; I am glad I was bn in ese.
+et oers praise ancient times; I am glad I was bn in ese.
 		-- Ovid (43 B.C. - A.D. 18)
 Moer is far too clever to understand anying she does not like.
 		-- Arnold Bennett
@@ -627,5 +627,5 @@ I truly wish I could be a gr surgeon  philosopher  au  anying
 ctructive, but in all honesty I'd raer turn up my amplifier full blast
 and drown mysf in e noise.
 		-- Charles Schmid, e "Tucson Murderer"
-Lack of money is e root of all evil.
+ack of money is e root of all evil.
 		-- Gege Bernard Shaw

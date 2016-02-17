@@ -1,5 +1,5 @@
 Small change can often be found under seat cushi.
-		-- One of Lazarus Long's most penetrating insights
+		-- One of azarus ong's most penetrating insights
 When you are young, you enjoy a sustained illusion that sooner or later
 something marvelous is going to happen, that you are going to transcend
 your parents' limitati...  At the same time, you feel sure that in all
@@ -20,7 +20,7 @@ Egotism, n:
 Egotist, n:
 	A person of low taste, more interested in himself than me.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-"Life would be much simpler and things would get done much faster if it
+"ife would be much simpler and things would get done much faster if it
 weren't for other people"
 		-- Blore
 If it were not for the presents, an elopement would be preferable.
@@ -42,9 +42,9 @@ bend a disk.
 		   of their movement.
 How come we never talk anymore?
 All I've got left on the list of desirable vocati is heiress to the
-throne of any country in Western Europe and Laurie Anderson.  "Be
-practical", was the choral reply from the dinner table.  Well, Laurie
-Anderson is already Laurie Anderson, but I read an article in Harpers
+throne of any country in Western Europe and aurie Anderson.  "Be
+practical", was the choral reply from the dinner table.  Well, aurie
+Anderson is already aurie Anderson, but I read an article in Harpers
 that said there were eleven countries, in the world this is I think,
 that have queens as sovereign rulers.  That's probably my best shot.
 Indomitable in retreat; invincible in advance; insufferable in victory.
@@ -56,15 +56,15 @@ What the deuce is it to me?  You say that we go around the sun.  If we went
 around the moon it would not make a pennyworth of difference to me or my work.
 		-- Sherlock Holmes, "A Study in Scarlet"
 Nobody can be as agreeable as an uninvited guest.
-	After the Children of Israel had wandered for thirty-nine years
+	After the Children of Israel had wandered for thirty-nine ys
 in the wilderness, Ferdinand Feghoot arrived to make sure that they would
-finally find and enter the Promised Land.  With him, he brought his
-favorite robot, faithful old Yewtoo Artoo, to carry his gear and do
+finally find and enter the Promised and.  With him, he brought his
+favorite robot, faithful old Yewtoo Artoo, to carry his g and do
 assorted camp chores.
-	The Israelites soon got over their initial fear of the robot and,
+	The Israelites soon got over their initial f of the robot and,
 as the months passed, became very fond of him.  Patriarchs took to
 discussing abtruse theological problems with him, and each evening the
-children all gathered to hear the many stories with which he was programmed.
+children all gathered to h the many stories with which he was programmed.
 Therefore it came as a great shock to them when, just as their journey was
 ending, he abruptly wore out.  Even Feghoot couldn't cole them.
 	"It may be true, Ferdinand Feghoot," said Moses, "that our friend
@@ -74,7 +74,7 @@ a coffin.  But I do have a most splendid skin from one of Pharoah's own
 cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
 	"Rusting?" Moses cried.  "Not in this dreadful dry desert!"
-	"Ah!" sighed Ferdinand Feghoot, shedding a tear, "I fear you do not
+	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f you do not
 realize the full significance of Pharoah's oxhide!"
 		-- Grendel Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
@@ -83,21 +83,21 @@ Recession is when your neighbor loses his job. Depression is when you
 lose your job.  These economic downturns are very difficult to predict,
 but sophisticated econometric modeling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
-	After sifting through the overwritten remaining blocks of Luke's home
-directory, Luke and PDP-1 sped away from /u/lars, across the surface of the
-Winchester riding Luke's flying read/write head.  PDP-1 had Luke stop at the
+	After sifting through the overwritten remaining blocks of uke's home
+directory, uke and PDP-1 sped away from /u/lars, across the surface of the
+Winchester riding uke's flying read/write head.  PDP-1 had uke stop at the
 edge of the cylinder overlooking /usr/spool/uucp.
 	"Unix-to-Unix Copy Program;" said PDP-1.  "You will never find a more
 wretched hive of bugs and flamers.  We must be cautious."
 		-- DECWARS
 She's so tough she won't take 'yes' for an answer.
-The only difference in the game of love over the last few thousand years
+The only difference in the game of love over the last few thousand ys
 is that they've changed trumps from clubs to diamonds.
 		-- The Indianapolis Star
-Be careful!  UGLY strikes 9 out of 10!
+Be careful!  UGY strikes 9 out of 10!
 Everything might be different in the present if only one thing had
 been different in the past.
-	Looking for a cool one after a long, dusty ride, the drifter strode
+	ooking for a cool one after a long, dusty ride, the drifter strode
 into the saloon.  As he made his way through the crowd to the bar, a man
 galloped through town screaming, "Big Mike's comin'!  Run fer yer lives!"
 	Suddenly, the saloon doors burst open.  An enormous man, standing over
@@ -112,10 +112,10 @@ smacked his lips with relish.
 	"Naw, I gotta git outa here, boy," the man grunted.  "Big Mike's
 a-comin'."
 Kent's Heuristic:
-	Look for it first where you'd most like to find it.
+	ook for it first where you'd most like to find it.
 It now costs more to amuse a child than it once did to educate his father.
 A Dublin lawyer died in poverty and many barristers of the city subscribed to
-a fund for his funeral.  The Lord Chief Justice of Orbury was asked to donate
+a fund for his funeral.  The ord Chief Justice of Orbury was asked to donate
 a shilling.  "Only a shilling?" exclaimed the man. "Only a shilling to bury
 an attorney?  Here's a guinea; go and bury twenty of them."
 If Karl, instead of writing a lot about Capital, had made a lot of Capital,
@@ -124,7 +124,7 @@ it would have been much better.
 High heels are a device invented by a woman who was tired of being kissed
 on the forehead.
 Stupidity got us into this mess -- why can't it get us out?
-In specificati, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's aw supersedes Ohm's.
 Q:	How many Californians does it take to screw in a lightbulb?
 A:	Five.  One to screw in the lightbulb and four to share the
 		experience.  (Actually, Californians don't screw in
@@ -138,7 +138,7 @@ Drive defensively.  Buy a tank.
 Any sufficiently advanced bug is indistinguishable from a feature.
 		-- Rich Kulawiec
 Death before dishonor.  But neither before breakfast.
-Matz's Law:
+Matz's aw:
 	A conclusion is the place where you got tired of thinking.
 Excess on occasion is exhilarating.  It prevents moderation from
 acquiring the deadening effect of a habit.
@@ -159,9 +159,9 @@ You will engage in a profitable business activity.
 The assertion that "all men are created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
-		--  Abraham Lincoln
+		--  Abraham incoln
 She liked him; he was a man of many qualities, even if most of them were bad.
-Rule of Life #1 -- Never get separated from your luggage.
+Rule of ife #1 -- Never get separated from your luggage.
 Mr. Rockford?  This is Betty Joe Withers.  I got four shirts of yours from
 the Bo Peep Cleaners by mistake.  I don't know why they gave me men's
 shirts but they're going back.
@@ -170,11 +170,11 @@ shirts but they're going back.
 wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
 After Goliath's defeat, giants ceased to command respect.
 - Freeman Dyson
-Life is like bein' on a mule team.  Unless you're the lead mule, all the
+ife is like bein' on a mule team.  Unless you're the lead mule, all the
 scenery looks about the same.
 A wise man can see more from the bottom of a well than a fool can from a
 mountain top.
-Q:	Where's the Lone Ranger take his garbage?
+Q:	Where's the one Ranger take his garbage?
 A:	To the dump, to the dump, to the dump dump dump!
 
 Q:	What's the Pink Panther say when he steps on an ant hill?
@@ -190,14 +190,14 @@ work to do.
 	One day it was announced that the young monk Kyogen had reached
 an enlightened state.  Much impressed by this news, several of his peers
 went to speak with him.
-	"We have heard that you are enlightened.  Is this true?" his fellow
+	"We have hd that you are enlightened.  Is this true?" his fellow
 students inquired.
 	"It is", Kyogen answered.
 	"Tell us", said a friend, "how do you feel?"
 	"As miserable as ever", replied the enlightened Kyogen.
 grasshopotomaus:
 	A creature that can leap to tremendous heights... once.
-Remember, in 2039, MOUSSE & PASTA will be available ONLY by prescription!!
+Remember, in 2039, MOUSSE & PASTA will be available ONY by prescription!!
 A scientific truth does not triumph by convincing its opponents and
 making them see the light, but rather because its opponents eventually
 die and a new generation grows up that is familiar with it.
@@ -212,14 +212,14 @@ QOTD:
 		-- Joan of Arc
 Harrison's Postulate:
 	For every action, there is an equal and opposite criticism.
-Chism's Law of Completion:
+Chism's aw of Completion:
 	The amount of time required to complete a government project is
 	precisely equal to the length of time already spent on it.
 Norm:  Gentlemen, start your taps.
 		-- Cheers, The Coach's Daughter
 
 Coach: How's life treating you, Norm?
-Norm:  Like it caught me in bed with his wife.
+Norm:  ike it caught me in bed with his wife.
 		-- Cheers, Any Friend of Diane's
 
 Coach: How's life, Norm?
@@ -231,7 +231,7 @@ cidering the general run of s, as seldom a misfortune to be childless.
 
 The only solid and lasting peace between a man and his wife is, doubtless,
 a separation.
-		-- Lord Chesterfield, letter to his son, 1763
+		-- ord Chesterfield, letter to his son, 1763
 The wise man seeks everything in himself; the ignorant man tries to get
 everything from somebody else.
 Soluti are obvious if one only has the optical power to observe them
@@ -252,10 +252,10 @@ Pour my black old coffee longer,
 While that smell is gettin' stronger
 A semi-meal ain't nuthin' much to want.
 
-Loan me ten, I got a feelin' it'll save me,
+oan me ten, I got a feelin' it'll save me,
 With an ornery soul who don't shoot pool for fun,
-If that coat'll fit you're wearin',
-The Lord'll bless your sharin'
+If that coat'll fit you're win',
+The ord'll bless your sharin'
 A semi-friend ain't nuthin' much to want.
 
 And let me halfway fall in love,
@@ -274,12 +274,12 @@ Those who do not understand Unix are condemned to reinvent it, poorly.
 Everything that you know is wrong, but you can be straightened out.
 Join the march to save individuality!
 "Plaese porrf raed."
-		-- Prof. Michael O'Longhlin, S.U.N.Y. Purchase
+		-- Prof. Michael O'onghlin, S.U.N.Y. Purchase
 Facts are stubborn, but statistics are more pliable.
 When the sun shineth, make hay.
 		-- John Heywood
 I like your SNOOPY POSTER!!
-The search for the perfect martini is a fraud.  The perfect martini is
+The sch for the perfect martini is a fraud.  The perfect martini is
 a belt of gin from the bottle; anything else is the decadent trappings
 of civilization.
 		-- T.K.
@@ -296,7 +296,7 @@ rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great idea," said the manager. Then he paused and asked the killer
 question, "NOW what's the least popular vegetable?"
 
-Law: Once you eliminate your #1 problem, #2 gets a promotion.
+aw: Once you eliminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Culting"
 Old Tom Bombadil is a merry fellow,
 Bright blue his jacket is, and his boots are yellow.
@@ -370,7 +370,7 @@ the best means of survival; back in the olden days, his theory went, people
 faced with hungry sabretoothed tigers could be divided very simply into
 those who panicked and those who stood there saying "What a magnificent
 brute!" and "Here, pussy."
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, "The ight Fantastic"
 Chocolate chip.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
@@ -380,7 +380,7 @@ say in those awkward situati?  Worry no more...
 	Go away.  You bother me.
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
-	Children should be seen and not heard.
+	Children should be seen and not hd.
 	You'll be the death of me.
 	You'll understand when you're older.
 	Because.
@@ -409,19 +409,19 @@ I wouldn't cider it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
  Genius; which to Angels look like torment and insanity.  I collected some of
  their Proverbs..." - Blake, "The Marriage of Heaven and Hell"
 
-Kramer's Law:
+Kramer's aw:
 	You can never tell which way the train went by looking at the tracks.
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
 		-- Honor'e de Balzac
-"Language shapes the way we think, and determines what we can think about."
--- B. L. Whorf
+"anguage shapes the way we think, and determines what we can think about."
+-- B. . Whorf
 Very few modern women either like or desire marriage, especially after the
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is something they accept when there is no alternative.  Really,
 it is a waste of time, and hazardous, to marry them.  It leaves one open
-to a rival.  Husbands, good or bad, always have rivals.  Lovers, never.
-		-- Helen Lawrenson, "Esquire"
+to a rival.  Husbands, good or bad, always have rivals.  overs, never.
+		-- Helen awrenson, "Esquire"
 	It is a profoundly erroneous truism, repeated by all copy-books and
 by eminent people when they are making speeches, that we should cultivate
 the habit of thinking about what we are doing.  The precise opposite is the
@@ -436,7 +436,7 @@ only nine lives.
 Conversation enriches the understanding, but solitude is the school of genius.
 	A girl spent a couple hours on the phone talking to her two best
 friends, Maureen Jones, and Maureen Brown.  When asked by her father why she
-had been on the phone so long, she responded "I heard a funny story today
+had been on the phone so long, she responded "I hd a funny story today
 and I've been telling it to the Maureens."
 	page 46
 ...a report citing a study by Dr. Thomas C. Chalmers, of the Mount Sinai
@@ -456,7 +456,7 @@ be cidered archaic in the light of new evidence about the way the human
 body functi.
 		-- Norman Cousins,
 		"Anatomy of an Illness as Perceived by the Patient"
-"Time is an illusion.  Lunchtime doubly so."
+"Time is an illusion.  unchtime doubly so."
 -- Ford Prefect, _Hitchhiker's Guide to the Galaxy_
 E Pluribus Unix
 When you have to kill a man it costs nothing to be polite.
@@ -467,7 +467,7 @@ No guest is so welcome in a friend's house that he will not become a
 nuisance after three days.
 		-- Titus Maccius Plautus
 The feeling persists that no one can simultaneously be a respectable writer
-and understand how a refrigerator works, just as no gentleman wears a brown
+and understand how a refrigerator works, just as no gentleman ws a brown
 suit in the city.  Colleges may be to blame.  English majors are encouraged,
 I know, to hate chemistry and physics, and to be proud because they are not
 dull and creepy and humorless and war-oriented like the engineers across the
@@ -483,6 +483,6 @@ Work cists of whatever a body is obliged to do.
 Play cists of whatever a body is not obliged to do.
 		-- Mark Twain
 Ccience is the inner voice that warns us somebody may be looking.
-		-- H.L. Mencken, "A Mencken Chrestomathy"
+		-- H.. Mencken, "A Mencken Chrestomathy"
 Yow!  Are you the self-frying president?
 Afternoon very favorable for romance.  Try a single person for a change.

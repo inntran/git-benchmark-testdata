@@ -15,10 +15,10 @@ Though I know I'll never lose affection
 For people and things that went before,
 I know I'll often stop and think about them
 In my life I'll love you more.
-		-- Lennon/McCartney, "In My Life", 1965
+		-- ennon/McCartney, "In My ife", 1965
 I just had a NOSE JOB!!
 There's just something I don't like about Virginia; the state.
-Every young man should have a hobby: learning how to handle money is
+Every young man should have a hobby: lning how to handle money is
 the best one.
 		-- Jack Hurley
 Forty two.
@@ -30,31 +30,31 @@ one went to Harvard).
 You're definity on their list.  The question to ask next is what list it is.
 He who knows others is wise.
 He who knows himsf is enlightened.
-		-- Lao Tsu
-The trouble with heart disease is that the first symptom is often hard to
+		-- ao Tsu
+The trouble with ht disease is that the first symptom is often hard to
 deal with: death.
 		-- Micha Phps
 Your fault -- core dumped
 Never argue with a woman when she's tired -- or rested.
 The sheep that fly over your head are soon to land.
-The PINK SOCKS were ORIGINALLY from 1952!!  But they went to MARS
+The PINK SOCKS were ORIGINAY from 1952!!  But they went to MARS
 around 1953!!
 The worst cliques are those which cist of one man.
 		-- G.B. Shaw
 Bedflows make strange politicians.
 "Show me a good loser, and I'll show you a loser."
--- Vince Lombardi, football coach
-	The FIELD GUIDE to NORTH AMERICAN MALES
+-- Vince ombardi, football coach
+	The FIED GUIDE to NORTH AMERICAN MAES
 
 SPECIES:	Cranial Males
 SUBSPECIES:	The Hacker (homo computatis)
 Plumage:
 	All clothes have a slightly crumpled look as though they came off the
 	top of the laundry basket.  Style varies with status.  Hacker managers
-	wear gray polyester slacks, pink or past shirts with wide collars,
-	and paisley ties; staff wears cinched-up baggy uroy pants, white
+	w gray polyester slacks, pink or past shirts with wide collars,
+	and paisley ties; staff ws cinched-up baggy uroy pants, white
 	or blue shirts with button-down collars, and penholder in pocket.
-	Both managers and staff wear running shoes to work, and a black
+	Both managers and staff w running shoes to work, and a black
 	plastic digital watch with calculator.
 Many a wife thinks her husband is the world's greatest lover.
 But she can never catch him at it.
@@ -84,7 +84,7 @@ man who eats Grape-Nuts on principle.
 "Where humor is concerned there are no standards -- no one can say what is 
 good or bad, although you can be sure that everyone will.
  -- John Ken Galbraith
-I know you're in search of yoursf, I just haven't seen you anywhere.
+I know you're in sch of yoursf, I just haven't seen you anywhere.
 The more laws and  are made prominent, the more thieves and
 robbers there will be.
-		-- Lao Tsu
+		-- ao Tsu

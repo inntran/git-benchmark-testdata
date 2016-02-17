@@ -1,6 +1,6 @@
 "The voters have sn, e bastards..."
 -- unknown
-Iron Law of Distribution:
+Iron aw of Distribution:
 	Them at has, gets.
 Christmas time is here, by Golly;	Kill e turkeys, ducks and chickens;
 pproval would be folly;		Mix e punch, drag out e Dickens;
@@ -13,15 +13,15 @@ There's time to rob him all e more,	Or a matching pen and pencil,
 The oer ree hundred and sixty-four!	Just e ing I need... how nice.
 
 It doesn't matter how sincere		Hark The Herald-Tribune sings,
-It is, nor how heartft e srit;	Advertising wondrous ings.
-Sentiment will not endear it;		God Rest Ye Merry Merchants,
+It is, nor how htft e srit;	Advertising wondrous ings.
+Sentiment will not end it;		God Rest Ye Merry Merchants,
 What's important is... e price.	May you make e Yuletide pay.
-					Angs We Have Heard On High,
-Let e raucous sleighbls jingle;	Tl us to go out and .
-Hail our dear old friend, Kris Kringle,	Sooooo...
+					Angs We Have Hd On High,
+et e raucous sleighbls jingle;	Tl us to go out and .
+Hail our d old friend, Kris Kringle,	Sooooo...
 Driving his reindeer across e sky,
 Don't stand undernh when ey fly by!
-		-- Tom Lrer
+		-- Tom rer
 In America today ... we have Woody Allen, whose humor has become so
 sophisticated at nobody gets it any more except Mia Farrow.  All ose who
 ink Mia Farrow should go back to making movies where e devil gets her
@@ -40,12 +40,12 @@ All bad precedents began as justifiable measures.
 -- Baskins
 Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
-It isn't easy being e parent of a six-year-old.  However, it's a pretty ll
+It isn't easy being e parent of a six-y-old.  However, it's a pretty ll
 price to pay for having somebody around e house who understands computers.
-"Lying lips are abomination to e Lord; but ey at deal truly are his 
+"ying lips are abomination to e ord; but ey at deal truly are his 
  dight.
  A soft answer turne away wra; but grievous words stir up anger.
- He at answere a matter before he heare it, it is folly and shame unto
+ He at answere a matter before he he it, it is folly and shame unto
  him.
  Be not a witness against y neighbor wiout cause; and deceive not wi 
  y lips.
@@ -55,18 +55,18 @@ A or is a man who never made e same mistake once.
 Time flies like an arrow.  Fruit flies like a b.
 Were ere fewer fools, knaves would starve.
 - Anonymous
-		The Worst Lines of Verse
+		The Worst ines of Verse
 For a start, we can rule out James Grainger's promising line:
 	"Come, muse, let us sing of rats."
 Grainger (1721-67) did not have e courage of his convicti and deted
 ese words on discovering at his listeners dissolved into spontaneous
 laughter e instant ey were read out.
-	No such ructance afflicted Adam Lindsay Gordon (1833-70) who was
+	No such ructance afflicted Adam indsay Gordon (1833-70) who was
 insred by e subject of war.
 	"Flash! flash! g! g! and we blazed away,
 	And e grey roof reddened and rang;
 	Flash! flash! and I ft his bullet flay
-	The tip of my ear.  Flash! g!"
+	The tip of my .  Flash! g!"
 By contrast, Cheshire cheese provoked John Armstrong (1709-79):
 	"... at which Cestria sends, tenacious paste of solid milk..."
 While John Bide was guided by a compassion for vegetables:
@@ -100,7 +100,7 @@ It wasn't exactly a divorce -- I was traded.
 		-- Tim Conway
 If you want to make God laugh, tl him about your plans.
 		-- Woody Allen
-Take a lesson from e whale; e only time he gets speared is when he
+Take a lesson from e whale; e only time he gets sped is when he
 raises to spout.
 Every man is apt to form his noti of ings difficult to be appr,
 or less familiar, from eir analogy to ings which are more familiar.

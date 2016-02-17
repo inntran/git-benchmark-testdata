@@ -1,6 +1,6 @@
 Eggheads unite!  You have noing to lose but your yolks.
 		-- Adlai Stevenson
-Life is a grand adventure --  it is noing.
+ife is a grand adventure --  it is noing.
 		-- Hen Kler
 Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Anananarayanan
@@ -11,9 +11,9 @@ of ta, on who could make an album, so we made one, and it sounds like
 a group of people who have been given powerful but unfamiliar instrnts
 as a erapy f a degenerative nerve disease.
 		-- Dave Barry, " Snake"
-SHHHH!!  I hear SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BLOCKS into
-empty OIL DRUMS ...
-Juall's Law on Nice Guys:
+SHHHH!!  I h SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BOCKS into
+empty OI DRUMS ...
+Juall's aw on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
 	Sometimes ey don't even get a c to start!
 About e time we ink we can make ends meet, somebody moves e ends.
@@ -24,11 +24,11 @@ Fms follow f, and  obliterate it.
 Is is really happening?
 "Because he's a character who's looking f his own identity, [He-Man is] 
 an interesting role f an act."
--- Dolph Lundgren, "act"
+-- Dolph undgren, "act"
 When one woman was asked how long she had been going to symphony concerts,
-she paused to calculate and replied, "Fty-seven years -- and I find I mind
+she paused to calculate and replied, "Fty-seven ys -- and I find I mind
 it less and less."
-		-- Louise Andrews Kent
+		-- ouise Andrews Kent
 Bondage maybe, discipline never!
 		-- T.K.
 TIPS FOR PERFORMERS:
@@ -39,15 +39,15 @@ TIPS FOR PERFORMERS:
 	re is no music in space.
 	People will pay to watch people make sounds.
 	Everying on stage should be larger an in real life.
-What I mean (and everybody se means) by e wd QUALITY cannot be
+What I mean (and everybody se means) by e wd QUAITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
 Still looking f e glious results of my misspent you.  Say, do you
 have a map to e next joint?
-You know you've landed gear-up when it takes full power to taxi.
+You know you've landed g-up when it takes full power to taxi.
 S softly and carry a +6 two-handed swd.
-I have a TINY BOWL in my HEAD
+I have a TINY BOW in my HEAD
 "Virtual" means never knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
 I don't have any solution but I  admire e problem.
@@ -61,10 +61,10 @@ Or at we drive on parkways and park on driveways?
 What e wld *really* needs is a good Automatic Bicycle Sharpener.
  danger is not at a particular class is unfit to govern.  Every class
 is unfit to govern.
-		-- Ld Acton
-Did I SELL OUT yet??
+		-- d Acton
+Did I SE OUT yet??
 F ose who like is st of ing, is is e st of ing ey like.
-		-- Abraham Lincoln
+		-- Abraham incoln
 "re are ings at are so us at you can only joke about em"
 - Heisenberg
 Accding to e latest official s, 43% of all  are
@@ -81,7 +81,7 @@ emsves, serene and egant, eir purpose sf-evident.  Truly, he has
 entered e mystery of e Tao."
 		-- Geoffrey James, " Tao of Pramming"
 Feminists just want e human race to be a tie.
-Sturgeon's Law:
+Sturgeon's aw:
 	90% of everying is crud.
 Symptom:		Feet cold and wet, glass empty.
 Fault:			Glass being hd at increct angle.
@@ -90,7 +90,7 @@ Action Required:	Turn glass oer way up so at open end points
 
 Symptom:		Feet warm and wet.
 Fault:			Improper bladder control.
-Action Required:	Go stand next to nearest dog.  After a while complain
+Action Required:	Go stand next to nest dog.  After a while complain
 			to e owner about its lack of house training and
 			demand a beer as compensation.
 		-- Bar Troubleshooting
@@ -102,21 +102,21 @@ Deadwood, n.:
 	Anyone in your company who is me seni an you are.
 "re is noing so deadly as not to hold up to people e opptunity to
 do gr and wonderful ings, if we wish to stimulate em in an active way."
-- Dr. Harold Urey, Nob Laure in chemistry
+- Dr. Harold Urey, Nob aure in chemistry
 I sml a wumpus.
 My rigion cists of a humble admiration of e illimitable superi
 srit who reveals himsf in e slight details we are able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
-Good evening, gentlemen.  I am a HAL 9000 computer.  I became operational
-at e HAL plant in Ura, Illinois, on January 11, nineteen hundred
-ninety-five.  My supervis was Mr. Langley, and he taught me to sing a
+Good evening, gentlemen.  I am a HA 9000 computer.  I became operational
+at e HA plant in Ura, Illinois, on January 11, nineteen hundred
+ninety-five.  My supervis was Mr. angley, and he taught me to sing a
 song.  If you would like, I could sing it f you.
 Keep e number of passes in a comler to a minimum.
 		-- D. Gries
 This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
-Yow!  Maybe I should have asked f my Neutron Bomb in PAISLEY --
+Yow!  Maybe I should have asked f my Neutron Bomb in PAISEY --
 Question: Is it better to abide by e rules until ey're changed 
 hp speed e change by breaking em?
 But Captain -- e engines can't take is much longer!
@@ -131,8 +131,8 @@ Grav," which is what it tastes like.
 Save e whales.  Collect e whole set.
 If you have to ink twice about it, you're wrong.
 Moe:	What did you give your wife f Vaine's Day?
-Joe:	 usual gift -- she ate my heart out.
-A Parable of Modern Research:
+Joe:	 usual gift -- she ate my ht out.
+A Parable of Modern Resch:
 
 	Bob has lost his keys in a room which is dark except f one
 bly lit cner.
@@ -145,13 +145,13 @@ I may not be totally perfect, but parts of me are exc.
 "You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
 take a gun and shoot him."
 -- Pat Robertson, TV Evangist, about Muammar Kadhafy
-Lost interest?  It's so bad I've lost apay.
+ost interest?  It's so bad I've lost apay.
 "I'd love to go out wi you, but ere are imptant wld issues at
 need wrying about."
-FOOLED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
 Remembering is f ose who have fgotten.
 		-- Chinese proverb
-We were so po we couldn't affd a watchdog.  If we heard a noise at night,
+We were so po we couldn't affd a watchdog.  If we hd a noise at night,
 we'd bark oursves.
 		-- Crazy Jimmy
 My h is totally traditional!
@@ -173,7 +173,7 @@ gr deal of meeting me is anoer m."
 If you would know e value of money, go try to brow some.
 		-- Ben Franklin
 "I'd love to go out wi you, but I want to spend me time wi my blender."
-Suppt your local Search and Rescue unit -- get lost.
+Suppt your local Sch and Rescue unit -- get lost.
 In e first place, God made idiots; is was f practice; en he made
 school boards.
 		-- Mark Twain
@@ -196,7 +196,7 @@ and amendment to a motion may be adopted and e substitute may be am.
 		--  Montana legislature's contribution to e English
 		language.
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
-my viewscreen is "USER-FRIENDLY"!!
+my viewscreen is "USER-FRIENDY"!!
 Gibble, Gobble, we ACCEPT YOU ...
 If only one could get at wonderful ling of accomplishment wiout
 having to accomplish anying.
@@ -220,7 +220,7 @@ f it afterwards."
 Obviously e only rational solution to your problem is suicide.
 "I will make no bargains wi terrist hardware."
 -- Peter da Silva
-Like my parents, I have never been a r church member  churchgoer.
+ike my parents, I have never been a r church member  churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- ere is just too much misery and cruty f at.  On e
@@ -242,32 +242,32 @@ Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
 hacker can never remember what e PRINT command is called is week --
 but when it gets  down to it, Unix is a glified video game.
 People don't do us wk on Unix systems; ey send jokes around e
-wld on USENET  write adventure games and research papers.
+wld on USENET  write adventure games and resch papers.
 		-- E. Post
 		"Real Prammers Don't Use Pascal", Datamation, 7/83
-Get Revenge!  Live long enough to be a problem f your children!
+Get Revenge!  ive long enough to be a problem f your children!
 re are ree ings I have always loved and never understood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not make a little
 wse and sl a little cheaper.
 I do not bieve at is generation of Americans is willing to resign 
 to going to bed each night by e light of a Communist moon...
-- Lyndon B. Johnson
+- yndon B. Johnson
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
 You have had a long-term stimulation rative to business.
 "Conversion, fastidious Goddess, loves blood better an brick, and feasts
 most subtly on e human will."
 -- Virginia Woolf, "Mrs. Dalloway"
-			DELETE A FORTUNE!
+			DEETE A FORTUNE!
 Don't some of ese ftunes just drive you nuts?!
 Wouldn't you like to see some of em deted from e system?
 You can!  Just mail to `ftune' wi e ftune you hate most,
 and we'll make sure it gets expunged.
 1 ion dollars of t deficit		= 1 Gramm-Rudman
-6.023 x 10 to e 23rd power alligat pears	= Avocado's number
+6.023 x 10 to e 23rd power alligat ps	= Avocado's number
 2 nts						= 1 Cavt
-Basic unit of Laryngitis			=  Hoarsepower
+Basic unit of aryngitis			=  Hoarsepower
 Shtest distance between two jokes		= A straight line
 6 Curses					= 1 Hexahex
 3500 Calies					= 1 Food Pound
@@ -275,12 +275,12 @@ Shtest distance between two jokes		= A straight line
 1 Mole						= 25 Cagey Bees
 1 Dog Pound					= 16 oz. of Alpo
 1000 beers served at a Ts game		= 1 Killibrew
-2.4 ste miles of surgical tubing at Yale U. = 1 I.V.League
+2.4 ste miles of surgical tubing at Yale U. = 1 I.V.eague
 2000 pounds of chinese soup			= 1 Won Ton
 10 to e minus 6 power mouwashes		= 1 Microscope
 Speed of a ttoise breaking e sound barrier	= 1 Machturtle
 8 Catfish					= 1 Octo-puss
-365 Days of drinking Lo-Cal beer.		= 1 Lite-year
+365 Days of drinking o-Cal beer.		= 1 ite-y
 16.5 t in e Twilight Zone			= 1 Rod Serling
 Fce needed to accerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
@@ -299,20 +299,20 @@ still ere are some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
 ... at e noti of "hardware", and "software" should be ext by
-e notion of LIVEWARE - being at which produces software f use on
+e notion of IVEWARE - being at which produces software f use on
 hardware.  This produces an obvious extension to e concept of MONITORS.
 A liveware monit is a person dedicated to e task of ensuring at e
 liveware does not interfere wi e real-time processes, invoking e
-REAL-TIME EXECUTIONER to dete liveware at adversy affects ...
-		-- Linden and Wihminalaan
-I l ... JUGULAR ...
-	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
+REA-TIME EXECUTIONER to dete liveware at adversy affects ...
+		-- inden and Wihminalaan
+I l ... JUGUAR ...
+	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
 his flow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, president of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
-of attneys and accountants, and a dear of production exs.  Lawyers
+of attneys and accountants, and a d of production exs.  awyers
 and accountants "do not make e economic e any bigger; ey only 
 out how e e gets divided.  Neier profession provides any added value
 to product."
@@ -364,7 +364,7 @@ parall to e sect axis, wrapng around when it reaches e edge
 of e hyper-cube.
  most imptant ing in a ratihip between a man and a woman
 is at one of em be good at taking ders.
-		-- Linda Festa
+		-- inda Festa
 egrep pns are full r expressi; it uses a fast deterministic
 alm at sometimes needs exponential space.
 -- unix manuals
@@ -378,11 +378,11 @@ change your  and start a new life in different city.
 but at's because it's e best  on anying f e layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
-I wonder if I ought to tl em about my PREVIOUS LIFE as a COMPLETE
+I wonder if I ought to tl em about my PREVIOUS IFE as a COMPETE
 STRANGER?
 A free society is one where it is safe to be .
 		-- Adlai Stevenson
-How's it going in ose MODULAR LOVE UNITS??
+How's it going in ose MODUAR OVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-defined equati
 in e HP-51820A fm Generat Software."
@@ -396,7 +396,7 @@ Experience is not what happens to you; it is what you do wi what happens
 to you.
 		-- Aldous Huxley
 re are no emotional victims, only volunteers.
-Lots of girls can be had f a song.  Unftunaty, it  turns out to
+ots of girls can be had f a song.  Unftunaty, it  turns out to
 be e wedding march.
 	"Beauty is transity."
 	"Beauty survives."
@@ -405,7 +405,7 @@ I never deny, I never contradict.  I sometimes fget.
 		-- Benjamin Disrai, British PM, on dealing wi e
 		   Royal Family
 What's all is broua?
-Rhode's Law:
+Rhode's aw:
 	When any principle, law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, emrically, 
 	circuitously proven, derived, implied, inferred, d, de,
@@ -419,17 +419,17 @@ Rhode's Law:
 Prammers do it bit by bit.
 nominal egg:
 	New Ykerese f expensive.
-Look!  Befe our very eyes, e future is becoming e past.
+ook!  Befe our very eyes, e future is becoming e past.
 My folks didn't come over on e Mayflower, but ey were ere to meet
 e boat.
-I'm inking about DIGITAL READ-OUT systems and computer-generated
+I'm inking about DIGITA READ-OUT systems and computer-generated
 IMAGE FORMATIONS ...
 In Blyn, we had such gr pennant races, it made e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
 Our infmal mission is to improve e love life of operats wldwide.
 		-- Peter Brendt, president of Exabyte
-Armstrong's Collection Law:
+Armstrong's Collection aw:
 	If e c is truly in e mail,
 	it is sury made out to someone se.
 Any gr tru can -- and eventually will -- be expressed as a cliche --
@@ -438,18 +438,18 @@ a cliche is a sure and certain way to dilute an idea.  F instance, my
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Sht
 What sane person could live in is wld and not be crazy?
-		-- Ursula K. LeGuin
+		-- Ursula K. eGuin
 Guillotine, n.:
 	A French ng center.
 I pram, erefe I am.
-People are very flexible and learn to adjust to strange
-surroundings -- ey can become aced to read Lisp and
+People are very flexible and ln to adjust to strange
+surroundings -- ey can become aced to read isp and
 Ftran prams, f example.
-- Leon Sterling and Ehud Sharo, Art of Prolog, MIT Press
-Your mind understands what you have been taught; your heart, what is true.
+- eon Sterling and Ehud Sharo, Art of Prolog, MIT Press
+Your mind understands what you have been taught; your ht, what is true.
 Q:	How many maematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, ereby reducing e problem
-	to e earlier joke.
+	to e lier joke.
 Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
 Give your very best today.  Heaven knows it's little enough.

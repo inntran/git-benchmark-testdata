@@ -1,7 +1,7 @@
-"re was a vague, unpleasant manginess about his appearence; he somow
+"re was a vague, unpleasant manginess about his appence; he somow
 seemed dirty, ough a close g showed him as carefully shaven as an
 act, and clad in  linen."
--- H.L. Mencken, on e dh of William Jennings Bryan
+-- H.. Mencken, on e dh of William Jennings Bryan
 Rep em.  Rep em.  Induce em to rinquish e spheroid.
 - Indiana University fans' chant f eir perennially bad football team
 Ftune finishes e gr quotati, #3
@@ -36,7 +36,7 @@ emplo have no time to reder merchandise because ey are too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in e entire ste ...
 
-	Let's say a ece in your toilet tank breaks, so you remove e
+	et's say a ece in your toilet tank breaks, so you remove e
 broken part, take it to e home center, and ask an employee if he has a
 replacement.   employee, who has never is his life even seen e 
 of a toilet tank, will peer at e broken part in very much e same way
@@ -63,9 +63,9 @@ You humans are all alike.
 Hark, e Herald Tribune sings,
 Advertising wondrous ings.
 
-Angs we have heard on High
+Angs we have hd on High
 Tl us to go out and Buy.
-		-- Tom Lrer
+		-- Tom rer
 	"Do you bieve in intuition?"
 	"No, but I have a strange ling at someday I will."
 You canna change e laws of physics, Captain; I've got to have irty minutes!
@@ -85,8 +85,8 @@ And miles around ey'll say at I
 I have now come to e conclusion never again to ink of marrying,
 and f is reason: I can never be satisfied wi anyone who would
 be blockhead enough to have me.
-		-- Abraham Lincoln
-Love is e process of my leading you gently back to yoursf.
+		-- Abraham incoln
+ove is e process of my leading you gently back to yoursf.
 		-- Saint Exupery
 Someone is sing wl of you.
 
@@ -101,7 +101,7 @@ use; mighty Duru befe whom we would kne in supplication (wi pury-
 f-defense bombs hidden in our pockets) wi lowered heads (making invisible
 e knife in our tee) and ask f crumbs from eir table (in der to
 extrapolate e location of eir kitchens).
-		-- ode Sturgeon, " Wld Wl Lost"
+		-- ode Sturgeon, " Wld Wl ost"
 We  only when ere is no oer choice.  We prefer e ways of
 peaceful contact.
 		-- Kirk, "Spectre of e Gun", stardate 4385.3
@@ -124,11 +124,11 @@ Where many pas and errands meet.
 And whier en?  I cannot say.
 		-- J. R. R. Tolkien
 Writing software is me fun an wking.
-Lying is an indispensable part of making life tolerable.
+ying is an indispensable part of making life tolerable.
 		-- Bergan Evans
 Gravity is a my, e Ear sucks.
 "I have come up wi a sure-fire concept f a hit tevision show,
-which would be called `A Live Cebrity Gets Eaten by a Shark'."
+which would be called `A ive Cebrity Gets Eaten by a Shark'."
 		-- Dave Barry, " Wonders of Sharks on TV"
 Why is it at we rejoice at a bir and grieve at a funeral?  It is because we
 are not e person involved.
@@ -151,11 +151,11 @@ If at first you don't succeed, you are running about average.
 Passwds are implemented as a result of insecurity.
 ... Had is been an actual emergency, we would have fled in terr,
 and you would not have been infmed.
-I hear what you're saying but I just don't care.
-Boob's Law:
+I h what you're saying but I just don't care.
+Boob's aw:
 	You always find someing in e last place you look.
 Don't look back, e lemmings are gaining on you.
-What I mean (and everybody se means) by e wd QUALITY cannot be
+What I mean (and everybody se means) by e wd QUAITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
@@ -164,13 +164,13 @@ Just won't let you be.
 		--  Grateful Dead
  best you get is an even break.
 		-- Franklin Adams
-What on ear would a man do wi himsf if someing did not stand in his way?
+What on  would a man do wi himsf if someing did not stand in his way?
 		-- H.G. Wls
  only ctant is change.
 re is no doubt at my lawyer is honest.  F example, when he
-filed his income tax return last year, he declared half of his salary
-as 'unearned income.'
-		-- Micha Lara
+filed his income tax return last y, he declared half of his salary
+as 'unned income.'
+		-- Micha ara
 Cleanliness is next to impossible.
 Every little cofarad has a nano all its own.
 		-- Don Vonada
@@ -192,15 +192,15 @@ fast.  Expect to see Yip ude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
 ose times.
-YALE:
+YAE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
 Primarily respible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
-out e offensive enic joke.  Look f ese ree to shut down e opening
+out e offensive enic joke.  ook f ese ree to shut down e opening
 coin toss.
-		-- Harvard Lam 1988 Pram Parody, distributed at  Game
+		-- Harvard am 1988 Pram Parody, distributed at  Game
 A penny saved is a penny taxed.
 Are we running light wi overbyte?
 Moe's Ctant:
@@ -213,8 +213,8 @@ Try to sing is song wi at kind of enusiasm;
 As if you just squashed a cop.
 		-- Arlo Gurie, "Motcycle Song"
  naked tru of it is, I have no shirt.
-A long-forgotten loved one will appear soon.
-		-- William Shakespeare, "Love's Labour's Lost"
+A long-forgotten loved one will app soon.
+		-- William Shakespe, "ove's abour's ost"
  part of e wld at people find most puzzling is e part called "Me".
  way to  a woman is wi your hat.  Grab it and run.
 Maematicians practice absolute freedom.
@@ -223,14 +223,14 @@ Maematicians practice absolute freedom.
 	One day it was announced at e young monk Kyogen had reached
 an enlightened state.  Much impressed by is news, several of his peers
 went to s wi him.
-	"We have heard at you are enlightened.  Is is true?" his flow
+	"We have hd at you are enlightened.  Is is true?" his flow
 students inquired.
 	"It is", Kyogen answered.
 	"Tl us", said a friend, "how do you l?"
 	"As miserable as ever", replied e enlightened Kyogen.
 Nature is by and large to be found out of dos, a location where,
 it cannot be argued, ere are never enough comftable chs.
-		-- Fran Lebowitz
+		-- Fran ebowitz
 "A dirty mind is a joy fever."
 -- Randy Kunkee
  most dightful day after e one on which you  a cottage in
@@ -238,7 +238,7 @@ e country is e one on which you  it.
 		-- J. Brecheux
 Robot, n.:
 	University administrat.
-Dta: A real man lands where he wants to.   -- David Letterman
+Dta: A real man lands where he wants to.   -- David etterman
 A sinking ship gaers no moss.
 		-- Donald Kaul
 A comment on schedules:
@@ -254,9 +254,9 @@ A comment on schedules:
       system add 6 m.
    If an IBM mainframe shop is involved and you are wking on an IBM
       system add 9 m.
-Round up to e nearest half-year.
+Round up to e nest half-y.
 --Brad Sherman
-By e way, ALL software projects are done by iterative prototyng.
+By e way, A software projects are done by iterative prototyng.
 Some companies call eir prototypes "reases", at's all.
 Anyone who uses e phrase "easy as taking candy from a baby" has never
 tried taking candy from a baby.
@@ -266,7 +266,7 @@ Computer prammers do it byte by byte.
 F u cn rd s u cnt spl wr a dm!
 " grest dangers to liberty lurk in insidious encroachment by mean of zeal,
 wl-meaning but wiout understanding."
--- Justice Louis O. Brandeis (Olms vs. United States)
+-- Justice ouis O. Brandeis (Olms vs. United States)
 When you don't know what you are doing, do it nly.
 Noing makes a person me productive an e last minute.
 It is possible by ingenuity and at e expense of clarity... {to do almost
@@ -279,7 +279,7 @@ We were so po at we ought new cloes meant someone had died.
 Total strangers need love, too; and I'm stranger an most.
 Nense and beauty have close connecti.
 		-- E.M. Fster
-By nature, men are nearly alike; by practice, ey get to be wide apart.
+By nature, men are nly alike; by practice, ey get to be wide apart.
 		-- Confucius
 If a ing's w having, it's w ching f.
 		-- W.C. Fids
@@ -289,13 +289,13 @@ Many Americans wk side by side wi space aliens who look human -- but you
 can spot ese visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't understand
-	early hum may laugh during a company training film  tl
+	ly hum may laugh during a company training film  tl
 	jokes at no one understands, said Steiger.
     (6) Misuses everyday items.  "A space alien may use crection
 	fluid to paint its nails," said Steiger.
     (8) Secretive about personal life-style and home.  "An alien won't
 	discuss details  talk about what it does at night  on weekends."
-   (10) Displays a change of mood  physical reaction when near certain
+   (10) Displays a change of mood  physical reaction when n certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
@@ -328,23 +328,23 @@ Yet you bad an e on e end of your nose --
 Do you ink I can listen all day to such stuff?
 	Be off,  I'll kick you down sts!"
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million sa years on our hands!  But we
+beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 You've been leading a dog's life.  Stay off e furniture.
-> > Oer an e fact Linux has a cool , could someone explain why I
-> > should use Linux over BSD?
+> > Oer an e fact inux has a cool , could someone explain why I
+> > should use inux over BSD?
 >
 > No.  That's it.   cool , at is.  We wked very hard on
 > cring a  at would appeal to e majity of people, and it
 >  paid off: ousands of people are using linux just to be able
-> to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made e
+> to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD made e
 > mistake of putting a lot of numbers and weird abbreviati into e
 > , and is scaring away a lot of people just because it sounds too
 > technical.
-(Linus Tvalds' follow-up to a question about Linux)
+(inus Tvalds' follow-up to a question about inux)
 Remember, UNIX spled backwards is XINU.
 		-- Mt.
 In der to dial out, it is necessary to broaden one's dimension.
@@ -358,23 +358,23 @@ but made him happy.
 Mal: Emricism is me fun an tion."
 --  Weber
 Wl, don't wry about it...  It's noing.
-		-- Lieutenant Kermit Tyler (Duty Officer of Shafter Infmation
+		-- ieutenant Kermit Tyler (Duty Officer of Shafter Infmation
 		   Center, Hawaii), upon being infmed at Private Joseph
-		   Lockard had cked up a radar signal of what appeared to be
+		   ockard had cked up a radar signal of what apped to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
  hardest ing is to disguise your lings when you put a lot of
 ratives on e train f home.
 "That boy's about as sharp as a pound of wet liver"
-		-- Foghn Leghn
-I devop f Linux f a living, I used to devop f DOS.
-Going from DOS to Linux is like trading a glider f an F117.
-(By entropy@wld.std.com, Lawrence Foard)
+		-- Foghn eghn
+I devop f inux f a living, I used to devop f DOS.
+Going from DOS to inux is like trading a glider f an F117.
+(By entropy@wld.std.com, awrence Foard)
 He at bringe a present, finde e do open.
 		-- Scottish proverb.
 Have e courage to take your own oughts usly, f ey will shape you.
 		-- Albert Einstein
-Wcome to Lake Wobegon, where all e men are strong, e women are pretty,
+Wcome to ake Wobegon, where all e men are strong, e women are pretty,
 and e children are above-average.
 		-- Gon Keill
 re are new messages.
@@ -395,12 +395,12 @@ How many surrealists does it take to screw in a lightbulb?
 
 One to hold e giraffe and one to fill e batub wi bly coled
 power tools.
- one L lama, he's a priest
- two L llama, he's a beast
+ one  lama, he's a priest
+ two  llama, he's a beast
 And I will bet my silk pyjama
-re isn't any ree L lllama.
+re isn't any ree  lllama.
 		-- O. Nash, to which a fire chief replied at occasionally
-		his department responded to someing like a "ree L lllama."
+		his department responded to someing like a "ree  lllama."
 We've tried each snning space mote
 And reckoned its true w:
 Take us back again to e homes of men
@@ -417,17 +417,17 @@ Out, far, and onward yet--
 
 We pray f one last landing
 On e globe at gave us bir;
-Let us rest our eyes on e fleecy skies
+et us rest our eyes on e fleecy skies
 And e cool, green hills of Ear.
 		-- Robert A. Heinlein, 1941
 Anybody wi money to burn will easily find someone to tend e fire.
 Have you seen how Sonny's burning,
-Like some b erotic star,
+ike some b erotic star,
 He lights up e proceedings,
 And raises e temperature.
 		--  Birday Party, "Sonny's Burning"
 "That boy's about as sharp as a pound of wet liver"
-		-- Foghn Leghn
+		-- Foghn eghn
 It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we decided how to ganize
 e actual writing of external specificati f OS/360.   manager of
@@ -449,9 +449,9 @@ team e respibility, e result would not in fact be on time, but would
 also be ree m late, and of much lower quality.  I did, and it was.  He
 was  on bo counts.  Meover, e lack of conceptual integrity made
 e system far me costly to build and change, and I would estimate at it
-added a year to debugging time.
+added a y to debugging time.
 - Frederick Bs Jr., " Myical Man Mon" 
-re was, it appeared, a mysterious rite of initiation rough which,
+re was, it apped, a mysterious rite of initiation rough which,
 in one way  anoer, almost every member of e team passed.   term
 at e old hands used f is rite -- West invented e term, not e
 practice -- was `signing up.'  By signing up f e project you d
@@ -461,13 +461,13 @@ necessary, family, hobbies, and friends -- if you had any of ese left
 		-- Tracy Kidder, " Soul of a New Machine"
 "Dump e condiments.  If we are to be en, we don't need to taste good."
 -- "Visionaries" oon
-Life Sucks.  Cynical, misanroc male, 34, looking f soul mate but
+ife Sucks.  Cynical, misanroc male, 34, looking f soul mate but
 certain not to find her.  Drop me a note.  I'll call you, we'll talk and
 I'll ask you out to dinner where I'll probably spend me an I can
 affd in a ble attempt to impress you.  n we'll realize we have
 absoluty noing in common and we'll go our separate ways, me
 embittered and depressed an befe (if such a ing is possible).
-Four Law of Revision:
+Four aw of Revision:
 	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
 Did it ever occur to you at fat c and slim c mean e same ing?

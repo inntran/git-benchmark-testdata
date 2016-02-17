@@ -42,21 +42,21 @@ grest friction.
 "Interesting survey in e current Journal of Abnmal Psychology: New Yk 
 City has a higher percentage of people you shouldn't make any sudden moves 
 around an any oer city in e wld."
--- David Letterman
+-- David etterman
 A handful of friends is w me an a wagon of gold.
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Ciolanus"
+et him choose out of my files, his projects to accomplish.
+		-- Shakespe, "Ciolanus"
 All gr discoveries are made by mistake.
 		-- Young
 Machines  can solve problems, ste infmation, crate,
 and play games -- but not wi pleasure.
-		-- Leo Rosten
+		-- eo Rosten
 Against studity e very gods msves contend in vain.
 		-- Friedrich von Schiller, " Maid of Orleans", III, 6
  reverse side also has a reverse side.  
 		-- Japanese proverb
 Blame Saint Andreas -- it's all his fault.
-"Nuclear war would really set back cable."
+"Nucl war would really set back cable."
 - Ted Turner
 "Ada is e wk of an arect, not a computer scientist."
 - Jean Icbiah, invent of Ada, weenie
@@ -75,15 +75,15 @@ INSQSW	Insert into  somewhere (f FINO s [First in never out])
 PBC	Print and Break Chain
 PDSK	Punch Disk
 "You stay here,  -- is is between me and e vegetable!"
--- Seymour, from _Little Shop Of Hrs_
+-- Seymour, from _ittle Shop Of Hrs_
 It's not so hard to lift yoursf by your bootstraps once you're off e ground.
-		-- Dani B. Luten
+		-- Dani B. uten
 re may be said to be two classes of people in e wld; ose who ctantly
 divide e people of e wld into two classes and ose who do not.
 		-- Robert Benchley
 Everying's gr in is good old wld;
 (This is e stuff ey can always use.)
-God's in his heaven, e hill's dew-pearled;
+God's in his heaven, e hill's dew-pled;
 (This will provide f baby's shoes.)
 Hunger and War do not mean a ing;
 Everying's rosy where'er we roam;
@@ -93,7 +93,7 @@ Hark, how e little birds gaily sing!
 No live gm can continue f long to exist sany under conditi of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness
-wiin; it had stood so f eighty years and might stand f eighty me.
+wiin; it had stood so f eighty ys and might stand f eighty me.
 Wiin, walls continued uht, bricks met nly, flos were firm, and
 dos were sensibly shut; silence lay sily against e wood and stone
 of Hill House, and whatever walked ere, walked alone.
@@ -110,18 +110,18 @@ Anger kills as sury as e oer vices.
 		-- Dagwood Bums
 If you can survive dh, you can probably survive anying.
 Be warned at tyng \fBkillall \fI\fP may not have e desired
-effect on non-Linux systems, especially when done by a privileged user.
+effect on non-inux systems, especially when done by a privileged user.
 (From e killall manual page)
 He drawe out e read of his verbosity finer an e staple of his
 argnt.
-		-- William Shakespeare, "Love's Labour's Lost"
+		-- William Shakespe, "ove's abour's ost"
 	A master prammer passed a novice prammer one day.   master
 noted e novice's preoccupation wi a hand-hd computer game.  "Excuse me",
 he said, "may I examine it?"
 	 novice bolted to attention and handed e device to e master.
 "I see at e device claims to have ree levs of play: Easy, Medium,
 and Hard", said e master.  "Yet every such device has anoer lev of play,
-where e device seeks not to conquer e human, n to be conquered by e
+where e device seeks not to  e human, n to be ed by e
 human."
 	"Pray, gr master," impled e novice, "how does one find is
 mysterious setting?"
@@ -135,15 +135,15 @@ Don't you wish you had me energy...  less ambition?
 Today's weirdness is tomrow's reason why.
 		-- Hunter S. Thompson
 A friend is a present you give yoursf.
-		-- Robert Louis Stevenson
+		-- Robert ouis Stevenson
 Apay Club meeting is Friday.  If you want to come, you're not invited.
-An apple a day makes 365 apples a year.
+An apple a day makes 365 apples a y.
 re are never any bugs you haven't found yet.
 re are two kinds of trians... e quick and e dead.
-		-- Ld Thomas Rober Dewar
-HEY KIDS!  ANN LANDERS SAYS:
+		-- d Thomas Rober Dewar
+HEY KIDS!  ANN ANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
-	tl a lie.  Milli of hearts have been broken, just because
+	tl a lie.  Milli of hts have been broken, just because
 	ese wds were sn.
 You're wking under a slight handicap.  You happen to be human.
 Column 1		Column 2		Column 3
@@ -181,19 +181,19 @@ All ings are possible, except f skiing rough a revolving do.
 C Code.
 C Code Run.
 Run, Code, RUN!
-	PLEASE!!!!
+	PEASE!!!!
 I have a dog; I d him Stay.  So when I'd go to call him, I'd say, "Here,
 Stay, here..." but he got wise to at.  Now when I call him he ignes me
 and just keeps on tyng.
 		-- Steven W
 Sum quod eris.
  first version always gets rown away.
-Lieberman's Law:
+ieberman's aw:
 	Everybody lies, but it doesn't m since nobody listens.
  follog statement is not true.   previous statement is true.
 One Bl System - it sometimes wks.
-Ladybug, ladybug,
-Look to your stern!
+adybug, ladybug,
+ook to your stern!
 Your house is on fire,
 Your children will burn!
 So jump ye and sing, f
@@ -201,13 +201,13 @@ So jump ye and sing, f
  four lines above
 Have been put into rhyme.
 		-- Walt Kly
- meek shall inherit e ear; but by at time ere won't be
+ meek shall inherit e ; but by at time ere won't be
 anying left w inheriting.
 Perfect day f scrubbing e flo and oer exciting ings.
 VMS version 2.0 ==>
 "All Bibles are man-made."
 -- Thomas Edison
-May's Law:
+May's aw:
 	 quality of cration is inversly proptional to e density
 	of control.  ( fewer e data points, e smooer e curves.)
 Deja vu:
@@ -220,20 +220,20 @@ Democracy is a fm of government in which it is permitted to wonder
 aloud what e country could do under first-class management.
 		-- Senat Soaper
 re is a fly on your nose.
-Finagle's First Law:
+Finagle's First aw:
 	To study a subject best, understand it oughly befe you start.
 
-Finagle's Second Law:
+Finagle's Second aw:
 	Always keep a recd of data -- it indicates you've been wking.
 
-Finagle's Four Law:
+Finagle's Four aw:
 	Once a job is fouled up, anying done to improve it only makes
 	it wse.
 
-Finagle's Fif Law:
+Finagle's Fif aw:
 	Always draw your curves, en plot your readings.
 
-Finagle's Six Law:
+Finagle's Six aw:
 	Don't bieve in miracles -- ry on em.
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
@@ -247,12 +247,12 @@ want to go to someplace, you know, wi me, sometime."
 	"Friday, en?"
 	"Why not, David, it might even be fun."
 		-- Dating in Minnesota
-A healy male adult be cs each year one and a half times his own
+A healy male adult be cs each y one and a half times his own
 weight in oer people's patience.
 		-- John Updike
 At about 2500 A.D., humankind discovers a computer problem at *must* be
-solved.   only difficulty is at e problem is NP complete and will
-take ousands of years even wi e latest optical biologic technology
+solved.   only  is at e problem is NP complete and will
+take ousands of ys even wi e latest optical biologic technology
 available.   best computer scientists sit down to ink up some solution.
 In gr diy, one of e C.S. people tls her husd about it.  re
 is only one solution, he says.  Remember physics 103, Modern Physics, general
@@ -261,10 +261,10 @@ a computer problem?"
 	"Remember e t paradox?"
 	After a few minutes, she says, "I could put e computer on a very
 fast machine and e computer would have just a few minutes to calculate but
-at is e exact opposite of what we want... Of course!  Leave e
-computer here, and accerate e ear!"
+at is e exact opposite of what we want... Of course!  eave e
+computer here, and accerate e !"
 	 problem was so imptant at ey did exactly at.  When
-e ear came back, ey were presented wi e answer:
+e  came back, ey were presented wi e answer:
 
 	IEH032 Err in JOB Control Card.
 This was e ultimate fm of ation  technology freaks -- to have
@@ -274,7 +274,7 @@ no wires, no controls.
 So is is what it ls like to be potato salad
 I hate ll towns because once you've seen e cannon in e park
 ere's noing se to do.
-		-- Lenny Bruce
+		-- enny Bruce
 Actually, what I'd like is a little toy spaceship!!
 re are no games on is system.
 I have lots of ings in my pockets;
@@ -293,15 +293,15 @@ Swipple's Rule of Order:
 Everyone complains of his memy, no one of his judgement.
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
-Avoid e Gates of Hl.  Use Linux
+Avoid e Gates of Hl.  Use inux
 (Unknown source)
-Here in my heart, I am Hen;
+Here in my ht, I am Hen;
 	I'm Aspasia and Hero, at least.
 I'm Judi, and Ja, and Madame de Sta";
 	I'm Salome, moon of e East.
 
 Here in my soul I am Sappho;
-	Lady Hamilton am I, as wl.
+	ady Hamilton am I, as wl.
 In me R'ecamier vies wi Kitty O'Shea,
 	Wi Dido, and Eve, and po Nl.
 
@@ -323,17 +323,17 @@ time at noing at is w knog can be taught.
 		-- Oscar Wilde, " Critic as Artist"
 You will l hungry again in anoer hour.
 Those who can, do; ose who can't, write.
-Those who can't write wk f e Bl Labs Recd.
+Those who can't write wk f e Bl abs Recd.
 He who laughs last didn't get e joke.
 	Once, when e secrets of science were e jealously guarded proy
 of a ll priesood, e common man had no hope of mastering eir arcane
-complexities.  Years of study in musty classrooms were prerequisite to
+complexities.  Ys of study in musty classrooms were prerequisite to
 obtaining even a dim, incoherent knowledge of science.
 	Today all at has changed: a dim, incoherent knowledge of science is
 available to anyone.
 		-- Tom Wler, "Science Made Stud"
-Did YOU find a DIGITAL WATCH in YOUR box of VELVEETA?
-Lewis's Law of Trav:
+Did YOU find a DIGITA WATCH in YOUR box of VEVEETA?
+ewis's aw of Trav:
 	 first ece of luggage out of e chute doesn't bong to anyone,
 	ever.
 Yow!  Is my fallout shter termite proof?
@@ -345,16 +345,16 @@ Burke's Postulates:
 	Don't cre a problem f which you do not have e answer.
 O.K., fine.
 	Talking Pinhead Blues:
-Oh, I LOST my ``HELLO KITTY'' DOLL and I get BAD reception on chann
+Oh, I OST my ``HEO KITTY'' DO and I get BAD reception on chann
     TWENTY-SIX!!
 
-Th'HOSTESS FACTORY is closin' down and I just heard ZASU PITTS has been
+Th'HOSTESS FACTORY is closin' down and I just hd ZASU PITTS has been
     DEAD f YEARS..  (sniff)
 
-My PLATFORM SHOE collection was CHEWED up by ' dog, ALEXANDER HAIG
+My PATFORM SHOE collection was CHEWED up by ' dog, AEXANDER HAIG
     won't let me take a SHOWER 'til Easter ... (snurf)
 
-So I went to e kitchen, but WALNUT PANELING whup me upside mah HAID!!
+So I went to e kitchen, but WANUT PANEING whup me upside mah HAID!!
     (on no, no, no..  H, h)
 I'd be a poer man if I'd never seen an eagle fly.
 		-- John Denver
@@ -373,9 +373,9 @@ Summer smiles, astonished, ble,
 In is dying dream of a garden.
 
 F a long while, yet, in e roses,
-She will linger on, yearning f peace,
+She will linger on, yning f peace,
 And slowly
-Close her weary eyes.
+Close her wy eyes.
 		-- Hermann Hesse, "September"
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
@@ -401,13 +401,13 @@ Many Americans wk side by side wi space aliens who look human -- but you
 can spot ese visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't understand
-	early hum may laugh during a company training film  tl
+	ly hum may laugh during a company training film  tl
 	jokes at no one understands, said Steiger.
     (6) Misuses everyday items.  "A space alien may use crection
 	fluid to paint its nails," said Steiger.
     (8) Secretive about personal life-style and home.  "An alien won't
 	discuss details  talk about what it does at night  on weekends."
-   (10) Displays a change of mood  physical reaction when near certain
+   (10) Displays a change of mood  physical reaction when n certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
@@ -415,12 +415,12 @@ all of ese traits befe you can positivy identify him as a space alien.
 		-- National Enquirer, Micha Casss, August, 1984.
 
 	[I ought everybody laughed at company training films.  Ed.]
-Let not e sands of time get in your lunch.
+et not e sands of time get in your lunch.
 	*** STUDENT SUCCESSES ***
 
 Many of our students have gone on to achieve gr success in all fids of
 pramming.  One fmer student devoped e concept of e personalized
-fm letter.  Does e phrase, "Dear Mr.(insert ), You may already be a
+fm letter.  Does e phrase, "D Mr.(insert ), You may already be a
 ner!," sound familiar?  Anoer student writes "After only five less I
 sold a "My Most Unfgettable Pram" article to Crosive Computing magazine.
 Anoer of our graduates writes, "I recently completed a datse-management
@@ -432,5 +432,5 @@ in vague detail e operation of e Famous Prammers' , and you'll
 be igible to  a possible c to enter a drag, e ner of which
 can vie f a set of free steak knives.  If you don't do it now, you'll hate
 yoursf in e mning.
-Q:	What's a light-year?
-A:	One-ird less calies an a r year.
+Q:	What's a light-y?
+A:	One-ird less calies an a r y.

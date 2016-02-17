@@ -21,17 +21,17 @@ i boovi eran tutti mimanti
 	dagli artigli e dal morso lacerante;
 fuggi l'ucclo Giuggiolo, e n sacco
 	metti infine il frumioso Bandifante".
-		-- Lewis Carroll, "Jabberwocky"
+		-- ewis Carroll, "Jabberwocky"
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 [Washington, D.C.] is the home of... taste for the people -- the big,
 the bland and the banal.
-		-- Ada Louise Huxtable
+		-- Ada ouise Huxtable
 Your mind is the part of you that says,
 	"Why'n'tcha eat that piece of cake?"
 ... and then, twenty minutes later, says,
 	"Y'know, if I were you, I wouldn't have done that!"
-		-- Steven and Ondrea Levine
-Our documentation manager was showing her 2 year old son around the office.
+		-- Steven and Ondrea evine
+Our documentation manager was showing her 2 y old son around the office.
 He was introduced to me, at which time he pointed out that we were both
 holding bags of popcorn.  We were both holding bottles of juice.  But only
 *__he* had a lollipop.
@@ -41,35 +41,35 @@ what it means to be a prammer."
 Yesterday I was a dog.  Today I'm a dog.  Tomorrow I'll probably still
 be a dog. Sigh!  There's so little hope for advancement.
 		-- Snoopy
-To our sweethearts and wives.  May they never meet.
+To our sweethts and wives.  May they never meet.
 		-- 19th century toast
 BARRY ... That was the most HEART-WARMING rendition of "I DID IT MY
-WAY" I've ever heard!!
+WAY" I've ever hd!!
 The evidence of the emoti, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive desire for immortality,
 and that this desire proves it to be a fact, becomes puerile when it is
-recalled that there is also a powerful and widespread fear of annihilation,
-and that this fear, on the same principle proves that there is nothing
+recalled that there is also a powerful and widespread f of annihilation,
+and that this f, on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 
 flatter themsves by bieving that they are scientific gents....
-- H. L. Mencken
-A Los Anges judge ruled that "a citizen may snore with immunity in
+- H. . Mencken
+A os Anges judge ruled that "a citizen may snore with immunity in
 his own home, even though he may be in possession of unusual and
 exceptional ability in that particular fid."
 Youth.  It's a wonder that anyone ever outgrows it.
-The meek shall inherit the earth; but by that time there won't be
+The meek shall inherit the th; but by that time there won't be
 anything left worth inheriting.
 `When you say "I wrote a pram that crashed Windows", people just s at
 you blankly and say "Hey, I got those with the system, *for free*".'
-(By Linus Torvalds)
-"Can't you just gesture hypnotically and make him disappear?"
+(By inus Torvalds)
+"Can't you just gesture hypnotically and make him disapp?"
     "It does not work that way.  RUN!"
 -- Hadji on metaphyics and Mandrake in "Johnny Quest"
 There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+		-- William Shakespe, "The Taming of the Shrew"
 No problem is so large it can't be fit in somewhere.
 The carbonyl is polarized,
 The dta end is plus.
@@ -84,7 +84,7 @@ Computer, n.:
 	An ectronic entity which performs sequences of useful steps in a
 	totally understandable, rigorously logical manner.  If you bieve
 	this, see me about a bridge I have for sale in Manhattan.
-Lay off the muses, it's a very tough dollar.
+ay off the muses, it's a very tough dollar.
 		-- S.J. Perman
 Creativity in living is not without its attendant difficulties, for
 peculiarity breeds contempt. And the unfortunate thing about being
@@ -111,9 +111,9 @@ A:	The Halls of Montezuma and the Shores of Tripoli.
 Q:	Name two families whose kids won't join the Marines.
 I'm a GENIUS!  I want to dispute sentence structure with SUSAN SONTAG!!
 The first Rotarian was the first man to call John the Baptist "Jack."
-		-- H.L. Mencken
+		-- H.. Mencken
 Avoid Quiet and Placid pers unless you are in Need of Sleep.
-		-- National Lampoon, "Deteriorata"
+		-- National ampoon, "Deteriorata"
 pix, n.:
 	A mischievous, magical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
@@ -123,9 +123,9 @@ Finagle's Creed:
 	Science is true.  Don't be misled by facts.
 Mene, mene, tek, upharsen.
 April is the crulest month...
-		-- Thomas Stearns Eliot
+		-- Thomas Stns Eliot
 Drink and dance and laugh and lie
-Love, the reing midnight through
+ove, the reing midnight through
 For tomorrow we shall die!
 (But, alas, we never do.)
 		-- Dorothy Parker, "The Flaw in Pagm"
@@ -134,18 +134,18 @@ can leave in a huff.  If that's too soon, you can leave in a minute and a huff.
 		-- Groucho Marx
 Haste makes waste.
 		-- John Heywood
-Don't put too fine a point to your wit for fear it should get blunted.
+Don't put too fine a point to your wit for f it should get blunted.
 		-- Migu de Cervantes
 Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
-The annual meeting of the "You Have To Listen To Experience" Club is now in
-session.  Our Achievement Awards this year are in the fids of publishing,
+The annual meeting of the "You Have To isten To Experience" Club is now in
+session.  Our Achievement Awards this y are in the fids of publishing,
 advertising and industry.  For best cistent contribution in the fid of
-publishing our award goes to editor, R.L.K., [...] for his unrivalled alle-
+publishing our award goes to editor, R..K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
-we'd ALL love to do it.  But we're not going to do it.  It's not the kind of
+we'd A love to do it.  But we're not going to do it.  It's not the kind of
 book our house knows how to handle."  Our superior performance award in the
-fid of advertising goes to media exeive, E.L.M., [...] for the continu-
+fid of advertising goes to media exeive, E..M., [...] for the continu-
 ally creative use of the old favorite: "I think what you've got here could be
 very exciting.  Why not give it one more try based on the approach I've out-
 lined and see if you can come up with something ."  Our final award for
@@ -153,8 +153,8 @@ courageous holding action in the fid of industry goes to supervisor, R.S.,
 [...] for her unyiding grip on "I don't care if they fire me, I've been
 arguing for a new approach for YEARS but are we SURE that this is the 
 time--"  I would like to conclude this meeting with a verse written specially
-for our prospectus by our founding president fifty years ago -- and now, as
-then, fully expressive of the emotion most close to all our hearts --
+for our prospectus by our founding president fifty ys ago -- and now, as
+then, fully expressive of the emotion most close to all our hts --
 	Treat ness as a youthful quirk,
 		And dare not stray to ideas new,
 	For if t'were tried they might e'en work
@@ -184,20 +184,20 @@ parties.
 	"Oh, I have a three point eight, so I'm much more attracted to the
 strong academic types than to the dumb party animals," she said.  "What's
 your G.P.A.?"
-	Grinning ear to ear, the jock boasted, "I get about twenty-five in
+	Grinning  to , the jock boasted, "I get about twenty-five in
 the city and forty on the highway."
 Someone is unic about your work.
 scenario, n.:
 	An imagined sequence of events that provides the context in
 	which a business decision is made.  Scenarios always come in
 	sets of three: best case, worst case, and just in case.
-LOGO for the Dead
+OGO for the Dead
 
-LOGO for the Dead lets you continue your computing activities from
+OGO for the Dead lets you continue your computing activities from
 "The Other Side."
 
 The package includes a unique tecommunicati feature which lets you
-turn your TRS-80 into an ectronic Ouija board.  Then, using Logo's
+turn your TRS-80 into an ectronic Ouija board.  Then, using ogo's
 graphics capabilities, you can work with a friend or rative on this
 side of the Great Beyond to write prams.  The software requires that
 your body be hardwired to an analog-to-digital converter, which is then
@@ -205,26 +205,26 @@ interd to your computer.  A special terminal (very terminal) pram
 lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
-LOGO for the Dead is available for 10 percent of your estate
+OGO for the Dead is available for 10 percent of your estate
 from NecroSoft inc., 6502 Charnhouse Blvd., Clevand, OH 44101.
 		-- '80 Microcomputing
 Governor Tarkin.  I should have expected to find you holding Vader's
 leash.  I thought I recognized your foul stench when I was brought on board.
-		-- Princess Leia Organa
+		-- Princess eia Organa
 The great secret in life ... [is] not to open your letters for a fortnight.
-At the expiration of that period you will find that nearly all of them have
+At the expiration of that period you will find that nly all of them have
 answered themsves.
 		-- Arthur Binstead
 "(The Chief Prammer)  defines the functional and performance
  specificati, designs the pram, codes it, tests it, and writes its
- documentation... He needs great talent, ten years experience and
+ documentation... He needs great talent, ten ys experience and
  ciderable systems and applicati knowledge, whether in applied
  mathematics, business data handling, or whatever."
 -- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
 Everyone has a purpose in life.  Perhaps yours is watching tevision.
-- David Letterman
+- David etterman
 The propriety of some pers seems to cist in having improper
 thoughts about their neighbours.
 		-- F.H. Bradley
@@ -236,25 +236,25 @@ in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of sf-confessed "car nuts"
 are making money doing what they love: writing code and driving fast.
 -- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
-Factorials were someone's attempt to make math LOOK exciting.
+Factorials were someone's attempt to make math OOK exciting.
 Beware of Bigfoot!
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
 	of error in an opponent.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-T:	One big mter, he called TROLL.
+T:	One big mter, he called TRO.
 	He don't rock, and he don't roll;
 	Drink no wine, and smoke no stogies.
-	He just Love To Eat Them Roguies.
+	He just ove To Eat Them Roguies.
 		-- The Roguet's ABC
-"Language shapes the way we think, and determines what we can think about."
--- B. L. Whorf
+"anguage shapes the way we think, and determines what we can think about."
+-- B. . Whorf
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
 they can't  out how to get two quarts of water into one of those
 little paper envopes.
 "Be ** to each other."
 -- Bill, or Ted, in Bill and Ted's Exclent Adventure
-	"And we heard him exclaim
+	"And we hd him exclaim
 	 As he started to roam:
 	 `I'm a hologram, kids,
 	  please don't try this at home!'"
@@ -262,7 +262,7 @@ little paper envopes.
 -- Howie Chaykin's little animated 3-dimensional darling, Bob Violence
 Money may buy friendship but money cannot buy love.
 	One evening he spoke.  Sitting at her feet, his  raised to her,
-he allowed his soul to be heard.  "My darling, anything you wish, anything
+he allowed his soul to be hd.  "My darling, anything you wish, anything
 I am, anything I can ever be...  That's what I want to offer you -- not the
 things I'll get for you, but the thing in me that will make me able to get
 them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
@@ -271,7 +271,7 @@ that it will be yours -- so that it will be in your service -- only for you."
 Kly?"
 	He got up.  He said nothing and walked out of the house.  He never
 saw that girl again.  Gail Wynand, who prided himsf on never needing a
-lesson twice, did not fall in love again in the years that followed.
+lesson twice, did not fall in love again in the ys that followed.
 		-- Ayn Rand, "The Fountainhead"
 Youth.  It's a wonder that anyone ever outgrows it.
 The best laid plans of mice and men are hd up in the legal department.
@@ -280,7 +280,7 @@ A waist is a terrible thing to mind.
 Natural section won't matter soon, not anywhere as much as concious section.
 We will civilize and alter oursves to suit our ideas of what we can be.
 Within one more human lifespan, we will have changed oursves unrecognizably.
--- Greg Bear
+-- Greg B
 "I dislike companies that have a we-are-the-high-priests-of-hardware-so-you'll-
 like-what-we-give-you attitude.  I like commodity markets in which iron-and-
 silicon hawkers know that they exist to provide fast toys for software types
@@ -299,12 +299,12 @@ know how sdom they do.
 		-- Olin Miller.
 'Tis the dream of each prammer,
 Before his life is done,
-To write three lines of APL,
+To write three lines of AP,
 And make the damn things run.
 Mind your own business, Spock.  I'm sick of your halfbreed interference.
 It is much harder to find a job than to keep one.
 Money is truthful.  If a man ss of his honor, make him pay cash.
-		-- Lazarus Long
+		-- azarus ong
 All syllogisms have three parts, therefore this is not a syllogism.
 Fe free to contact me (flames about my english and the usess of this
 driver will be redirected to /dev/null, oh no, it's full...).
@@ -316,8 +316,8 @@ the water, it's still the same.  The ship is yours ... you can fe her
 ... and the stars are still there.
 		-- Kirk, "The Ultimate Computer", stardate 4729.4
 Oh, so there you are!
-Hmmm ... an arant bouquet with a subtle suggestion of POLYVINYL
-CHLORIDE ...
+Hmmm ... an arant bouquet with a subtle suggestion of POYVINY
+CHORIDE ...
 	If the Tao is great, then the operating system is great.  If the
 operating system is great, then the compiler is great.  If the compiler
 is great, then the application is great.  If the application is great, then
@@ -329,7 +329,7 @@ languages.
 	Each language has its purpose, however humble.  Each language
 expresses the Yin and Yang of software.  Each language has its place within
 the Tao.
-	But do not pram in COBOL if you can avoid it.
+	But do not pram in COBO if you can avoid it.
 		-- Geoffrey James, "The Tao of Pramming"
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I
@@ -337,7 +337,7 @@ If at first you don't succeed, quit; don't be a nut about success.
 Most public domain software is free, at least at first glance.
 Have you seen the latest Japanese camera?  Apparently it is so fast it can
 photograph an American with his mouth shut!
-Lies!  All lies!  You're all lying against my boys!
+ies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
 Yes, but every time I try to see things your way, I get a headache.
 You are scrupulously honest, , and straightforward.  Therefore you
@@ -347,7 +347,7 @@ for once!
 Certainly the game is rigged.
 
 Don't let that stop you; if you don't bet, you can't win.
-		-- Robert Heinlein, "Time Enough For Love"
+		-- Robert Heinlein, "Time Enough For ove"
 QOTD:
 	"My life is a soap opera, but who gets the movie s?"
 Don't plan any hasty moves.  You'll be evicted soon anyway.
@@ -360,9 +360,9 @@ batch of illegal psilocybin  suey!!
 All science is either physics or stamp collecting.
 		-- Ernest Rutherford
 Where there's a will, there's an Inheritance Tax.
-Wombat's Laws of Computer Section:
+Wombat's aws of Computer Section:
 	(1) If it doesn't run Unix, forget it.
-	(2) Any computer design over 10 years old is obsolete.
+	(2) Any computer design over 10 ys old is obsolete.
 	(3) Anything made by IBM is junk. (See number 2)
 	(4) The minimum acceptable CPU power for a single user is a
 	    VAX/780 with a floating point accerator.
@@ -374,7 +374,7 @@ The way some people find fault, you'd think there was some kind of reward.
 Not every question deserves an answer.
 $3,000,000.
 Single tasking: Just Say No.
-The heart has its reas which reason knows nothing of.
+The ht has its reas which reason knows nothing of.
 		-- Blaise Pascal
 It is wise to keep in mind that neither success nor failure is ever final.
 		-- Roger Babson
@@ -396,15 +396,15 @@ It is easy when we are in prosperity to give advice to the afflicted.
 		-- Aeschylus
 It's been a business doing pleasure with you.
 "Trust me":
-	Translation of the Latin "caveat emptor."
+	Translation of the atin "caveat emptor."
 If you're not very clever you should be conciliatory.
 		-- Benjamin Disrai
-Pudder's Law:
+Pudder's aw:
 	Anything that begins wl will end badly.
 	(Note: The converse of Pudder's law is not true.)
 Sometimes the light's all shining on me,
 Other times I can bary see.
-Laty it occurs to me
+aty it occurs to me
 What a long strange trip it's been.
 		-- The Grateful Dead, "American Beauty"
 Art is the tree of life.  Science is the tree of death.
@@ -419,7 +419,7 @@ You shall judge of a man by his foes as wl as by his friends.
 		-- Joseph Conrad
 Be prepared to accept sacrifices.  Vestal virgins aren't all that bad.
 "Mind if I smoke?"
-	"Yes, I'd like to see that, does it come out of your ears or what?"
+	"Yes, I'd like to see that, does it come out of your s or what?"
 Any given pram will expand to fill available memory.
 modem, adj.:
 	Up-to-date, new-fangled, as in "Thoroughly Modem Millie."  An
@@ -433,7 +433,7 @@ All of the true things I am about to tl you are shamess lies.
 FORTRAN is for pipe stress freaks and crystallography weenies.
 Original thought is like original sin: both happened before you were born
 to people you could not have possibly met.
-		-- Fran Lebowitz, "Social Studies"
+		-- Fran ebowitz, "Social Studies"
 Man will never fly.  Space trav is mery a dream.  All aspirin is alike.
 As me an' me marrer was readin' a tyape,
 The tyape gave a shriek mark an' tried tae escyape;
@@ -445,7 +445,7 @@ Follow the transport, Johnny me laddie,
 Away, lad, lie away, canny lad O!
 		-- S. Kly-Bootle, "The Devil's DP Dictionary"
 "She said, `I know you ... you cannot sing'.  I said, `That's nothing,
-you should hear me play piano.'"
+you should h me play piano.'"
 		-- Morrisey
 Peterson's Admonition:
 	When you think you're going down for the third time --
@@ -454,9 +454,9 @@ A rope lying over the top of a fence is the same length on each side.  It
 weighs one third of a pound per foot.  On one end hangs a monkey holding a
 banana, and on the other end a weight equal to the weight of the monkey.
 The banana weighs two ounces per inch.  The rope is as long (in feet) as
-the age of the monkey (in years), and the weight of the monkey (in ounces)
+the age of the monkey (in ys), and the weight of the monkey (in ounces)
 is the same as the age of the monkey's mother.  The combined age of the
-monkey and its mother is thirty years.  One half of the weight of the monkey,
+monkey and its mother is thirty ys.  One half of the weight of the monkey,
 plus the weight of the banana, is one forth as much as the weight of the
 weight and the weight of the rope.  The monkey's mother is half as old as
 the monkey will be when it is three times as old as its mother was when she
@@ -474,7 +474,7 @@ A:	Fifteen.  One to do it, and fourteen to write document number
 	of which 10% of the pages state only "This page intentionally
 	left blank", and 20% of the definiti are of the form "A:.....
 	cists of sequences of non-blank characters separated by blanks".
-Wiker's Law:
+Wiker's aw:
 	Government expands to absorb revenue and then some.
 There is never time to do it , but always time to do it over.
 After all, it is only the mediocre who are always at their best.
@@ -483,12 +483,12 @@ Real Prams don't use shared text.  Otherwise, how can they use functi
 for scratch space after they are finished calling them?
 What is now proved was once only imagin'd.
 		-- William Blake
-Wake now my merry lads!  Wake and hear me calling!
-Warm now be heart and limb!  The cold stone is fallen;
+Wake now my merry lads!  Wake and h me calling!
+Warm now be ht and limb!  The cold stone is fallen;
 Dark door is standing wide; dead hand is broken.
 Night under Night is flown, and the Gate is open!
 		-- J. R. R. Tolkien
-Malek's Law:
+Malek's aw:
 	Any simple idea will be worded in the most complicated way.
 Someone is sing wl of you.
 
@@ -503,23 +503,23 @@ A good USENET motto would be:
 -- Sean Doran the Younger
 Death is God's way of tling you not to be such a wise guy.
 And now your toner's toney,		Disk blocks aplenty
-And your paper near pure white,		Await your laser drawn lines,
+And your paper n pure white,		Await your laser drawn lines,
 The smudges on your soul are gone	Your intricate fonts,
 And your output's clean as light..	Your pictures and signs.
 
 We've labored with your father,		Your  absence
 The venerable XGP,			Has made the Ten dumb,
 But his slow artistic hand,		Without you, Dover,
-Lacks your clean vocity.		We're system untounged-
+acks your clean vocity.		We're system untounged-
 
 Theses and papers 			DRAW Plots and TEXage
 And code in a queue			Have been biding their time,
-Dover, oh Dover,			With LISP code and prams,
+Dover, oh Dover,			With ISP code and prams,
 We've been waiting for you.		And this crufty rhyme.
 
 Dover, oh Dover,		Dover, oh Dover, arisen from dead.
 We wcome you back,		Dover, oh Dover, awoken from bed.
-Though still you may jam,	Dover, oh Dover, wcome back to the Lab.
+Though still you may jam,	Dover, oh Dover, wcome back to the ab.
 You're on the  track.	Dover, oh Dover, we've missed your clean
 					hand...
 	How do you insult a lawyer?
@@ -529,13 +529,13 @@ lesson is that *winning* is more important than *truth*.
 	Once someone has sunk to that lev, what worse can you say about them?
 Santa Claus is watching!
 You can not get anything worthwhile done without raising a sweat.
-		-- The First Law Of Thermodynamics
+		-- The First aw Of Thermodynamics
 
 What ever you want is going to cost a little more than it is worth.
-		-- The Second Law Of Thermodynamics
+		-- The Second aw Of Thermodynamics
 
 You can not win the game, and you are not allowed to stop playing.
-		-- The Third Law Of Thermodynamics
+		-- The Third aw Of Thermodynamics
 Can't open /usr/games/lib/fortunes.dat.
 "There are some good people in it, but the orchestra as a whole is equivalent
 to a gang bent on destruction."
@@ -562,8 +562,8 @@ Many companies that have made themsves dependent on [the equipment of a
 certain major manufacturer] (and in doing so have sold their soul to the
 devil) will collapse under the sheer weight of the unmastered complexity of
 their data processing systems.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
-Rule of Life #1 -- Never get separated from your luggage.
+		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
+Rule of ife #1 -- Never get separated from your luggage.
 There is no realizable power that man cannot, in time, fashion the tools
 to attain, nor any power so secure that the naked ape will not abuse it.
 So it is written in the genetic cards -- only physics and war hold him in
@@ -571,7 +571,7 @@ check.  And also the wife who wants him home by five, of course.
 		-- Encyclopadia Apocryphia, 1990 ed.
 "Never  facts; if you do, you'll never get up in the morning."
 -- Marlo Thomas
-Abandon the search for Truth; settle for a good fantasy.
+Abandon the sch for Truth; settle for a good fantasy.
 If you do something  once, someone will ask you to do it again.
 The first sign of maturity is the discovery that the volume knob also turns to 
 the left.
@@ -583,17 +583,17 @@ Wilner's Observation:
 	All conversati with a potato should be conducted in private.
 	"Oh sure, this costume may look silly, but it lets me get in and out
 of dangerous situati -- I work for a federal task force doing a survey on
-urban crime.  Look, here's my ID, and here's a number you can call, that will
+urban crime.  ook, here's my ID, and here's a number you can call, that will
 put you through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have deed it."
 		-- Captain Freedom
 Most Texans think Hanukkah is some sort of duck call.
-		-- Richard Lewis
+		-- Richard ewis
 Modern art is what happens when painters stop looking at girls and persuade
 themsves that they have a better idea.
 		-- John Ciardi
-Some of you ... may have decided that, this year, you're going to cebrate
+Some of you ... may have decided that, this y, you're going to cebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handmade gifts, like on "The Walt".
 Wl, you can forget it.  If everybody pulled that kind of subversive stunt,
@@ -608,7 +608,7 @@ sum of money and go to a mall.
 Nezvannyi gost'--khuzhe tatarina.
 	[An uninvited guest is worse than the Mongol invasion]
 		-- Russian proverb
-I got vision, and the rest of the world wears bifocals.
+I got vision, and the rest of the world ws bifocals.
 		-- Butch Cassidy
 Stealing a rhinoceros should not be attempted lightly.
 It is ridiculous to call this an industry.  This is not.  This is rat eat
@@ -618,7 +618,7 @@ kill me.  You're talking about the American way of survival of the fittest.
 Wad some power the giftie gie us
 To see ourss as others see us.
 		-- R. Browning
-Quigley's Law:
+Quigley's aw:
 	Whoever has any authority over you, no matter how small, will
 	atttempt to use it.
 Our way is peace.
@@ -632,9 +632,9 @@ we could all take a shot at him and not fe too bad.
 		-- Jack Handley
 "Okay," Bobby said, getting the hang of it, "then what's the matrix?  If
 she's a deck, and Danbala's a pram, what's cyberspace?"
-  "The world," Lucas said.
+  "The world," ucas said.
 -- William Gibson, _Count Zero_
-Notes for a ballet, "The Spl": ... Suddenly Sigmund hears the flutter of
+Notes for a ballet, "The Spl": ... Suddenly Sigmund hs the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
 unfortunaty, divided lengthwise.  She enchants Sigmund, who is careful
@@ -649,7 +649,7 @@ A professor is one who talks in someone se's sleep.
 You worry too much about your job.  Stop it.  You are not paid enough to worry.
 A Scholar asked his Master, "Master, would you advise me of a proper
 vocation?"
-	The Master replied, "Some men can earn their keep with the power of
+	The Master replied, "Some men can n their keep with the power of
 their minds.  Others must use thier strong backs, legs and hands.  This is
 the same in nature as it is with man.  Some animals acquire their  easily,
 such as rabbits, hogs and goats.  Other animals must fiercy struggle for
@@ -663,13 +663,13 @@ You can rent this space for only $5 a week.
 that you've got to go somewhere afterwards where you can remember them, you
 see?  You've got to stop.  You haven't really been anywhere until you've got
 back home.  I think that's what I mean."
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, "The ight Fantastic"
 The cart has no place where a fifth whe could be used.
 		-- Herbert von Fritzlar
 In the force if Yoda's so strong, ctruct a sentence with words in
 the proper  then why can't he?
-I'm meditating on the FORMALDEHYDE and the ASBESTOS leaking into my
-PERSONAL SPACE!!
+I'm meditating on the FORMADEHYDE and the ASBESTOS leaking into my
+PERSONA SPACE!!
 Dying is one of the few things that can be done as easily lying down.
 		-- Woody Allen
 Horace's best ode would not please a young woman as much as the mediocre
@@ -683,28 +683,28 @@ Saturday night in Toledo Ohio,
 All through the day how the hours rush by,
 	You sit in the park and you watch the grass die.
 		-- John Denver, "Saturday Night in Toledo Ohio"
-APL is a mistake, carried through to perfection.  It is the language of the
+AP is a mistake, carried through to perfection.  It is the language of the
 future for the pramming techniques of the past: it creates a new generation
 of coding bums.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
+		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
 You may my glories and my state dispose,
 But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+		-- William Shakespe, "Richard II"
 "Do not lose your knowledge that man's proper estate is an up posture,
 an intransigent mind, and a step that travs unlimited roads."
 -- John Galt, in Ayn Rand's _Atlas Shrugged_
-Issawi's Laws of Press:
+Issawi's aws of Press:
 	The Course of Press:
 		Most things get steadily worse.
 	The Path of Press:
 		A short is the longest distance between two points.
-Love is not enough, but it sure hps.
+ove is not enough, but it sure hps.
 It is the quality rather than the quantity that matters.
-		-- Lucius Annaeus Seneca
+		-- ucius Annaeus Seneca
 Better by far you should forget and smile than that you should remember
 and be sad.
 		-- Christina Rossetti
-Malek's Law:
+Malek's aw:
 	Any simple idea will be worded in the most complicated way.
 Our OS who art in CPU, UNIX be thy name.
 	Thy prams run, thy syscalls done,
@@ -713,12 +713,12 @@ Of all the animals, the boy is the most unmanageable.
 		-- Plato
 You can take all the impact that science ciderati have on funding
 decisi at NASA, put them in the nav of a flea, and have room left
-over for a caraway seed and Tony Calio's heart.
+over for a caraway seed and Tony Calio's ht.
 		-- F. Allen
 "Been through Hl?  Whaddya bring back for me?"
 -- A. Brilliant
-After twve years of therapy my psychiatrist said something that
-brought tears to my eyes.  He said, "No hablo ingles."
+After twve ys of therapy my psychiatrist said something that
+brought ts to my eyes.  He said, "No hablo ingles."
 		-- Ronnie Shakes
 Vermouth always makes me brilliant unless it makes me .
 		-- E.F. 
@@ -745,7 +745,7 @@ IBM Pollyanna Principle:
 The curse of the Irish is not that they don't know the words to a song --
 it's that they know them *___all*.
 		-- Susan Dooley
-Can you MAIL a BEAN CAKE?
+Can you MAI a BEAN CAKE?
 If ever the pleasure of one has to be bought by the pain of the other, there
 better be no trade.  A trade by which one gains and the other loses is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
@@ -758,7 +758,7 @@ There is no substitute for good manners, except, perhaps, fast reflexes.
 
 Due to the convergence of forces beyond his comprehension, Salvatore
 Quanucci was suddenly squirted out of the universe like a watermon
-seed, and never heard from again.
+seed, and never hd from again.
 A nick ain't worth a dime anymore.
 		-- Yogi Berra
 The sun never sets on those who ride into it.
@@ -769,12 +769,12 @@ your  to post it, and I'll let it reside on my disks".
 -- Doug Thompson (doug@isishq.FIDONET.ORG)
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
-pilots very capable. The fleet of Learjets the carrier operates is immense.
+pilots very capable. The fleet of jets the carrier operates is immense.
 Your jet takes off without a hitch, pushing above the clouds, and at 20,000
 feet it explodes without warning.
 Teachers have class.
 Good day to deal with people in high places; particularly lony stewardesses.
-FOOLED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
 Come, you spirits
 That tend on mortal thoughts, unsex me here,
 And fill me, from the crown to the toe, top-full
@@ -790,7 +790,7 @@ And pall the in the dunnest smoke of hl,
 That my keen knife see not the wound it makes,
 Nor heaven peep through the blanket of the dark,
 To cry `Hold, hold!'
-		-- Lady MacBeth
+		-- ady MacBeth
 	A lawyer named Strange was shopping for a tombstone.  After he had
 made his section, the stoneter asked him what inscription he
 would like on it.  "Here lies an honest man and a lawyer," responded the
@@ -802,9 +802,9 @@ I could put ``here lies an honest lawyer'', if that would be okay."
 	"Certainly will," retorted the stoneter.  "people will read it
 and exclaim, "That's Strange!"
 The test of intligent tinkering is to save all the parts.
-		-- Aldo Leopold
+		-- Aldo eopold
 When pleasure remains, does it remain a pleasure?
-> From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
+> From MAIER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Returned mail: unknown mailer error 255
 
 "Dale, your address no longer functi.  Can you fix it at your end?"

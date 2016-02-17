@@ -27,21 +27,21 @@ Better tried by twve an carried by six.
 What is e difference between a Turing machine and e modern computer?
 It's e same as at between Hillary's ascent of Everest and e
 establishment of a Hilton on its .
-A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
+A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
-4. DO NOT COMPLAIN IF THE TREATMENT FAILS TO BRING RELIEF.
+4. DO NOT COMPAIN IF THE TREATMENT FAIS TO BRING REIEF.
 	You must bieve at your doct has achieved a deep insight into
 	e true nature of your illness, which transcends any mere permanent
 	disability you may have experienced.
 
-5. NEVER ASK YOUR DOCTOR TO EXPLAIN WHAT HE IS DOING OR WHY HE IS DOING IT.
+5. NEVER ASK YOUR DOCTOR TO EXPAIN WHAT HE IS DOING OR WHY HE IS DOING IT.
 	It is presumptuous to ass at such profound ms could be
 	explained in terms at you would understand.
 
-6. SUBMIT TO NOVEL EXPERIMANTAL TREATMENT READILY.
+6. SUBMIT TO NOVE EXPERIMANTA TREATMENT READIY.
 	Though e surgery may not benefit you directly, e resulting
-	research paper will sury be of  interest.
-Listen, ere is no courage  any extra courage at I know of to find out
+	resch paper will sury be of  interest.
+isten, ere is no courage  any extra courage at I know of to find out
 e  ing to do.  Now, it is not only necessary to do e  ing,
 but to do it in e  way and e only problem you have is what is e
  ing to do and what is e  way to do it.  That is e problem.
@@ -79,12 +79,12 @@ and dh --"
 		-- Edi Keer and Kirk, " City on e Edge of Fever",
 		   stardate unknown.
 Experiments must be reproducible; ey should all fail in e same way.
-Larkinson's Law:
+arkinson's aw:
 	All laws are basically false.
-Dear Emily, what about test messages?
+D Emily, what about test messages?
 		-- Concerned
 
-Dear Concerned:
+D Concerned:
 	It is imptant, when testing, to test e entire net.  Never test
 mery a subnet distribution when e whole net can be done.  Also put "please
 igne" on your test messages, since we all know at everybody always ss
@@ -93,10 +93,10 @@ but I demand to be addressed as male." because such articles are read in dep
 by all USEnauts.
 		-- Emily Postnews Answers Your Questi on Netiquette
 Rubber ds have snappy endings!
-All your people must learn befe you can reach f e stars.
+All your people must ln befe you can reach f e stars.
 		-- Kirk, " Gamesters of Triskion", stardate 3259.2
 It's easier to  f one's principles an to live up to em.
-Ftune's Real-Life Courtroom Quote #3:
+Ftune's Real-ife Courtroom Quote #3:
 
 Q:  When he went, had you gone and had she, if she wanted to and were
     able, f e time being excluding all e restraints on her not to
@@ -112,7 +112,7 @@ If all se fails, immtality can always be assured by spectacular err.
 		-- John Kenne Galbrai
 Perilous to all of us are e devices of an art deeper an we oursves
 possess.
-		-- Gandalf e Grey [J.R.R. Tolkien, "Ld of e Rings"]
+		-- Gandalf e Grey [J.R.R. Tolkien, "d of e Rings"]
 I am convinced at e truest act of courage is to sacrifice oursves
 f oers in a totally nonvio struggle f justice.  To be a man
 is to suffer f oers.
@@ -121,7 +121,7 @@ SEMPER UBI SUB UBI!!!!
 A gentleman is a man who wouldn't hit a lady wi his hat on.
 		-- Evan Esar
 		[ And why not?  F why does she have his hat on?  Ed.]
-What is research but a blind date wi knowledge?
+What is resch but a blind date wi knowledge?
 		-- Will Harvey
 Beware of Bigfoot!
  best man f e job is  a woman.
@@ -134,7 +134,7 @@ Please stand f e National Anem:
 	Our home and native land
 	True patriot love
 	In all y s' command
-	Wi glog hearts we see ee rise
+	Wi glog hts we see ee rise
 	 true n strong and free
 	From far and wide, O Canada
 	We stand on guard f ee
@@ -154,7 +154,7 @@ Saints should always be judged guilty until ey are proven innocent.
 - Gege Orwl
 "Gentlemen of e jury," said e defense attney, now beginning
 to warm to his summation, "e real question here befe you is, shall is
-beautiful young woman be fced to languish away her loviest years in a 
+beautiful young woman be fced to languish away her loviest ys in a 
 dark prison cl?  Or shall she be set free to return to her cozy little 
 apartment at 4134 Mountain Ave. -- ere to spend her lony, lovess hours
 in her boudoir, lying beside her little Princess phone, 962-7873?"
@@ -166,23 +166,23 @@ If you analyse anying, you de it.
 		--  Miller
 Bacon's not e only ing at's cured by hanging from a string.
 Your respibility as a parent is not as gr as you might .  You
-need not supply e wld wi e next conquer of disease  maj motion
+need not supply e wld wi e next  of disease  maj motion
 cture star.  If your child  grows up to be someone who does not use
 e wd "collectible" as a noun, you can cider yoursf an unqualified
 success.
-		-- Fran Lebowitz, "Social Studies"
+		-- Fran ebowitz, "Social Studies"
 What sin has not been committed in e  of efficiency?
-By trying we can easily learn to endure adversity.  Anoer man's, I mean.
+By trying we can easily ln to endure adversity.  Anoer man's, I mean.
 		-- Mark Twain
 A Riverside, Califnia, heal dinance states at two pers may
 not kiss each oer wiout first wing eir lips wi carbolized rosewater.
 QOTD:
 	"I may not be able to walk, but I drive from e sitting posistion."
-APL is a mistake, carried rough to perfection.  It is e language of e
+AP is a mistake, carried rough to perfection.  It is e language of e
 future f e pramming techniques of e past: it cres a new generation
 of coding bums.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
-Wait ... is is a FUN THING  e END of LIFE in Petticoat J??
+		-- Edsger W. Dijkstra, SIGPAN Notices, Vol 17, Number 5
+Wait ... is is a FUN THING  e END of IFE in Petticoat J??
  wld is full of people who have never, since childhood, met an
 open doway wi an open mind.
 		-- E.B. White
@@ -191,16 +191,16 @@ I can hire one half of e wking class to kill e oer half.
  do is e key.
 " argnt at e literal sty of Genesis can qualify as science
 colses on ree maj grounds: e crionists' need to invoke
-miracles in der to compress e events of e ear's histy into
-e biblical span of a few ousand years; eir unwillingness to 
-adon claims clearly disproved, including e assertion at all
+miracles in der to compress e events of e 's histy into
+e biblical span of a few ousand ys; eir unwillingness to 
+adon claims clly disproved, including e assertion at all
 fossils are products of Noah's flood; and eir riance upon disttion,
 misquote, half-quote, and citation out of context to characterize e
 ideas of eir opponents."
 -- Stephen Jay Gould, " Verdict on Crionism", 
     Skeptical Inquirer, Winter 87/88, pg. 186
 Friends, Romans, Hipsters,
-Let me  you in;
+et me  you in;
 I come to put down Caesar, not to g him.
  s kicks some cats are on stay wi em;
  hip bits, like, go down under; 
@@ -217,7 +217,7 @@ Wking wi Julie Andrews is like getting hit over e head wi a vaine.
 		-- Christopher Plummer
 In war, tru is e first casualty.
 		-- U Thant
-Living in e complex wld of e future is somewhat like having bees
+iving in e complex wld of e future is somewhat like having bees
 live in your head.  But, ere ey are.
  longer e title, e less imptant e job.
 "Wl, you see, it's such a transitional crure.  It's a ss-po
@@ -226,7 +226,7 @@ reptile and not very much of a bird."
 studied e archeopteryz and found it "very much like people"
 No one becomes depraved in a moment.
 		-- Decimus Junius Juvenalis
-Even if you do learn to s crect English, whom are you going to s
+Even if you do ln to s crect English, whom are you going to s
 it to?
 		-- Clarence Darrow
 We are all bn equal... just some of us are me equal an oers.
@@ -234,15 +234,15 @@ A man does not look bind e do unless he has stood ere himsf.
 		-- Du Bois
 It is so stud of modern civilisation to have given up bieving in e
 devil when he is e only explanation of it.
-		-- Ronald Knox, "Let D Dight"
-I ink I'll KILL mysf by leang out of is 14 STORY WINDOW while
+		-- Ronald Knox, "et D Dight"
+I ink I'll KI mysf by leang out of is 14 STORY WINDOW while
 reading ERICA JONG'S poetry!!
 Sho' ey got to have it against e law.  Shoot, ever'body git high,
 ey wouldn't be nobody git up and d e chickens.  Hee-hee.
 		-- Terry Souern
 <<<<< EVACUATION ROUTE <<<<<
 "A commercial, and in some respects a social, doubt has been started wiin e
- last year  two, wheer  not it is  to discuss so openly e security
+ last y  two, wheer  not it is  to discuss so openly e security
   insecurity of locks.  Many wl-meaning pers suppose at e discus-
  sion respecting e means f baffling e supposed safety of locks offers a
  premium f dishonesty, by shog oers how to be dishonest.  This is a fal-
@@ -254,10 +254,10 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
  been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest* are tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
- give f play to ose who might suffer by ignance.  It cannot be too ear-
+ give f play to ose who might suffer by ignance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  f all parties."
--- Charles Tomlinson's Rudimentary Trise on e Ctruction of Locks, 
+-- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
    published around 1850 
 A lot of people are afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
@@ -267,7 +267,7 @@ e rabbit.
 beta test, v:
 	To volily entrust one's data, one's livihood and one's
 	sanity to hardware  software int to de all ree.
-	In earlier days, virgins were  sected to beta test volcanos.
+	In lier days, virgins were  sected to beta test volcanos.
 Evolution is a million line computer pram falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.
 		-- W.C. Bennett
@@ -283,7 +283,7 @@ Wl, we'll really have a party, but we've gotta post a guard outside.
 		-- Eddie Cochran, "Come On Everybody"
  animals are not as stud as one inks -- ey have neier
 docts n lawyers.
-		-- L. Docquier
+		-- . Docquier
 Classical music is e kind we keep inking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
 Do not do unto oers as you would ey should do unto you.  ir tastes
@@ -299,7 +299,7 @@ Sometimes, too long is too long.
 - Joe Crowe
 I hate ll towns because once you've seen e cannon in e park
 ere's noing se to do.
-		-- Lenny Bruce
+		-- enny Bruce
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wilde
 Please, Moer!  I'd raer do it mysf!
@@ -321,7 +321,7 @@ yours to e bottom of e list.
 
 Don't break e chain!  Make e copy wiin 48 hours.  Gerald R. of San
 Diego failed to send out his ten coes and  e next mning to find
-his job description changed to "COBOL prammer."  Fred A. of New Yk sent
+his job description changed to "COBO prammer."  Fred A. of New Yk sent
 out his ten coes and wiin a mon had enough hardware and software to
 build a Cray dedicated to playing Zk.  Mara H. of Chicago laughed at
 is letter and broke e chain.  Shtly ereafter, a fire broke out in
@@ -334,7 +334,7 @@ not, e amount of sng will be in points (e.g., 6pt).   rule is
 at glue in ma mode varies wi e size only when it is an \ms;
 when moving between an ms and dinary s, e conversion fact
 1mu=1pt is always used.   meaning of '\ms\s12' and
-'\basines=\e\ickms' should be clear.
+'\basines=\e\ickms' should be cl.
 		-- Donald Knu, TeX 82 -- Comparison wi TeX80
 Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers
@@ -342,12 +342,12 @@ couldn't compete  wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
 Sin lies only in hurting oer people .  All oer "sins" are
 invented nense.  (Hurting yoursf is not sinful -- just stud).
-		-- Lazarus Long
+		-- azarus ong
 If only Dionysus were !  Where would he ?
 		-- Woody Allen
 re's no justice in is wld.
-		-- Frank Costlo, on e proseion of "Lucky" Luciano by
-		   New Yk district attney Thomas Dewey after Luciano had
+		-- Frank Costlo, on e proseion of "ucky" uciano by
+		   New Yk district attney Thomas Dewey after uciano had
 		   saved Dewey from assassination by Dutch Schultz (by dering
 		   e assassination of Schultz ins)
 Eat shit -- billi of flies can't be wrong.
@@ -359,26 +359,26 @@ f speeding.  He asked me where I live... "Right here".
 -- Steven W
 Rules f Academic Deans:
 	(1)  HIDE!!!!
-	(2)  If ey find you, LIE!!!!
+	(2)  If ey find you, IE!!!!
 		-- Faer Damian C. Fandal
 Three Rings f e Elven-kings under e sky,
 Seven f e Dwarf-lds in eir halls of stone,
 Nine f Mtal Men doomed to die,
-One f e Dark Ld on his dark rone
-In e Land of Md where e Shadows lie.
+One f e Dark d on his dark rone
+In e and of Md where e Shadows lie.
 One Ring to rule em all, One Ring to find em,
 One Ring to bring em all and in e darkness bind em
-In e Land of Md where e Shadows lie.
-		-- J.R.R. Tolkien, " Ld of e Rings"
+In e and of Md where e Shadows lie.
+		-- J.R.R. Tolkien, " d of e Rings"
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
 n flesh-and-blood.  Pers... have opptunities, not s, which ey
 use  do not use.
-		-- Lazarus Long
+		-- azarus ong
 You humans are all alike.
 Increased knowledge will hp you now.  Have mate's phone bugged.
-Charlie Brown:	Why was I put on is ear?
-Linus:		To make oers happy.
-Charlie Brown:	Why were oers put on is ear?
+Charlie Brown:	Why was I put on is ?
+inus:		To make oers happy.
+Charlie Brown:	Why were oers put on is ?
 A wl-used do needs no oil on its hinges.
 A swift-flog steam does not grow stagnant.
 Neier sound n oughts can trav rough a vacuum.
@@ -393,17 +393,17 @@ Every bug had seven manifestati;
 Every manifestation had seven symptoms.
 Symptoms, manifestati, bugs, and hacks,
 How many losses at Project MAC?
-Why boer building any me nuclear warheads until we use e ones we have?
+Why boer building any me nucl warheads until we use e ones we have?
 				FROM THE DESK OF
 				Rapunz
 
-Dear Prince:
+D Prince:
 
 	Use ladder tonight -- you're splitting my ends.
 It is now 10 p.m.  Do you know where Henry Kisr is?
 		-- Elizabe Carpenter
 Go climb a gravity wl!
-Early to bed and early to rise and you'll be ggy when everyone se is
+Early to bed and ly to rise and you'll be ggy when everyone se is
 wide awake.
 	"Wcome back f you 13 ceive week, Evyn.  Evyn, will
 you go into e auto-suggestion boo and take your r place on e
@@ -411,7 +411,7 @@ psycho-prompter couch?"
 	"Thank you, Red."
 	"Now, Evyn, last week you went up to $40,000 by properly citing
 your rivalry wi your sibling as a compulsive sado-masochistic bavi
-pn which devoped out of an early post-natal ding problem."
+pn which devoped out of an ly post-natal ding problem."
 	"Yes, Red."
 	"But -- later, when asked about pre-adolescent oedipal phantasy
 repressi, you rationalized twice and mental blocked ree times.  Now,
@@ -440,7 +440,7 @@ venerable god of unibus at once, befe e idolatization of vme, q and pc
 bus drive him to bitter revenge.  Alas, if is fails, and e voodoo boxen
 aren't deed,  ere may be me an wms in e apple. Next, e
 arrival of voodoo optico transmitigational magneto killer paramecium, capable
-of tepting from cable to cable, screen to screen, ear to ear and hoof
+of tepting from cable to cable, screen to screen,  to  and hoof
 to mou...
 He who has but four and spends five has no need f a wallet.
  divinity of Jesus is made a convenient cover f absurdity.  Nowhere
@@ -456,7 +456,7 @@ very in paper.
 Its  is Public Onion.  It is hd in reverence.  It settles everying.
 Some ink it is e voice of God.
 		-- Mark Twain
- debate rages on: Is PL/I Bachtrian  Dromedary?
+ debate rages on: Is P/I Bachtrian  Dromedary?
 When a man knows he is to be hanged in a ftnight, it concentrates his
 mind wonderfully.
 		-- u Johnson

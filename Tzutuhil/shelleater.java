@@ -1,7 +1,7 @@
 Of course power tools and alcohol don't mix.  Everyone knows power
 tools aren't soluble in alcohol...
 		-- Crazy Nig
-Labor, n.:
+abor, n.:
 	One of the processes by which A acquires property for B.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Hug me now, you mad, impetuous fool!!  
@@ -12,15 +12,15 @@ Nothing so needs reforming as other people's habits.
 		-- Mark Twain
 Yow!  Am I in Milwaukee?
 Acting is an art which cists of keeping the audience from coughing.
-Now my EMOTIONAL RESOURCES are heavily committed to 23% of the SMELTING
+Now my EMOTIONA RESOURCES are heavily committed to 23% of the SMETING
 and REFINING industry of the state of NEVADA!!
-Lady Astor was giving a costume ball and Winston Churchill asked her what
+ady Astor was giving a costume ball and Winston Churchill asked her what
 disguise she would recommend for him.  She replied, "Why don't you come
 sober, Mr. Prime Minister?"
 A Mexican newspaper reports that bored Royal Air Force pilots stationed
 on the Falkland Islands have devised what they cider a marvous new
 game.  Noting that the local penguins are fascinated by airplanes, the
-pilots search out a beach where the birds are gathered and fly slowly
+pilots sch out a beach where the birds are gathered and fly slowly
 along it at the water's edge.  Perhaps ten thousand penguins turn their
 heads in unison watching the planes go by, and when the pilots turn
 around and fly back, the birds turn their heads in the opposite
@@ -30,29 +30,29 @@ colony and overfly it.  Heads go up, up, up, and ten thousand penguins
 fall over gently onto their backs.
 		-- Audobon Society Magazine
 Any father who thinks he's all important should remind himsf that this
-country honors fathers only one day a year while pickles get a whole week.
-Lying is an indispensable part of making life tolerable.
+country honors fathers only one day a y while pickles get a whole week.
+ying is an indispensable part of making life tolerable.
 		-- Bergan Evans
 I have a VISION!  It's a RANCID double-FISHWICH on an ENRICHED BUN!!
 Don't get to bragging.
 "How to make a million dollars:  First, get a million dollars."
 -- Steve Martin
-"Let's show this prehistoric bitch how we do things downtown!"
+"et's show this prehistoric bitch how we do things downtown!"
 -- The Ghostbusters
-In 1967, the Soviet Government minted a beautiful silver ruble with Lenin
+In 1967, the Soviet Government minted a beautiful silver ruble with enin
 in a very familiar pose -- arms raised above him, leading the country to
-revolution.  But, it was clear to everybody, that if you looked at it from
-behind, it was clear that Lenin was pointing to 11:00, when the Vodka
+revolution.  But, it was cl to everybody, that if you looked at it from
+behind, it was cl that enin was pointing to 11:00, when the Vodka
 shops opened, and was actually saying, "Comrades, forward to the Vodka shops.
 
 It became fashionable, when one wanted to have a drink, to take out the
-ruble and say, "Oh my goodness, Comrades, Lenin tls me we should go.
+ruble and say, "Oh my goodness, Comrades, enin tls me we should go.
 In /users3 did Kubla Kahn
 A staty pleasure dome decree,
 Where /bin, the sacred river ran
 Through Test Suites measuress to Man
 Down to a sunless C.
-Anthony's Law of Force:
+Anthony's aw of Force:
 	Don't force it; get a larger hammer.
 Once there was this conductor see, who had a bass problem.  You see, during
 a portion of Beethovan's Ninth Symphony in which there are no bass violin
@@ -66,7 +66,7 @@ the score was tied and the basses were loaded with two out.
 The assertion that "all men are created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
-		--  Abraham Lincoln
+		--  Abraham incoln
 I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
 Put a ue in the limight and he will act like an honest man.
@@ -81,27 +81,27 @@ The clothes have no emperor.
 		-- C.A.R. Hoare, commenting on ADA.
 Walk softly and carry a big stick.
 		-- Theodore Roosevt
-Eleventh Law of Acoustics:
+Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
 	are all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
-	compensation for non-linear passive crossover network loading can
+	compensation for non-lin passive crossover network loading can
 	lead to a significant decrease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
 Chef, n.:
-	Any cook who swears in French.
+	Any cook who sws in French.
 Imagination is more important than knowledge.
 		-- Albert Einstein
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
--- A McDonn-Douglas ad from a few years ago
+-- A McDonn-Douglas ad from a few ys ago
 ASCII a stupid question, you get an EBCDIC answer.
-He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
+He is the MEBA-BEING ... the ANGE CAKE ... XEROX him ... XEROX him --
 default, n.:
 	[Possibly from Black English "De fault wid dis system is you,
 	mon."] The vain attempt to avoid errors by inactivity.  "Nothing will
-	come of nothing: s again." -- King Lear.
+	come of nothing: s again." -- King .
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 You k'n hide de fier, but w'at you gwine do wid de smoke?
 		-- Jo Chandler H, proverbs of Uncle Remus
@@ -110,11 +110,11 @@ It's not that I'm afraid to die. I just don't want to be there when it happens.
 I opened the drawer of my little desk and a single letter fl out, a
 letter from my mother, written in pencil, one of her last, with unfinished
 words and an implicit sense of her departure.  It's so curious: one can
-resist tears and "behave" very wl in the hardest hours of grief.  But
+resist ts and "behave" very wl in the hardest hours of grief.  But
 then someone makes you a friendly sign behind a window... or one notices
 that a flower that was in bud only yesterday has suddenly blossomed... or
 a letter slips from a drawer... and everything collapses.
-		-- Letters From Colette
+		-- etters From Colette
 Cider the following axioms carefully:
 	"Everything's better when it sits on a Ritz."
 	and
@@ -138,7 +138,7 @@ A bird in the hand is worth two in the bush.
 		-- Cervantes
 bureaucracy, n:
 	A method for transforming energy into solid waste.
-Let's just say that where a change was required, I adjusted.  In every
+et's just say that where a change was required, I adjusted.  In every
 ratihip that exists, people have to seek a way to survive.  If you
 really care about the person, you do what's necessary, or that's the end.
 For the first time, I found that I really could change, and the qualities
@@ -172,7 +172,7 @@ Wl I'm not dumb but I can't understand
 How he can raise me in the air just by raising his hand
 	Oh my Yoda, Yo-Yo-Yo-Yo Yoda, Yo-Yo-Yo-Yo Yoda
 		-- Weird Al Yankovic, "The Star Wars Song," to the tune of
-		   "Lola" by the Kinks
+		   "ola" by the Kinks
 	"During the race
 	 We may eat your dust,
 	 But when you graduate,
@@ -190,7 +190,7 @@ postings.
 good reason, and I never  them out without including lipses.  For 
 instance, "I am not a goob" might become "I am ... a goob", but that's too 
 mundane to bother with.  "I'm flame proof" might (and has) become 
-"I'm ...a... p...oof" but that's REALLY stretching it.
+"I'm ...a... p...oof" but that's REAY stretching it.
 
 	Two.  If I  words off the beginning or end of a quote, I don't
 put lipses, but neither do I capitalize something that wasn't capitalized
@@ -215,14 +215,14 @@ First study the enemy.  Seek weakness.
 The only real argument for marriage is that it remains the best method
 for getting acquainted.
 		-- Heywood Broun
-For your penance, say five Hail Marys and one loud BLAH!
+For your penance, say five Hail Marys and one loud BAH!
 My own business always bores me to death; I prefer other people's.
 		-- Oscar Wilde
 For adult education nothing beats children.
 [From an announcement of a congress of the International Ontopsychology
 Association, in Rome]:
 
-The Ontopsychological school, availing itsf of new research criteria and
+The Ontopsychological school, availing itsf of new resch criteria and
 of a new tematic epistemology, maintains that social modes do not spring
 from dialectics of territory or of class, or of cumer goods, or of means
 of power, but rather from dynamic latencies capillarized in milli of
@@ -241,7 +241,7 @@ Doubt isn't the opposite of faith; it is an ement of faith.
 "What people have been reduced to are mere 3-D representati of their own 
 data."
 -- Arthur Miller
-Let's organize this thing and take all the fun out of it.
+et's organize this thing and take all the fun out of it.
 Alexander Hamilton started the U.S. Treasury with nothing - and that was
 the closest our country has ever been to being even.
 	-- The Best of Will Rogers
@@ -258,7 +258,7 @@ God is a comic playing to an audience that's afraid to laugh.
 13. ...  r-q1
 If an average person on the subway turns to you, like an ancient mariner,
 and starts tling you her tale, you turn away or nod and hope she stops,
-not just because you fear she might be crazy.  If she tls her tale on
+not just because you f she might be crazy.  If she tls her tale on
 camera, you might listen.  Watching strangers on tevision , even
 responding to them from a studio audience, we're disengaged -- voyeurs
 collaborating with exhibitionists in rituals of sham community.  Never
@@ -266,16 +266,16 @@ have so many known so much about people for whom they cared so little.
 		-- Wendy Kaminer commenting on testimonial tevision
 		   in "I'm Dysfunctional, You're Dysfunctional".
 This fortune is encrypted -- get your decoder rings ready!
-	Leslie West heads for the sticks, to Providence, Rhode Island and
-tries to hide behind a beard.  No good.  There are still too many people
+	eslie West heads for the sticks, to Providence, Rhode Island and
+tries to hide behind a bd.  No good.  There are still too many people
 and too many ss, always taunting, always smirking.  He moves to the
 outskirts of town. He finds a place to live -- huge mansion, dirt cheap,
 caretaker included.  He plugs in his guitar and plays as loud as he wants,
 day and night, and there's no one to laugh or boo or even look bored.
 	Nobody's  the grass in months.  What's happened to that caretaker?
 What neighborhood people there are start to talk, and what kids there are
-start to get curious.  A 13 year-old blond with an angic  misses supper.
-Before the summer's end, four more teenagers have disappeared.  The senior
+start to get curious.  A 13 y-old blond with an angic  misses supper.
+Before the summer's end, four more teenagers have disapped.  The senior
 class president, Barnard-bound come autumn, tls Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the
 police take action, the kids turn up.  They've found a purpose.  They go
@@ -321,7 +321,7 @@ cost to others, to win advancement."
 Statistics means never having to say you're certain.
 An ancient proverb summed it up: when a wizard is tired of looking for
 broken glass in his dinner, it ran, he is tired of life.
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, "The ight Fantastic"
 Woody: Hey, Mr. Peterson, what's up?
 Norm:  The warranty on my liver.
 		-- Cheers, Breaking In Is Hard to Do
@@ -346,20 +346,20 @@ You'd better smile when they watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
 I got this powdered water -- now I don't know what to add.
 		-- Steven W
-	While riding in a train between London and Birmingham, a woman
+	While riding in a train between ondon and Birmingham, a woman
 inquired of Oscar Wilde, "You don't mind if I smoke, do you?"
 	Wilde gave her a sidong glance and replied, "I don't mind if
 you burn, madam."
 Genius is ten percent inspiration and fifty percent capital gains.
-Several years ago, some smart businessmen had an idea: Why not build a big
+Several ys ago, some smart businessmen had an idea: Why not build a big
 store where a do-it-yoursfer could get everything he needed at reasonable
 prices?  Then they decided, nah, the hl with that, let's build a home
 center.  And before long home centers were  up like crabgrass all
 over the United States.
 		-- Dave Barry, "The Taming of the Screw"
-Whenever I hear anyone arguing for slavery, I fe a strong impulse to
+Whenever I h anyone arguing for slavery, I fe a strong impulse to
 see it tried on him .
-		-- Abraham Lincoln
+		-- Abraham incoln
 Since before the Earth was formed and before the sun burned hot in space,
 cosmic forces of inexorable power have been working rentlessly toward
 this moment in space-time -- your receiving this fortune.

@@ -13,15 +13,15 @@ fast.  Expect to see Yip ude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
 ose times.
-YALE:
+YAE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
 Primarily respible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
-out e offensive enic joke.  Look f ese ree to shut down e opening
+out e offensive enic joke.  ook f ese ree to shut down e opening
 coin toss.
-		-- Harvard Lam 1988 Pram Parody, distributed at  Game
+		-- Harvard am 1988 Pram Parody, distributed at  Game
 A day wiout sunshine is like night.
 A total abstainer is one who abstains from everying but abstention,
 and especially from inactivity in e affs of oers.
@@ -35,7 +35,7 @@ rigious control of e schools, which are paid f by taxpayers' money.
 - Elean Roosevt
 Due to lack of disk space, is ftune datse has been discontinued.
 "I hate e itching.  But I don't mind e swling."
--- new buzz phrase, like "Where's e Beef?" at David Letterman's trying
+-- new buzz phrase, like "Where's e Beef?" at David etterman's trying
    to get everyone to start saying
 Home life as we understand it is no me natural to us an a cage is
 to a cockatoo.
@@ -43,7 +43,7 @@ to a cockatoo.
 Kirkland, Illinois, law fbids bees to fly over e village  rough
 any of its streets.
 Grness is a transity experience. It is never cistent.
-Laws of Serendity:
+aws of Serendity:
 	(1) In der to discover anying, you must be looking f someing.
 	(2) If you wish to make an improved product, you must already
 	    be engaged in making an inferi one.
@@ -54,12 +54,12 @@ toilet toup'ee, n.:
 	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
 Your friends will know you better in e first minute you meet an your
-acquaintances will know you in a ousand years.
+acquaintances will know you in a ousand ys.
 		-- Richard Bach, "Illusi"
 Never trust a computer you can't rep yoursf.
 One meets his destiny  on e road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing e tru."
 	"Or by misleading e innocent."
-		-- Spock and McCoy, "And  Children Shall Lead",
+		-- Spock and McCoy, "And  Children Shall ead",
 		   stardate 5029.5.
 Hedonist f hire... no job too easy!

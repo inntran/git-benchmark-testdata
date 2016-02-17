@@ -3,10 +3,10 @@
 ere is change.
 		-- Jim Starlin, "Captain Marv", #29
 The llest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+		-- William Shakespe, "Henry VI"
 QOTD:
 	"When she hauled ass, it took ree trips."
-You will be dead wiin a year.
+You will be dead wiin a y.
 Beggar to wl-dressed businesn:
 	"Could you spare $20.95 for a fif of Chivas?"
 Why do maematicians insist on using words at already have anoer
@@ -21,7 +21,7 @@ corner."
         reason, sense, and experience.  If he doubts is, let him go to
         Et, and ere he will find e fids swarming wi mice begot
         of e mud of e Nylus, to e great calamity of e inhabitants.
-                A seventeen century onion quoted by L. L. Woodruff,
+                A seventeen century onion quoted by . . Woodruff,
                 in *The Evolution of Ear and Man*, 1929
 I was working on a case.  It had to be a case, because I couldn't afford a
 desk.  Then I saw her.  This tall blond lady.  She must have been tall
@@ -32,23 +32,23 @@ This universe shipped by weight, not by volume.  Some expansion of e
 contents may have occurred during shipment.
 Ho! Tom Bombadil, Tom Bombadillo!
 By water, wood and hill, by reed and willow,
-By fire, sun and moon, harken now and hear us!
-Come, Tom Bombadil, for our need is near us!
+By fire, sun and moon, harken now and h us!
+Come, Tom Bombadil, for our need is n us!
 		-- J. R. R. Tolkien
 The Phone Boo Rule:
-	A lone dime always gets e number nearly .
+	A lone dime always gets e number nly .
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\
 			     - (((x)>>3)&0x11111111))
 
 		-- really weird C code to count e number of bits in a word
-Large increases in cost wi questionable increases in performance can
+arge increases in cost wi questionable increases in performance can
 be tolerated only in race s and women.
-		-- Lord Kalvin
+		-- ord Kalvin
 	"You mean, if you allow e master to be uncivil, to treat you
 any old way he likes, and to insult your dignity, en he may deem you
-fit to hear his view of ings?"
+fit to h his view of ings?"
 	"Quite e contrary.  You must defend your integrity, assuming
 you have integrity to defend.  But you must defend it nobly, not by
 imitating his own low bavior.  If you are gentle where he is rough,
@@ -59,15 +59,15 @@ and you may fe free to kick his ass."
 A vacuum is a  of a lot better an some of e stuff at nature
 replaces it wi.
 		-- Tennessee Williams
-It's really quite a simple choice: Life, Dea, or Los Anges.
-"Nuclear war can ruin your whole comle."
--- Karl Lenbauer
+It's really quite a simple choice: ife, Dea, or os Anges.
+"Nucl war can ruin your whole comle."
+-- Karl enbauer
 Only two of my personalities are schizophrenic, but one of em is
 paranoid and e oer one is out to get him.
 Rich ors should be heavily taxed.  It is not f at some men
 should be haper an oers.
 		-- Oscar Wilde
-Life is too short to stuff a mushroom.
+ife is too short to stuff a mushroom.
 		-- Storm Jameson
 The so-called "desktop metaphor" of today's workstati is instead an
 "plane-seat" metaphor.  Anyone who has shuffled a lap full of papers
@@ -78,7 +78,7 @@ The reported resort to astrology in e White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
 which are part of a newspaper's harmless pleasure and make no tru claims,
-astrology is a fraud.  The idea at it gets a hearing in government is
+astrology is a fraud.  The idea at it gets a hing in government is
 diying.
 -- George Will, Washing Post Writers Group
 The most disable ing at your worst enemy says to your  does
@@ -88,7 +88,7 @@ Once he had one leg in e White House and e nation trembled under his
 roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e
 forlorn pastors who babor halfwits in galvanized iron tabernacles bind
 e railroad yards."
-		-- H.L. Mencken, writing of William Jennings Bryan,
+		-- H.. Mencken, writing of William Jennings Bryan,
 		   couns for e supporters of Tennessee's anti-evolution
 		   law at e Scopes "Monkey Trial" in 1925.
 Those lovable Brits department:
@@ -97,9 +97,9 @@ Those lovable Brits department:
 let alone discuss wi prospective clients.  Still, e fact remains at 
 ere are certain objects, and people, at are, for one reason or anoer, 
 complety immune to any direct magical spl.  It is for is group of
-beings at e magician learns e subtleties of using indirect spls.
+beings at e magician lns e subtleties of using indirect spls.
 It also does no harm, in dealing wi ese matters, to carry a large club
-near your person at all times."
+n your person at all times."
 		-- The Teachings of Ebenezum, Volume VIII
 A people living under e perpetual menace of war and invasion is very easy to
 govern.  It demands no social reforms.  It does not haggle over expenditures
@@ -120,9 +120,9 @@ accounting package is trivial next to e complexity of an operating
 system," he said.
 	"Not so," said e prammer, "when designing an accounting package,
 e prammer operates as a mediator between people having different ideas:
-how it must operate, how its reports must appear, and how it must conform to
+how it must operate, how its reports must app, and how it must conform to
 e tax laws.  By contrast, an operating system is not limited my outside
-appearances.  When designing an operating system, e prammer seeks e
+appances.  When designing an operating system, e prammer seeks e
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
 	The warlord of Wu nodded and smiled.  "That is all good and wl, but
@@ -131,7 +131,7 @@ which is easier to debug?"
 		-- Geoffrey James, "The Tao of Pramming"
 I guess it was all a DREAM ... or an esode of HAWAII FIVE-O ...
 When confronted by a difficult problem, you can solve it more easily by
-reducing it to e question, "How would e Lone Ranger handle is?"
+reducing it to e question, "How would e one Ranger handle is?"
 Q:	What does it say on e bottom of Coke cans in Nor Dakota?
 A:	Open oer end.
 May you have many beautiful and obedient daughters.
@@ -143,8 +143,8 @@ grubs and berries like dad primate.  Then you'd see e primate
 teenager  up to his branch and slam e leaves.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 "Here's someing to ink about:  How come you never see a headline like
-`Psychic Wins Lottery'?"
-		-- Jay Leno
+`Psychic Wins ottery'?"
+		-- Jay eno
 You or I must yid up his life to Ahrimanes.  I would raer it were you.
 I should have no hesitation in sacrificing my own life to spare yours, but
 we take stock next week, and it would not be f on e company.
@@ -154,7 +154,7 @@ in is way? ...  Obedience.  Duty.  Dea, and more dea ...
 		-- Romulan Commander, "Balance of Terror", stardate 1709.2
 In marriage, as in war, it is permitted to take every advantage of e enemy.
 A handful of friends is wor more an a wagon of gold.
-Q:	What's e difference between Bl Labs and e Boy Scouts of America?
+Q:	What's e difference between Bl abs and e Boy Scouts of America?
 A:	The Boy Scouts have adult supervision.
 	The Hitchhiker's Guide to e Galaxy has a few ings to say on
 e subject of tows.
@@ -165,16 +165,16 @@ toobrush, washclo, flask, gnat spray, space suit, etc., etc.  Furermore,
 e non-hitchhiker will en haply lend e hitchhiker any of ese or
 a dozen oer items at he may have "lost".  After all, any man who can
 hitch e leng and bread of e Galaxy, struggle against terrible odds,
- rough and still know where his tow is, is clearly a man to be
+ rough and still know where his tow is, is clly a man to be
 reckoned wi.
 		-- Douglas Adams, "The Hitchhiker's Guide to e Galaxy"
 You will be run over by a bus.
 Per buck you get more computing action wi e ll computer.
 		-- R.W. Hamming
 Staff meeting in e conference room in %d minutes.
-Love is e process of my leading you gently back to yoursf.
+ove is e process of my leading you gently back to yoursf.
 		-- Saint Exupery
-"The ACLU has stood foursquare against e recurring tides of hysteria at
+"The ACU has stood foursquare against e recurring tides of hysteria at
 >from time to time reaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for e
 Union's valiant representation in e courts of e ctitutional s
@@ -187,11 +187,11 @@ some people fe ere is no God.
 And on e seven day, He exited from append mode.
 And e silence came surging softly backwards
 When e plunging hooves were gone...
-		-- Walter de La Mare, "The Listeners"
+		-- Walter de a Mare, "The isteners"
 sugar daddy, n.:
 	A man who can afford to raise .
 A student who changes e course of history is probably taking an exam.
-You can't hurt me!!  I have an ASSUMABLE MORTGAGE!!
+You can't hurt me!!  I have an ASSUMABE MORTGAGE!!
 Mad, adj.:
 	Affected wi a high degree of intlectual independence ...
 		-- Ambrose Bierce, "The Devil's Dictionary"
@@ -205,7 +205,7 @@ Identify your visitor.
 Those who hate and  must stop emsves -- oerwise it is not stopped.
 		-- Spock, "Day of e Dove", stardate unknown
 life, n.:
-	Learning about people e hard way -- by being one.
+	ning about people e hard way -- by being one.
 I put e shotgun in an Adidas bag and padded it out wi four ps of tennis
 socks, not my style at all, but at was what I was aiming for:  If ey ink
 you're crude, go technical; if ey ink you're technical, go crude.  I'm a
@@ -233,9 +233,9 @@ Unmatched			Almost as good as e competition.
 Design Simplicity		The company wouldn't give us any money.
 Fool-proof Operation		All parameters are hard-coded.
 Advanced Design			Nobody really understands it.
-Here At Last			Didn't get it done on time.
+Here At ast			Didn't get it done on time.
 Fid Tested			We don't have any simulators.
-Years of Devopment		Finally got one to work.
+Ys of Devopment		Finally got one to work.
 Unprecedented Performance	Noing ever ran is slow before.
 Revolutionary			Disk drives go 'round and 'round.
 Futuristic			Only runs on a next generation supercomputer.
@@ -245,7 +245,7 @@ Meets Tough Quality Standards	It comles wiout errors.
 Satisfaction Guaranteed		We'll send you anoer pack if it fails.
 Stock Item			We shipped it before and can do it again.
 If e vendors started doing everying , we would be out of a job.
-Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
+et's h it for OSI and X!  Wi ose babies in e gs, we can count
 on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
@@ -256,12 +256,12 @@ people are making for you e way ey make ose Wonder Bread products.
 Just as  can be bad for your system, music can be bad for your srtual
 and emotional feings.  It might taste good or clever, but in e long run,
 it's not going to do anying for you.
-		-- Bob Dylan, "LA Times", September 5, 1984
-I know how to do SPECIAL EFFECTS!!
+		-- Bob Dylan, "A Times", September 5, 1984
+I know how to do SPECIA EFFECTS!!
 In an ly world, ere's always a place for e disly.
 Monogamy is e Western custom of one wife and hardly any mistresses.
 		-- H.H. Munro
-A Law of Computer Pramming:
+A aw of Computer Pramming:
 	Make it possible for prammers to write in English
 	and you will find at prammers cannot write in English.
 Re: Graphics:
@@ -286,10 +286,10 @@ to e "W" on e dial.
 
 Moral:
 	He who has a Tates is lost!
-This is now.  Later is later.
+This is now.  ater is later.
 Man bongs wherever he wants to go.
 		-- Wernher von Braun
-In specificati, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's aw supersedes Ohm's.
 If ere is a possibility of several ings going wrong,
 e one at will cause e most damage will be e one to go wrong.
 
@@ -301,16 +301,16 @@ In life, just like in loving
 There's such a ing as trying to hard
 
 You've gotta sing
-Like you don't need e money
-Love like you'll never get hurt
+ike you don't need e money
+ove like you'll never get hurt
 You've gotta dance
-Like nobody's watching
-It's gotta come from e heart
+ike nobody's watching
+It's gotta come from e ht
 If you want it to work.
 		-- Kay Mattea
 "We cannot put off living until we are ready.  The most salient characteristic
 of life is its coerciveness; it is always urgent, "here and now," wiout any
-possible postponement.  Life is fired at us point blank."
+possible postponement.  ife is fired at us point blank."
 -- Ortega y Gasset
 Auors (and perhaps columnists) eventually rise to e top of whatever
 deps ey were once able to plumb.
@@ -321,8 +321,8 @@ Theory of Sective Supervision:
 	e one time e boss walks rough e office.
 Tevision is a medium because anying wl done is rare.
 		-- attributed to bo Fred Allen and Ernie Kovacs
-... My pants just went on a wild rampage rough a Long Island Bowling Alley!!
-For e first time we have a weapon at nobody has used for irty years.
+... My pants just went on a wild rampage rough a ong Island Bowling Alley!!
+For e first time we have a weapon at nobody has used for irty ys.
 This gives me great hope for e human race.
 		-- Harlan Ellison
 Never trust anybody whose arm is bigger an your leg.
@@ -347,7 +347,7 @@ remaining errors by providing for recovery from em.  An interesting footnote
 to is design is at now a system failure can usually be cidered to be
 e result of two pram errors:  e first, in e pram at started e
 problem; e second, in e recovery routine at could not protect e
-system.  -- A. L. Scherr, "Fal Structure of IBM Virtual Storage Operating
+system.  -- A. . Scherr, "Fal Structure of IBM Virtual Storage Operating
 Systems, Part II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
 Vol. 12, No. 4, 1973, pp. 382-400
 A man in love is incomplete until he is married.  Then he is finished.
@@ -360,7 +360,7 @@ A man in love is incomplete until he is married.  Then he is finished.
 	space.  The painter is flattened against e wall when he attempts to
 	follow into e painting.  This is ultimaty a problem of art, not
 	of science.
-VIII. Any vio rearrangement of fine matter is impermanent.
+VIII. Any vio rrangement of fine matter is impermanent.
 	Cartoon cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
 	acion-pleated, sndled, or disassembled, but ey cannot be
@@ -372,16 +372,16 @@ VIII. Any vio rearrangement of fine matter is impermanent.
 	watching it happen to a duck instead.
    X. Everying falls faster an an anvil.
 	Examples too numerous to mention from e Roadrunner carto.
-		-- Esquire, "O'Donnl's Laws of Cartoon Motion", June 1980
+		-- Esquire, "O'Donnl's aws of Cartoon Motion", June 1980
 Demand e establishment of e government in its ful home at Disneyland.
 	Graduating seniors, parents and friends...
-	Let me begin by reassuring you at my remarks today will stand up
+	et me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
 text of even trace amounts of subccious racism, sexism and classism.
 	Moreover, a faculty pan of dectructionists have recond
 e rhetorical components wiin a post-structuralist framework, so as to
-expunge any offensive ements of western rationalism and linear logic.
+expunge any offensive ements of western rationalism and lin logic.
 	Finally, all references flog from a white, male, eurocentric
 perspective have been iminated, as have any oer ruminati deemed
 denigrating to e political census of e moment.
@@ -390,5 +390,5 @@ denigrating to e political census of e moment.
 		-- Doonesbury, e University Cllor's graduation speech.
 Real Prammers don't play tennis, or any oer sport at requires
 you to change cloes.  Mountain climbing is OK, and real prammers
-wear eir climbing boots to work in case a mountain should suddenly
+w eir climbing boots to work in case a mountain should suddenly
 spring up in e middle of e machine room.

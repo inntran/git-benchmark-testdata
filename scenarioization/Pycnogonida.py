@@ -36,9 +36,9 @@ a pen.  I want you to sign the papers.  I'm sorry, but if you don't sign,
 you're fired.  As of  now."
 	Sam signed the papers immediately.
 	"Now," said the president, "would you mind telling me why you
-couldn't have signed earlier?"
+couldn't have signed lier?"
 	"Well, sir," replied Sam, "nobody explained it to me quite so
-clearly before."
+clly before."
 Economics is extremely useful as a form of employment for economists.
 		-- John Ken Galbraith
 If God is One, what is bad?
@@ -62,7 +62,7 @@ Anybody who doesn't cut his speed at the sight of a police car is
 probably parked.
 He laughs at every joke three times... once when it's told, once when
 it's explained, and once when he understands it.
-Even in the moment of our earliest kiss,
+Even in the moment of our liest kiss,
 When sighed the straitened bud into the flower,
 Sat the dry seed of most unwelcome this;
 And that I knew, though not the day and hour.
@@ -79,19 +79,19 @@ I tell you this across the blackened vine.
 		-- Edna St. Vincent Millay, "Even in the Moment of
 		   Our Earliest Kiss", 1931
 One of the major difficulties Trillian experienced in her relatihip with
-Zaphod was learning to distinguish between him pretending to be stupid just
+Zaphod was lning to distinguish between him pretending to be stupid just
 to get people off their guard, pretending to be stupid because he couldn't
 be bothered to think and wanted someone else to do it for him, pretending
 to be so outrageously stupid to hide the fact that he actually didn't understand
 hat was going on, and really being genuinely stupid.  He was reknowned for 
-being quite clever and quite clearly was so -- but not all the time, which
+being quite clever and quite clly was so -- but not all the time, which
 obviously worried him, hence the act.  He preferred people to be puzzled
-rather than contemptuous.  This above all appeared to Trillian to be
+rather than contemptuous.  This above all apped to Trillian to be
 genuinely stupid, but she could no longer be bothered to argue about.
 -- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
 You can drive a  to water, but a pencil must be lead.
 Never try to teach a pig to sing.  It wastes your time and annoys the pig.
-		-- Lazarus Long, "Time Enough for Love"
+		-- azarus ong, "Time Enough for ove"
 "Whip me.  Beat me.  Make me maintain AIX."
 (By Stephan Zielinski)
 news: gotcha
@@ -108,14 +108,14 @@ Ma l is a mean mother!
 Extraordinary claims demand extraordinary proof.  There are many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egregious findings that
-contradict well-established research turn out to be artifacts.  I have
+contradict well-established resch turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisi of the foundati of
 neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
-- Barry L. Beyerstein, "The Brain and Conciousness: Implicati for Psi
+- Barry . Beyerstein, "The Brain and Conciousness: Implicati for Psi
    Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 After Goliath's defeat, giants d to command respect.
 - Freeman Dyson
@@ -130,8 +130,8 @@ Fortune finishes the great quotati, #2
 	If at first you don't succeed, think how many people
 	you've made happy.
 He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
-I'll learn to play the Saxophone,
+		-- Shakespe, "Romeo and Juliet, II. 2"
+I'll ln to play the Saxophone,
 I play just what I feel.
 Drink Scotch whisky all night long,
 And die behind the wheel.
@@ -163,10 +163,10 @@ But not your chin.
 QOTD:
 	All I want is more than my fair share.
 The great secret in life ... [is] not to open your letters for a fortnight.
-At the expiration of that period you will find that nearly all of them have
+At the expiration of that period you will find that nly all of them have
 answered themselves.
 		-- Arthur Binstead
-Even the clearest and most perfect circumstantial evidence is likely to be at
+Even the clest and most perfect circumstantial evidence is likely to be at
 fault, after all, and therefore ought to be received with great caution.  Take
 the case of any pencil, sharpened by any woman; if you have witnesses, you will
 find she did it with a knife; but if you take simply the aspect of the pencil,
@@ -180,8 +180,8 @@ Nowlan's Theory:
 	the next freeway exit.
 Men ought to know that from the brain and from the brain only arise our
 pleasures, joys, laughter, and jests as well as our sorrows, pains, griefs
-and tears.  ...  It is the same thing which makes us mad or delirious,
-inspires us with dread and fear, whether by night or by day, brings us
+and ts.  ...  It is the same thing which makes us mad or delirious,
+inspires us with dread and f, whether by night or by day, brings us
 sleeplessness, inopportune mistakes, aimless anxieties, absent-mindedness
 and acts that are contrary to habit...
 		-- Hippocrates "The Sacred Disease"
@@ -196,11 +196,11 @@ incredibly dense, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
 make ideal gifts because the Postal Service has been unable to find a way to
 damage them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
-to the original givers the next year; some fruitcakes have been passed back
-and forth for hundreds of years.
+to the original givers the next y; some fruitcakes have been passed back
+and forth for hundreds of ys.
 
 The easiest way to make a fruitcake is to buy a darkish cake, then pound
-some old, hard fruit into it with a mallet.  Be sure to wear safety glasses.
+some old, hard fruit into it with a mallet.  Be sure to w safety glasses.
 		-- Dave Barry, "Simple, Homespun Gifts"
 To follow foolish precedents, and wink
 With both our eyes, is easier than to think.
@@ -208,7 +208,7 @@ With both our eyes, is easier than to think.
 All people are born alike -- except Republicans and Democrats.
 		-- Groucho Marx
 Friends, Romans, Hipsters,
-Let me  you in;
+et me  you in;
 I come to put down Caesar, not to groove him.
 The square kicks some cats are on stay with them;
 The hip bits, like, go down under; 
@@ -245,23 +245,23 @@ miracle:  an extremely outstanding or unusual event, thing, or accomplishment.
 -- Webster's Dictionary
 The sum of the intelligence of the world is ctant.  The population is,
 of course, growing.
-Lonesome?
+onesome?
 
-Like a change?
-Like a new job?
-Like excitement?
-Like to meet new and interesting people?
+ike a change?
+ike a new job?
+ike excitement?
+ike to meet new and interesting people?
 
 JUST SCREW-UP ONE MORE TIME!!!!!!!
-The Least Successful Police Dogs
-	America has a very strong candidate in "La Dur", a fearsome looking
+The east Successful Police Dogs
+	America has a very strong candidate in "a Dur", a fsome looking
 schnauzer hound, who was retired from the Orlando police force in Florida
 in 1978.  He cistently refused to do anything which might ruffle or
 offend the criminal classes.
 	His handling officer, Rick Grim, had to admit: "He just won't go up
 and bite them.  I got sick and tired of doing that dog's work for him."
 	The British contenders in this category, however, took things a
-stage further.  "Laddie" and "Boy" were trained as detector dogs for drug
+stage further.  "addie" and "Boy" were trained as detector dogs for drug
 raids.  Their employment was terminated following a raid in the Midlands in
 1967.
 	While the investigating officer questioned two suspects, they
@@ -273,7 +273,7 @@ What did Mickey Mouse get for Christmas?
 
 A Dan Quayle watch.
 
--- heard from a Mike Dukakis field worker
+-- hd from a Mike Dukakis field worker
 If society fits you comfortably enough, you call it freedom.
 		-- Robert Frost
 If all else fails, lower your standards.
@@ -328,7 +328,7 @@ Please stand for the National Anthem:
 	Our home and native land
 	True patriot love
 	In all thy s' command
-	With glowing hearts we see thee rise
+	With glowing hts we see thee rise
 	The true north strong and free
 	From far and wide, O Canada
 	We stand on guard for thee
@@ -341,7 +341,7 @@ Are we on STRIKE yet?
 "Rights" is a fictional abstraction.  No one has "Rights", neither machines
 nor flesh-and-blood.  Pers... have opportunities, not s, which they
 use or do not use.
-		-- Lazarus Long
+		-- azarus ong
 And I alone am returned to wag the tail.
 Necessity is a mother.
 The perversity of nature is nowhere better demtrated by the fact that, when
@@ -361,13 +361,13 @@ When in doubt, tell the truth.
 You can drive a  to water, but a pencil must be lead.
 Got a wife and kids in Baltimore Jack,
 I went out for a ride and never came back.
-Like a river that don't know where it's flowing,
+ike a river that don't know where it's flowing,
 I took a wrong turn and I just kept going.
 
-	Everybody's got a hungry heart.
-	Everybody's got a hungry heart.
-	Lay down your money and you play your part,
-	Everybody's got a hungry heart.
+	Everybody's got a hungry ht.
+	Everybody's got a hungry ht.
+	ay down your money and you play your part,
+	Everybody's got a hungry ht.
 
 I met her in a Kingstown bar,
 We fell in love, I knew it had to end.
@@ -378,12 +378,12 @@ Everybody needs a place to rest,
 Everybody wants to have a home.
 Don't make no difference what nobody says,
 Ain't nobody likes to be alone.
-		-- Bruce Springsteen, "Hungry Heart"
+		-- Bruce Springsteen, "Hungry Ht"
 Better tried by twelve than carried by six.
 		-- Jeff Cooper
 He gave her a look that you could have poured on a waffle.
 If you stick your head in the sand, one thing is for sure, you're gonna
-get your rear kicked.
+get your r kicked.
 I'm very good at integral and differential calculus,
 I know the scientific names of beings animalculous;
 In short, in matters vegetable, animal, and mineral,
@@ -391,9 +391,9 @@ I am the very model of a modern Major-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
 "In regards to Oral Roberts' claim that God told him that he would die unless he
  received $20 million by March, God's lawyers have stated that their client has
- not spoken with Roberts for several years.  Off the re, God has stated that
+ not spoken with Roberts for several ys.  Off the re, God has stated that
  "If I had wanted to ice the little toad, I would have done it a long time ago."
--- Dennis Miller, SNL News
+-- Dennis Miller, SN News
 To be is to do.
 		-- I. Kant
 To do is to be.
@@ -420,7 +420,7 @@ Republican V.P. candidate.  Should I post?
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
 broadcast networks have covered them.  As you are probably the only person
-to have heard the news on the radio, be sure to post as soon as you can.
+to have hd the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 A Roman divorced from his wife, being highly blamed by his friends, who
@@ -453,7 +453,7 @@ Though I know I'll never lose affection
 For people and things that went before,
 I know I'll often stop and think about them
 In my life I'll love you more.
-		-- Lennon/McCartney, "In My Life", 1965
+		-- ennon/McCartney, "In My ife", 1965
 Yeah, there are more important things in life than money, but they won't go
 out with you if you don't have any.
 I trust the first lion he meets will do his duty.
@@ -466,7 +466,7 @@ it's going to be up all night.
 
 Many of our students have gone on to achieve great success in all fields of
 pramming.  One former student developed the concept of the personalized
-form letter.  Does the phrase, "Dear Mr.(insert name), You may already be a
+form letter.  Does the phrase, "D Mr.(insert name), You may already be a
 winner!," sound familiar?  Another student writes "After only five less I
 sold a "My Most Unforgettable Pram" article to Corrosive Computing magazine.
 Another of our graduates writes, "I recently completed a database-management
@@ -483,14 +483,14 @@ Our informal mission is to improve the love life of operators worldwide.
 Extraordinary claims demand extraordinary proof.  There are many examples
 of outsiders who eventually overthrew entrenched scientific orthodoxies,
 but they prevailed with irrefutable data.  More often, egregious findings
-that contradict well-established research turn out to be artifacts.  I have
+that contradict well-established resch turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisi of the foundati of
 neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
-		-- Barry L. Beyerstein, "The Brain and Conciousness:
+		-- Barry . Beyerstein, "The Brain and Conciousness:
 		   Implicati for Psi Phenomena".
 You can do very well in speculation where land or anything to do with dirt
 is concerned.
@@ -504,8 +504,8 @@ killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
 the gnus and here, once again, are the head li."
-A woman was in love with fourteen soldiers.  It was clearly platoonic.
-This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
+A woman was in love with fourteen soldiers.  It was clly platoonic.
+This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 You're not my type.  For that matter, you're not even my species!!!
 "We never make asserti, Miss Taggart," said Hugh Akston.  "That is
 the moral crime peculiar to our enemies.  We do not tell -- we *show*.
@@ -513,7 +513,7 @@ We do not claim -- we *prove*."
 -- Ayn Rand, _Atlas Shrugged_
 It destroys one's nerves to be amiable every day to the same human being.
 		-- Benjamin Disraeli
-Some of you ... may have decided that, this year, you're going to celebrate
+Some of you ... may have decided that, this y, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handmade gifts, like on "The Walt".
 Well, you can forget it.  If everybody pulled that kind of subversive stunt,
@@ -526,22 +526,22 @@ should go along with the Holiday Pram.  This means you should get a large
 sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
 Virtue would go far if vanity did not keep it company.
-		-- La Rochefoucauld
+		-- a Rochefoucauld
 All press is based upon a universal innate desire of every orgm
 to live beyond its income.
 		-- Samuel Butler, "Notebooks"
-Dear Emily:
+D Emily:
 	I collected replies to an article I wrote, and now it's time to
 summarize.  What should I do?
 		-- Editor
 
-Dear Editor:
+D Editor:
 	Simply concatenate all the articles together into a big file and post
 that.  On USENET, this is known as a summary.  It lets people read all the
 replies without annoying newsreaders getting in the way.  Do the same when
 summarizing a vote.
 		-- Emily Postnews Answers Your Questi on Netiquette
-The hearing ear is always found close to the sing , a custom
+The hing  is always found close to the sing , a custom
 whereof the memory of man run not howsomever to the contrary, nohow.
 Up against the net, redneck mother,
 Mother who has raised your son so well;
@@ -567,7 +567,7 @@ sapped the strength of our voices and must be destroyed for society to
 exist in a more fundamental sense.
 We are Pentium of Borg. Division is futile. You will be approximated.
 (seen in someone's .signature)
-Ten years of rejection slips is nature's way of telling you to stop writing.
+Ten ys of rejection slips is nature's way of telling you to stop writing.
 		-- R. Geis
 I kissed my first girl and smoked my first cigarette on the same day.
 I haven't had time for tobacco since.
@@ -579,7 +579,7 @@ comes to town, smells a flower, visits a hospital, blows a horn and says
 he's in shape.  Old hat.  I was the onliest boxer in history people asked
 questi like a senator.
 		-- Muhammad Ali
-How's it going in those MODULAR LOVE UNITS??
+How's it going in those MODUAR OVE UNITS??
 Nobody shot me.
 		-- Frank Gusenberg, his last words, when asked by police
 		who had shot him 14 times with a machine gun in the Saint
@@ -598,7 +598,7 @@ The vice-presidency ain't worth a pitcher of warm spit.
 		-- Vice President John Nance Garner
 Between infinite and short there is a big difference.
 		-- G.H. Gonnet
-Losing your drivers' license is just God's way of saying "BOOGA, BOOGA!"
+osing your drivers' license is just God's way of saying "BOOGA, BOOGA!"
 QOTD:
 	"What women and psychologists call `dropping your armor', we call
 	"baring your neck."
@@ -609,8 +609,8 @@ Sharks are as tough as those football fans who take their shirts off
 during games in Chicago in January, only more intelligent.
 		-- Dave Barry, "Sex and the Single Amoeba: What Every
 		   Teen Should Know"
-	A Scotsman was strolling across High Street one day wearing his kilt.
-As he neared the far curb, he noticed two young blondes in a red convertible
+	A Scotsman was strolling across High Street one day wing his kilt.
+As he ned the far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 under the kilt?"
 	He strolled over to the side of the car and asked, "Ach, lass, are you
@@ -620,13 +620,13 @@ really want to know.
 under the kilt, everything's in perfect workin' order!"
 People are beginning to notice you.  Try dressing before you leave the house.
 Some people say a front-engine car handles best.  Some people say a
-rear-engine car handles best.  I say a rented car handles best.
+r-engine car handles best.  I say a rented car handles best.
 		-- P.J. O'Rourke
 You will find me drinking gin
 In the lowest kind of inn,
 Because I am a rigid Vegetarian.
 		-- G.K. Chesterton
-FORTUNE'S RULES TO LIVE BY: #23
+FORTUNE'S RUES TO IVE BY: #23
 	Don't cut off a police car when making an illegal U-turn.
 Down to the Banana Republics,
 Down to the tropical sun.
@@ -635,12 +635,12 @@ Hoping to find some fun.
 Some of them go for the sailing,
 Caught by the lure of the sea.
 Trying to find what is ailing,
-Living in the land of the free.
+iving in the land of the free.
 Some of them are running from lovers,
-Leaving no forward address.
+eaving no forward address.
 Some of them are running t of ganja,
 Some are running from the IRS.
-Late at night you will find them,
+ate at night you will find them,
 In the cheap hotels and bars.
 Hustling the senoritas,
 While they dance beneath the stars.
@@ -648,28 +648,28 @@ While they dance beneath the stars.
 Doubt isn't the opposite of faith; it is an element of faith.
 - Paul Tillich, German theologian and historian
 Try to be the best of whatever you are, even if what you are is no good.
-Literature is mostly about having sex and not much about having children.
-Life is the other way around.
-		-- David Lodge, "The British Museum is Falling Down"
-It's NO USE ... I've gone to "CLUB MED"!!
+iterature is mostly about having sex and not much about having children.
+ife is the other way around.
+		-- David odge, "The British Museum is Falling Down"
+It's NO USE ... I've gone to "CUB MED"!!
 What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, "The Opium of the Intellectuals"
 Timing must be perfect now.  Two-timing must be better than perfect.
 It's not enough to be Hungarian; you must have talent too.
 		-- Alexander Korda
-"Now the Lord God planted a garden East of Whittier in a place called
-Yorba Linda, and out of the ground he made to grow orange trees that
+"Now the ord God planted a garden East of Whittier in a place called
+Yorba inda, and out of the ground he made to grow orange trees that
 were good for food and the fruits thereof he labeled SUNKIST ..."
 		-- "The Begatting of a President"
 "Whom are you?" said he, for he had been to night school.
 		-- George Ade
 It has been said [by Anatole France], "it is not by amusing oneself
-that one learns," and, in reply: "it is *____only* by amusing oneself that
-one can learn."
+that one lns," and, in reply: "it is *____only* by amusing oneself that
+one can ln."
 		-- Edward Kasner and James R. Newman
 When we understand knowledge-based systems, it will be as before --
 except our fingertips will have been singed.
-		-- Epigrams in Pramming, ACM SIGPLAN Sept. 1982
+		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 Bare feet magnetize sharp metal objects so they point upward from the
 floor -- especially in the dark.
 Never face facts; if you do you'll never get up in the morning.
@@ -685,12 +685,12 @@ There are some things worth dying for.
 		-- Kirk, "Errand of Mercy", stardate 3201.7
 "I'll rob that rich person and give it to some poor deserving slob.
  That will *prove* I'm Robin Hood."
--- Daffy Duck, Looney Tunes, _Robin Hood Daffy_
+-- Daffy Duck, ooney Tunes, _Robin Hood Daffy_
 When you are at Rome live in the Roman style; when you are elsewhere live
 as they live elsewhere.
 		-- St. Ambrose
 Oh, I get it!!  "The BEACH goes on", huh, SONNY??
-Why is everything made of Lycra Spandex?
+Why is everything made of ycra Spandex?
 ...the increased productivity fostered by a friendly environment and quality
 tools is  to meet ever increasing demands for software.
 -- M. D. McIlroy, E. N. Pinson and B. A. Tague
@@ -701,13 +701,13 @@ A child of five could understand this!  Fetch me a child of five.
 Inadmissible:  Not competent to be cidered.  Said of certain kinds of
 testimony which juries are supposed to be unfit to be entrusted with,
 and which judges, therefore, rule out, even of proceedings before themselves
-alone.  Hearsay evidence is inadmissible because the person quoted was
+alone.  Hsay evidence is inadmissible because the person quoted was
 unsworn and is not before the court for examination; yet most momentous 
 acti, military, political, commercial and of every other kind, are
-daily undertaken on hearsay evidence.  There is no religion in the world
-that has any other basis than hearsay evidence.  Revelation is hearsay
+daily undertaken on hsay evidence.  There is no religion in the world
+that has any other basis than hsay evidence.  Revelation is hsay
 evidence; that the Scriptures are the word of God we have only the
-testimony of men long dead whose identy is not clearly established and
+testimony of men long dead whose identy is not clly established and
 who are not known to have been sworn in any sense.  Under the rules of
 evidence as they now exist in this country, no single assertion in the
 Bible has in its support any evidence admissible in a court of law...
@@ -726,10 +726,10 @@ I know th'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
 Conquest is easy. Control is not.
 		-- Kirk, "Mirror, Mirror", stardate unknown
 	While the engineer developed his thesis, the director leaned over to
-his assistant and whispered, "Did you ever hear of why the sea is salt?"
+his assistant and whispered, "Did you ever h of why the sea is salt?"
 	"Why the sea is salt?" whispered back the assistant.  "What do you
 mean?"
-	The director continued: "When I was a little kid, I heard the story of
+	The director continued: "When I was a little kid, I hd the story of
 `Why the sea is salt' many times, but I never thought it important until just
 a moment ago.  It's something like this: Formerly the sea was  water and
 salt was rare and expensive.  A miller received from a wizard a wonderful
@@ -743,7 +743,7 @@ were sunk together, and down below, the mill still went on grinding and that's
 why the sea is salt."
 	"I don't get you," said the assistant.
 		-- Guy Endore, "Men of Iron"
-Tuesday After Lunch is the cosmic time of the week.
+Tuesday After unch is the cosmic time of the week.
 But soft you, the fair Ophelia:
 Ope not thy ponderous and marble jaws,
 But get thee to a nunnery -- go!
@@ -751,8 +751,8 @@ But get thee to a nunnery -- go!
 Q:	How many psychiatrists does it take to change a light bulb?
 A:	Only one, but it takes a long time, and the light bulb has
 	to really want to change.
-Why did the Roman Empire collapse?  What is the Latin for office automation?
-The early worm gets the late bird.
+Why did the Roman Empire collapse?  What is the atin for office automation?
+The ly worm gets the late bird.
 The new Congressmen say they're going to turn the government around.  I
 hope I don't get run over again.
 Innovation is hard to schedule.
@@ -777,23 +777,23 @@ longer interested in sex, take out an ad in The Wall Street Journal.
 Politicians s for their parties, and parties never are, never have
 been, and never will be wrong.
 		-- Walter Dwight
-It was a JOKE!!  Get it??  I was receiving messages from DAVID LETTERMAN!!
+It was a JOKE!!  Get it??  I was receiving messages from DAVID ETTERMAN!!
 YOW!!
 White dwarf seeks red giant for binary relatihip.
 If you want to know how old a man is, ask his brother-in-law.
 Knowledge without common sense is folly.
-	"Verily and forsooth," replied Goodgulf darkly.  "In the past year
-strange and fearful wonders I have seen.  Fields sown with barley reap
-crabgrass and fungus, and even small gardens reject their artichoke hearts.
+	"Verily and forsooth," replied Goodgulf darkly.  "In the past y
+strange and fful wonders I have seen.  Fields sown with barley reap
+crabgrass and fungus, and even small gardens reject their artichoke hts.
 There has been a hot day in December and a blue moon.  Calendars are made with
 a month of Sundays and a blue-ribbon Holstein bore alive two insurance
-salesmen.  The earth splits and the entrails of a goat were found tied in
+salesmen.  The th splits and the entrails of a goat were found tied in
 square knots.  The face of the sun blackens and the skies have rained down
 soggy potato chips."
 	"But what do all these things mean?" gasped Frito.
 	"Beats me," said Goodgulf with a shrug, "but I thought it made good
 copy."
-		-- Harvard Lampoon, "Bored of the Rings"
+		-- Harvard ampoon, "Bored of the Rings"
 Robot, n.:
 	University administrator.
 I would much rather have men ask why I have no statue, than why I have one.
@@ -803,7 +803,7 @@ a new town.
 If men are not afraid to die,
 it is of no avail to threaten them with death.
 
-If men live in ctant fear of dying,
+If men live in ctant f of dying,
 And if breaking the law means a man will be killed,
 Who will dare to break the law?
 
@@ -812,11 +812,11 @@ If you try to take his place,
 It is like trying to be a master carpenter and cutting wood.
 If you try to cut wood like a master carpenter,
 	you will only hurt your hand.
-		-- Tao Te Ching, "Lao Tsu, #74"
+		-- Tao Te Ching, "ao Tsu, #74"
 Old musicians never die, they just decompose.
 Theory is gray, but the golden tree of life is green.
 		-- Goethe
-Life is a concentration camp.  You're stuck here and there's no way
+ife is a concentration camp.  You're stuck here and there's no way
 out and you can only rage impotently against your persecutors.
 		-- Woody Allen
 Yes, but every time I try to see things your way, I get a headache.
@@ -827,7 +827,7 @@ Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.
 Changing husbands/wives is only changing troubles.
 		-- Kathleen Norris
-To err is human, but when the eraser wears out before the pencil,
+To err is human, but when the eraser ws out before the pencil,
 you're overdoing it a little.
 Operating-system software is the pram that orchestrates all the basic
 functi of a computer.
@@ -848,7 +848,7 @@ least one catcher who at this writing is probably superior to Bill Dickey,
 Josh Gibson.  Only one thing is keeping them out of the big leagues, the
 pigmentation of their skin.  They happen to be colored.
 		-- Shirley Povich, 1941
-"Lead us in a few words of silent prayer."
+"ead us in a few words of silent prayer."
 -- Bill Peterson, former Houston Oiler football coach
 If we all work together, we can totally disrupt the system.
 There's a trick to the Graceful Exit.  It begins with the vision to
@@ -858,8 +858,8 @@ past importance in our lives.  It involves a sense of future, a belief
 that every exit line is an entry, that we are moving on, rather than out.
 The trick of retiring well may be the trick of living well.  It's hard to
 recognize that life isn't a holding action, but a process.  It's hard to
-learn that we don't leave the best parts of ourselves behind, back in the
-dugout or the office. We own what we learned back there.  The experiences
+ln that we don't leave the best parts of ourselves behind, back in the
+dugout or the office. We own what we lned back there.  The experiences
 and the growth are grafted onto our lives.  And when we exit, we can take
 ourselves along -- quite gracefully.
 		-- Ellen Goodman
@@ -867,8 +867,8 @@ Humor in the Court:
 Q: Did you tell your lawyer that your husband had offered you indignities?
 A: He didn't offer me nothing; he just said I could have the furniture.
 The sunlights differ, but there is only one darkness.
-		-- Ursula K. LeGuin, "The Dispossessed"
-Writers who use a computer swear to its liberating power in tones that bear
+		-- Ursula K. eGuin, "The Dispossessed"
+Writers who use a computer sw to its liberating power in tones that b
 witness to the apocalyptic power of a new divinity.  Their conviction results
 from something deeper than mere gratitude for the computer's conveniences.
 Every new medium of writing brings about new intensities of religious belief
@@ -888,7 +888,7 @@ light table for cutting and pasting documents.
 Things will be b in P.M.  A cop will shine a light in your face.
 I was born in a Hostess Cupcake factory before the sexual revolution!
 You need more time; and you probably always will.
-Colvard's Logical Premises:
+Colvard's ogical Premises:
 	All probabilities are 50%.
 	Either a thing will happen or it won't.
 
@@ -896,32 +896,32 @@ Colvard's Unccionable Commentary:
 	This is especially true when dealing with someone you're attracted to.
 
 Grelb's Commentary:
-	Likelihoods, however, are 90% against you.
+	ikelihoods, however, are 90% against you.
 Everything should be built top-down, except the first time.
-If you make any money, the government shoves you in the creek once a year
+If you make any money, the government shoves you in the creek once a y
 with it in your pockets, and all that don't get wet you can keep.
 		-- The Best of Will Rogers
 Where's SANDY DUNCAN?
-The Bulwer-Lytton fiction contest is held ever year at San Jose State
+The Bulwer-ytton fiction contest is held ever y at San Jose State
 Univ.  by Professor Scott Rice.  It is held in memory of Edward George
-Earle Bulwer-Lytton (1803-1873), a rather prolific and popular (in his
-time) novelist.  He is best known today for having written "The Last
+Earle Bulwer-ytton (1803-1873), a rather prolific and popular (in his
+time) novelist.  He is best known today for having written "The ast
 Days of Pompeii."
 
 Whenever Snoopy starts typing his novel from the top of his doghouse,
-beginning "It was a dark and stormy night..." he is borrowing from Lord
-Bulwer-Lytton.  This was the line that opened his novel, "Paul Clifford,"
+beginning "It was a dark and stormy night..." he is borrowing from ord
+Bulwer-ytton.  This was the line that opened his novel, "Paul Clifford,"
 written in 1830.  The full line reveals why it is so bad:
 
 	It was a dark and stormy night; the rain fell in torrents -- except
 	at occasional intervals, when it was checked by a violent gust of
-	wind which swept up the streets (for it is in London that our scene
+	wind which swept up the streets (for it is in ondon that our scene
 	lies), rattling along the housetops, and fiercely agitating the scanty
 	flame of the lamps that struggled against the darkness.
 Yow!  I want my nose in lights!
 If you want me to be a good little bunny just dangle some carats in front
 of my nose.
-		-- Lauren Bacall
+		-- auren Bacall
 One nice thing about egotists: they don't talk about other people.
 The New Testament offers the basis for modern computer coding theory,
 in the form of an affirmation of the binary number system.
@@ -937,16 +937,16 @@ manic-depressive, adj.:
 I would gladly raise my voice in praise of women, only they won't let me
 raise my voice.
 		-- Winkle
-The answer to the question of Life, the Universe, and Everything is...
+The answer to the question of ife, the Universe, and Everything is...
 
 	Four day work week,
 	Two ply toilet paper!
 "The first rule of magic is simple.  Don't waste your time waving your
 hands and hoping when a rock or a club will do."
-		-- McCloctnik the Lucid
+		-- McCloctnik the ucid
 Food for thought is no substitute for the real thing.
 		-- Walt Kelly, "Potluck Pogo"
-Beware of geeks bearing graft.
+Beware of geeks bing graft.
 FORTRAN rots the brain.
 		-- John McQuillin
 I want to reach your mind -- where is it currently located?

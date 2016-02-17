@@ -1,9 +1,9 @@
 Whatever is not nailed down is mine.  Whatever I can pry up is not nailed down.
 		-- Collis P. Huntingdon, railroad tycoon
 It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+		-- William Shakespe, "The Merchant of Venice"
 Do you guys know what you're doing, or are you just hacking?
-Money doesn't talk, it swears.
+Money doesn't talk, it sws.
 		-- Bob Dylan
 ...I don't care for the term 'mechtic'. The word 'cybernetic' is a lot
 more apropos. The mechtic world-view is falling further and further behind
@@ -30,7 +30,7 @@ employees have no time to re merchandise because they are too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in the entire store ...
 
-	Let's say a piece in your toilet tank breaks, so you remove the
+	et's say a piece in your toilet tank breaks, so you remove the
 broken part, take it to the home center, and ask an employee if he has a
 replacement.  The employee, who has never is his life even seen the inside
 of a toilet tank, will peer at the broken part in very much the same way
@@ -51,7 +51,7 @@ Yea, from the table of my memory
 I'll wipe away all trivial fond res,
 All saws of books, all forms, all pressures past,
 That youth and observation copied there.
-		-- William Shakespeare, "Hamlet"
+		-- William Shakespe, "Hamlet"
 Remember, even if you win the rat race -- you're still a rat.
 Give me chastity and continence, but not just now.
 		-- St. Augustine

@@ -1,5 +1,5 @@
-Unix:  Some say the learning curve is steep, but you only have to climb it once.
--- Karl Lehenbauer
+Unix:  Some say the lning curve is steep, but you only have to climb it once.
+-- Karl ehenbauer
 God is dead and I don't fe all too wl either....
 		-- Ralph Moonen
 Ever since I was a young boy,
@@ -15,7 +15,7 @@ Sure sends a mean packet.		Never uses lint,
 He's a UNIX wizard,
 There has to be a twist.
 The UNIX wizard's got			Ain't got no distracti,
-Unlimited space on disk.		Can't hear no whistles or bls,
+Unlimited space on disk.		Can't h no whistles or bls,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
 What makes him so good?			Those crazy little prams,
@@ -27,23 +27,23 @@ An infallible method of conciliating a tiger is to allow onesf to be
 devoured.
 		-- Konrad Adenauer
 What the  is it good for?
-		-- Robert Lloyd (engineer of the Advanced Computing Systems
+		-- Robert loyd (engineer of the Advanced Computing Systems
 		   Division of IBM), to colleagues who insisted that the
 		   microprocessor was the wave of the future, c. 1968
-Finagle's First Law:
+Finagle's First aw:
 	To study a subject best, understand it thoroughly before you start.
 
-Finagle's Second Law:
+Finagle's Second aw:
 	Always keep a re of data -- it indicates you've been working.
 
-Finagle's Fourth Law:
+Finagle's Fourth aw:
 	Once a job is fouled up, anything done to improve it only makes
 	it worse.
 
-Finagle's Fifth Law:
+Finagle's Fifth aw:
 	Always draw your curves, then plot your readings.
 
-Finagle's Sixth Law:
+Finagle's Sixth aw:
 	Don't bieve in miracles -- ry on them.
 I refuse to have a battle of wits with an unarmed person.
 I don't want to live on in my work, I want to live on in my apartment.
@@ -54,9 +54,9 @@ shoot some craps.  The stakes were enormous, the tension palpable.
 entire wad, shook the dice and rolled.  A smile crossed his  as a
 seven showed up, but it quickly changed to horror as third die slipped out
 of his sleeve and fl to the ground with the two others.  No one said a
-word.  Finally, Killer Lucci picked up the third die, put it in his pocket
+word.  Finally, Killer ucci picked up the third die, put it in his pocket
 and handed the others to Dutsky.
-	"Roll 'em," Lucci said.  "Your point is thirteen."
+	"Roll 'em," ucci said.  "Your point is thirteen."
 When some people decide it's time for everyone to make big changes,
 it means that they want you to change first.
 They [preachers] dread the advance of science as witches do the approach
@@ -66,13 +66,13 @@ of the duperies on which they live.
 Pascal is not a high-lev language.
 		-- Steven Feiner
 There are more old drunkards than old doctors.
-Laugh at your problems; everybody se does.
+augh at your problems; everybody se does.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
 		-- Andy Capp
 The husband who doesn't tl his wife everything probably reas that
 what she doesn't know won't hurt him.
-		-- Leo J. Burke
+		-- eo J. Burke
 Arbitrary systems, pl.n.:
 	Systems about which nothing general can be said, save "nothing
 	general can be said."
@@ -94,9 +94,9 @@ all is gone, and one of the richest jews of life is lost forever.
 		-- J. Hawes
 "Okay," Bobby said, getting the hang of it, "then what's the matrix?  If
 she's a deck, and Danbala's a pram, what's cyberspace?"
-  "The world," Lucas said.
+  "The world," ucas said.
 -- William Gibson, _Count Zero_
-I'll learn to play the Saxophone,
+I'll ln to play the Saxophone,
 I play just what I fe.
 Drink Scotch whisky all night long,
 And die behind the whe.
@@ -107,12 +107,12 @@ Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
 A diplomatic husband said to his wife, "How do you expect me to remember
 your birthday when you never look any older?"
-"By golly, I'm beginning to think Linux really *is* the best thing since
+"By golly, I'm beginning to think inux really *is* the best thing since
 sliced bread."
 (By Vance Petree, Virginia Power)
 If all the world's a stage, I want to operate the trap door.
 		-- Paul Beatty
-Wiker's Law:
+Wiker's aw:
 	Government expands to absorb revenue and then some.
 We may not like doctors, but at least they doctor.  Bankers are not ever
 popular but at least they bank.  Policeman police and undertakers take
@@ -145,14 +145,14 @@ We're all sorry for the other guy when he loses his job to a machine.
 But when it comes to your job -- that's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Computer", stardate 4729.4
-Live long and prosper.
+ive long and prosper.
 		-- Spock, "Amok Time", stardate 3372.7
 On-line, adj.:
 	The idea that a human being should always be accessible to a computer.
 Two wrongs are only the beginning.
 		-- Kohn
-Cebrate Hannibal Day this year.  Take an ephant to lunch.
-I'd like some JUNK FOOD ... and then I want to be ALONE --
+Cebrate Hannibal Day this y.  Take an ephant to lunch.
+I'd like some JUNK FOOD ... and then I want to be AONE --
 If in doubt, mumble.
 Disclaimer: "These opini are my own, though for a ll fee they be
 yours too."
@@ -180,17 +180,17 @@ give acceration up to 25,820 mph; after 44 minutes 9,800 solar cls
 would unfold; after 80 days a computer would calculate the final course
 correcti and after 100 days the craft would cirlce the unknown planet,
 scanning the mysterious cloud in which it is bathed.  
-	However, with an efficiency that is truly heartening, Mariner I
+	However, with an efficiency that is truly htening, Mariner I
 plunged into the Atl Ocean only four minutes after takeoff.
 	Inquiries later revealed that a minus sign had been omitted from
 the instructi fed into the computer.  "It was human error", a launch
 spoken said.
-	This minus sign cost L4,280,000.
+	This minus sign cost 4,280,000.
 		-- Stephen Pile, "The Book of Heroic Failures"
 Our congratulati go to a Burlington Vermont civilian employee of the
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a device for optical scanning.
-His device reportedly will save the government more than $6 million a year
+His device reportedly will save the government more than $6 million a y
 by replacing a more expensive hicopter maintenance tool with his own,
 home-made, hand-hd mod.
 
@@ -204,18 +204,18 @@ to the Pentagon free of charge:
 We expect annual savings to be in the billi.
 		-- Sojourners
 Ccience is the inner voice that warns us somebody may be looking.
-		-- H.L. Mencken, "A Mencken Chrestomathy"
+		-- H.. Mencken, "A Mencken Chrestomathy"
 All I've got left on the list of desirable vocati is heiress to the
-throne of any country in Western Europe and Laurie Anderson.  "Be
-practical", was the choral reply from the dinner table.  Wl, Laurie
-Anderson is already Laurie Anderson, but I read an article in Harpers
+throne of any country in Western Europe and aurie Anderson.  "Be
+practical", was the choral reply from the dinner table.  Wl, aurie
+Anderson is already aurie Anderson, but I read an article in Harpers
 that said there were even countries, in the world this is I think,
 that have queens as sovereign rulers.  That's probably my best shot.
 A lot of the stuff I do is so minimal, and it's designed to be minimal.
 The llness of it is what's attractive.  It's weird, 'cause it's so
 intlectually lame.  It's hard to see me doing that for the rest of
 my life.  But at the same time, it's what I do best.
-- Chris Elliot, writer and performer on "Late Night with David Letterman"
+- Chris Elliot, writer and performer on "ate Night with David etterman"
 Humor in the Court:
 Q: ...any suggesti as to what prevented this from being a murder trial 
    instead of an attempted murder trial?
@@ -234,8 +234,8 @@ To purr fine.
 		-- Robert Byrne
 In a gathering of two or more people, when a lighted cigarette is
 placed in an ashtray, the smoke will waft into the  of the non-smoker.
-Wl, O.K.  I'll compromise with my principles because of EXISTENTIAL DESPAIR!
-Get Revenge!  Live long enough to be a problem for your children!
+Wl, O.K.  I'll compromise with my principles because of EXISTENTIA DESPAIR!
+Get Revenge!  ive long enough to be a problem for your children!
 "An ounce of prevention is worth a ton of code."
 -- an anonymous prammer
 The generation of random numbers is too important to be left to c.
@@ -247,17 +247,17 @@ art.
 		-- Tom Stoppard
 Home is the place where, when you have to go there, they have to take you in.
 		-- Robert Frost, "The Death of the Hired Man"
-How much does she love you?  Less than you'll ever know.
+How much does she love you?  ess than you'll ever know.
 "Tourists -- have some fun with New york's hard-boiled cabbies.  When you get 
 to your destination, say to your driver, "Pay?	I was hitchhiking."
--- David Letterman
+-- David etterman
 Genius doesn't work on an assembly line basis.  You can't simply say,
 "Today I will be brilliant."
 		-- Kirk, "The Ultimate Computer", stardate 4731.3
 Justice, n.:
 	A decision in your favor.
-We place two copies of PEOPLE magazine in a DARK, HUMID mobile home.
-45 minutes later CYNDI LAUPER emerges wearing a BIRD CAGE on her head!
+We place two copies of PEOPE magazine in a DARK, HUMID mobile home.
+45 minutes later CYNDI AUPER emerges wing a BIRD CAGE on her head!
 You will overcome the attacks of jealous associates.
 Save yoursf!  Reboot in 5 seconds!
 You are confused; but this is your normal state.
@@ -265,25 +265,25 @@ After the game the king and the p go in the same box.
 		-- an proverb
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
-The years of  mental activity are undoubtedly between the ages of four
+The ys of  mental activity are undoubtedly between the ages of four
 and eighteen.  At four we know all the questi, at eighteen all the answers.
 The assertion that "all men are created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
-		--  Abraham Lincoln
+		--  Abraham incoln
 They are rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
 You are a fluke of the universe; you have no  to be here.
 Never accept an invitation from a stranger unless he gives you candy.
-		-- Linda Festa
+		-- inda Festa
 ... Had this been an actual emergency, we would have fled in terror,
 and you would not have been informed.
 He thought of Musashi, the Sword Saint, standing in his garden more than
-three hundred years ago. "What is the 'Body of a rock'?" he was asked.
+three hundred ys ago. "What is the 'Body of a rock'?" he was asked.
 In answer, Musashi summoned a pupil of his and bid him kill himsf by
 slashing his abdomen with a knife.  Just as the pupil was about to comply,
 the Master stayed his hand, saying, "That is the 'Body of a rock'."
-		-- Eric Van Lustbader
+		-- Eric Van ustbader
 "I'm not afraid of dying, I just don't want to be there when it happens."
 -- Woody Allen
 Wl, it's hard for a mere man to bieve that woman doesn't have equal s.
@@ -296,10 +296,10 @@ jungle!  We've had quite enough of you blowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the hp of the Wickersham Brothers and dozens of Wickersham
-Uncles and Wickersham Cousins and Wickersham In-Laws, whose hp I've engaged,
+Uncles and Wickersham Cousins and Wickersham In-aws, whose hp I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
-		-- Dr. Seuss "Horton Hears a Who"
+		-- Dr. Seuss "Horton Hs a Who"
 Never  facts; if you do you'll never get up in the morning.
 		-- Marlo Thomas
 	How do you insult a lawyer?
@@ -310,8 +310,8 @@ lesson is that *winning* is more important than *truth*.
 It isn't necessary to have ratives in Kansas City in  to be
 unhappy.
 		-- Groucho Marx
-The person who marries for money usually earns every penny of it.
-Fifth Law of Applied Terror:
+The person who marries for money usually ns every penny of it.
+Fifth aw of Applied Terror:
 	If you are given an open- exam, you will forget your .
 
 Corollary:
@@ -323,9 +323,9 @@ Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
    suggesti as to how to get started?"
 A: "A symphony is a very complex musical form, perhaps you should begin with
    some simple lieder and work your way up to a symphony."
-Q: "But Herr Mozart, you were writing symphonies when you were 8 years old."
+Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
 A: "But I never asked anybody how."
-Long were the days of pain I have spent within its walls, and
+ong were the days of pain I have spent within its walls, and
 long were the nights of aloneness; and who can depart from his
 pain and his aloneness without regret?
 		-- Kahlil Gibran, "The Prophet"
@@ -335,7 +335,7 @@ at ten o'clock.  That's two minutes from now.
 Don't try to outweird me, three-eyes.  I get stranger things than you free
 with my breakfast cereal.
 		-- Zaphod Beeblebrox
-	"I have examined Bogota," he said, "and the case is clearer to me.
+	"I have examined Bogota," he said, "and the case is cler to me.
 I think very probably he might be cured."
 	"That is what I have always hoped," said old Yacob.
 	"His brain is affected," said the blind doctor.
@@ -357,7 +357,7 @@ operation -- namy, to remove those irritant bodies."
 	"Thank heaven for science!" said old Yacob.
 		-- H.G. Wls, "The Country of the Blind"
 The distinction between Jewish and goyish can be quite subtle, as the
-following quote from Lenny Bruce illustrates:
+following quote from enny Bruce illustrates:
 
 	"I'm Jewish.  Count Basie's Jewish.  Ray Charles is Jewish.
 Eddie Cantor's goyish.  The B'nai Brith is goyish.  The Hadassah is
@@ -366,24 +366,24 @@ Jewish.  Marine Corps -- heavy goyish, dangerous.
 	"Kool-Aid is goyish.  All Drake's Cakes are goyish.
 Pumpernick is Jewish and, as you know, white bread is very goyish.
 Instant potatoes -- goyish.  Black cherry soda's very Jewish.
-Macaro are ____very Jewish.  Fruit salad is Jewish.  Lime Jl-O is
-goyish.  Lime soda is ____very goyish.  Trailer parks are so goyish that
-Jews won't go near them ..."
+Macaro are ____very Jewish.  Fruit salad is Jewish.  ime Jl-O is
+goyish.  ime soda is ____very goyish.  Trailer parks are so goyish that
+Jews won't go n them ..."
 		-- Arthur Naiman, "Every Goy's Guide to Yiddish"
-Fortune's Real-Life Courtroom Quote #37:
+Fortune's Real-ife Courtroom Quote #37:
 
-Q:  Did he pick the dog up by the ears?
+Q:  Did he pick the dog up by the s?
 A:  No.
-Q:  What was he doing with the dog's ears?
+Q:  What was he doing with the dog's s?
 A:  Picking them up in the air.
 Q:  Where was the dog at this time?
-A:  Attached to the ears.
+A:  Attached to the s.
 You're already carrying the sphere!
 It's the thought, if any, that counts!
 History is curious stuff
 	You'd think by now we had enough
-Yet the fact remains I fear
-	They make more of it every year.
+Yet the fact remains I f
+	They make more of it every y.
 A musician, an artist, an arect:
 	the man or woman who is not one of these is not a .
 		-- William Blake
@@ -417,7 +417,7 @@ But at least one must be lived ... and died.
 When a girl marries she exchanges the attenti of many men for the
 inattenti of one.
 		-- Hen Rowland
-Life is like an onion: you pe off layer after layer and then you find
+ife is like an onion: you pe off layer after layer and then you find
 there is nothing in it.
 		-- James Huneker
 You will meet an important person who will hp you advance professionally.
@@ -455,16 +455,16 @@ eating paper and a policeman was at the door.  Now all you have to do is
 bend a disk."
 - an anonymous member of the outlawed Polish trade union, Solidarity, 
   commenting on the benefits of using computers in support of their movement
-Ask not for whom the <CONTROL-G> tolls.
+Ask not for whom the <CONTRO-G> tolls.
 Interchangeable parts won't.
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
-	KOBOLDS topple when you strike them;
+	KOBODS topple when you strike them;
 	Don't fe bad, it's hard to like them.
 		-- The Roguet's ABC
 This is a country where people are free to practice their rigion,
 regardless of race, creed, color, obesity, or number of dangling keys...
-MAC user's dynamic debugging list evaluator?  Never heard of that.
+MAC user's dynamic debugging list evaluator?  Never hd of that.
 MOUNT TAPE U1439 ON B3, NO RING
 Tephone, n.:
 	An invention of the devil which abates some of the advantages
@@ -498,9 +498,9 @@ accounting package is trivial next to the complexity of an operating
 system," he said.
 	"Not so," said the prammer, "when designing an accounting package,
 the prammer operates as a mediator between people having different ideas:
-how it must operate, how its reports must appear, and how it must conform to
+how it must operate, how its reports must app, and how it must conform to
 the tax laws.  By contrast, an operating system is not limited my outside
-appearances.  When designing an operating system, the prammer seeks the
+appances.  When designing an operating system, the prammer seeks the
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
 	The warlord of Wu nodded and smiled.  "That is all good and wl, but
@@ -527,7 +527,7 @@ Antonym, n.:
 	The opposite of the word you're trying to think of.
 Bunker's Admonition:
 	You cannot  beer; you can only rent it.
-Van Roy's Law:
+Van Roy's aw:
 	An unbreakable toy is useful for breaking other toys.
 A diplomat is a person who can tl you to go to  in such a way that you
 actually look forward to the trip.
@@ -556,7 +556,7 @@ remember any time when I did not exercise my imagination in daydreams about
 women.
 		-- George Bernard Shaw
 "Cequences, Schmequences, as long as I'm rich."
--- Looney Tunes, Ali Baba Bunny (1957, Chuck Jones)
+-- ooney Tunes, Ali Baba Bunny (1957, Chuck Jones)
 It's a recession when your neighbour loses his job; it's a depression
 when you lose yours.
 		-- Harry S. Truman
@@ -576,8 +576,8 @@ Bagbiter:
 	1. n.; Equipment or pram that fails, usually intermittently.  2.
 adj.: Failing hardware or software.  "This bagbiting system won't let me get
 out of spacewar." Usage: verges on obscenity.  Grammatically separable; one
-may s of "biting the bag".  Synonyms: LOSER, LOSING, CRETINOUS,
-BLETCHEROUS, BARFUCIOUS, CHOMPER, CHOMPING.
+may s of "biting the bag".  Synonyms: OSER, OSING, CRETINOUS,
+BETCHEROUS, BARFUCIOUS, CHOMPER, CHOMPING.
 "To IBM, 'open' means there is a modicum of interoperability among some of their
 equipment."
 -- Harv Masterson

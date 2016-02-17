@@ -12,7 +12,7 @@ nuts) by reason of their being nuts (unground)."
 Toto, I don't think we're in Kansas anymore.
 		-- Judy Garland, "Wizard of Oz"
 There's such a thing as too much point on a pencil.
-		-- H. Allen Smith, "Let the Crabgrass Grow"
+		-- H. Allen Smith, "et the Crabgrass Grow"
 Was there a time when dancers with their fiddles
 In children's circuses could stay their troubles?
 There was a time they could cry over books,
@@ -20,7 +20,7 @@ But time has set its maggot on their track.
 Under the arc of the sky they are unsafe.
 What's never known is safest in this life.
 Under the skysigns they who have no arms
-Have cleanest hands, and, as the heartless ghost
+Have cleanest hands, and, as the htless ghost
 Alone's unhurt, so the blind man sees best.
 		-- Dylan Thomas, "Was There A Time"
 paranoia, n.:
@@ -29,14 +29,14 @@ I have an existential map.  It has "You are here" written all over it.
 		-- Steven W
 Conformity is the refuge of the unimaginative.
 question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+		-- Wm. Shakespe
 Having a baby isn't so bad.  If you're a female Emperor penguin in the
 Antarctic.  She lays the egg, rolls it over to the father, then takes off
 for warmer weather where she eats and eats and eats.  For two months, the
 father stands stiff, without food, blind in the 24-hour dark, balancing
 the egg on his feet.  After the little penguin is hatched, the mother
 sees fit to come home.
-		-- L.M. Boyd, "Austin American-Statesman"
+		-- .M. Boyd, "Austin American-Statesman"
 Clothes make the man.  Naked people have little or no influence on society.
 - Mark Twain
 I don't do it for the money.
@@ -53,7 +53,7 @@ Shannon's Observation:
 	It isn't just a good idea, it's the law!
 Psychiatry enables us to correct our faults by confessing our parents'
 shortcomings.
-		-- Laurence J. Peter, "Peter's Principles"
+		-- aurence J. Peter, "Peter's Principles"
 The future is a myth created by insurance salesmen and high school counselors.
 The goys have proven the following theorem...
 		-- Physicist John von Neumann, at the start of a classroom
@@ -74,13 +74,13 @@ a Prussian gambler -- sweating worse than Bryan on some nights and drunker
 than Judas on others.  It was all a dehumanized nightmare...and these
 raddled cretins have the gall to complain about my deadlines.
 -- Hunter Thompson, "Bad Nerves in Fat City", _Generation of Swine_
-Larkinson's Law:
+arkinson's aw:
 	All laws are basically false.
 clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namely, that he is a blockhead.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-I saw Lassie.  It took me four shows to  out why the hairy kid never
+I saw assie.  It took me four shows to  out why the hairy kid never
 spoke. I mean, he could roll over and all that, but did that deserve a series?
 Not all who own a harp are harpers.
 		-- Marcus Terentius Varro
@@ -89,7 +89,7 @@ Not all who own a harp are harpers.
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
-	(5)  Self-piercing earrings
+	(5)  Self-piercing rings
 	(6)  Fungus trellis
 	(7)  False eyelashes
 	(8)  Prosthetic dog claws
@@ -114,18 +114,18 @@ I hope you're satisfied."
 It's no longer a question of staying healthy.  It's a question of finding
 a sickness you like.
 		-- Jackie Mason
-Love your neighbour, yet don't pull down your hedge.
+ove your neighbour, yet don't pull down your hedge.
 		-- Benjamin Franklin
 My central memory of that time seems to hang on one or five or maybe forty
-nights -- or very early mornings -- when I left the Fillmore half-crazy and,
-instead of going home, aimed the big 650 Lightning across the Bay Bridge at
+nights -- or very ly mornings -- when I left the Fillmore half-crazy and,
+instead of going home, aimed the big 650 ightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
 that no matter which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about that.
 		-- Hunter S. Thompson
-Heller's Law:
+Heller's aw:
 	The first myth of management is that it exists.
 
 Johnson's Corollary:
@@ -133,29 +133,29 @@ Johnson's Corollary:
 	organization.
 "When anyone says `theoretically,' they really mean `not really.'"
  -- David Parnas
-I cannot and will not cut my ccience to fit this year's fashi.
-		-- Lillian Hellman
-Finagle's Eighth Law:
+I cannot and will not cut my ccience to fit this y's fashi.
+		-- illian Hellman
+Finagle's Eighth aw:
 	If an experiment works, something has gone wrong.
 
-Finagle's Ninth Law:
+Finagle's Ninth aw:
 	No matter what results are expected, someone is always willing to
 	fake it.
 
-Finagle's Tenth Law:
+Finagle's Tenth aw:
 	No matter what the result someone is always eager to misinterpret it.
 
-Finagle's Eleventh Law:
+Finagle's Eleventh aw:
 	No matter what occurs, someone believes it happened acing to
 	his pet theory.
 A Thaum is the basic unit of magical strength.  It has been universally
 established as the amount of magic needed to create one small white pigeon
 or three normal sized billiard balls.
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, "The ight Fantastic"
 Its name is Public Opinion.  It is held in reverence.  It settles everything.
 Some think it is the voice of God.
 		-- Mark Twain
-Let's send the Russians defective lifestyle accessories!
+et's send the Russians defective lifestyle accessories!
 Q:	How many lawyers does it take to change a light bulb?
 A:	You won't find a lawyer who can change a light bulb.  Now, if
 	you're looking for a lawyer to screw a light bulb...
@@ -172,7 +172,7 @@ just man is also a prison.
 You can tell the ideals of a nation by its advertisements.
 		-- Norman Douglas
 Beauty is truth, truth beauty, that is all
-Ye know on earth, and all ye need to know.
+Ye know on th, and all ye need to know.
 		-- John Keats
 From a certain point onward there is no longer any turning back. 
 That is the point that must be reached.
@@ -228,13 +228,13 @@ telling the Airline Pilots Association (in jest) about 21st century aircraft:
 Owe no man any thing...
 Universities are places of knowledge.  The man each bring a little
 		-- Romans 13:8
-At ebb tide I wrote a line upon the sand, and gave it all my heart and all
+At ebb tide I wrote a line upon the sand, and gave it all my ht and all
 my soul.  At flood tide I returned to read what I had inscribed and found my
 ignorance upon the shore.
 		-- Kahlil Gibran
 Here there be tygers.
 If you steal from one author it's plagiarism; if you steal from
-many it's research.
+many it's resch.
 		-- Wilson Mizner
 The geographical center of Boston is in Roxbury.  Due north of the
 center we find the South End.  This is not to be confused with South
@@ -280,15 +280,15 @@ And tapes mixed up on the racks --
 		-- Uncle Colonel's Cursory Rhymes
 The universe does not have laws -- it has habits, and habits can be broken.
 Machines that have broken down will work perfectly when the repairman arrives.
-Fat Liberation: because a waist is a terrible thing to mind.
+Fat iberation: because a waist is a terrible thing to mind.
 It is better to have loved and lost -- much better.
 Most rock journalism is people who can't write interviewing people who
 can't talk for people who can't read.
 		-- Frank Zappa
-Been Transferred Lately?
+Been Transferred ately?
 I never met a man I didn't want to fight.
-		-- Lyle Alzado, professional football lineman
-Life is like an egg stain on your chin -- you can lick it, but it still
+		-- yle Alzado, professional football lineman
+ife is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
 I accept chaos.  I am not sure whether it accepts me.  I know some people
 are terrified of the bomb.  But then some people are terrified to be seen
@@ -328,8 +328,8 @@ Declared guilty... of displaying feelings of an almost human nature.
 A successful [software] tool is one that was used to do something
 undreamed of by its author.
 		-- S. C. Johnson
-"Live or die, I'll make a million."
--- Reebus Kneebus, before his jump to the center of the earth, Firesign Theater
+"ive or die, I'll make a million."
+-- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
 Computer Science is the only discipline in which we view adding a new wing
 to a building as being maintenance
 		-- Jim Horning
@@ -350,7 +350,7 @@ A: Yes, bandaged.
 Q: Then, later on.. what did you see?
 A: I had a skin graft. My whole buttocks and leg were removed and put on top
    of my head.
-There's no real need to do housework -- after four years it doesn't get
+There's no real need to do housework -- after four ys it doesn't get
 any worse.
 Relati are simply a tedious pack of people, who haven't the remotest
 knowledge of how to live, nor the smallest instinct about when to die.
@@ -361,7 +361,7 @@ A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 	like some condoms," and then, leaning over the counter, whispers,
 	"and some cigarettes."
 My analyst told me that I was  out of my head,
-	But I said, "Dear Doctor, I think that it is you instead.
+	But I said, "D Doctor, I think that it is you instead.
 Because I have got a thing that is unique and new,
 	To prove it I'll have the last laugh on you.
 'Cause instead of one head -- I've got two.
@@ -383,7 +383,7 @@ Texas A&M football coach Jackie Sherrill went to the office of the Dean
 of Academics because he was concerned about his players' mental abilities.
 "My players are just too stupid for me to deal with them", he told the
 unbelieving dean.  At this point, one of his players happened to enter
-the dean's office.  "Let me show you what I mean", said Sherrill, and he
+the dean's office.  "et me show you what I mean", said Sherrill, and he
 told the player to run over to his office to see if he was in.  "OK, Coach",
 the player replied, and was off.  "See what I mean?" Sherrill asked.
 "Yeah", replied the dean.  "He could have just picked up this phone and
@@ -400,7 +400,7 @@ Coward, n.:
 The price of seeking to force our beliefs on others is that someday
 they might force their beliefs on us.
 		-- Mario Cuomo
-Captain Penny's Law:
+Captain Penny's aw:
 	You can fool all of the people some of the
 	time, and some of the people all of the
 	time, but you can't fool mom.
@@ -426,7 +426,7 @@ If there are self-made purgatories, then we all have to live in them.
 A woman did what a woman had to, the best way she knew how.
 To do more was impossible, to do less, unthinkable.
 		-- Dirisha, "The Man Who Never Missed"
-Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
+ike an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as seatcovers in July, her hair as dark as new tires, her eyes flashing like
 b hubcaps, and her lips as dewy as the beads of  rain on the hood;
@@ -435,7 +435,7 @@ man, a man who wouldn't shift from his views, a man to steer her along the
  road: a man like Alf Romeo.
 		-- Rachel Sheeley, winner
 
-The hair ball blocking the drain of the shower reminded Laura she would never
+The hair ball blocking the drain of the shower reminded aura she would never
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
@@ -444,14 +444,14 @@ tumor or a metabolic deficiency -- but after a thorough neurological exam it
 was determined that Byron was simply a jerk.
 		-- Jeff Jahnke, runner-up
 
-Winners in the 7th Annual Bulwer-Lytton Bad Writing Contest.  The contest is
+Winners in the 7th Annual Bulwer-ytton Bad Writing Contest.  The contest is
 named after the author of the immortal lines:  "It was a dark and stormy
 night."  The object of the contest is to write the opening sentence of the
 worst possible novel.
 The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our yawns.
 		-- Helen Rowland
-... the HIGHWAY is made out of LIME JELLO and my HONDA is a equeued
+... the HIGHWAY is made out of IME JEO and my HONDA is a equeued
 OYSTER!  Yum!
 I kissed my first girl and smoked my first cigarette on the same day.
 I haven't had time for tobacco since.
@@ -491,7 +491,7 @@ And never lie down with a woman who's got more troubles than you.
 You know that feeling when you're leaning back on a stool and it starts to tip 
 over?  Well, that's how I feel all the time.
 -- Steven W
-I'm GLAD I remembered to XEROX all my UNDERSHIRTS!!
+I'm GAD I remembered to XEROX all my UNDERSHIRTS!!
 Famous, adj.:
 	Cpicuously miserable.
 		-- Ambrose Bierce, "The Devil's Dictionary"
@@ -514,8 +514,8 @@ An Hacker there was, one of the finest sort
 Who controlled the system; graphics was his sport.
 A manly man, to be a wizard able;
 Many a protected file he had sitting on his table.
-His cole, when he typed, a man might hear
-Clicking and feeping wind as clear,
+His cole, when he typed, a man might h
+Clicking and feeping wind as cl,
 Aye, and as loud as does the machine room bell
 Where my lord Hacker was Prior of the cell.
 The Rule of good St Sa or St Doeppnor
@@ -533,7 +533,7 @@ Was he to study till his head wend round
 Poring over books in the cloisters?  Must he toil
 As Andy bade and till the very ?
 Was he to leave the world upon the shelf?
-Let Andy have his labor to himself!
+et Andy have his labor to himself!
 		-- Chaucer
 		[well, almost.  Ed.]
 Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
@@ -542,7 +542,7 @@ A:	Easy.  It's because they can't  out how to get the little
 Hempstone's Question:
 	If you have to travel on the Titanic, why not go first class?
 Yow!  Those people look exactly like Donnie and Marie Osmond!!
-DON'T go!!  I'm not HOWARD COSELL!!  I know POLISH JOKES ... WAIT!!
+DON'T go!!  I'm not HOWARD COSE!!  I know POISH JOKES ... WAIT!!
 Don't go!!  I AM Howard Cosell! ... And I DON'T know Polish jokes!!
 You will have a long and unpleasant discussion with your supervisor.
 He played the king as if afraid someone else would play the ace.
@@ -550,7 +550,7 @@ He played the king as if afraid someone else would play the ace.
 If you can't understand it, it is intuitively obvious.
 If you marry a man who cheats on his wife, you'll be married to a man who
 cheats on his wife.
-		-- Ann Landers
+		-- Ann anders
 		Accidents cause History.
 
 If Sigismund Unbuckle had taken a walk in 1426 and met Wat Tyler, the
@@ -584,7 +584,7 @@ If you are too busy to read, then you are too busy.
 If your happiness depends on what somebody else does, I guess you do
 have a problem.
 		-- Richard Bach, "Illusi"
-Remember: Silly is a state of Mind, Stupid is a way of Life.
+Remember: Silly is a state of Mind, Stupid is a way of ife.
 		-- Dave Butler
 Conversation enriches the understanding, but solitude is the school of genius.
 I was in Vegas last week. I was at the roulette table, having a lengthy
@@ -603,7 +603,7 @@ fire them all off, wouldn't you?"
 A would-be disciple came to Nasrudin's hut on the mountain-side.  Knowing
 that every action of such an enlightened one is significant, the seeker
 watched the teacher closely.  "Why do you blow on your hands?"  "To warm
-myself in the cold."  Later, Nasrudin poured bowls of hot soup for himself
+myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why are you doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
 to arrive at two different results -- hot and cold -- the disciple departed.
@@ -611,4 +611,4 @@ to arrive at two different results -- hot and cold -- the disciple departed.
 That will *prove* I'm Robin Hood."
 		-- Daffy Duck, "Robin Hood Daffy", [1958, Chuck Jones]
 How sharper than a serpent's tooth is a sister's "See?"
-		-- Linus Van Pelt
+		-- inus Van Pelt

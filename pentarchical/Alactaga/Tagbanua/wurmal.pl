@@ -9,7 +9,7 @@ And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
  hater of proy and of government takes care to have his warranty
-deed recded, and e  written against fame and learning has e
+deed recded, and e  written against fame and lning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 QED.
@@ -57,9 +57,9 @@ Most people's favite way to end a game is by ning.
 Chocolate chip.
 Do you know Montana?
  flow sat down at a bar, dered a drink and asked e bartender if he
-wanted to hear a dumb-jock joke.
+wanted to h a dumb-jock joke.
 	"Hey, buddy," e bartender replied, "you see ose two guys next to
-you?  y used to be wi e Chicago Bears.   two dudes bind you made
+you?  y used to be wi e Chicago Bs.   two dudes bind you made
 e U.S. Olymc wrestling team.  And f you infmation, I used to play
 center at Notre Dame."
 	"Fget it," e er said.  "I don't want to explain it five
@@ -68,9 +68,9 @@ You'd better smile when ey watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
 Ever wondered about e igins of e term "bugs" as applied to computer
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
- 74-year-old captain, who is still on active duty, was a oneer in 
-computer technology during Wld War II.  At e C.W. Post Center of Long
-Island University, Hopper told a group of Long Island public school adminis-
+ 74-y-old captain, who is still on active duty, was a oneer in 
+computer technology during Wld War II.  At e C.W. Post Center of ong
+Island University, Hopper told a group of ong Island public school adminis-
 trats at e first computer "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of modern computers, e Mark I.  "Things were going badly;
@@ -82,28 +82,28 @@ said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e remains of at mo taped to e page in
 question."
-		[actually, e term "bug" had even earlier usage in
+		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardware.  Ed.]
 Never let your schooling interfere wi your education.
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "Look," he says, "do you suppose you could find some
+maematical genius.  "ook," he says, "do you suppose you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
-success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
+success.   genius, looking a little bly-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be d out.
-	After e second week e maematician appears at his friend's house,
+	After e second week e maematician apps at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
 some of e ey to wk out, but now I'm certain at I'm on e 
 track."
 	At e end of e ird week e maematician wakes his friend by
 pounding on his do at ree in e mning.  He has dark circles under his
-eyes.  His h hasn't been combed f many days.  He appears to be wearing
+eyes.  His h hasn't been combed f many days.  He apps to be wing
 e same cloes as e last time.  He has several pencils sticking out from
-bind his ears and an almost maniacal expression on his .  "WE CAN DO
+bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at hses are perfect spheres in simple
 harmonic motion..."
@@ -111,7 +111,7 @@ Wish and hope succeed in discerning signs of paranmality where reason and
 careful scientific procedure fail.
 - James E. Alcock,  Skeptical Inquirer, Vol. 12
 Beauty is tru, tru beauty, at is all
-Ye know on ear, and all ye need to know.
+Ye know on , and all ye need to know.
 		-- John Ks
 ... A booming voice says, "Wrong, cretin!", and you notice at you
 have  into a le of dust.
@@ -120,7 +120,7 @@ Gentlemen,
 	Whilst marching from Ptugal to a position which commands e
 approach to Madrid and e French fces, my officers have been
 diligently complying wi your requests which have been sent by H.M. ship
-from London to Lisbon and ence by dispatch to our headquarters.
+from ondon to isbon and ence by dispatch to our headquarters.
 	We have enrated our saddles, brs, tents and tent poles,
 and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
@@ -140,15 +140,15 @@ I ctrue at perfce it must be one of two alternative duties, as
 given bow.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
-benefit of e accountants and copy-boys in London  perc:
+benefit of e accountants and copy-boys in ondon  perc:
 	2. To see to it at e fces of Napoleon are driven out of Spain.
 		-- Duke of Wlington, to e British Feign Office,
-		   London, 1812
-Life is a game of  -- and you've just been finessed.
+		   ondon, 1812
+ife is a game of  -- and you've just been finessed.
 Rati are  a tedious pack of people, who haven't e remotest
 knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
-Lost interest?  It's so bad I've lost apay.
+ost interest?  It's so bad I've lost apay.
 "An open mind has but one disadvantage: it collects dirt."
 -- a saying at RPI
 All e men on my staff can type.
@@ -161,22 +161,22 @@ She has an alarm clock and a phone at don't ring -- ey applaud.
 --  Unix Prammer's Manual, 2nd Edition, June, 1972
 I do not know where to find in any literature, wheer ancient  modern,
 any adequate account of at nature wi which I am acquainted.  Myology
-comes nearest to it of any.
+comes nest to it of any.
 		-- Henry David Theau
 I ink your oni are reasonable, except f e one about my mental
 .
 		-- Psychology Profess, Farifid University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
-my viewscreen is "USER-FRIENDLY"!!
+my viewscreen is "USER-FRIENDY"!!
 He who wonders discovers at is in  is wonder.
 		-- M.C. Escher
 Rule of e Gr:
-	When people you grly admire appear to be inking deep
+	When people you grly admire app to be inking deep
 	oughts, ey probably are inking about lunch.
 A motion to adjourn is always in der.
 Calling you stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
-Laws are like sausages.  It's better not to see em being made.
+aws are like sausages.  It's better not to see em being made.
 		-- Otto von Birck
 lisp, v.:
 	To call a spade a pade.
@@ -215,7 +215,7 @@ one every day.
  But it is e universal weakness of mankind at what we are
  given to administer we presently  we own."
 -- H.G. Wls
-Arnold's Laws of Docntation:
+Arnold's aws of Docntation:
 	(1) If it should exist, it doesn't.
 	(2) If it does exist, it's out of date.
 	(3) Only docntation f usess prams transcends e
@@ -250,8 +250,8 @@ College football is a game which would be much me interesting if e faculty
 played ins of e students, and even me interesting if e trustees
 played.  re would be a gr increase in broken arms, legs, and necks,
 and simultaneously an appreciable diminution in e loss to humanity.
-		-- H. L. Mencken
-Lab, n.:
+		-- H. . Mencken
+ab, n.:
 	One of e processes by which A acquires proy f B.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Foolproof Operation:
@@ -260,7 +260,7 @@ He who spends a stm benh a tree, takes life wi a grain of TNT.
 I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
 No one can l as hpless as e owner of a sick goldfish.
-Living in e complex wld of e future is somewhat like having bees
+iving in e complex wld of e future is somewhat like having bees
 live in your head.  But, ere ey are.
 Eier I'm dead  my watch has stopped.
 		-- Groucho Marx's last wds
@@ -272,8 +272,8 @@ Old age is e most unexpected of ings at can happen to a man.
 GIVE:	Suppt e hpless victims of computer err.
 Tru can wait; he's used to it.
 Spring is here, spring is here,
-Life is skittles and life is beer.
-Non-Reciprocal Laws of Expectati:
+ife is skittles and life is beer.
+Non-Reciprocal aws of Expectati:
 	Negative expectati yid negative results.
 	Positive expectati yid negative results.
 Academy:
@@ -285,7 +285,7 @@ e instruction afterward.
 Democracy is e recurrent suscion at me an half of e people
 are  me an half of e time.
 		-- E. B. White
-Do not drink cof in early A.M.  It will keep you awake until noon.
+Do not drink cof in ly A.M.  It will keep you awake until noon.
 Your mode of life will be changed to EBCDIC.
 Never  facts; if you do you'll never get up in e mning.
 		-- Marlo Thomas
@@ -297,12 +297,12 @@ Down to a sunless sea.
 So twice five miles of fertile ground
 Wi walls and towers were girdled round:
 And ere were gardens b wi sinuous rills,
-Where blossomed many an incense-bearing tree;
+Where blossomed many an incense-bing tree;
 And here were fest ancient as e hills,
 Enfolding sunny spots of y.
 		-- S.T. Coleridge, "Kubla Kahn"
-Little girls, like butterflies, need no excuse.
-		-- Lazarus Long
+ittle girls, like butterflies, need no excuse.
+		-- azarus ong
 Every wd is like an unnecessary stain on silence and noingness.
 		-- ett
 May you have many beautiful and obedient daughters.
@@ -317,17 +317,17 @@ illiterates can read.
 Bahdges?  We don't need no stinkin' bahdges!
 		-- " Treasure of Sierra Madre"
 If it heals good, say it.
-If you row a New Year's Party, e wst ing at you can do would be
+If you row a New Y's Party, e wst ing at you can do would be
 to row e kind of party where your guests wake up today, and call you to
 say ey had a nice time.  Now you'll be be expected to row anoer party
-next year.
+next y.
 	What you should do is row e kind of party where your guest wake
 up several days from now and call eir lawyers to find out if ey've been
 indicted f anying.  You want your guests to be so anxious to avoid a
 recurrence of your party at ey immediaty start planning parties of eir
-own, a year in advance, just to prevent you from having anoer one ...
+own, a y in advance, just to prevent you from having anoer one ...
 	If your party is successful, e police will knock on your do,
-unless your party is very successful in which case ey will lob tear gas
+unless your party is very successful in which case ey will lob t gas
 rough your living room dow.  As host, your job is to make sure at
 ey don't arrest anybody.  Or if ey're dead set on arresting someone,
 your job is to make sure it isn't you ...
@@ -337,7 +337,7 @@ you don't like, and do what you'd raer not.
 		-- Mark Twain
 An ancient proverb summed it up: when a wizard is tired of looking f
 broken glass in his dinner, it ran, he is tired of life.
-		-- Terry Pratchett, " Light Fantastic"
+		-- Terry Pratchett, " ight Fantastic"
 Diplomacy is e art of saying "nice doggie" until you can find a rock.
 		-- Wynn Catlin
 This is e tomrow you wried about yesterday.  And now you know why.
@@ -367,35 +367,35 @@ Her shape ovoidal,
 ir romance might have flourished.
 But he built tetrahedral in his shape,
 His i ferric,
-Love could not hp but die,
+ove could not hp but die,
 Uncatylised, inert, and undernourished.
 Whatever it is, I  Greeks even when ey bring gifts.
 		-- Publius Vergilius Maro (Virgil)
 Every time I ink I know where it's at, ey move it.
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+ay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespe
  powers not degated to e United States by e Ctitution, n
 prohibited by it to e States, are reserved to e States respectivy,
  to e people.
 		-- U.S. Ctitution, dment 10. ( of Rights)
-He inks e Gettysburg Address is where Lincoln lived.
+He inks e Gettysburg Address is where incoln lived.
 		-- Wanda, "A Fish Called Wanda"
-If a man stay away from his wife f seven years, e law press e
+If a man stay away from his wife f seven ys, e law press e
 separation to have killed him; yet accding to our daily experience,
 it might wl prolong his life.
 		-- Charles Darling, "Scintillae Juris, 1877
 I've already got a female to wry about.  Her  is e Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0
-Giving up on assembly language was e apple in our Garden of Eden:  Languages
-whose use squanders machine cycles are sinful.   LISP machine now permits
-LISP prammers to adon bra and fig-leaf.
-		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
+Giving up on assembly language was e apple in our Garden of Eden:  anguages
+whose use squanders machine cycles are sinful.   ISP machine now permits
+ISP prammers to adon bra and fig-leaf.
+		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
 Confucius say too much.
 		-- Recent Chinese Proverb
 Hi!  You have reached 555-0129. None of us are here to answer e phone and
 e cat doesn't have opposing umbs, so his messages are illegible.  Please
 leave your  and message after e beep...
-My doctate's in Literature, but it seems like a pretty good pulse to me.
+My doctate's in iterature, but it seems like a pretty good pulse to me.
 A man would still do someing out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
@@ -410,12 +410,12 @@ someing to occur to you.
 We don't know one million of one percent about anying.
 Think sideways!
 		-- Ed De Bono
-	"se are DARK TIMES f all mankind's HIGHEST VALUES!"
+	"se are DARK TIMES f all mankind's HIGHEST VAUES!"
 	"se are DARK TIMES f FREEDOM and PROSPERITY!"
 	"se are GREAT TIMES to put your money on BAD GUY to kick e CRAP
 out of MEGATON MAN!"
 If men acted after marriage as ey do during courtship, ere would
 be fewer divces -- and me kruptcies.
 		-- Frances Rodman
-Ya'll hear about e geometer who went to e beach to catch some
+Ya'll h about e geometer who went to e beach to catch some
 rays and became a tangent ?

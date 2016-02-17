@@ -1,5 +1,5 @@
 If you can't be good, be careful.  If you can't be careful, give me a call.
-Research, n.:
+Resch, n.:
 	Cider Columbus:
 	He didn't know where he was going.
 	When he got ere he didn't know where he was.
@@ -9,7 +9,7 @@ Riffle West Virginia is so ll at e Boy Scout had to double as e
 town drunk.
 If we see e light at e end of e tunn, it's e light of an
 oncoming train.
-		-- Robert Lowl
+		-- Robert owl
 Until Eve arrived, is was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
@@ -21,11 +21,11 @@ Ring around e collar.
 It wasn't at she had a rose in her tee, exactly.  It was me like
 e rose and e tee were in e same glass.
 Many people are unenusiastic about eir wk.
-Place me on a BUFFER counter while you BELITTLE several BELLHOPS in e
-Trianon Room!!  Let me one of your SUBSIDIARIES!
+Place me on a BUFFER counter while you BEITTE several BEHOPS in e
+Trianon Room!!  et me one of your SUBSIDIARIES!
 It pays in England to be a revolutionary and a bible-cker most of
 one's life and en come round.
-		-- Ld Alfred Douglas
+		-- d Alfred Douglas
 	So Richard and I decided to try to catch [e ll shark].
 Wi a gr deal of strategy and efft and shouting, we managed to
 maneuver e shark, over e course of about a half-hour, to a st of
@@ -37,7 +37,7 @@ e armt area -- headed  straight toward us.
 	Many people would have panicked at is point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what e text says you should do when you're
-unarmed and a shark at is nearly two t long turns on you in water
+unarmed and a shark at is nly two t long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
 our t never once went bow e sur of e water.  We ran all
@@ -63,7 +63,7 @@ friends who, immediaty upon ing a snakebite kit, would be tempted to
 row e first person ey see to e ground, tie e tourniquet on him,
 slash him wi e knife, and apply suction to e wound.
 		-- Jon Bentley
-Laugh and e wld inks you're an idiot.
+augh and e wld inks you're an idiot.
 Boycott m -- suck your umb.
 A profess is one who talks in someone se's sleep.
 linux: e choice of a GNU generation
@@ -73,7 +73,7 @@ People who take cold bas never have atism, but ey have cold bas.
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
 which are part of a newspaper's harmless pleasure and make no tru claims,
-astrology is a fraud.   idea at it gets a hearing in government is
+astrology is a fraud.   idea at it gets a hing in government is
 diying.
 -- Gege Will, Washing Post Writers Group
 'Twas e nocturnal segment of e diurnal period

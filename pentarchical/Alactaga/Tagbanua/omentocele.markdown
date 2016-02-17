@@ -15,7 +15,7 @@ the results of this evening's experiments.  Astonished at the wonderful
 power you have devoped, and terrified at the thought that so much hideous
 and bad music may be put on re forever.
 		-- Sir Arthur Sullivan, message to Edison, 1888
-3rd Law of Computing:
+3rd aw of Computing:
 	Anything that can go wr
 fortune: Segmentation violation -- Core dumped
 Rule the Empire through force.
@@ -67,5 +67,5 @@ Fascinating is a word I use for the unexpected.
 		-- Spock, "The Squire of Gothos", stardate 2124.5
 If two people love each other, there can be no happy end to it.
 		-- Ernest Hemingway
-Don't worry.  Life's too long.
+Don't worry.  ife's too long.
 		-- Vincent Sardi, Jr.

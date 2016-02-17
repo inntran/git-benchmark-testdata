@@ -1,18 +1,18 @@
 Culture is e habit of being pleased wi e best and knog why.
-Life would be so much easier if we could just look at e source code.
+ife would be so much easier if we could just look at e source code.
 	-- Dave Olson
 Save e whales.  Collect e whole set.
 If it's wor doing, it's wor doing for money.
 A nick ain't wor a dime anymore.
 		-- Yogi Berra
-Jones' Second Law:
+Jones' Second aw:
 	The man who smiles when ings go wrong has ought of someone
 	to blame it on.
 Neurotics build castles in e sky,
 Psychotics live in em,
 And psychiatrists collect e rent.
 , n.:
-	The reason surge wear masks.
+	The reason surge w masks.
 I could dance wi you till e cows come home.  On second ought, I'd raer
 dance wi e cows till you come home.
 		-- Groucho Marx
@@ -50,7 +50,7 @@ day care twve hours a day, eier.
 In every job at must be done, ere is an ement of fun.
 Find e fun and snap!  The job's a game.
 And every task you undertake, becomes a ece of cake,
-	a lark, a spree; it's very clear to see.
+	a lark, a spree; it's very cl to see.
 		-- Mary Popns
 Art is a jealous mistress.
 		-- Ralph Waldo Emerson
@@ -63,19 +63,19 @@ buzzword, n:
 AmigaDOS Beer: The company has gone out of business, but eir recipe has 
 been cked up by some weird German company, so now is beer will be an 
 import.  This beer never really sold very wl because e original 
-manufacturer didn't understand ing. Like Unix Beer, AmigaDOS Beer 
+manufacturer didn't understand ing. ike Unix Beer, AmigaDOS Beer 
 fans are an extremy loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When is can was 
-originally introduced, it appeared flashy and colorful, but e design 
-hasn't changed much over e years, so it appears dated now.  Critics of 
+originally introduced, it apped flashy and colorful, but e design 
+hasn't changed much over e ys, so it apps dated now.  Critics of 
 is beer claim at it is only meant for watching TV anyway.
 I want you to organize my PASTRY trays ... my TEA-TINS are gleaming in
 formation like a ROW of DRUM MAJORETTES -- please don't be FURIOUS wi me --
 Your lucky number is 3552664958674928.  Watch for it everywhere.
-Isn't it nice at people who prefer Los Anges to San Francisco live ere?
+Isn't it nice at people who prefer os Anges to San Francisco live ere?
 		-- Herb Caen
 Is not at e nature of men and women -- at e pleasure is in e
-learning of each oer?
+lning of each oer?
 		-- Natira, e High Priestess of Yonada, "For e World is
 		   Hollow and I Have Touched e Sky", stardate 5476.3.
 QOTD:
@@ -99,7 +99,7 @@ What a crock.  I could easily overemphasize e importance of good
 grammar.  For example, I could say: "Bad grammar is e leading cause
 of slow, painful dh in Nor America," or "Wiout good grammar, e
 United States would have lost World War II."
-		-- Dave Barry, "An Utterly Absurd Look at Grammar"
+		-- Dave Barry, "An Utterly Absurd ook at Grammar"
 All gr ideas are controversial, or have been at one time.
 For people who like at kind of , at is e kind of  ey will like.
 A penny saved is a penny to squander.
@@ -107,7 +107,7 @@ A penny saved is a penny to squander.
 Beggars should be no choosers.
 		-- John Heywood
 Nondeterminism means never having to say you are wrong.
-Yea, ough I walk rough e valley of e shadow of APL, I shall  no
+Yea, ough I walk rough e valley of e shadow of AP, I shall  no
 evil, for I can string six primitive monadic and dic operators togeer.
 		-- Steve Higgins
 Why is it at when you DIE, you can't take your HOME ENTERTAINMENT
@@ -141,10 +141,10 @@ I irsted for a meaningful vision of human life -- so I became a scientist.
 This is like becoming an archbishop so you can meet girls." 
 -- Matt Cartmill
 Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day is year.
+have a lucky day is y.
 The advantage of being cibate is at when one sees a pretty girl one
 does not need to grieve over having an ugly one back home.
-		-- Paul Leautaud, "Propos d'un jour"
+		-- Paul eautaud, "Propos d'un jour"
 I can't decide which WRONG TURN to make first!!  I wonder if BOB
 GUCCIONE has ese problems!
 Thus spake e master prammer:
@@ -159,14 +159,14 @@ stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
 If you have to ask how much it is, you can't afford it.
-You have e capacity to learn from mistakes.  You'll learn a lot today.
+You have e capacity to ln from mistakes.  You'll ln a lot today.
 Not every question deserves an answer.
 After all, it is only e mediocre who are always at eir best.
 		-- Jean Giraudoux
-Crenna's Law of Political Accountability:
+Crenna's aw of Political Accountability:
 	If you are e first to know about someing bad, you are going to be
 	hd respible for acting on it, regardless of your formal duties.
-Let us endeavor so to live at when we come to die even e undertaker will be
+et us endeavor so to live at when we come to die even e undertaker will be
 sorry.
 		-- Maek Twain, "Pudd'nhead Wilson's Calendar"
 Serfs up!
@@ -191,7 +191,7 @@ forward and never gives up an instant of ought to how good and how efficient
 he is.  Thinking always ahead, inking always of trying to do more, brings a 
 state of mind in which noing is impossible. The moment one gets into e
 "expert" state of mind a gr number of ings become impossible."
--- From Henry Ford Sr., "My Life and Work," p. 86 (1922):
+-- From Henry Ford Sr., "My ife and Work," p. 86 (1922):
 linux: e choice of a GNU generation
 (ksh@cis.ufl.edu put is on Tshirts in '93)
 If God didn't mean for us to juggle, tennis balls wouldn't come ree to a can.
@@ -239,23 +239,23 @@ Just en, Karen Carpenter walks in, sits down at e drums, and says:
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 A career is gr, but you can't run your fingers rough its h.
 You are a taxi driver.  Your cab is ylow and black, and has been in
-use for only seven years.  One of its dshid wipers is broken, and
+use for only seven ys.  One of its dshid wipers is broken, and
 e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 [It is] best to confuse only one issue at a time.
 		-- K&R
 "You can't teach seven foot."
--- Frank Layton, Utah Jazz basketball coach, when asked why he had recruited
+-- Frank ayton, Utah Jazz basketball coach, when asked why he had recruited
    a seven-foot tall auto mechanic
 I refuse to have a battle of wits wi an unarmed person.
 Q:	Why did e germ cross e microscope?
 A:	To get to e oer slide.
 Man has never reconciled himsf to e ten commandments.
 Elliptic paraboloids for sale.
-Murphy's Law, at brash proletarian restatement of God's Theorem.
+Murphy's aw, at brash proletarian restatement of God's Theorem.
 		-- Thomas Pynchon, "Gravity's Rainbow"
-You learn to write as if to someone se because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+You ln to write as if to someone se because NEXT YEAR YOU WI BE
+"SOMEONE ESE."
 Every morning is a Smirnoff morning.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
@@ -263,20 +263,20 @@ eir lives doing ings ey detest to make money ey don't want to
 		-- Emile Henry Gauvreay
 Football builds sf-discipline.  What se would  a spectator to
 sit out in e open in subfreezing wher?
-There's no real need to do housework -- after four years it doesn't get
+There's no real need to do housework -- after four ys it doesn't get
 any worse.
-"There was a vague, unpleasant manginess about his appearence; he somow
+"There was a vague, unpleasant manginess about his appence; he somow
 seemed dirty, ough a close glance showed him as carefully shaven as an
 , and clad in  linen."
--- H.L. Mencken, on e dh of William Jennings Bryan
+-- H.. Mencken, on e dh of William Jennings Bryan
 District of Columbia trians who leap over passing autos to escape
 injury, and en strike e car as ey come down, are liable for any
 damage inflicted on e vicle.
-... The prejudices people fe about each oer disappear when en get
+... The prejudices people fe about each oer disapp when en get
 to know each oer.
 		-- Kirk, "Elaan of Troyius", stardate 4372.5
-I'm pre at we're all watching PHIL SILVERS instead of RICARDO
-MONTALBAN!
+I'm pre at we're all watching PHI SIVERS instead of RICARDO
+MONTABAN!
 History tends to exaggerate.
 		-- Col. Green, "The Sa Curtain", stardate 5906.4
 "Your butt is mine."

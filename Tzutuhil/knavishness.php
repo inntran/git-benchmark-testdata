@@ -12,7 +12,7 @@ using only the 35 basic ideograms of the ANSI template.  2. n. Neronic
 doodling while the system burns.  3. n. A low-cost substitute for
 wallpaper.  4. n.  The innumerate misleading the illiterate.  "A
 thousand pictures is worth ten lines of code." -- The Programmer's
-Little Red Vade Mecum, Mao Tse T'umps.  5. v.intrans. To produce
+ittle Red Vade Mecum, Mao Tse T'umps.  5. v.intrans. To produce
 flowcharts with no particular object in mind.  6. v.trans. To obfuscate
 (a problem) with esoteric carto.
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
@@ -21,7 +21,7 @@ The airline has bought ancient DC-3s, arguably the best and safest planes
 that ever flew, and painted "747" on their tails to make them look as if
 they are fast. The flight attendants, of course, attend to your every need,
 though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
-unless you have SupportLine, which requires a first class ticket and
+unless you have Supportine, which requires a first class ticket and
 membership in the frequent flyer club. Then they cost $500, but your
 accounting department can call it overhead.
 If you make people think they're thinking, they'll love you; but if you
@@ -45,20 +45,20 @@ Drop that pickle!
  But it is the universal weakness of mankind that what we are
  given to administer we presently imagine we own."
 -- H.G. Wells
-Fear is the greatest salesman.
+F is the greatest salesman.
 		-- Robert Klein
-Fat Liberation: because a waist is a terrible thing to mind.
+Fat iberation: because a waist is a terrible thing to mind.
 When the wind is great, bow before it;
 when the wind is heavy, yield to it.
 The luck that is ordained for you will be coveted by others.
-Dear Emily:
+D Emily:
 	I'm having a serious disagreement with somebody on the net. I
 tried complaints to his sysadmin, organizing mail campaigns, called for
 his removal from the net and phoning his employer to get him fired.
 Everybody laughed at me.  What can I do?
 		-- A Concerned Citizen
 
-Dear Concerned:
+D Concerned:
 	Go to the daily papers.  Most modern reporters are top-notch computer
 experts who will understand the net, and your problems, perfectly.  They
 will print careful, reasoned stories without any errors at all, and surely
@@ -68,7 +68,7 @@ society.
 	Papers never sensationalize or distort, so be sure to point out things
 like racism and sexism wherever they might exist.  Be sure as well that they
 understand that all things on the net, particularly insults, are meant
-literally.  Link what transpires on the net to the causes of the Holocaust, if
+literally.  ink what transpires on the net to the causes of the Holocaust, if
 possible.  If regular papers won't take the story, go to a tabloid paper --
 they are always interested in good stories.
 When the fog came in on little cat feet last night, it left these little
@@ -78,7 +78,7 @@ muddy paw prints on the hood of my car.
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
-	(5)  Self-piercing earrings
+	(5)  Self-piercing rings
 	(6)  Fungus trellis
 	(7)  False eyelashes
 	(8)  Prosthetic dog claws
@@ -92,20 +92,20 @@ The adjective is the banana peel of the parts of speech.
 		-- Clifton Fadiman
 You could live a better life, if you had a better mind and a better body.
 What the large print giveth, the small print taketh away.
-Here is a test to find whether your mission on earth is finished:
+Here is a test to find whether your mission on th is finished:
 if you're alive, it isn't.
 T-shirt:
-	Life is *not* a Cabaret, and stop calling me chum!
+	ife is *not* a Cabaret, and stop calling me chum!
 If everything seems to be going well, you have obviously overlooked something.
 >One basic notion underlying Usenet is that it is a cooperative.
 
-Having been on USENET for going on ten years, I disagree with this.
+Having been on USENET for going on ten ys, I disagree with this.
 The basic notion underlying USENET is the flame.
 -- Chuq Von Rospach, chuq@Apple.COM 
-David Letterman's "Things we can be proud of as Americans":
+David etterman's "Things we can be proud of as Americans":
 
 	* Greatest number of citizens who have actually boarded a UFO
-	* Many newspapers feature "JUMBLE"
+	* Many newspapers feature "JUMBE"
 	* Hourly motel rates
 	* Vast majority of Elvis movies made here
 	* Didn't just give up right away during World War II
@@ -127,11 +127,11 @@ An infallible method of conciliating a tiger is to allow oneself to be
 devoured.
 		-- Konrad Adenauer
 If you're going to America, bring your own food.
-		-- Fran Lebowitz, "Social Studies"
+		-- Fran ebowitz, "Social Studies"
 I'm using my X-RAY VISION to obtain a rare glimpse of the INNER
 WORKINGS of this POTATO!!
 "We are on the verge: Today our program proved Fermat's next-to-last theorem."
-		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
+		-- Epigrams in Programming, ACM SIGPAN Sept. 1982
 A bad marriage is like a horse with a broken leg, you can shoot
 the horse, but it don't fix the leg.
 He who lives without folly is less wise than he believes.
@@ -139,7 +139,7 @@ The louder he talked of his honour, the faster we counted our spo.
 		-- Ralph Waldo Emerson
 When I was 16, I thought there was no hope for my father.  By the time I was
 20, he had made great improvement.
-Lawrence Radiation Laboratory keeps all its data in an old gray trunk.
+awrence Radiation aboratory keeps all its data in an old gray trunk.
 Patriotism is the virtue of the vicious.
 		-- Oscar Wilde
 Style may not be the answer, but at least it's a workable alternative.
@@ -157,7 +157,7 @@ Simply remove all the little colored stickers on the cube, and each of
 side of the cube will now be the original color of the plastic underneath
 -- black.  According to the instructi, this means the puzzle is solved.
 		-- Steve Rubenstein
-	"Logic and practical information do not seem to apply here."
+	"ogic and practical information do not seem to apply here."
 	"You admit that?"
 	"To deny the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
@@ -172,7 +172,7 @@ You can go anywhere you want if you look serious and carry a clipboard.
 You're either part of the solution or part of the problem.
 		-- Eldridge Cleaver
 Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+		-- William Shakespe, "Henry IV"
 Politics, as a practice, whatever its professi, has always been the
 systematic organisation of hatreds.
 		-- Henry Adams, "The Education of Henry Adams"
@@ -180,7 +180,7 @@ Women are like elephants to me: I like to look at them, but I wouldn't
 want to own one.
 		-- W.C. Fields
 Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+		-- William Shakespe, "Much Ado About Nothing"
 A real friend isn't someone you use once and then throw away.
 A real friend is someone you can use over and over again.
 And then there was the lawyer that stepped in cow manure and thought
@@ -192,8 +192,8 @@ not refuse.
 Free Speech Is The Right To Shout 'Theater' In A Crowded Fire.
 		-- A Yippie Proverb
 Remember that as a teenager you are in the last stage of your life when
-you will be happy to hear that the phone is for you.
-		-- Fran Lebowitz, "Social Studies"
+you will be happy to h that the phone is for you.
+		-- Fran ebowitz, "Social Studies"
 What upsets me is not that you lied to me, but that from now on I can no
 longer believe you.
 		-- Nietzsche
@@ -201,9 +201,9 @@ When it's dark enough you can see the stars.
 		-- Ralph Waldo Emerson,
 "The vast majority of successful major crimes against property are
 perpetrated by individuals abusing positi of trust."
--- Lawrence Dalzell
+-- awrence Dalzell
 People who think they know everything greatly annoy those of us who do.
-Love means nothing to a tennis player.
+ove means nothing to a tennis player.
 In 1880 the French captured Detroit but gave it back ... they couldn't
 get parts.
 "Quite frankly, I don't like you humans.  After what you all have done,
@@ -225,7 +225,7 @@ and in the right way -- that is not easy.
 		-- Aristotle
 "...and scantily clad females, of course.  Who cares if it's below zero
 outside"
-(By Linus Torvalds)
+(By inus Torvalds)
 What this country needs is a good five cent nickel.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
 chatting with pers who've never existed.  Such carryings-on in our peaceable
@@ -233,19 +233,19 @@ jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
-Uncles and Wickersham Cousins and Wickersham In-Laws, whose help I've engaged,
+Uncles and Wickersham Cousins and Wickersham In-aws, whose help I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
-		-- Dr. Seuss "Horton Hears a Who"
+		-- Dr. Seuss "Horton Hs a Who"
 There is no point in waiting.
-The train stopped running years ago.
+The train stopped running ys ago.
 All the schedules, the brochures,
 The bright-colored posters full of lies,
 Promise rides to a distant country
 That no longer exists.
 Utility is when you have one telephone, luxury is when you have two,
 opulence is when you have three -- and paradise is when you have none.
-		-- Doug Larson
+		-- Doug arson
 Due to lack of disk space, this fortune database has been discontinued.
 Nature to all things fixed the limits fit,
 And wisely curbed proud man's pretending wit.
@@ -258,7 +258,7 @@ The memory's soft figures melt away.
 		-- Alexander Pope (on runtime bounds checking?)
 Why, every one as they like; as the good woman said when she kissed her cow.
 		-- Rabelais
-I've read SEVEN MILLION books!!
+I've read SEVEN MIION books!!
 One difference between a man and a machine is that a machine is quiet
 when well oiled.
 Don't get to bragging.
@@ -290,11 +290,11 @@ Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
 	Everthing is farther away than it used to be.  It is even twice as
 far to the corner and they have added a hill.  I have given up running for
-the bus; it leaves earlier than it used to.
+the bus; it leaves lier than it used to.
 	It seems to me they are making the stairs steeper than in the old
 days.  And have you noticed the smaller print they use in the newspapers?
 	There is no sense in asking anyone to read aloud anymore, as everbody
-speaks in such a low voice I can hardly hear them.
+speaks in such a low voice I can hardly h them.
 	The material in dresses is so skimpy now, especially around the hips
 and waist, that it is almost impossible to reach one's shoelaces.  And the
 sizes don't run the way they used to.  The 12's and 14's are so much smaller.
@@ -303,7 +303,7 @@ be when I was their age.  On  the other hand people my age are so much older
 than I am.
 	I ran into an old classmate the other day and she has aged so much
 that she didn't recognize me.
-	I got to thinking about the poor dear while I was combing my hair
+	I got to thinking about the poor d while I was combing my hair
 this morning and in so doing I glanced at my own reflection.  Really now,
 they don't even make good mirrors like they used to.
 		Sandy Frazier, "I Have Noticed"
@@ -311,26 +311,26 @@ I've enjoyed just about as much of this as I can stand.
 Suggest you just sit there and wait till life gets easier.
 I came, I saw, I deleted all your files.
 Never volunteer for anything.
-		-- Lackland
+		-- ackland
 From too much love of living,
-From hope and fear set free,
+From hope and f set free,
 We thank with brief thanksgiving,
 Whatever gods may be,
 That no life lives forever,
 That dead men rise up never,
-That even the weariest river winds somewhere safe to sea.
+That even the wiest river winds somewhere safe to sea.
 		-- Swinburne
 Now it's time to say goodbye
 To all our company...
 M-I-C	(see you next week!)
-K-E-Y	(Why?  Because we LIKE you!)
+K-E-Y	(Why?  Because we IKE you!)
 M-O-U-S-E.
 Drunks are rarely amusing unless they know some good songs and lose a
 lot a poker.
 		-- Karyl Roosevelt
 We don't know who it was that discovered water, but we're pretty sure
 that it wasn't a fish.
-	-- Marshall McLuhan
+	-- Marshall Mcuhan
 			Pittsburgh driver's test
 
 (2) A traffic light at an intersection changes from yellow to red, you should
@@ -353,14 +353,14 @@ she will or will not be a mother.
 		-- Margaret H. Sanger
 Only two kinds of witnesses exist.  The first live in a neighborhood where
 a crime has been committed and in no circumstances have ever seen anything
-or even heard a shot.  The second category are the neighbors of anyone who
+or even hd a shot.  The second category are the neighbors of anyone who
 happens to be accused of the crime.  These have always looked out of their
 windows when the shot was fired, and have noticed the accused person standing
 peacefully on his balcony a few yards away.
 		-- Sicilian police officer
 There are two kinds of pedestrians... the quick and the dead.
-		-- Lord Thomas Rober Dewar
-Rocky's Lemma of Innovation Prevention:
+		-- ord Thomas Rober Dewar
+Rocky's emma of Innovation Prevention:
 	Unless the results are known in advance, funding agencies will
 	reject the proposal.
 You never know what is enough until you know what is more than enough.
@@ -370,8 +370,8 @@ You don't have to be nice to people on the way up if you're not planning on
 coming back down.
 		-- Oliver Warbucks, "Annie"
 I want to kill everyone here with a cute colorful Hydrogen Bomb!!
-	A Scotsman was strolling across High Street one day wearing his kilt.
-As he neared the far curb, he noticed two young blondes in a red convertible
+	A Scotsman was strolling across High Street one day wing his kilt.
+As he ned the far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 under the kilt?"
 	He strolled over to the side of the car and asked, "Ach, lass, are you
@@ -396,7 +396,7 @@ A good reputation is more valuable than money.
 		-- Publilius Syrus
 It is not enough to have great qualities, we should also have the
 management of them.
-		-- La Rochefoucauld
+		-- a Rochefoucauld
 A language that doesn't have everything is actually easier to program
 in than some that do.
 		-- Dennis M. Ritchie
@@ -407,7 +407,7 @@ in than some that do.
 Now let me get this right: two prisoners are looking out the window.
 While one of them was looking at all the mud -- the other one got hit
 in the head.
-Life is like an egg stain on your chin -- you can lick it, but it still
+ife is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
 Nondeterminism means never having to say you are wrong.
 Before Xerox, five carb were the maximum extension of anybody's ego.
@@ -425,8 +425,8 @@ Scarecrow:	Well, I don't know... but some people without brains
 		-- The Wizard of Oz
 The unfacts, did we have them, are too imprecisely few to warrant our certitude.
 QOTD:
-	"Like this rose, our love will wilt and die."
-Left to themselves, things tend to go from bad to worse.
+	"ike this rose, our love will wilt and die."
+eft to themselves, things tend to go from bad to worse.
 What has roots as nobody sees,
 Is taller than trees,
 Up, up it goes,
@@ -444,12 +444,12 @@ In any form of mortal combat.
 		-- "The Wombat"
 I stick my neck out for nobody.
 		-- Humphrey Bogart, "Casablanca"
-Captain Penny's Law:
+Captain Penny's aw:
 	You can fool all of the people some of the time, and
 	some of the people all of the time, but you Can't Fool Mom.
 Real Programmers don't play tennis, or any other sport that requires
 you to change clothes.  Mountain climbing is OK, and real programmers
-wear their climbing boots to work in case a mountain should suddenly
+w their climbing boots to work in case a mountain should suddenly
 spring up in the middle of the machine room.
 Boy!  Eucalyptus!
 A good plan today is better than a perfect plan tomorrow.
@@ -458,7 +458,7 @@ Extreme feminine beauty is always disturbing.
 		-- Spock, "The Cloud Minders", stardate 5818.4
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
-A healthy male adult bore cumes each year one and a half times his own
+A healthy male adult bore cumes each y one and a half times his own
 weight in other people's patience.
 		-- John Updike
 Some people around here wouldn't recognize subtlety if it hit them on the head.
@@ -467,10 +467,10 @@ QOTD:
 	I go to work."
 The universe does not have laws -- it has habits, and habits can be broken.
 What use is magic if it can't save a unicorn?
-		-- Peter S. Beagle, "The Last Unicorn"
+		-- Peter S. Beagle, "The ast Unicorn"
 She stood on the tracks
 Waving her arms
-Leading me to that third rail shock
+eading me to that third rail shock
 Quick as a wink
 She changed her mind
 
@@ -481,12 +481,12 @@ Kidding myself
 Wasting my time
 
 There's nothing else I can do
-'Cause I'm doing it all for Leyna
+'Cause I'm doing it all for eyna
 I don't want anyone new
-'Cause I'm living it all for Leyna
+'Cause I'm living it all for eyna
 There's nothing in it for you
-'Cause I'm giving it all to Leyna
-		-- Billy Joel, "All for Leyna" (Glass Houses)
+'Cause I'm giving it all to eyna
+		-- Billy Joel, "All for eyna" (Glass Houses)
 You humans are all alike.
 It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
@@ -494,13 +494,13 @@ and knocked on the front door.  No one responded.  He could feel the water
 from the roof running down the back of his neck as he stood on the stoop.
 The next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
-man appeared out of an upstairs window.
+man apped out of an upstairs window.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here for the night."
 	"Sure," replied the man. "If you want to stay there all night, it's
 okay with me."
-Fortune's Real-Life Courtroom Quote #18:
+Fortune's Real-ife Courtroom Quote #18:
 
 Q:  Are you married?
 A:  No, I'm divorced.
@@ -521,10 +521,10 @@ there is change.
 A priest asked: What is Fate, Master?
 	And the Master answered:
 	It is that which gives a beast of burden its reason for existence.
-It is that which men in former times had to bear upon their backs.
+It is that which men in former times had to b upon their backs.
 	It is that which has caused nati to build byways from City
 to City upon which carts and coaches pass, and alongside which inns
-have come to be built to stave off Hunger, Thirst and Weariness.
+have come to be built to stave off Hunger, Thirst and Winess.
 	And that is Fate?  said the priest.
 	Fate... I thought you said Freight, responded the Master.
 	That's all right, said the priest.  I wanted to know
@@ -535,16 +535,16 @@ QOTD:
 The notion that science does not concern itself with first causes -- that it
 leaves the field to theology or metaphysics, and confines itself to mere 
 effects -- this notion has no support in the plain facts.  If it could,
-science would explain the origin of life on earth at once--and there is 
+science would explain the origin of life on th at once--and there is 
 every reason to believe that it will do so on some not too remote tomorrow.
 To argue that gaps in knowledge which will confront the seeker must be filled,
 not by patient inquiry, but by intuition or revelation, is simply to give
 ignorance a gratuitous and preposterous dignity....
-- H. L. Mencken, 1930
-Now is the time for drinking; now the time to beat the earth with
+- H. . Mencken, 1930
+Now is the time for drinking; now the time to beat the th with
 unfettered foot.
 		-- Quintus Horatius Flaccus (Horace)
-Dear Miss Manners:
+D Miss Manners:
 I carry a big black umbrella, even if there's just a thirty percent chance of
 rain.  May I ask a young lady who is a stranger to me to share its protection?
 This morning, I was waiting for a bus in comparative comfort, my umbrella
@@ -556,14 +556,14 @@ umbrella without seeming insulting?
 Gentle Reader:
 Certainly.  Cideration for those less fortunate than you is always proper,
 although it would be more convincing if you stopped babbling about how
-attractive she is.  In order not to give Good Samaritanism a bad name, Miss
+attractive she is.  In order not to give Good ism a bad name, Miss
 Manners asks you to allow her two or three rainy days of unmolested protection
 before making your attack.
 Prediction is very difficult, especially of the future.
 		-- Niels Bohr
 An engineer, a physicist and a mathematician find themselves in an
 anecdote, indeed an anecdote quite similar to many that you have no doubt
-already heard.  After some observati and rough calculati the
+already hd.  After some observati and rough calculati the
 engineer realizes the situation and starts laughing.  A few minutes later
 the physicist understands too and chuckles to himself happily as he now
 has enough experimental evidence to publish a paper.  This leaves the
@@ -572,15 +572,15 @@ was the subject of an anecdote, and deduced quite rapidly the presence of
 humour from similar anecdotes, but ciders this anecdote to be too
 trivial a corollary to be significant, let alone funny.
 The primary purpose of the DATA statement is to give names to ctants;
-instead of referring to pi as 3.141592653589793 at every appearance, the
+instead of referring to pi as 3.141592653589793 at every appance, the
 variable PI can be given that value with a DATA statement and used instead
 of the longer form of the ctant.  This also simplifies modifying the
 program, should the value of pi change.
 		-- FORTRAN manual for Xerox Computers
 Air pollution is really making us pay through the nose.
-"We all know Linux is great...it does infinite loops in 5 seconds."
-(Linus Torvalds about the superiority of Linux on the Amterdam
-Linux Symposium)
+"We all know inux is great...it does infinite loops in 5 seconds."
+(inus Torvalds about the superiority of inux on the Amterdam
+inux Symposium)
 What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, "The Opium of the Intellectuals"
 Given its ctituency, the only thing I expect to be "open" about [the
@@ -596,8 +596,8 @@ must be sent passive true.
 	The AH function must exit the AWNS and enter:
 	(1)  The ANRS if DAV is false
 	(2)  The AIDS if the ATN message is false and neither:
-		(a)  The LADS is active
-		(b)  Nor LACS is active"
+		(a)  The ADS is active
+		(b)  Nor ACS is active"
 
 		-- from the IEEE Standard Digital Interface for
 		   Programmable Instrumentation

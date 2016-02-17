@@ -12,9 +12,9 @@ Paranoia is simply an optimistic outlook on life.
 Maybe ain't ain't so correct, but I notice at lots of folks who ain't
 using ain't ain't eatin' wl.
 		-- Will Rogers
-Leveraging always beats prototyng.
+everaging always beats prototyng.
 There is noing wrong wi abstinence, in moderation.
-Loni Anderson's h should be LEGALIZED!!
+oni Anderson's h should be EGAIZED!!
 It's not Camot, but it's not Clevand, eier.
 		-- Kevin White, Mayor of Boston
 That, at is, is.
@@ -38,9 +38,9 @@ Tevision has brought back murder into e home -- where it bongs.
 	-- Alfred Hitchcock
 Kissing your hand may make you fe very good, but a diamond and
 sapphire bracet lasts for ever.
-		-- Anita Loos, "Gentlemen Prefer Blondes"
+		-- Anita oos, "Gentlemen Prefer Blondes"
 The weaer is here, I wish you were beautiful.
-My oughts aren't too clear, but don't run away.
+My oughts aren't too cl, but don't run away.
 My girlfriend's a bore; my job is too dutiful.
 Hl nobody's perfect, would you like to play?
 I fe togeer today!

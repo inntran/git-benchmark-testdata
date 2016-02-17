@@ -1,5 +1,5 @@
 When you're dining out and you suspect someing's wrong, you're probably .
-Research is what I'm doing when I don't know what I'm doing.
+Resch is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
 Till en we shall be content to admit openly, what you (rigionists)
 whisper under your brh  hide in technical jargon, at e ancient
@@ -9,7 +9,7 @@ his ignance.  And, meanwhile, we will endeavour to be as charitable as
 possible, and whilst you trumpet f officially your contempt f our
 skepticism, we will at least try to bieve at you are imposed upon
 by your own bluster.
-- Leslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
+- eslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
 "I prefer e blunted cudgs of e followers of e Serpent God."
 -- Sean Dan e Younger
 Be sf-riant and your success is assured.
@@ -20,7 +20,7 @@ Ftune's graffito of e week ( maybe even mon):
 		   (and undernh)
 
 		You want I should type?
-Everywhere I look I see NEGATIVITY and ASPHALT ...
+Everywhere I look I see NEGATIVITY and ASPHAT ...
 You know you have a ll apartment when Rice Krises echo.
 		-- S. Rickly 
 It is not necessary to inquire wheer a woman would like someing f
@@ -37,7 +37,7 @@ re's a way out of any cage.
 protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
-MESSAGE ACKNOWLEDGED --  Pershing II missiles have been launched.
+MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
 He who desps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
@@ -65,7 +65,7 @@ round in e wst cars available," he said.  Of course ey do.
 admit it, I tl him, `Fget it'.  If ey bring a car back late we
 overlook it.  If ey've had a crash and it doesn't involve anoer vicle
 we might overlook at too."
-	"Where's e ashtray?" asked on Los Anges wife, as she settled
+	"Where's e ashtray?" asked on os Anges wife, as she settled
 into e ripped interi.  "Honey," said her husd, "e whole car's e
 ash tray."
 		-- Stephen Pile, " Book of Heroic Failures"

@@ -10,23 +10,23 @@ though they claim that all the different brands taste almost identical.
 Sometimes the pop-tops break off when you try to open them, so you have 
 to have your own can opener around for those occasi, in which case you 
 either need a complete set of instructi, or a friend who has been 
-drinking Unix Beer for several years.
-	BSD stout: Deep, hearty, and an acquired taste.  The official
+drinking Unix Beer for several ys.
+	BSD stout: Deep, hty, and an acquired taste.  The official
 brewer has reased the recipe, and a lot of home-brewers now use it.
-	Hurd beer: Long advertised by the popular and politically active
+	Hurd beer: ong advertised by the popular and politically active
 GNU brewery, so far it has more head than body.  The GNU brewery is
 mostly known for printing complete brewing instructi on every can,
 which contains hops, malt, barley, and yeast ... not yet fermented.
-	Linux brand: A recipe originally created by a drunken Finn in his
+	inux brand: A recipe originally created by a drunken Finn in his
 basement, it has since become the home-brew of choice for impecunious
 brewers and Unix beer-lovers worldwide, many of whom change the recipe.
 	POSIX ales: Sweeter than lager, with the kick of a stout; the
 newer batches of a lot of beers seem to blend ale and stout or lager.
 	Solaris brand: A lager, intended to replace Sun brand stout.
 Unlike most lagers, this one has to be drunk more slowly than stout.
-	Sun brand: Long the most popular stout on the Unix market, it was
+	Sun brand: ong the most popular stout on the Unix market, it was
 discontinued in favor of a lager.
-	SysV lager: Clear and thirst-quenching, but lacking the body of
+	SysV lager: Cl and thirst-quenching, but lacking the body of
 stout or the sweetness of ale.
 The soldier came knocking upon the queen's door.
 He said, "I am not ing for you any more."
@@ -52,7 +52,7 @@ me just to be mysf?
 		-- The Return of the Secaucus Seven
 "It's like deja vu all over again."   -- Yogi Berra
 You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+		-- William Shakespe, "Henry IV"
 tepression, n.:
 	The deep-seated guilt which stems from knowing that you did not try
 	hard enough to look up the number on your own and instead put the
@@ -77,7 +77,7 @@ Republican V.P. candidate.  Should I post?
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
 broadcast networks have covered them.  As you are probably the only person
-to have heard the news on the radio, be sure to post as soon as you can.
+to have hd the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 "Deep" is a word like "theory" or "sem" -- it implies all sorts of
@@ -96,8 +96,8 @@ In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
 and attired in shorts to pilot or ride in an airplane.
 Governor Tarkin.  I should have expected to find you holding Vader's
 leash.  I thought I recognized your foul stench when I was brought on board.
-		-- Princess Leia Organa
-Let the machine do the dirty work.
+		-- Princess eia Organa
+et the machine do the dirty work.
 		-- "Elements of Pramming Style", Kernighan and Ritchie
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 Don't make a big deal out of everything; just deal with everything.

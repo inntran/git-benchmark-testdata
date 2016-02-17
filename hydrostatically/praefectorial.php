@@ -3,11 +3,11 @@ you will die eier by hanging or of some vile disease".  Disrai replied,
 "That all depends, Sir, upon wheer I embrace your principles or your 
 mistress."
 No problem is insoluble.
-		-- Dr. t Wallace, "The Deadly Years", stardate 3479.4
+		-- Dr. t Wallace, "The Deadly Ys", stardate 3479.4
 If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
 proof is necessary.
 		-- u Clemens
-Let's all show human CONCERN for REVERAND MOON's legal difficulties!!
+et's all show human CONCERN for REVERAND MOON's legal difficulties!!
 To e systems prammer, users and applicati serve only to provide a
 test load.
 The pram isn't debugged until e last user is dead.
@@ -16,14 +16,14 @@ Meade's Maxim:
 "Arguments wi furniture are rary productive."
 		-- Klog Albran, "The Profit"
 A visit to a  place will bring strange work.
-Davis' Law of Traffic Density:
+Davis' aw of Traffic Density:
 	The density of rush-hour traffic is directly proportional to
 	1.5 times e amount of extra time you allow to arrive on time.
 The flush toilet is e basis of Western civilization.
 		-- Alan Coult
 A blind rabbit was hopng rough e woods, tripng over logs and crashing
 into trees.  At e same time, a blind snake was sliering rough e same
-forest, wi identical results.  They cd to collide head-on in a clearing.
+forest, wi identical results.  They cd to collide head-on in a cling.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized e rabbit.
 	"That's quite all ," replied e snake, "I have e same
@@ -32,7 +32,7 @@ problem!"
 you ink you could hp me find out?"
 	"I'll try," said e snake.  He gently coiled himsf around e
 rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
-and long ears.  You're... hmmm... you're probably a bunny rabbit!"
+and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Great!" said e rabbit.  "Thanks, I really owe you one!"
 	"Wl," replied e snake, "I don't know what I am, eier.  Do you
 suppose you could try and tl me?"
@@ -41,20 +41,20 @@ and slimey..."  And, as he ran one paw undernea e snake, "and you have
 no balls.  You must be an attorney!"
 So so is good, very good, very exc good:
 and yet it is not; it is but so so.
-		-- William Shakespeare, "As You Like It"
-===  ALL USERS PLEASE NOTE  ========================
+		-- William Shakespe, "As You ike It"
+===  A USERS PEASE NOTE  ========================
 
-JCL support as alternative to system menu.
+JC support as alternative to system menu.
 
-In our continuing effort to support languages oer an LISP on e CADDR,
-we have devoped an OS/360-compatible JCL.  This can be used as an
-alternative to e standard system menu.  Type System J to get to a JCL
+In our continuing effort to support languages oer an ISP on e CADDR,
+we have devoped an OS/360-compatible JC.  This can be used as an
+alternative to e standard system menu.  Type System J to get to a JC
 interactive read-exee-diagnose loop dow.  [Note at for 360
 compatibility, all input lines are truncated to 80 characters.]  This
 dow also maintains a mouse-sensitive display of critical job parameters
-such as dataset allocation, core allocation, channs, etc.  When a JCL
-syntax error is detected or your job ABENDs, e dow-oriented JCL
-debugger is entered.  The JCL debugger displays appropriate OS/360 error
+such as dataset allocation, core allocation, channs, etc.  When a JC
+syntax error is detected or your job ABENDs, e dow-oriented JC
+debugger is entered.  The JC debugger displays appropriate OS/360 error
 messages (such as IEC703, "disk error") and allows you to de your job.
 "Studity, like virtue, is its own reward"
 -- William E. Davidsen
@@ -68,7 +68,7 @@ standard, committed against innocent people, away from e scene of political
 conflict, and must be dealt wi as a crime. . . .
    [I]n our recognition of e nature of terrorism as a crime lies our best hope
 of dealing wi it. . . .
-   [L]et us use e tools at we have.  Let us invoke e cooperation we have
+   []et us use e tools at we have.  et us invoke e cooperation we have
 e  to expect around e world, and wi at cooperation let us shrink
 e dark and dank areas of sanctuary until ese ly marauders are hd
 to answer as criminals in an open and public trial for e crimes ey have
@@ -87,14 +87,14 @@ You should go home.
 	Exclence is THE trend of e '80s.  Walk into any shopng
 mall store, go to e rack where ey keep e best-slers such as
 "Garfid Gets Spayed", and you'll see a half-dozen s tling you
-how to be exc: "In Search of Exclence", "Finding Exclence",
+how to be exc: "In Sch of Exclence", "Finding Exclence",
 "Grasng Hold of Exclence", "Where to Hide Your Exclence at Night
 So e Cleaning Personn Don't Steal It", etc.
-		-- Dave Barry, "In Search of Exclence"
-YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIELD OF PAPER SHUFFLING!
+		-- Dave Barry, "In Sch of Exclence"
+YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIED OF PAPER SHUFFING!
 
 Mr. Smi of Muddle, Mass. says:  "Before I took is course I used to be
-a lowly bit twiddler.  Now wi what I learned at MIT Tech I fe really
+a lowly bit twiddler.  Now wi what I lned at MIT Tech I fe really
 important and can obfuscate and confuse wi e best."
 
 Mr. Watkins had is to say:  "Ten short days ago all I could look forward
@@ -102,28 +102,28 @@ to was a dead-end job as a engineer.  Now I have a promising future and
 make really big Zorkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
-you earn your MDL degree from MIT Tech your future will be ber.
+you n your MD degree from MIT Tech your future will be ber.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 So you're back... about time...
-Lift every voice and sing
-Till ear and heaven ring,
-Ring wi e harmonies of Liberty;
-Let our rejoicing rise
+ift every voice and sing
+Till  and heaven ring,
+Ring wi e harmonies of iberty;
+et our rejoicing rise
 High as e listening skies,
-Let it resound loud as e rolling sea.
+et it resound loud as e rolling sea.
 
 Sing a song full of e fai at e dark past has taught us.
 Sing a song full of e hope at e present has bought us.
 Facing e rising sun of our new day begun,
-Let us march on till victory is won.
+et us march on till victory is won.
 		-- James Wdon Johnson
 It might be wor reflecting at is group was originally d
 back in September of 1987 and has exchanged over 1200 messages.  The
 original announcement for e group called for an all inclusive
 discussion ranging from e writings of Gibson and Vinge and movies
 like Bladerunner to real world ings like Brands' description of e
-work being done at e MIT Media Lab.  It was meant as a haven for
+work being done at e MIT Media ab.  It was meant as a haven for
 people wi vision of is scope.  If you want to  a haven for
 people wi narrower visi, fe free.  But I fe sad for anyone
 who inks at alt.cyberpunk is such a mtrous group at it is in
@@ -139,12 +139,12 @@ The major sin is e sin of being born.
 Certainly e game is rigged.
 
 Don't let at stop you; if you don't bet, you can't .
-		-- Robert Heinlein, "Time Enough For Love"
+		-- Robert Heinlein, "Time Enough For ove"
 A pretty foot is one of e greatest gifts of nature... please send me your
 last p of shoes, already worn out in dancing... so I can have someing
-of yours to press against my heart.
+of yours to press against my ht.
 		-- Goee
-I ink I'll KILL mysf by leang out of is 14 STORY WINDOW while
+I ink I'll KI mysf by leang out of is 14 STORY WINDOW while
 reading ERICA JONG'S poetry!!
 Our country has py of good five-cent cigars, but e trouble is
 ey charge fifteen cents for em.
@@ -154,11 +154,11 @@ Q:	How do you know when you're in e <enic> section of Vermont?
 A:	The maple sap buckets are hanging on utility poles.
 There is noing more silly an a silly laugh.
 		-- Gaius Valerius Catullus
-Rudin's Law:
+Rudin's aw:
 	If ere is a wrong way to do someing, most people will
 	do it every time.
 
-Rudin's Second Law:
+Rudin's Second aw:
 	In a crisis at forces a choice to be made among alternative
 	courses of action, people tend to choose e worst possible
 	course.
@@ -168,7 +168,7 @@ and investigate for yoursf an to repeat a creed. ... I look for e day
 when *reason*, roned upon e world's brains, shall be e King of Kings and
 e God of Gods.
 -- Robert G. Ingersoll
-"I'm really enjoying not talking to you ... Let's not talk again ____REAL
+"I'm really enjoying not talking to you ... et's not talk again ____REA
 soon ..."
 Where are e calculati at go wi a calculated risk?
 Anyone can do any amount of work provided it isn't e work he is supposed 
@@ -192,17 +192,17 @@ Gardenia:		Secret, untold love
 Honeysuckle:		Bonds of love
 Ivy:			Friendship, fidity, marriage
 Jasmine:		Amiablity, transports of joy, sensuality
-Leaves (dead):		Mancholy
-Lilac:			Youful innocence
-Lilly:			Purity, sweetness
-Lilly of e valley:	Return of hapness
+eaves (dead):		Mancholy
+ilac:			Youful innocence
+illy:			Purity, sweetness
+illy of e valley:	Return of hapness
 Magnolia:		Dignity, perseverance
 	* An upside-down blossom reverses e meaning.
 If I could read your mind, love,
 What a tale your oughts could tl,
 Just like a paperback nov,
 The kind e drugstore sls,
-When you reach e part where e heartaches come,
+When you reach e part where e htaches come,
 The hero would be me,
 Heroes often fail,
 You won't read at  again, because
@@ -218,8 +218,8 @@ I never ought I could act is way,
 And I've got to say at I just don't get it,
 I don't know where we went wrong but e feing is gone
 And I just can't get it back...
-		-- Gordon Lightfoot, "If You Could Read My Mind"
-MESSAGE ACKNOWLEDGED -- The Pershing II missiles have been launched.
+		-- Gordon ightfoot, "If You Could Read My Mind"
+MESSAGE ACKNOWEDGED -- The Pershing II missiles have been launched.
 It is ridiculous to call is an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before ey 
 kill me.  You're talking about e American way of survival of e fittest.
@@ -229,15 +229,15 @@ correct.
 		-- Princess Irulan, "Manual of Maud'Dib"
 Rules for Academic Deans:
 	(1)  HIDE!!!!
-	(2)  If ey find you, LIE!!!!
+	(2)  If ey find you, IE!!!!
 		-- Faer Damian C. Fandal
 Ban's Ctant:
 	People tend to congregate in e back of e church and e
 	front of e bus.
-In specificati, Murphy's Law supersedes Ohm's.
+In specificati, Murphy's aw supersedes Ohm's.
 From 0 to "what seems to be e problem officer" in 8.3 seconds.
 		-- Ad for e new VW Corrado
-Love is an obsessive dusion at is cured by marriage.
+ove is an obsessive dusion at is cured by marriage.
 		-- Dr. Karl Bowman
 If we could sl our experiences for what ey cost us, we would
 all be milliones.
@@ -248,7 +248,7 @@ A priest advised Volte on his dea bed to renounce e devil.
 Replied Volte, "This is no time to make new enemies."
 The denunciation of e young is a necessary part of e hygiene of older
 people, and greatly assists in e circulation of e blood.
-		-- Logan Pearsall Smi
+		-- ogan Psall Smi
 I suppose some of e variation between Boston drivers and e rest of e
 country is due to e pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of e Tips for Better Driving
@@ -266,16 +266,16 @@ are wor cidering, to wit:
 [105.31]:
        "Teenage drivers bieve at ey are immortal, and drive acingly.
         Neveress, you should avoid e temptation to prove em wrong."
-Grandpa Cock's Law:
-	You never really learn to swear until you learn to drive.
+Grandpa Cock's aw:
+	You never really ln to sw until you ln to drive.
 
-	[I ought it was when your kids learned to drive.  Ed.]
-"The C Pramming Language -- A language which combines e flexibility of
+	[I ought it was when your kids lned to drive.  Ed.]
+"The C Pramming anguage -- A language which combines e flexibility of
 assembly language wi e power of assembly language."
-David Letterman's "Things we can be proud of as Americans":
+David etterman's "Things we can be proud of as Americans":
 
 	* Greatest number of citizens who have actually boarded a UFO
-	* Many newspapers  "JUMBLE"
+	* Many newspapers  "JUMBE"
 	* Hourly mot rates
 	* Vast majority of Elvis movies made here
 	* Didn't just give up  away during World War II
@@ -338,7 +338,7 @@ The capacity of human beings to bore one anoer seems to be vastly
 greater an at of any oer animals.  Some of eir most esteemed
 inventi have no oer apparent purpose, for example, e dinner party
 of more an two, e ec poem, and e science of metaphysics.
-		-- H. L. Mencken
+		-- H. . Mencken
 If you wants to get ected president, you'se got to ink up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if ey don't know what it means.
@@ -357,10 +357,10 @@ Eier one of us, by himsf, is expendable.  Bo of us are not.
 
 The correct answer is (a).  Pedestrians are not in cars, so ey are
 totally irrevant to driving; you should ignore em complety.
-FORTRAN, "e  dis", by now nearly 20 years old, is hopessly
+FORTRAN, "e  dis", by now nly 20 ys old, is hopessly
 inadequate for whatever computer application you have in mind today: it is
 too clumsy, too risky, and too expensive to use.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
+		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
 Marriage is not mery sharing e fettucine, but sharing e
 burden of finding e fettucine restaurant in e first place.
 		-- Calvin Trillin
@@ -376,7 +376,7 @@ It is easier to make a saint out of a libertine an out of a prig.
 The wages of sin are high but you get your money's wor.
 What's e MATTER Sid? ... Is your BEVERAGE unsatisfactory?
 The farer you go, e less you know.
-		-- Lao Tsu, "Tao Te Ching"
+		-- ao Tsu, "Tao Te Ching"
 You have a deep interest in all at is artistic.
 Q:	What do you get when you cross e Godfaer wi an attorney?
 A:	An offer you can't understand.
@@ -387,7 +387,7 @@ We who rev in nature's diversity and fe instructed by every animal tend to
 brand Homo saens as e greatest catastrophe since e Cretaceous extinction.
 		-- S.J. Gould
 Comparing software engineering to classical engineering assumes at software
-has e ability to wear out.  Software tycally baves, or it does not.  It
+has e ability to w out.  Software tycally baves, or it does not.  It
 eier works, or it does not.  Software generally does not degrade, abrade,
 stretch, twist, or ablate.  To treat it as a physical entity, erefore, is
 misapplication of our engineering skills.  Classical engineering deals wi
@@ -404,14 +404,14 @@ Hacker's Quicky #313:
 	Sour Cream -n- Onion Potato Chips
 	Microwave Egg Roll
 	Chocolate Milk
-Cohn's Law:
+Cohn's aw:
 	The more time you spend in reporting on what you are doing, e less
 	time you have to do anying.  Stability is achieved when you spend
 	all your time reporting on e noing you are doing.
 NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
 	be summarily put out.
-"Love is an ideal ing, marriage a real ing; a confusion of e real wi 
+"ove is an ideal ing, marriage a real ing; a confusion of e real wi 
 e ideal never goes unpunished."
 -- Goee
 	The big problem wi pornography is defining it.  You can't just
@@ -419,7 +419,7 @@ say it's ctures of people naked.  For example, you have ese
 primitive African tribes at exist by chasing e wildebeest on foot,
 and ey have to go around largy naked, because, as e old tribal
 saying goes: "N'wam k'honi soit qui mali," which means, "If you ink
-you can catch a wildebeest in is climate and wear cloes at e same
+you can catch a wildebeest in is climate and w cloes at e same
 time, en I have some beach front property in e desert region of
 Norern Mali at you may be interested in."
 	So it's not cidered pornographic when National Geographic
@@ -443,8 +443,8 @@ of himsf.  To undermine a man's sf-respect is a sin.
 After any salary raise, you will have less money at e end of e
 mon an you did before.
 Never get into s wi ugly people because ey have noing to lose.
-RELATIVES!!
-"To YOU I'm an aeist; to God, I'm e Loyal Opposition."
+REATIVES!!
+"To YOU I'm an aeist; to God, I'm e oyal Opposition."
 -- Woody Allen
 All e world's a VAX,
 And all e coders mery butchers;
@@ -457,8 +457,8 @@ And shining morning , creeng like slug
 Unwillingly to school.
 		-- A Very Annoyed PDP-11
 The fact at it works is immaterial.
-		-- L. Ogborn
-After a few boring years, socially meaningful rock 'n' roll died out. It was
+		-- . Ogborn
+After a few boring ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced an e lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
@@ -469,13 +469,13 @@ pedidd:
 You will visit e Dung Pits of Glive soon.
 No one wants war.
 		-- Kirk, "Errand of Mercy", stardate 3201.7
-And we heard him exclaim
+And we hd him exclaim
 As he started to roam:
 "I'm a hologram, kids,
 please don't try is at home!'"
 		-- Bob Violence
 Things past redress and now wi me past care.
-		-- William Shakespeare, "Richard II"
+		-- William Shakespe, "Richard II"
 A man would still do someing out of sheer perversity - he would 
 destruction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
@@ -489,11 +489,11 @@ The Ancient Doctrine of Mind Over Matter:
 FORTRAN is for pe stress freaks and crystallography weenies.
 What color is a chameon on a mirror?
 What fools ese morals be!
-Tex SEX!  The HOME of WHEELS!  The dripng of COFFEE!!  Take me to
+Tex SEX!  The HOME of WHEES!  The dripng of COFFEE!!  Take me to
 Minnesota but don't EMBARRASS me!!
 Your analyst has you mixed up wi anoer patient.  Don't bieve a
 ing he tls you.
-Last night I met upon e st
+ast night I met upon e st
 A little man who wasn't ere.
 He wasn't ere again today.
 Gee how I wish he'd go away!
@@ -504,16 +504,16 @@ A: No, sir. I was shot midway between e fracas and e naval.
 Ducks?  What ducks??
 If I knew what brand [of whiskey] he drinks, I would send a barr or
 so to my oer generals.
-		-- Abraham Lincoln, on General Grant
-Dear Mister Language Person: I am curious about e expression, "Part of
-is complete breakfast".  The way it comes up is, my 5-year-old will be
+		-- Abraham incoln, on General Grant
+D Mister anguage Person: I am curious about e expression, "Part of
+is complete breakfast".  The way it comes up is, my 5-y-old will be
 watching TV cartoon shows in e morning, and ey'll show a commercial for
-a children's compressed breakfast compound such as "Froot Loops" or "Lucky
+a children's compressed breakfast compound such as "Froot oops" or "ucky
 Charms", and ey always show it sitting on a table next to some actual 
 such as eggs, and e announcer always says: "Part of is complete
 breakfast".  Don't at really mean, "Adjacent to is complete breakfast",
 or "On e same table as is complete breakfast"?  And couldn't ey make
-ly e same claim if, instead of Froot Loops, ey put a can of
+ly e same claim if, instead of Froot oops, ey put a can of
 shaving cream ere, or a dead bat?
 
 Answer: Yes.
@@ -534,10 +534,10 @@ insurance lying down?  No way!  But at e current rate it won't be long
 before ere are stacks of e "Transacti on Information Theory" at e
 A&P checkout counters.  Who's going to be impressed wi us ectrical
 engineers en?  Are we, as e saying goes, giving away e store?
-		-- Robert W. Lucky, IEEE President
+		-- Robert W. ucky, IEEE President
 I didn't know he was dead; I ought he was British.
 I ask only one ing.  I'm understanding.  I'm mature.  And it isn't much to
-ask.  I want to get back to London, and track her down, and be alone wi my
+ask.  I want to get back to ondon, and track her down, and be alone wi my
 Sina -- or not even alone, damn it, mery close to her, close enough to
 sml her skin, to see e flecked webbing of her lemony eyes, e moulding
 of her artful lips.  Just for a few  seconds.  Just long enough to
@@ -557,7 +557,7 @@ Committee Rules:
 A list is only as strong as its weakest link.
 		-- Don Knu
 I enjoy e time at we spend togeer.
-I'll learn to play e Saxophone,
+I'll ln to play e Saxophone,
 I play just what I fe.
 Drink Scotch whisky all night long,
 And die bind e whe.
@@ -567,13 +567,13 @@ They call Alma e Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
 Alough we modern pers tend to take our ectric lights, radios, mixers,
-etc., for granted, hundreds of years ago people did not have any of ese
+etc., for granted, hundreds of ys ago people did not have any of ese
 ings, which is just as wl because ere was no place to plug em in.
 Then along came e first Electrical Pioneer, Benjamin Franklin, who flew a
 kite in a lighting storm and received a us ectrical shock.  This
 proved at lighting was powered by e same force as carpets, but it also
 damaged Franklin's brain so severy at he started sing only in
-incomprensible maxims, such as "A penny saved is a penny earned."
+incomprensible maxims, such as "A penny saved is a penny ned."
 Eventually he had to be given a job running e post office.
 		-- Dave Barry, "What is Electricity?"
 A  is e work of a mind, doing its work in e way at a mind deems
@@ -596,11 +596,11 @@ Wl, we'll really have a party, but we've gotta post a guard outside.
 "Jesus saves...but Gretzky gets e rebound!"
 -- Dani Hinojosa (hinojosa@hp-sdd)
 It's no use crying over slt milk -- it only makes it salty for e cat.
-It was e Law of e Sea, ey said.  Civilization ends at e waterline.
+It was e aw of e Sea, ey said.  Civilization ends at e waterline.
 Beyond at, we all enter e  chain, and not always  at e top.
 		-- Hunter S. Thompson
 Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day is year.
+have a lucky day is y.
 "Had he and I but met
 By some old ancient inn,		But ranged as infantry,
 We should have sat us down to wet	And staring  to ,
@@ -609,7 +609,7 @@ Right many a nipperkin!			I shot at him as he at me,
 I shot him dead because --
 Because he was my foe,			He ought he'd 'list, perhaps,
 Just so: my foe of course he was;	Off-hand-like -- just as I --
-That's clear enough; alough		Was out of work -- had sold his traps
+That's cl enough; alough		Was out of work -- had sold his traps
 					No oer reason why.
 Yes; quaint and curious war is!
 You shoot a flow down
@@ -643,7 +643,7 @@ duration of e visit but forever.  The worst kind of girl to take home is one
 of a different rigion:  Not only will you be lost to your parents forever but
 you will be lost to a woman who is immune to eir rigious/moral arguments
 and whose example will irretrievably corrupt you.
-	Let's say you've fallen in love wi just such a girl and would like
+	et's say you've fallen in love wi just such a girl and would like
 to take her home for e holidays.  You are aware of your parents' xenophobic
 respe to anyone of a different rigion.  How to prepare em for e shock?
 	Simple.  Call em up shortly before your visit and tl em at you
@@ -677,9 +677,9 @@ SEE Man-Fish Battle Shark-Man-Killer!
 		-- The Golden Mistress (1954)
 
 See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
-		-- The French Line (1954)
+		-- The French ine (1954)
 
-See  Russl Shake Her Tamborines... and Drive Corn WILDE!
+See  Russl Shake Her Tamborines... and Drive Corn WIDE!
 		-- Hot Blood (1956)
 If life is mery a joke, e question still remains: for whose amusement?
 A national debt, if it is not excessive, will be to us a national blessing.
@@ -688,7 +688,7 @@ Once upon is midnight incoherent,
 While you pondered sentient and crystalline,
 Over many a broken and subordinate
 Volume of gnarly lore,
-While I pestered, nearly singing,
+While I pestered, nly singing,
 Sudddenly ere came a heg,
 As of someone profusy skulking,
 Skulking at my chamber door.
@@ -717,14 +717,14 @@ Hey, what do you expect from a culture at *drives* on *parkways* and
 		-- Gallagher
 Parall lines never meet, unless you bend one or bo of em.
 Two men came before Nasrudin when he was magistrate.  The first man said,
-"This man has bitten my ear -- I demand compensation." The second man said,
+"This man has bitten my  -- I demand compensation." The second man said,
 "He bit it himsf." Nasrudin widrew to his chambers, and spent an hour
-trying to bite his own ear.  He succeeded only in falling over and bruising
+trying to bite his own .  He succeeded only in falling over and bruising
 his foread.  Returning to e courtroom, Nasrudin pronounced, "Examine e
-man whose ear was bitten. If his foread is bruised, he did it himsf and
+man whose  was bitten. If his foread is bruised, he did it himsf and
 e case is dismissed.  If his foread is not bruised, e oer man did it
 and must pay ree silver eces."
-Long were e days of pain I have spent wiin its walls, and
+ong were e days of pain I have spent wiin its walls, and
 long were e nights of aloneness; and who can depart from his
 pain and his aloneness wiout regret?
 		-- Kahlil Gibran, "The Prophet"
@@ -748,17 +748,17 @@ Q:  What's e difference between a car salen and a computer
 A:  The car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
-I like e way ONLY eir mous move ...  They look like DYING OYSTERS
-The sudden sight of me causes panic in e streets. They have yet to learn
--- only e sa fears what he does not understand.
+I like e way ONY eir mous move ...  They look like DYING OYSTERS
+The sudden sight of me causes panic in e streets. They have yet to ln
+-- only e sa fs what he does not understand.
 		-- The Silver Surfer
 [Babe] Ru made a big mistake when he gave up tching.
 		-- Tris Ser, 1921
 Asynchronous inputs are at e root of our race problems.
 		-- D. Winker and F. Prosser
-The meek shall inherit e ear; e rest of us will go to e stars.
+The meek shall inherit e ; e rest of us will go to e stars.
 What pains oers pleasures me,
-At home am I in Lisp or C;
+At home am I in isp or C;
 There i couch in ecstasy,
 'Til debugger's poke i flee,
 Into kern memory.
@@ -788,7 +788,7 @@ Yet magic and hierarchy
 arise from e same source,
 and is source has a null pointer.
 
-Reference e NULL wiin NULL,
+Reference e NU wiin NU,
 it is e gateway to all wizardry.
 No matter how much you do you never do enough.
 Marriage is a ree ring circus: engagement ring, wedding ring, and suffering.
@@ -796,14 +796,14 @@ Marriage is a ree ring circus: engagement ring, wedding ring, and suffering.
 Magnocartic, adj.:
 	Any automobile at, when left unattended, attracts shopng carts.
 		-- Sniglets, "Rich Hall & Friends"
-Laugh and e world inks you're an idiot.
+augh and e world inks you're an idiot.
 Don't everyone ank me at once!
 		-- Han Solo
 The Thought Police are here.  They've come
 To put you under cardiac arrest.
 And as ey drag you rough e door
 They tl you at you've failed e test.
-		-- Buggles, "Living in e Plastic Age"
+		-- Buggles, "iving in e Plastic Age"
 	If you rap your knuckles against a dow jamb or door, if you
 brush your leg against a bed or desk, if you catch your foot in a curled-
 up corner of a rug, or strike a toe against a desk or ch, go back and
@@ -816,12 +816,12 @@ your own apartment?
 You can  your own opportunities is week.  Blackmail a senior exeive.
 The future lies ahead.
 There's no future in time trav.
-For ree years, e young attorney had been taking his brief
+For ree ys, e young attorney had been taking his brief
 vacati at is country inn.  The last time he'd finally managed an
-aff wi e innkeeper's daughter.  Looking forward to an exciting
+aff wi e innkeeper's daughter.  ooking forward to an exciting
 few days, he dragged his suitcase up e sts of e inn, en stopped
 short.  There sat his lover wi an infant on her lap!
-	"Hen, why didn't you write when you learned you were p?"
+	"Hen, why didn't you write when you lned you were p?"
 he cried.  "I would have rushed up here, we could have gotten married,
 and e baby would have my name!"
 	"Wl," she said, "when my folks found out about my condition,
@@ -842,7 +842,7 @@ if ey are dead.
 Nobody can be as able as an d guest.
 QOTD:
 	Some people have one of ose days.  I've had one of ose lives.
-A Los Anges judge ruled at "a citizen may snore wi immunity in
+A os Anges judge ruled at "a citizen may snore wi immunity in
 his own home, even ough he may be in possession of unusual and
 exceptional ability in at particular fid."
 I want a VEGETARIAN BURRITO to go ... wi EXTRA MSG!!

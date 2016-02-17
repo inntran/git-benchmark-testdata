@@ -5,7 +5,7 @@ you to enjoy yoursf; if at were eir sole purpose, ey'd have
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 On account of being a democracy and run by e people, we are e only
-nation in e wld at has to keep a government four years, no m
+nation in e wld at has to keep a government four ys, no m
 what it does.
 		-- Will Rogers
 Stay togeer, drag each oer down.
@@ -33,7 +33,7 @@ X dows:
 
 Elevating brain damage to an art fm.
 	X dows.
-After 35 years, I have finished a comprensive study of European
+After 35 ys, I have finished a comprensive study of European
 comparative law.  In Germany, under e law, everying is prohibited,
 except at which is permitted.  In France, under e law, everying
 is permitted, except at which is prohibited.  In e Soviet Union,
@@ -41,12 +41,12 @@ under e law, everying is prohibited, including at which is
 permitted.  And in Italy, under e law, everying is permitted,
 especially at which is prohibited.
 		-- Newton Minow,
-		Speech to e Association of American Law s, 1985
+		Speech to e Association of American aw s, 1985
  water was not fit to drink.  To make it palatable, we had to add whiskey.
-By diligent efft, I learned to like it.
+By diligent efft, I lned to like it.
 		-- Winston Churchill
 Good advice is one of ose insults at ought to be fgiven.
-Life is like an onion: you pe off layer after layer and en you find
+ife is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
 "All snakes who wish to remain in d will please raise eir  hands."
@@ -61,11 +61,11 @@ Amid is mighty fuss just let me mention,
 "What is e Nature of God?"
 There comes a time in the affairs of a man when he has to take the bull
 
-    CLICK...CLICK...WHIRRR...CLICK...=BEEP!=
+    CICK...CICK...WHIRRR...CICK...=BEEP!=
     1 QT. SOUR CREAM
     1 TSP. SAUERKRAUT
     1/2 CUT CHIVES.
-    STIR AND SPRINKLE WITH BACON BITS.
+    STIR AND SPRINKE WITH BACON BITS.
 
 "I've just GOT to start labing my software..."
 		-- Bloom County
@@ -97,20 +97,20 @@ you can always change e chann.
 		-- Jim Ignatowski
 news: gotcha
 "sic transit discus mundi"
-(From e System Administrat's Guide, by Lars Wirzenius)
-Lawrence R Lty keeps all its data in an old gray trunk.
+(From e System Administrat's Guide, by ars Wirzenius)
+awrence R ty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
 " wages of sin are dh; but after ey're done taking out taxes,
 it's just a tired ling:"
-Newton's Law of Gravitation:
+Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
-	you can find it.  Murphy's Law applies to Newton's.
+	you can find it.  Murphy's aw applies to Newton's.
 It used to be e fun was in
  capture and kill.
 In anoer place and time
 I did it all f rills.
-		-- Lust to Love
+		-- ust to ove
 Confession is good f e soul, but bad f e career.
 It would be nice to be sure of anying e way some people are of everying.
 Etiquette is f ose wi no breeding; fashion f ose wi no taste.
@@ -125,27 +125,27 @@ Disease can be cured; fate is incurable.
 "Old age and treachery will beat youth and skill every time."
 Famous last wds:
 	(1) Don't unplug it, it will just take a moment to fix.
-	(2) Let's take e sht, he can't see us from ere.
+	(2) et's take e sht, he can't see us from ere.
 	(3) What happens if you touch ese two wires tog--
 	(4) We won't need reservati.
-	(5) It's always sunny ere is time of e year.
+	(5) It's always sunny ere is time of e y.
 	(6) Don't wry, it's not loaded.
 	(7) y'd never (be stud enough to) make him a manager.
 	(8) Don't wry!  Women love it!
 I've always cidered statesmen to be me expendable an soldiers.
 Ccience is what hurts when everying se ls so good.
 	 salen and e system analyst took off to spend a weekend in e
-fest, hunting bear.  y'd rented a cabin, and, when ey got ere, took
+fest, hunting b.  y'd rented a cabin, and, when ey got ere, took
 eir backpacks off and put em .  At which point e salen 
-to his friend, and said, "You unpack while I go and find us a bear."
+to his friend, and said, "You unpack while I go and find us a b."
 	Puzzled, e analyst finished unpacking and en went and sat down
-on e pch.  Soon he could hear  noises in e fest.   noises
-got nearer -- and louder -- and suddenly ere was e salen, running like
- across e clearing toward e cabin, pursued by one of e largest and
-most  grizzly bears e analyst had ever seen.
+on e pch.  Soon he could h  noises in e fest.   noises
+got ner -- and louder -- and suddenly ere was e salen, running like
+ across e cling toward e cabin, pursued by one of e largest and
+most  grizzly bs e analyst had ever seen.
 	"Open e do!", screamed e salen.
 	 analyst whipped open e do, and e salen ran to e do,
-suddenly stopped, and stepped aside.   bear, unable to stop, continued
+suddenly stopped, and stepped aside.   b, unable to stop, continued
 rough e do and into e cabin.   salen slammed e do closed
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
 one and I'll go rustle us up anoer!"
@@ -153,7 +153,7 @@ one and I'll go rustle us up anoer!"
 roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e
 fln pasts who bab halfwits in galvanized iron tabernacles bind
 e railroad yards."
-- H. L. Mencken, writing of William Jennings Bryan, couns f e suppters
+- H. . Mencken, writing of William Jennings Bryan, couns f e suppters
   of Tennessee's anti-evolution law at e Scopes "Monkey Trial" in 1925.
 What's love but a second-hand emotion?
 		-- Tina Turner
@@ -186,7 +186,7 @@ respibility of paranmal-heal-claims skeptics to prove at crystals
 claims at are not adequaty suppted by acceptable evidcence and to
 provide plausible alternative explanati at are me in keeng wi
 e accepted body of scientific evidence.
-		-- Thomas L. Creed,  Skeptical Inquirer, Vol. XII,
+		-- Thomas . Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215
  proof of e pudding is in e ing.
 		-- Migu de Cervantes

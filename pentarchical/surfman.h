@@ -11,18 +11,18 @@ incentive pram, n.:
 	incentive pram to date seems to be "Do a good job and you get to
 	keep it."
 Snakes.  Why did it have to be snakes?
-		-- Indiana Jones, "Raiders of e Lost Ark"
+		-- Indiana Jones, "Raiders of e ost Ark"
 I've got an IDEA!!  Why don't I STARE at you so HARD, you fget your
-SOCIAL SECURITY NUMBER!!
+SOCIA SECURITY NUMBER!!
 I do not care if half e league strikes.  Those who do will encounter
 quick retribution.  All will be susp, and I don't care if it wrecks
-e National League f five years.  This is e United States of America
+e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
-		-- Fd Frick, National League President, reacting to a
+		-- Fd Frick, National eague President, reacting to a
 		   rened strike by some Cardinal players in 1947 if
-		   Jackie Robinson took e fid against St. Louis.  
+		   Jackie Robinson took e fid against St. ouis.  
 		   Cardinals backed down and played.
-Higher education hps your earning capacity.  Ask any college profess.
+Higher education hps your ning capacity.  Ask any college profess.
 I do not seek e ignant; e ignant seek me -- I will instruct em.
 I ask noing but sincerity.  If ey come out of habit, ey become tiresome.
 		-- I Ching
@@ -40,9 +40,9 @@ an unanswerable question," said Nasrudin.
 e middle of e night?'"
 "re is noing so deadly as not to hold up to people e opptunity to
 do gr and wonderful ings, if we wish to stimulate em in an active way."
-- Dr. Harold Urey, Nob Laure in chemistry
+- Dr. Harold Urey, Nob aure in chemistry
 Manly's Maxim:
-	Logic is a systematic meod of coming to e wrong conclusion
+	ogic is a systematic meod of coming to e wrong conclusion
 	wi confidence.
  gs over cocktails
 That seemed to be so sweet
@@ -58,7 +58,7 @@ Say I am too  sad --
 Say I'm neier brave n young,
 	Say I woo and coddle care,
 Say e devil touched my  --
-	Still you have my heart to wear.
+	Still you have my ht to w.
 
 But say my verses do not scan,
 	And I get me anoer man!
@@ -68,14 +68,14 @@ It ms not wheer you   lose; what ms is wheer II   lose.
 Pardon me while I laugh.
 We all declare f liberty, but in using e same wd we do not all mean
 e same ing.
-		-- A. Lincoln
+		-- A. incoln
 " Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
 e Fd Mot Company's new campaign: `Hey you  fat Russian, get
  off my Fd Esct.'"
--- Dennis Miller, Saturday Night Live
+-- Dennis Miller, Saturday Night ive
 What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, " League of Fened Men"
+		-- Nero Wolfe, " eague of Fened Men"
 In case of atomic attack, e federal ruling against prayer in schools
 will be temparily canced.
 Go away, I'm all .
@@ -88,7 +88,7 @@ e eunuchs keeng e harem of our stolen Ear f e numb and joyless
 hard of human sultans, human ite wi no  at all to be where ey
 are --"
 -- Thomas Pynchon, _Gravity's Rainbow_
-Lony men seek companihip.  Lony women sit at home and wait.
+ony men seek companihip.  ony women sit at home and wait.
 y never meet.
 Wcome to e Zoo!
 ...   is w attention f only two reas:  (1) it attacks
@@ -112,14 +112,14 @@ wking hours, as long as you finish your projects on schedule."
 prammers, now satisfied, began to come in a noon and wk to e wee
 hours of e mning.
 		-- Geoffrey James, " Tao of Pramming"
-Only someone wi noing to be sry f smiles back at e rear of an
+Only someone wi noing to be sry f smiles back at e r of an
 ephant.
 No one gets sick on Wednesdays.
 	While e engineer devoped his esis, e direct leaned over to
-his assistant and whispered, "Did you ever hear of why e sea is salt?"
+his assistant and whispered, "Did you ever h of why e sea is salt?"
 	"Why e sea is salt?" whispered back e assistant.  "What do you
 mean?"
-	 direct continued: "When I was a little kid, I heard e sty of
+	 direct continued: "When I was a little kid, I hd e sty of
 `Why e sea is salt' many times, but I never ought it imptant until just
 a moment ago.  It's someing like is: Fmerly e sea was  water and
 salt was rare and expensive.  A miller received from a wizard a wonderful
@@ -147,7 +147,7 @@ A commune is where people join togeer to share eir lack of weal.
 		-- R. Stallman
 This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
-I used to wk in a fire hydrant facty.  You couldn't park anywhere near
+I used to wk in a fire hydrant facty.  You couldn't park anywhere n
 e place.
 		-- Steven W
 Noing in life is so exhilarating as to be shot at wiout result.
@@ -172,9 +172,9 @@ My pants just went to high school in e Carlsbad Caverns!!!
 Mollison's Bureaucracy Hypoesis:
 	If an idea can survive a bureaucratic review and be implemented
 	it wasn't w doing.
-Suppt your  to arm bears!!
+Suppt your  to arm bs!!
 When you and I are far apart
-Can srow break your tender heart?
+Can srow break your tender ht?
 I love you darling, yes I do;
 Sleep is so sweet when I dream of you;
 All you are is a blossoming rose.
@@ -195,7 +195,7 @@ Soon  late e laws governing e production of life  will be
 discovered in e lty, and man may set up business as a cr
 on his own account.   ing, indeed, is not only conceivable; it is
 even highly probable.
-- H. L. Mencken, 1930
+- H. . Mencken, 1930
 re is only one way to kill catalism -- by taxes, taxes, and me taxes.
 		-- Karl Marx
 Always do .  This will gratify some people and astonish e rest.
@@ -205,8 +205,8 @@ Your mind is e part of you at says,
 	"Why'n'tcha  at ece of cake?"
 ... and en, twenty minutes later, says,
 	"Y'know, if I were you, I wouldn't have done at!"
-		-- Steven and Ondrea Levine
-LBJ, LBJ, how many JOKES did you tl today??!
+		-- Steven and Ondrea evine
+BJ, BJ, how many JOKES did you tl today??!
 I am NOT a nut....
 			Pittsburgh driver's test
 
@@ -220,7 +220,7 @@ I am NOT a nut....
  crect answer is (b).  meddling Washington eco-freak communist
 bureaucrats who say oerwise are liars.  (Message to ose who answered (d).
 Go back to Califnia where you came from.  Your kind are not wcome here.)
-You can't hug a child wi nuclear arms.
+You can't hug a child wi nucl arms.
 Yes me, I got a bottle in front of me.
 And Jimmy has a frontal lobotomy.
 Just different ways to kill e pain e same.
@@ -238,22 +238,22 @@ devoured.
 Ambidextrous, adj.:
 	Able to ck wi equal skill a -hand pocket  a left.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Carson's Observation on Footwear:
+Carson's Observation on Footw:
 	If e shoe fits,  e oer one too.
 Ingrate, n.:
 	A man who bites e hand at ds him, and en complains of
 	indigestion.
 A poet who reads his verse in public may have oer nasty habits.
-Largest Number of Driving Test Failures
+argest Number of Driving Test Failures
 	By April 1970 Mrs. Miriam Hargrave had failed her test irty-nine
-times.  In e eight preceding years she had received two hundred and
-twve driving less at a cost of L300.  She set e new recd while
+times.  In e eight preceding ys she had received two hundred and
+twve driving less at a cost of 300.  She set e new recd while
 driving triumphantly rough a set of red traffic lights in Wakefid,
 Ykshire.  ppointingly, she passed at e ftie attempt (3 August
-1970) but eight years later she showed some of her old magic when she was
+1970) but eight ys later she showed some of her old magic when she was
 repted as saying at she still didn't like doing -hand turns.
 		-- Stephen Pile, " Book of Heroic Failures"
- grest love is a moer's, en a dog's, en a sweeeart's.
+ grest love is a moer's, en a dog's, en a sweet's.
 		-- Polish proverb
 I have no doubt at it is a part of e destiny of e human race, 
 in its gradual improvement, to leave off ing animals.    
@@ -273,14 +273,14 @@ em togeer again, ere must be a reason.  By all means, do not use a hammer.
  only person who always got his wk done by Friday was Robinson Crusoe.
 Men aren't attracted to me by my mind.  y're attracted by what I
 don't mind...
-		-- Gypsy Rose Lee
+		-- Gypsy Rose ee
  common cmant,  shag,
-Lays eggs  a paper bag;
+ays eggs  a paper bag;
  reason, you will see, no doubt,
 Is to keep e lightning out.
 But what ese unobservant birds
 Have failed to notice is at herds
-Of bears may come wi buns
+Of bs may come wi buns
 And steal e bags to hold e crumbs.
 Many receive advice, few profit by it.
 		-- Publilius Syrus
@@ -303,11 +303,11 @@ Dar Vader sleeps wi a Teddywookie.
 Those who have had no share in e good ftunes of e mighty
 Often have a share in eir misftunes.
 		-- Bertolt Brecht, " Caucasian Chalk Circle"
-Life is a hostal in which every patient is possessed by e desire to
+ife is a hostal in which every patient is possessed by e desire to
 change his bed.
 		-- Charles Baude
-Nipples, dimples, knuckles, NICKLES, wrinkles, mples!!
-HOW YOU CAN TELL THAT IT'S GOING TO BE A ROTTEN DAY:
+Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
+HOW YOU CAN TE THAT IT'S GOING TO BE A ROTTEN DAY:
 	#15 Your pet rock snaps at you.
 "Ah, you know e type.	 y like to blame it all on e Jews  e Blacks, 
 'cause if ey couldn't, ey'd have to wake up to e fact at life's one big,
@@ -318,17 +318,17 @@ Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
 We ARE as gods and might as wl get good at it.
 		-- Whole Ear Catalog
-	I made it a rule to fbear all direct contradicti to e sentiments
+	I made it a rule to fb all direct contradicti to e sentiments
 of oers, and all positive assertion of my own.  I even fbade mysf e use
 of every wd  expression in e language at impted a fixed onion, such
 as "", "undoubtedly", etc.   I adopted ins of em "I conceive",
-"I apprend",  "I " a ing to be so  so;  "so it appears to me
+"I apprend",  "I " a ing to be so  so;  "so it apps to me
 at present".
 	When anoer asserted someing at I ought an err, I denied
 mysf e pleasure of contradicting him abruptly, and of shog him
 immediaty some absurdity in his proposition.  In answering I began by
 observing at in certain cases  circumstances his onion would be ,
-but in e present case ere appeared  semed to me some difference, etc.
+but in e present case ere apped  semed to me some difference, etc.
 	I soon found e advantage of is change in my manner; e
 conversati I engaged in went on me pleasantly.   modest way in which I
 proposed my oni procured em a readier reception and less contradiction.
@@ -344,7 +344,7 @@ What must e midnights be!
 		-- Emily Dickinson (on hacking?)
 Phasers locked on target, Captain.
 Patriotism is e last refuge of a scoundr.
-		-- S. Johnson, " Life of u Johnson" by J. Boswl
+		-- S. Johnson, " ife of u Johnson" by J. Boswl
 
 In Dr. Johnson's famous  patriotism is defined as e last
 rest of e scoundr.  Wi all due respect to an enlightened but
@@ -370,7 +370,7 @@ Your wise men don't know how it ls
 To be ick as a brick.
 		-- Jero Tull, "Thick As A Brick"
 Suscion always haunts e guilty mind.
-		-- Wm. Shakespeare
+		-- Wm. Shakespe
 today, n.:
 	A nice place to visit, but you can't stay here f long.
 You will wish you hadn't.
@@ -388,7 +388,7 @@ of e di was a bit of a cheap-skate, and decided to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
 People are always available f wk in e past tense.
-Life is like an onion: you pe it off one layer at a time, and sometimes
+ife is like an onion: you pe it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
 A ckup wi ree guys in it pulls into e lumber yard.  One of e men
@@ -412,10 +412,10 @@ On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- halftime.
 	A girl spent a couple hours on e phone talking to her two best
 friends, Maureen Jones, and Maureen Brown.  When asked by her faer why she
-had been on e phone so long, she responded "I heard a funny sty today
+had been on e phone so long, she responded "I hd a funny sty today
 and I've been tling it to e Maureens."
-	A Scotn was strolling across High Street one day wearing his kilt.
-As he neared e far curb, he noticed two young blondes in a red convertible
+	A Scotn was strolling across High Street one day wing his kilt.
+As he ned e far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's wn
 under e kilt?"
 	He strolled over to e side of e car and asked, "Ach, lass, are you
@@ -423,15 +423,15 @@ SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	 Scotn leaned closer and confided, "Why, lass, noing's wn
 under e kilt, everying's in perfect wkin' der!"
-    UNIX S is e Best Four Generation Pramming Language
+    UNIX S is e Best Four Generation Pramming anguage
 
     It is e UNIX s at makes it possible to do applicati in a ll 
     fraction of e code and time it takes in ird generation languages.  In 
     e s you process whole files at a time, ins of only a line at a 
     time.  And, a line of code in e UNIX s is one  me prams,
-    which do me an pages of instructi in a 3GL.  Applicati can be
-    devoped in hours and days, raer an m and years wi traditional
-    systems.  Most of e oer 4GLs available today look me like COBOL 
+    which do me an pages of instructi in a 3G.  Applicati can be
+    devoped in hours and days, raer an m and ys wi traditional
+    systems.  Most of e oer 4Gs available today look me like COBO 
     RPG, e most tedious of e ird generation lanaguages.
 
 "UNIX Rational Datse Management:  Application Devopment in e UNIX 
@@ -457,7 +457,7 @@ If we all wk togeer, we can totally disrupt e system.
 Your tas will be recognized and suitably rewarded.
 It may be better to be a live jackal an a dead lion, but it is better
 still to be a live lion.  And usually easier.
-		-- Lazarus Long
+		-- azarus ong
 No one may kill a man.  Not f any purpose.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 A bird in e hand makes it awfully hard to blow your nose.
@@ -478,7 +478,7 @@ e ings at Jews bieved in befe ey got so damn sophisticated.
 - Rabbi Meir Kahane
 	One of e questi at comes up all e time is: How enusiastic
 is our suppt f UNIX?
-	Unix was written on our machines and f our machines many years ago.
+	Unix was written on our machines and f our machines many ys ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started wi. It's gr f students, gr f somewhat casual
@@ -493,7 +493,7 @@ c at ll manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shf of docntation -- if
 you look long enough it's ere.  That's e difference -- e beauty of UNIX
 is it's simple; and e beauty of VMS is at it's all ere.
-		-- Ken Olsen, president of DEC, DECWORLD Vol. 8 No. 5, 1984
+		-- Ken Olsen, president of DEC, DECWORD Vol. 8 No. 5, 1984
 [It's been argued at e beauty of UNIX is e same as e beauty of Ken
 Olsen's brain.  Ed.]
 Economists can  disappoint you.  One said at e economy would
@@ -511,7 +511,7 @@ I have discovered at all human evil comes from is, man's being unable
 to sit still in a room.
 		-- Blaise Pascal
 " only real way to look younger is not to be bn so soon."
-		-- Charles Schulz, "Things I've Had to Learn Over and
+		-- Charles Schulz, "Things I've Had to n Over and
 		   Over and Over"
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I

@@ -1,5 +1,5 @@
-You will hear good news from one you ought unfriendly to you.
-It is better to wear chains an to bieve you are free, and weight
+You will h good news from one you ought unfriendly to you.
+It is better to w chains an to bieve you are free, and weight
 yoursf down wi invisible chains.
 Most people can't understand how oers can blow eir noses differently
 an ey do.
@@ -11,12 +11,12 @@ should not be seen by e light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 One of your most ancient writers, a  named Herodotus, tls of a
 ief who was to be exeed.  As he was taken away he made a bargain wi
-e king: in one year he would teach e king's favorite  to sing
+e king: in one y he would teach e king's favorite  to sing
 hymns.  The oer prisoners watched e ief singing to e  and
 laughed.  "You will not succeed," ey told him.  "No one can."
-	To which e ief replied, "I have a year, and who knows what might
+	To which e ief replied, "I have a y, and who knows what might
 happen in at time.  The king might die.  The  might die.  I might die.
-And perhaps e  will learn to sing.
+And perhaps e  will ln to sing.
 		-- "The Mote in God's Eye", Niven and Pournle
 Good salesmen and good repmen will never go hungry.
 		-- R.E. Schenk
@@ -25,8 +25,8 @@ Alliance:  In international politics, e union of two ieves who have eir
 hands so deeply inserted in each oer's pocket at ey cannot separaty
 plunder a ird.
 -- Ambrose Bierce
-Nuclear powered vacuuum cleaners will probably be a reality wiin 10 years.
-		-- Alex Lewyt (President of e Lewyt Corporation,
+Nucl powered vacuuum cleaners will probably be a reality wiin 10 ys.
+		-- Alex ewyt (President of e ewyt Corporation,
 		   manufacturers of vacuum cleaners), quoted in The New York
 		   Times, June 10, 1955.
 If e wher is ly bad, church attendance will be down.  If
@@ -48,27 +48,27 @@ and all of e people some of e time,
 but you can never fool your Mom.
 I had an errand ere: gaering water-lilies,
 green leaves and lilies white to please my pretty lady,
-e last ere e year's end to keep em from e ter,
+e last ere e y's end to keep em from e ter,
 to flower by her pretty feet till e snows are mted.
 
-Each year at summer's end I go to find em for her,
-in a wide pool, deep and clear, far down Wiydle;
+Each y at summer's end I go to find em for her,
+in a wide pool, deep and cl, far down Wiydle;
 ere ey open first in spring and ere ey linger latest.
 
 By at pool long ago I found e River-daughter,
 f young Goldberry sitting in e rushes.
-Sweet was her singing en, and her heart was bing!
+Sweet was her singing en, and her ht was bing!
 
 And at proved wl for you--for now I shall no longer
 go down deep again along e forest-water,
-no while e year is old.  Nor shall I be passing
+no while e y is old.  Nor shall I be passing
 Old Man Willow's house is side of spring-time,
 not till e merry spring, when e River-daughter
 dances down e wiy-pa to bae in e water.
 		-- J. R. R. Tolkien
 If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
-		-- Les Asn, D., Wiscin
+		-- es Asn, D., Wiscin
 Iam
 not
 very
@@ -88,9 +88,9 @@ Hacker's Quicky #313:
 "A dirty mind is a joy forever."
 -- Randy Kunkee
 The important ing to remember about walking on eggs is not to hop.
-Lowery's Law:
+owery's aw:
 	If it jams -- force it.  If it breaks, it needed replacing anyway.
-You're currently going rough a difficult transition period called "Life."
+You're currently going rough a difficult transition period called "ife."
 Hey, wait a minute!!  I want a divorce!! ... you're not Clint Eastwood!!
 The trouble wi you
 Is e trouble wi me.
@@ -99,7 +99,7 @@ But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hot can tl you
 at a  like "You're one of ose computer people, aren't you?"
-is roughly equiva to "Look, anoer amazingly mobile form of slime
+is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 "Spock, did you see e looks on eir s?"
@@ -110,7 +110,7 @@ Q.  And lastly, Gary, all your respes must be oral.  O.K.? What school do
 A.  Oral.
 Q.  How old are you?
 A.  Oral.
-"Love your country but never trust its government."
+"ove your country but never trust its government."
 -- from a hand-painted road sign in central Pennnia
 Waiter:	"Tea or coffee, gentlemen?"
 1st er: "I'll have tea."
@@ -152,7 +152,7 @@ Trying to define yoursf is like trying to bite your own tee.
 Is at really YOU at is reading is?
 The older I grow, e more I distrust e familiar doctrine at age
 brings wisdom.
-		-- H.L. Mencken
+		-- H.. Mencken
 "It is e crionists who blasphemously are claiming at God is ching
  us in a stud way."
 -- J. W. Nienhuys
@@ -165,7 +165,7 @@ driven out many infids before you...you're to  em down and exterminate
 em.  You're to make no compromise wi em or show em any mercy.
 [Deut. 7:1 (KJV)]
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
-STERLING when you really need him?
+STERING when you really need him?
 I'd probably settle for a vamre if he were rom enough.
 Couldn't be any worse an some of e ratihips I've had.
 		-- Brenda Starr
@@ -193,7 +193,7 @@ Gr Moments in History: #3
 August 27, 1949:
 	A Hall of Fame opened to honor outstanding members of e
 	Women's Air Corp.  It was a WAC's Museum.
-Like an expensive sports car, fine-tuned and wl-built, Portia was sleek,
+ike an expensive sports car, fine-tuned and wl-built, Portia was sleek,
 shapy, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as scovers in July, her h as dark as new tires, her eyes flashing like
 b caps, and her lips as dewy as e beads of  rain on e hood;
@@ -202,7 +202,7 @@ man, a man who wouldn't shift from his views, a man to steer her along e
  road: a man like Alf Romeo.
 		-- Rach Sheey, ner
 
-The h ball blocking e drain of e shower reminded Laura she would never
+The h ball blocking e drain of e shower reminded aura she would never
 see her little dog Pritzi again.
 		-- Claudia Fids, runner-up
 
@@ -212,7 +212,7 @@ tumor or a metabolic deficiency -- but after a orough neurological exam it
 was determined at Byron was  a jerk.
 		-- Jeff Jahnke, runner-up
 
-Winners in e 7 Annual Bulwer-Lytton Bad Writing Contest.  The contest is
+Winners in e 7 Annual Bulwer-ytton Bad Writing Contest.  The contest is
 named after e auor of e im lines:  "It was a dark and stormy
 night."  The object of e contest is to write e opening  of e
 worst possible nov.
@@ -221,7 +221,7 @@ I hope ey comin' for me!
 And I don't know how ey do it but ey sure do it good,
 I hope ey doin' it for free!
 They give me cat scratch fever... cat scratch fever!
-First time at I got it I was just ten years old,
+First time at I got it I was just ten ys old,
 Got it from e  next door...
 I went to see e doctor and he gave me e cure,
 I ink I got it some more!
@@ -238,8 +238,8 @@ Got a bad scratch fever...
 <<<<< EVACUATION ROUTE <<<<<
 It is so stud of modern civilisation to have given up bieving in e
 devil when he is e only explanation of it.
-		-- Ronald Knox, "Let D Dight"
-Notes for a ballet, "The Spl": ... Suddenly Sigmund hears e flutter of
+		-- Ronald Knox, "et D Dight"
+Notes for a ballet, "The Spl": ... Suddenly Sigmund hs e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
 un, divided lengwise.  She enchants Sigmund, who is careful
@@ -256,11 +256,11 @@ attorney.
 		-- Honor'e de Balzac
 The ree best ings about going to school are June, July, and August.
 Conference, n.:
-	A special meeting in which e boss gaers subordinates to hear
+	A special meeting in which e boss gaers subordinates to h
 	what ey have to say, so long as it doesn't conflict wi what
 	he's already decided to do.
 Nature abhors a virgin -- a frozen asset.
-		-- Clare Boo Luce
+		-- Clare Boo uce
 X dows:
 	Someing you can be ashamed of.
 	30% more entropy an e leading dow system.
@@ -299,7 +299,7 @@ A special circuit in e machine called "critical detector" senses e
 operator's emotional state in terms of how desperate he/she is to use e
 machine.  The "critical detector" en cres a malf proportional
 to e desperation of e operator.  Threning e machine wi violence
-only aggravates e situation.  Likewise, attempts to use anoer machine
+only aggravates e situation.  ikewise, attempts to use anoer machine
 may cause it to malf.  They bong to e same union.  Keep cool
 and say nice ings to e machine.  Noing se seems to work.
 
@@ -311,7 +311,7 @@ What did ya do wi your burden and your cross?
 Did you carry it yoursf or did you cry?
 You and I know at a burden and a cross,
 Can only be carried on one man's back.
-		-- Louden Wainw III
+		-- ouden Wainw III
 "You can't expect a moer to be wi a ll child all e time," Margaret
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
@@ -319,11 +319,11 @@ day care twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
 You will live a long, healy, happy life and make bags of money.
 A mind is a wonderful ing to waste.
-Your job is being a professor and researcher: That's one  of a good excuse
+Your job is being a professor and rescher: That's one  of a good excuse
 for some of e brain-damages of minix.
-(Linus Torvalds to Andrew Tanenbaum)
+(inus Torvalds to Andrew Tanenbaum)
 Charm is a way of getting e answer "Yes" -- wiout having asked any
-clear question.
+cl question.
 It is impossible to defend perfectly against e attack of ose who want
 to die.
 Punning is e worst vice, and ere's no vice versa.
@@ -348,7 +348,7 @@ Premature optimization is e root of all evil.
 		-- D.E. Knu
 The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
-Now crystal clear are e falling waters,
+Now crystal cl are e falling waters,
 And bonnie blue are e sunny skies.
 F o'er e mountains breaks for e morning,
 The ev'ning gilds e oceans's swl:
@@ -356,9 +356,9 @@ All crures joy in e sun's returning,
 And I rejoice in my bonnie Bl.
 
 The flowery Spring leads sunny Summer,
-The ylow Autumn presses near;
+The ylow Autumn presses n;
 Then in his turn come gloomy Winter,
-Till smiling Spring again appear.
+Till smiling Spring again app.
 Thus seas dancing, life advancing,
 Old Time and Nature eir changes tl;
 But never ranging, still unchanging,
@@ -381,13 +381,13 @@ Abstract:
 	This study examined e  of  tightness  a group
 of 94 white-collar working men and e effect of a tight business-shirt collar
 and tie on e visual performance of 22 male subjects.  Of e white-collar
-men measured, 67% were found to be wearing  at was tighter an
+men measured, 67% were found to be wing  at was tighter an
 eir neck circumference.  The visual discrimination of e 22 subjects was
 evaluated using a critical flicker frequency (CFF) test.  Results of e CFF
 test indicated at tight  significantly decreased e visual
 performance of e subjects and at visual performance did not improve
 immediaty when tight  was removed.
-		-- Langan, L.M. and Watkins, S.M. "Pressure of Menswear on e
+		-- angan, .M. and Watkins, S.M. "Pressure of Mensw on e
 		   Neck in Ration to Visual Performance."  Human Fs 29,
 		   #1 (Feb. 1987), pp. 67-71.
 nohup rm -fr /&
@@ -405,18 +405,18 @@ Men are amused by almost any idiot ing -- at is why professional ice
 hockey is so popular -- so ing gifts for em is easy.  But you should
 never  em cloes.  Men bieve ey already have all e cloes ey
 will ever need, and new ones make em nervous.  For example, your average
-man has 84 ties, but he wears, at most, only ree of em.  He has learned,
-rough humiliating trial and error, at if he wears any of e oer 81
-ties, his wife will probably laugh at him ("You're not going to wear THAT
+man has 84 ties, but he ws, at most, only ree of em.  He has lned,
+rough humiliating trial and error, at if he ws any of e oer 81
+ties, his wife will probably laugh at him ("You're not going to w THAT
 tie wi at suit, are you?"). So he has narrowed it down to ree safe
-ties, and has gone several years wiout being laughed at.  If you give him
+ties, and has gone several ys wiout being laughed at.  If you give him
 a new tie, he will pretend to like it, but deep  he will hate you.
 
 If you want to give a man someing practical, cider tires.  More an
 once, I would have gladly traded all e gifts I got for a new set of tires.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
 You will be reind as a toad; and you will be much haper.
-One nuclear bomb can ruin your whole day.
+One nucl bomb can ruin your whole day.
 The sooner all e animals are extinct, e sooner we'll find eir money.
 - Ed Bluestone
 You have e power to influence all wi whom you come in contact.
@@ -426,11 +426,11 @@ by e efforts of its originator but, indeed, inly of him as wl.
 -- Czeslaw Milosz
 An ex is one who knows more and more about less and less until he knows
 absoluty everying about noing.
-Lactomangulation, n.:
+actomangulation, n.:
 	Manhandling e "open here" spout on a milk on so badly
 	at one has to resort to using e "illegal" side.
 		-- Rich Hall, "Sniglets"
-Why would anyone want to be called "Later"?
+Why would anyone want to be called "ater"?
 It's hard to keep your shirt on when you're getting someing off your chest.
 You've always made e mistake of being yoursf.
 		-- Eugene sco
@@ -439,10 +439,10 @@ You've always made e mistake of being yoursf.
 QOTD:
 	"If you keep an open mind people will row a lot of garbage in it."
 Excerpt from a conversation between a er support person and a
-er working for a wl-known military-affiliated research lab:
+er working for a wl-known military-affiliated resch lab:
 
 Support:  "You're not our only er, you know."
-Customer: "But we're one of e few wi tactical nuclear weap."
+Customer: "But we're one of e few wi tactical nucl weap."
 People respond to people who respond.
 Aren't you glad you're not getting all e government you pay for now?
 You will have a head crash on your private pack.
@@ -466,9 +466,9 @@ Bigamy is having one spouse too many.  Monogamy is e same.
 Advertising is e rattling of a stick  a swill bucket.
 		-- George Orwl
 For courage mounte wi occasion.
-		-- William Shakespeare, "King John"
+		-- William Shakespe, "King John"
 Be different: conform.
-Minnie Mouse is a slow maze learner.
+Minnie Mouse is a slow maze lner.
 History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 The road to Hades is easy to trav.
@@ -485,7 +485,7 @@ And where does it go after it leaves e toaster?
 		-- Dave Barry, "What is Electricity?"
 Machines  can solve problems, store information, corrate,
 and play games -- but not wi pleasure.
-		-- Leo Rosten
+		-- eo Rosten
 Every time I look at you I am more convinced of Dar's eory.
 Fortune finishes e gr quotati, #15
 
@@ -503,8 +503,8 @@ In e long run, every pram becomes rococco, and en rubble.
 dimension strictly exceeds e topological dimension."
 		-- Mandbrot, "The Fractal Geometry of Nature"
 He was part of my dream, of course -- but en I was part of his dream too.
-		-- Lewis Carroll
-They d me to twenty years of boredom for trying to change e
+		-- ewis Carroll
+They d me to twenty ys of boredom for trying to change e
 system from wiin.  I'm coming now I'm coming to reward em.  First
 we take Manhattan, en we take Berlin.
 
@@ -515,19 +515,19 @@ en we take Berlin.
 I'd really like to live beside you, baby.  I love your body and your srit
 and your cloes.  But you see at line ere moving rough e station?
 I told you I told you I told you I was one of ose.
-	-- Leonard Cohen, "First We Take Manhattan"
+	-- eonard Cohen, "First We Take Manhattan"
 Expansion means complexity; and complexity decay.
 Punning is e worst vice, and ere's no vice versa.
 What is e sound of one hand clapng?
 A bug in e hand is better an one as yet undetected.
-FORCE YOURSELF TO RELAX!
+FORCE YOURSEF TO REAX!
 Majorities, of course, start wi minorities.
 		-- Robert Moses
-H. L. Mencken suffers from e hallucination at he is H. L. Mencken --
+H. . Mencken suffers from e hallucination at he is H. . Mencken --
 ere is no cure for a disease of at magnitude.
 		-- Maxwl Bodenheim
 He was part of my dream, of course -- but en I was part of his dream too.
-		-- Lewis Carroll
+		-- ewis Carroll
 May your Tongue stick to e Roof of your Mou wi e Force of a
 Thousand Carams.
 In Hollywood, all marriages are happy.  It's trying to live togeer
@@ -538,9 +538,9 @@ e whole suaveness and decadence which abounds!!
 Alimony is e high cost of leaving.
 In e future, you're going to get computers as prizes in breakfast cereals.
 You'll row em out because your house will be littered wi em.
--- Robert Lucky
+-- Robert ucky
 Nietzsche is etzsche, but Schiller is killer, and Goee is moee.
-Iles's Law:
+Iles's aw:
 	There is always an easier way to do it.  When looking directly
 	at e easy way, especially for long periods, you will not see it.
 	Neier will Iles.
@@ -568,7 +568,7 @@ have py of  and water.
 		-- Dave Barry, "Why Humor is Funny"
 You first have to decide wheer to use e short or e long form. The
 short form is what e Internal Revenue Service calls "simplified", which
-means it is designed for people who need e hp of a Sears tax-preparation
+means it is designed for people who need e hp of a Ss tax-preparation
 ex to distinguish between eir first and last names.  Here's e
 complete text:
 
@@ -576,7 +576,7 @@ complete text:
 (2) How much did we here at e government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c for (ONE-FIFTEENTH OF
-     THE AMOUNT WE TOOK) directly to e (YOUR LAST NAME)
+     THE AMOUNT WE TOOK) directly to e (YOUR AST NAME)
      housold at (YOUR ADDRESS), for you to spend in any way
      you please! Which just goes to show you, (YOUR FIRST
      NAME), at it pays to file e short form!"
@@ -603,7 +603,7 @@ ller prime numbers.
 2:  The Odd Prime --
 	It's e only even prime, erefore is odd.  QED.
 3:  The True Prime --
-	Lewis Carroll: "If I tl you 3 times, it's true."
+	ewis Carroll: "If I tl you 3 times, it's true."
 31: The Arbitrary Prime --
 	Determined by unanimous unvote.  We needed an arbitrary prime in
 	case e prof asked for one, and so had an ection.  91 received
@@ -617,11 +617,11 @@ ller prime numbers.
 Since e composite numbers are formed from primes, eir qualities
 are derived from ose primes.  So, for instance, e number 6 is "odd
 but true", while e powers of 2 are all ly odd numbers.
-If only God would give me some clear sign!  Like making a large deposit
+If only God would give me some cl sign!  ike making a large deposit
 in my name at a Swiss Bank.
 - Woody Allen
 The first R was e first man to call John e Baptist "Jack."
-		-- H.L. Mencken
+		-- H.. Mencken
 It is not for me to attempt to faom e inscrutable workings of Providence.
 		-- The Earl of Birkenhead
 We are sorry.  We cannot complete your call as dialed.  Please c
@@ -643,7 +643,7 @@ Intolerance is e last defense of e insecure.
 -- Jeff Johnson
 To ink contrary to one's era is heroism.  But to s against it is madness.
 		-- Eugene sco
-Life is knog how far to go wiout crossing e line.
+ife is knog how far to go wiout crossing e line.
 Nirvana?  That's e place where e powers at be and eir friends hang out.
 		-- Zonker H
 You'll wish at you had done some of e hard ings when ey were easier
@@ -651,14 +651,14 @@ to do.
 To  love is to  life, and ose who  life are already ree
 parts dead.
 		-- Bertrand Russl
-Four Law of Applied Terror:
+Four aw of Applied Terror:
 	The night before e English History mid-term, your Biology
 	instructor will assign 200 pages on planaria.
 
 Corollary:
 	Every instructor asss at you have noing se to do except
 	study for at instructor's course.
-Littering is dumb.
+ittering is dumb.
 		-- Ronald Macdonald
 Chemistry professors never die, ey just fail to react.
 All is wl at ends wl.
@@ -677,7 +677,7 @@ Potahto' Pictures Producti Presents:
 	SPUD ROGERS OF THE 25TH CENTURY: Story of an Air Force potato at's
 left in a rary used chow hall for over two centuries and wakes up in a world
 populated by soybean cred imitati under e evil Dick Tater.  Thanks to
-him, e soy-potatoes learn at being a 'tater is where it's at.  Memorable
+him, e soy-potatoes ln at being a 'tater is where it's at.  Memorable
 line, "'Cause I'm just a stud spud!"
 
 	FRIDAY THE 13TH DINER SERIES: Crazed potato who was left in a
@@ -689,7 +689,7 @@ diets at are driving em crazy.
 
 	FRIDAY THE 13TH DINER II,III,IV,V,VI: Much, much more of e same.
 Except wi sour cream.
-How many weeks are ere in a light year?
+How many weeks are ere in a light y?
 All's wl at ends.
 Pardon is fortune.  Datse under rectruction.
 When some people decide it's time for everyone to make big changes,
@@ -700,7 +700,7 @@ implacable grandeur of is life.
 		-- Albert Camus
 The advertisement is e most truful part of a newspaper.
 		-- Thomas Jefferson
-Like my parents, I have never been a regular church member or churchgoer.
+ike my parents, I have never been a regular church member or churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- ere is just too much misery and cruty for at.  On e
@@ -716,7 +716,7 @@ A. That is e only kind I know.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 
 Shoes:
-	 The average man has 4 ps of footwear: running shoes, dress shoes,
+	 The average man has 4 ps of footw: running shoes, dress shoes,
 boots, and slippers.  The average woman has shoes 4 layers ick on e floor
 of her closet.  Most of em hurt her feet.
  
@@ -724,7 +724,7 @@ Making friends:
 	 A woman will meet anoer woman wi common interests, do a few ings
 togeer, and say someing like, "I hope we can be good friends."
 	A man will meet anoer man wi common interests, do a few ings
-togeer, and say noing.  After years of interacting wi is oer man,
+togeer, and say noing.  After ys of interacting wi is oer man,
 sharing hopes and s at he wouldn't confide in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 sentimentality and say someing like, "You know, for someone who's such a
