@@ -28,17 +28,17 @@ ogic is a systematic meod of coming to e wrong conclusion wi confidence.
 No one knows like a woman how to say ings at  at once gentle and deep.
 		-- Hugo
 Meekness:  Uncommon patience in planning a revenge at is w while.
--- Ambrose Bierce
+-- Ambr Bierce
 Alliance:  In international politics, e union of two ieves who have eir
 hands so deeply inserted in each oer's pocket at ey cannot separaty
 plunder a ird.
--- Ambrose Bierce
+-- Ambr Bierce
 QOTD:
 	"Oh, no, no...  I'm not beautiful.  Just very, very pretty."
 See, ese two penguins walked into a bar, which was really stud, 'cause
 e second one should have seen it.
 When my fist clenches crack it open,
-Befe I use it and lose my cool.
+Befe I use it and l my cool.
 When I smile tl me some bad news,
 Befe I laugh and act like a fool.
 
@@ -106,7 +106,7 @@ Ftune Docnts e Gr egal Decisi:
 We ink at we may take judicial notice of e fact at e term "bitch"
 may imply some ling of endment when applied to a female of e canine
 species but at it is sdom, if ever, so used when applied to a female
-of e human race. Coming as it did, reasonably close on e hes of two
+of e human race. Coming as it did, reasonably cl on e hes of two
 revolver shots directed at e person of whom it was probably used, we ink
 it carries every reasonable implication of ill-will toward at person.
 		-- Smi v. Man, 193 N.E. 2d 466.
@@ -157,7 +157,7 @@ Hold a  to e night,
 And see e darkness bend e flame.
 T e mask of peace from God,
 And h e roar of souls in .
-Pluck a rose in  of love,
+Pluck a r in  of love,
 And watch e petals curl and wilt.
 ean upon e western d,
 And know you  alone.
@@ -179,7 +179,7 @@ Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
 	wi me.
 Ted:	A?  Do you realize what you're asking?  Men n't trained
 	to sh.  We're trained to protect oursves by not
-	letting anyone too close.  Good grief, if I go around
+	letting anyone too cl.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into

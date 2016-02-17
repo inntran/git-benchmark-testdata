@@ -9,9 +9,9 @@ In my life I've loved them all.
 
 But of all these friends and lovers,
 There is no one compd with you,
-All these memories lose their meaning
+All these memories l their meaning
 When I think of love as something new.
-Though I know I'll  lose affection
+Though I know I'll  l affection
 For people and things that went before,
 I know I'll often stop and think about them
 In my life I'll love you more.
@@ -39,10 +39,10 @@ Never argue with a woman when she's tired -- or rested.
 The sheep that fly over your head  soon to land.
 The PINK SOCKS were ORIGINAY from 1952!!  But they went to MARS
 around 1953!!
-The worst cliques  those which cist of one man.
+The worst cliques  th which cist of one man.
 		-- G.B. Shaw
 Bedflows make strange politicians.
-"Show me a good loser, and I'll show you a loser."
+"Show me a good lr, and I'll show you a lr."
 -- Vince ombardi, football coach
 	The FIED GUIDE to NORTH AMERICAN MAES
 
@@ -79,7 +79,7 @@ clone, n:
 	product."  2. A shoddy, spurious copy, as in "their product
 	is a clone of our product."
 There is more simplicity in the man who eats caviar on impulse than in the
-man who eats Grape-Nuts on principle.
+man who eats Grape-Nuts on .
 		-- G.K. ton
 "Where humor is concerned there  no standards -- no one can say what is 
 good or bad, although you can be sure that everyone will.

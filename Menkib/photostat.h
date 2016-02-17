@@ -11,7 +11,7 @@ who don't understand, who have not gotten in there and tried anything."
 O love, could thou and I with fate conspire
 To grasp this sorry scheme of things entire,
 Might we not smash it to bits
-And mould it closer to our hearts' desire?
+And mould it clr to our hearts' desire?
 		-- Omar Khayyam, tr. FitzGerald
 An interpretation _I satisfies a sentence in the table language if and only if
 each entry in the table designates the value of the function designated by the
@@ -66,7 +66,7 @@ Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic Empire, life was wild, rich and largely tax free.
 
 Mighty starships plied their way between exotic suns, seeking adventure and
-reward among the furthest reaches of Galactic space.  In those days, spirits
+reward among the furthest reaches of Galactic space.  In th days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures
 from Alpha Centauri.  And all dd to brave unknown terrors, to do mighty
@@ -143,7 +143,7 @@ decisions at NASA, put them in the navel of a flea, and have room left
 over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
 Authors  easy to get on with -- if you're fond of children.
-		-- Michael Joseph, "Observer"
+		-- Michael Jph, "Observer"
 Uh-oh -- WHY am I suddenly thinking of a VENERABLE religious leader
 frolicking on a FORT LAUDERDALE weekend?
 In the long run we  all dead.
@@ -197,7 +197,7 @@ HOGAN'S HEROES DRINKING GAME --
 -- One of the Germans is threatened with being sent to the Russian front.
 -- Corporal Newkirk calls up a German in his phoney German accent, and
 	tricks him (two shots if it's Colonel Klink).
--- Hogan has a romantic interlude with a beautiful girl from the underground.
+-- Hogan has a romantic  with a beautiful girl from the underground.
 -- Colonel Klink relates how he's  had an escape from Stalag 13.
 -- Sergeant Schultz gives up a secret (two shots if he's bribed with food).
 -- The prisoners listen to the Germans' conversation by a hidden transmitter.

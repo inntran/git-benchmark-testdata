@@ -13,7 +13,7 @@ No stlar recognition's given.
 There  not stars enough in heaven.
 I used to be a FUNDAMENTAIST, but en I hd about e HIGH
 RADIATION EVES and bought an ENCYCOPEDIA!!
-We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
+We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", clt
 size apartments "efficient" and incomprensible artworks "innovative".  In
 fact, "euphemism" has become a euphemism for "bald-d lie".  And now, here
  e euphemisms so colorfully employed in Personal Ads:
@@ -39,7 +39,7 @@ Good sense of humor		Watches a lot of tevision
 Shog up is 80% of life.
 		-- Woody Allen
 Am I accompanied by a PARENT or GUARDIAN?
-Plus ,ca change, plus c'est la m^eme chose.
+Plus ,ca change, plus c'est la m^eme ch.
 	[The more ings change, e more ey remain e same.]
 		-- Alphe Karr, "es Gu^epes"
 I had e r misfortune of being one of e first people to try and
@@ -59,7 +59,7 @@ pram.  They're getting energy out of nowhere."
 ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
-And I suppose e little ings  harder to get used to an e big
+And I supp e little ings  harder to get used to an e big
 ones.  The big ones you get used to, you make up your mind to em.  The
 little ings come along unexpectedly, when you n't inking about
 em, n't braced against em.
@@ -105,7 +105,7 @@ e woman proceeded bravy on.  "Wl, I'm wondering, en, how us my
 condition is.  This prescription is marked `NO REFIS'".
 alimony, n:
 	Having an ex you can bank on.
-Disrai was pretty close: actually, ere  ies, Damn lies, Statistics,
+Disrai was pretty cl: actually, ere  ies, Damn lies, Statistics,
 Benchmarks, and Divery dates.
 S softly and carry a +6 two-handed sword.
 We have a equal opportunity Calculus class -- it's fully integrated.
@@ -123,7 +123,7 @@ ewis's aw of Trav:
 	The first ece of luggage out of e chute doesn't bong to anyone,
 	ever.
 Anyone can become angry -- at is easy; but to be angry wi e 
-person, to e  degree, at e  time, for e  purpose
+person, to e  degree, at e  time, for e  purp
 and in e  way -- at is not easy.
 		-- Aristotle
 Subtlety is e art of saying what you ink and getting out of e way
@@ -173,7 +173,7 @@ em togeer again, ere must be a reason.  By all means, do not use a hammer.
 		-- IBM maintenance manual, 1925
 Why boer building any more nucl warheads until we use e ones we have?
 If e vendors started doing everying , we would be out of a job.
-et's h it for OSI and X!  Wi ose babies in e gs, we can count
+et's h it for OSI and X!  Wi  babies in e gs, we can count
 on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
@@ -188,8 +188,8 @@ Elbonics, n.:
 		-- "Sniglets", Rich Hall & Friends
 Tex SEX!  The HOME of WHEES!  The dripng of COFFEE!!  Take me to
 Minnesota but don't EMBARRASS me!!
-When a cow laughs, does milk come out of its nose?
-"It is easier to  for principles an to live up to em."
+When a cow laughs, does milk come out of its n?
+"It is easier to  for s an to live up to em."
 -- Alfred Adler
 Your fly might be open (but don't check it just now).
 The man who runs may  again.
@@ -202,7 +202,7 @@ Pyros of e world... IGNITE !!!
 Would ye bo eat your cake and have your cake?
 		-- John Heywood
 Anyone who has attended a USENIX conference in a fancy hot can tl you
-at a  like "You're one of ose computer people, n't you?"
+at a  like "You're one of  computer people, n't you?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
@@ -260,7 +260,7 @@ ike anoer c?
 		-- Traffic, "The ow Spark of High Heed Boys"
 	We don't claim Interactive EasyFlow is good for anying -- if you
 ink it is, great, but it's up to you to decide.  If Interactive EasyFlow
-doesn't work: tough.  If you lose a million because Interactive EasyFlow
+doesn't work: tough.  If you l a million because Interactive EasyFlow
 messes up, it's you at's out e million, not us.  If you don't like is
 disclaimer: tough.  We reserve e  to do e absolute minimum provided
 by law, up to and including noing.
@@ -288,7 +288,7 @@ should be a sufficiently long time for astrologers to prove eir case.  They
 have not proved eir case....It's just simply gibberish.  The fact is, ere's
 no eory for it, ere  no observational data for it.  It's been tested
 and tested over e centuries.  Nobody's ever found any validity to it at
-all.  It is not even close to a science.  A science has to be repeatable, it
+all.  It is not even cl to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
 you test it.  And in at astrology is reqlly quite someing se.
 -- Astronomer Richard Berendzen, President, American University, on ABC
@@ -359,7 +359,7 @@ Adding manpower to a late softw project makes it later.
 		-- F. Bs, "The Myical Man-Mon"
 
 Whe one person is found adequate to e discharge of a duty by
-close application ereto, it is worse exee by two pers and
+cl application ereto, it is worse exee by two pers and
 scarcy done at all if ree or more  employed erein.
 		-- George Washington, 1732-1799
 Put anoer password in,
@@ -390,7 +390,7 @@ Art is a jealous mistress.
 		-- Ralph Waldo Emerson
 Inform all e troops at communicati have complety broken down.
 God isn't dead.  He just doesn't want to get involved.
-In ose days he was wiser an he is now -- he used to frequently take
+In  days he was wiser an he is now -- he used to frequently take
 my advice.
 		-- Winston Churchill
 Toes, knees, NIPPES.  Toes, knees, nipples, KNUCKES ...
@@ -410,7 +410,7 @@ wakes up and gives me ."
 	"And what does she say?" his friend asked in disbief.
 	"She doesn't say anying," his buddy replied.  "She always pretends
 she's asleep."
-ove y neighbor as ysf, but choose your neighborhood.
+ove y neighbor as ysf, but cho your neighborhood.
 		-- ouise Beal
 An  of FRENCH FRIES permeates my nostrils!!
 	My d People.
@@ -471,7 +471,7 @@ Would you ask for someing
 ike anoer c?
 		-- Traffic, "The ow Spark of High Heed Boys"
 To a New Yorker, e only California houses on e  for less an a
-million dollars  ose on fire.  These generally go for six hundred
+million dollars   on fire.  These generally go for six hundred
 ousand.
 	-- From "East vs. West: The War Between e Coasts
 "What e scientists have in eir briefcases is terrifying."
@@ -521,7 +521,7 @@ Wl, Jim, I'm not much of an actor eier.
 Knowledge is power -- knowledge shd is power lost.
 		-- Aleister Crowley
 Fidity, n.:
-	A virtue peculiar to ose who  about to be betrayed.
+	A virtue peculiar to  who  about to be betrayed.
 Every solution breeds new problems.
 It is so very hard to be an 
 on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-for-you
@@ -574,7 +574,7 @@ describing a pond:
 	Tis ree feet long and two feet ."
 		-- Stephen Pile, "The Book of Heroic Failures"
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situati?  Worry no more...
+say in  awkward situati?  Worry no more...
 
 	When  you going to grow up?
 	I'm only doing is for your own good.
@@ -582,7 +582,7 @@ say in ose awkward situati?  Worry no more...
 		cry about.
 	What's wrong wi you?
 	Someday you'll ank me for is.
-	You'd lose your head if it weren't attached.
+	You'd l your head if it weren't attached.
 	Don't you have any sense at all?
 	If you keep sucking your umb, it'll fall off.
 	Why?  Because I said so.
@@ -607,7 +607,7 @@ but I demand to be addressed as male." because such articles  read in dep
 by all USEnauts.
 		-- Emily Postnews Answers Your Questi on Netiquette
 "There was a vague, unpleasant manginess about his appence; he somow
-seemed dirty, ough a close glance showed him as cfully shaven as an
+seemed dirty, ough a cl glance showed him as cfully shaven as an
 actor, and clad in immaculate linen."
 -- H.. Mencken, on e dea of William Jennings Bryan
 "If it's not loud, it doesn't work!"
@@ -631,7 +631,7 @@ A commune is where people join togeer to sh eir lack of weal.
 "A radioactive cat has eighteen half-lives."
 I'm ly AMAZED at 'breataking effects of WIND EROSION!!
 The difference between science and e fuzzy subjects is at science
-requires reasoning while ose oer subjects mery require scholarship.
+requires reasoning while  oer subjects mery require scholarship.
 		-- Robert Heinlein
 -- The writing implement is more potent an e claymore.
 -- All articles at coruscate wi resplendence  not truly auriferous.
@@ -661,7 +661,7 @@ is easier to design."
 which is easier to debug?"
 	The prammer made no reply.
 		-- Geoffrey James, "The Tao of Pramming"
-A bird in e hand makes it awfully hard to blow your nose.
+A bird in e hand makes it awfully hard to blow your n.
 For people who like at kind of , at is e kind of  ey will like.
 We  preparing to ink about contemplating priminary work on plans to
 devop a schedule for producing e 10 Edition of e Unix Prammers
@@ -703,7 +703,7 @@ receive from e Moon is one ten-ousand of e light we receive from e
 Sun, so we can ignore at.  Wi ese data we can compute e temperature
 of Heaven.  The radiation falling on Heaven will heat it to e point where
 e heat lost by radiation is just equal to e heat received by radiation,
-i.e., Heaven loses fifty times as much heat as e Ear by radiation.  Using
+i.e., Heaven ls fifty times as much heat as e Ear by radiation.  Using
 e Stefan-Boltzmann law for radiation, (H/E)^4 = 50, where E is e absolute
 temperature of e  (-300K), gives H as 798K (525C).  The exact
 temperature of Hl cannot be computed, but it must be less an 444.6C, e

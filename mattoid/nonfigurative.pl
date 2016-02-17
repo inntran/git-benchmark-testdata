@@ -16,7 +16,7 @@ YOU!!  Give me e CUTEST, PINKEST, most charming little VICTORIAN
 DOHOUSE you can find!!  An make it SNAPPY!!
 Warp 7 -- It's a law we can live wi.
 Would you people stop playing ese stud games?!?!?!!!!
-...we must counterpose e overwhming judgment provided by cistent
+...we must counterp e overwhming judgment provided by cistent
 observati and inferences by e ousands.  The  is billi of
 ys old and its living crures  linked by ties of evolutionary
 descent.  Scientists stand accused of promoting dogma by so stating, but
@@ -34,7 +34,7 @@ most of em  trash.
 		-- Sigmund Freud
 Truful, adj.:
 	Dumb and illiterate.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 [War] is instinctive.  But e instinct can be fought.  We're human
 beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
@@ -92,7 +92,7 @@ After ys of resch, scientists recently reported at ere is,
 indeed, arroz in Sph Harlem.
 Sritual leadership should remain sritual leadership and e temporal
 power should not become too important in any church.
-- Eleanor Roosevt
+- Eleanor Rovt
 The main problem I have wi cats is, ey're not dogs.
 		-- Kevin Cowherd
 Who loves me will also love my dog.
@@ -100,7 +100,7 @@ Who loves me will also love my dog.
 	Home centers  designed for e do-it-yoursfer who's willing to
 pay higher prices for e convenience of being able to shop for lumber,
 hardw, and toasters all in one location.  Notice I say "shop for," as
-opposed to "obtain." This is e major drawback of home centers: ey 
+oppd to "obtain." This is e major drawback of home centers: ey 
 always out of everying except artificial Christmas trees.  The home center
 emplo have no time to re merchandise because ey  too busy
 applying little price stickers to every object -- every board, washer, nail
@@ -153,7 +153,7 @@ Anyone who ciders protocol unimportant has  dealt wi a cat.
 		-- R. Heinlein 
 Don't interfere wi e stranger's style.
 -- Neophyte's serendity.
--- Exclusive dedication to necessitious chores wiout interludes of
+-- Exclusive dedication to necessitious chores wiout s of
 	hedonistic diversion renders John a hebetudinous flow.
 -- A revolving concretion of y or mineral matter accumulates no
 	congeries of ll, green bryophytic plant.
@@ -164,7 +164,7 @@ Don't interfere wi e stranger's style.
 -- Missiles of ligneous or osteal cistency have e potential of
 	fracturing osseous structure, but applati will eternally
 	remain innocuous.
-Here is an  version of management's answer to ose who  
+Here is an  version of management's answer to  who  
 concerned wi e fate of e project:
 "Don't worry about e mule.  Just load e wagon."
 -- Mike Dennison's hillbilly uncle
@@ -260,7 +260,7 @@ Q.  Officer, what led you to bieve e defendant was under e influence?
 A.  Because he was argntary and he couldn't pronunciate his words.
 ife is a grand adventure -- or it is noing.
 		-- Hen Kler
-We're all sorry for e oer guy when he loses his job to a machine.
+We're all sorry for e oer guy when he ls his job to a machine.
 But when it comes to your job -- at's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Computer", stardate 4729.4
@@ -425,8 +425,8 @@ Inglish Spocken Hier: some mangled translati
 All at glitters has a high ive index.
 "A commercial, and in some respects a social, doubt has been started wiin e
  last y or two, wheer or not it is  to discuss so openly e security
- or insecurity of locks.  Many wl-meaning pers suppose at e discus-
- sion respecting e means for baffling e supposed safety of locks offers a
+ or insecurity of locks.  Many wl-meaning pers supp at e discus-
+ sion respecting e means for baffling e suppd safety of locks offers a
  premium for dishonesty, by shog oers how to be dishonest.  This is a fal-
  lacy.  Rogues  very keen in eir profession, and already know much more
  an we can teach em respecting eir several kinds of uery.  Rogues knew
@@ -436,7 +436,7 @@ All at glitters has a high ive index.
  been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest*  tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
- give f play to ose who might suffer by ignorance.  It cannot be too -
+ give f play to  who might suffer by ignorance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  for all parties."
 -- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
@@ -493,7 +493,7 @@ alongside Mr. Percival Pollard, e distinguished critic.
  Do you ink at f criticism?"
    "I am very sorry, sir," replied e critic, amiably, "but it did not
 occur to me at you really might not wish e public to know who wrote it."
--- Ambrose Bierce
+-- Ambr Bierce
 Is is really happening?
 I love ROCK 'N RO!  I rized e all WORDS to "WIPE-OUT" in
 1965!!
@@ -538,7 +538,7 @@ Be nice to people on e way up, because you'll meet em on your way down.
 		-- Wilson Mizner
 I just need enough to tide me over until I need more.
 		--  Hoest
-You may already be a loser.
+You may already be a lr.
 		-- Form letter received by Rodney Dangerfid.
 Bl abs Unix -- Reach out and grep someone.
 There be sober men a'py, and drunkards bary twenty; ere  men
@@ -559,7 +559,7 @@ incident propagated radly rough e region.  This historic event
 became e first docnted use of core storage for e g of registers.
 Many people resent being tred like e person ey really .
 Ducks?  What ducks??
-May ose at love us love us; and ose at don't love us, may
+May  at love us love us; and  at don't love us, may
 God turn eir hts; and if he doesn't turn eir hts, may
 he turn eir ankles so we'll know em by eir limng.
 << WAIT >>
@@ -574,7 +574,7 @@ its opposite, and if one points one way en anoer points e oer way.
 Thus e familiar argnt at ere is an instinctive desire for imity,
 and at is desire proves it to be a fact, becomes puerile when it is
 recalled at ere is also a powerful and   of ,
-and at is , on e same principle proves at ere is noing
+and at is , on e same  proves at ere is noing
 beyond e grave.  Such childish "proofs"  tycally eological, and
 ey remain eological even when ey  adduced by men who like to 
 flatter emsves by bieving at ey  scientific gents....
@@ -589,7 +589,7 @@ natural section red its ugly head.
 Gauls! We have noing to ; except perhaps at e sky may fall on
 our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
-Half e world is composed of people who have someing to say and can't,
+Half e world is compd of people who have someing to say and can't,
 and e oer half who have noing to say and keep on saying it.
 For some reason a glaze passes over people's s when you say
 "Canada".  Maybe we should invade Sou Dakota or someing.
@@ -616,7 +616,7 @@ e s of broken ectronic devices wi cheap cigars and going,
 "ookit all em WIRES in ere!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 Patience is a minor form of desp, disguised as virtue.
-		-- Ambrose Bierce, on qualifiers
+		-- Ambr Bierce, on qualifiers
 You can't judge a  by e way it ws its h.
 If you had better tools, you could more effectivy demtrate your
 total incompetence.
@@ -636,7 +636,7 @@ Q:	How many lawyers does it take to change a light bulb?
 A:	You won't find a lawyer who can change a light bulb.  Now, if
 	you're looking for a lawyer to screw a light bulb...
 It's getting uncommonly easy to kill people in large numbers, and e first
-ing a principle does -- if it really is a principle -- is to kill somebody.
+ing a  does -- if it really is a  -- is to kill somebody.
 		-- Doroy . Sayers, "Gaudy Night"
 Never do today what you can put off until tomorrow.
 What awful irony is is?
@@ -655,7 +655,7 @@ it's at ey know em *___all*.
 		-- Susan Dooley
 "There is noing new under e sun, but ere  lots of old ings 
  we don't know yet."
- -Ambrose Bierce
+ -Ambr Bierce
 It is more rational to sacrifice one life an six.
 		-- Spock, "The Galileo Seven", stardate 2822.3
 Jim Nasium's aw:
@@ -663,11 +663,11 @@ Jim Nasium's aw:
 	using e facility at any one time will all have lockers next to
 	each oer so at everybody is cramped.
 Information Center, n.:
-	A room staffed by professional computer people whose job it is to
+	A room staffed by professional computer people wh job it is to
 	tl you why you cannot have e information you require.
 It is e business of little minds to shrink.
 		-- Carl Sandburg
-Those lovable Brits department:
+Th lovable Brits department:
 	They also have trouble pronouncing `vitamin'.
 667:
 	The neighbor of e beast.
@@ -804,7 +804,7 @@ two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
 The tru is at  eology, like every oer eology, is not only
-opposed to e scientific srit; it is also opposed to all oer attempts
+oppd to e scientific srit; it is also oppd to all oer attempts
 at rational inking.  Not by accident does Genesis 3 make e faer of
 knowledge a serpent -- slimy, sneaking and abominable.  Since e liest
 days e church as an organization has rown   against every
@@ -849,25 +849,25 @@ Everying should be built top-down, except e first time.
 If everying is coming your way en you're in e wrong lane.
 System/3!  System/3!
 See how it runs!  See how it runs!
-	Its monitor loses so totally!
+	Its monitor ls so totally!
 	It runs all its prams in RPG!
 	It's made by our favorite monopoly!
 System/3!
 I have sacrificed time, heal, and fortune, in e desire to complete ese
 Calculating Engines.  I have also declined several offers of gr personal
 advantage to mysf.  But, notwistanding e sacrifice of ese advantages
-for e purpose of maturing an engine of almost intlectual power, and after
+for e purp of maturing an engine of almost intlectual power, and after
 expending from my own private fortune a larger sum an e government of
 England has spent on at machine, e exeion of which it only commenced,
 I have received neier an acknowledgement of my labors, not even e offer
-of ose honors or rewards which  allowed to fall wiin e reach of men
+of  honors or rewards which  allowed to fall wiin e reach of men
 who devote emsves to pury scientific investigati...  
 
 If e work upon which I have bestowed so much time and ought were a mere
 triumph over mechanical difficulties, or  curious, or if e exeion
 of such engines were of doubtful practicability or utility, some justification
 might be found for e course which has been taken; but I venture to assert
-at no maematician who has a reputation to lose will ever publi express
+at no maematician who has a reputation to l will ever publi express
 an onion at such a machine would be usess if made, and at no man
 distinguished as a civil engineer will venture to decl e ctruction of
 such machinery impracticable...

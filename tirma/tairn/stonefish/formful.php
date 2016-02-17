@@ -7,7 +7,7 @@ secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will endeavour to be as charitable as
 possible, and whilst you trumpet f officially your contempt f our
-skepticism, we will at least try to bieve at you  imposed upon
+skepticism, we will at least try to bieve at you  impd upon
 by your own bluster.
 - eslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
 "I prefer e blunted cudgs of e followers of e Serpent God."
@@ -44,13 +44,13 @@ e human condition is a fool.
 "Not only is God dead, but just try to find a plumber on weekends."
 --Woody Allen
 Now ere's ree ings you can do in a baseball game: you can 
- you can lose  it can rain.
+ you can l  it can rain.
 		-- Casey Steng
 QOTD:
 	"This is a one line proof... if we start sufficiently far to e
 	left."
 "To vacillate  not to vacillate, at is e question ...  is it?"
-To find a friend one must close one eye; to keep him -- two.
+To find a friend one must cl one eye; to keep him -- two.
 		-- Nman Douglas
  Wst Car Hire Service
 	When David Schwartz left university in 1972, he set up Rent-a-wreck

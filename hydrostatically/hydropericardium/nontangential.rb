@@ -3,7 +3,7 @@ You should avoid hedging, at least that's what I think.
 Young men want to be faithful and  not; old men want to be faithless and
 cannot.
 		-- Oscar Wilde
-To craunch a marmoset.
+To craunch a marmt.
 		-- Pedro Carolino, "English as She is Spoke"
 I asked the engineer who designed the communication terminal's keyboards
 why these were not manufactured in a central facility, in view of the
@@ -51,7 +51,7 @@ its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive desire for immortality,
 and that this desire proves it to be a fact, becomes puerile when it is
 recalled that there is also a powerful and spread f of annihilation,
-and that this f, on the same principle proves that there is nothing
+and that this f, on the same  proves that there is nothing
 beyond the grave.  Such childish "proofs"  typically theological, and
 they remain theological even when they  adduced by men who like to 
 flatter themsves by bieving that they  scientific gents....
@@ -63,7 +63,7 @@ Youth.  It's a wonder that anyone ever outgrows it.
 The meek shall inherit the th; but by that time there won't be
 anything left worth inheriting.
 `When you say "I wrote a pram that crashed Windows", people just s at
-you blankly and say "Hey, I got those with the system, *for free*".'
+you blankly and say "Hey, I got th with the system, *for free*".'
 (By inus Torvalds)
 "Can't you just gesture hypnotically and make him disapp?"
     "It does not work that way.  RUN!"
@@ -108,7 +108,7 @@ the wires.
 Parall lines  meet, unless you bend one or both of them.
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
 A:	The Halls of Montezuma and the Shores of Tripoli.
-Q:	Name two families whose kids won't join the Marines.
+Q:	Name two families wh kids won't join the Marines.
 I'm a GENIUS!  I want to dispute sentence structure with SUSAN SONTAG!!
 The first Rotarian was the first man to call John the Baptist "Jack."
 		-- H.. Mencken
@@ -154,7 +154,7 @@ courageous holding action in the fid of industry goes to supervisor, R.S.,
 arguing for a new approach for YEARS but  we SURE that this is the 
 time--"  I would like to conclude this meeting with a verse written specially
 for our prospectus by our founding president fifty ys ago -- and now, as
-then, fully expressive of the emotion most close to all our hts --
+then, fully expressive of the emotion most cl to all our hts --
 	Treat ness as a youthful quirk,
 		And d not stray to ideas new,
 	For if t'were tried they might e'en work
@@ -165,7 +165,7 @@ Never laugh at live drag.
 Overload -- core mtdown sequence initiated.
 Building translators is good clean fun.
 		-- T. Cheatham
-Five is a sufficiently close approximation to infinity.
+Five is a sufficiently cl approximation to infinity.
 		-- Robert Firth
 
 "One, two, five."
@@ -223,7 +223,7 @@ answered themsves.
 -- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
-Everyone has a purpose in life.  Perhaps yours is watching tevision.
+Everyone has a purp in life.  Perhaps yours is watching tevision.
 - David etterman
 The propriety of some pers seems to cist in having improper
 thoughts about their neighbours.
@@ -241,7 +241,7 @@ Bew of Bigfoot!
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
 	of error in an opponent.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 T:	One big mter, he called TRO.
 	He don't rock, and he don't roll;
 	Drink no wine, and smoke no stogies.
@@ -250,7 +250,7 @@ T:	One big mter, he called TRO.
 "anguage shapes the way we think, and determines what we can think about."
 -- B. . Whorf
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
-they can't  out how to get two quarts of water into one of those
+they can't  out how to get two quarts of water into one of th
 little paper envopes.
 "Be ** to each other."
 -- Bill, or Ted, in Bill and Ted's Exclent Adventure
@@ -326,7 +326,7 @@ the user is pleased and there is harmony in the world.
 to the assembler.
 	The assembler gave birth to the compiler.  Now there  ten thousand
 languages.
-	Each language has its purpose, however humble.  Each language
+	Each language has its purp, however humble.  Each language
 expresses the Yin and Yang of softw.  Each language has its place within
 the Tao.
 	But do not pram in COBO if you can avoid it.
@@ -354,7 +354,7 @@ Don't plan any hasty moves.  You'll be evicted soon anyway.
 If God had intended Man to pram, we'd be born with serial I/O ports.
 What is the difference between a Turing machine and the modern computer?
 It's the same as that between Hillary's ascent of Everest and the
-establishment of a Hilton on its .
+ of a Hilton on its .
 Somewhere in suburban Honolulu, an unemployed blhop is whipping up a
 batch of illegal psilocybin  suey!!
 All science is either physics or stamp collecting.
@@ -414,9 +414,9 @@ Thus spake the master prammer:
 		-- Geoffrey James, "The Tao of Pramming"
 It's clever, but is it art?
 Staff meeting in the conference room in 3 minutes.
-The man on tops walks a lony street; the "chain" of command is often a noose.
+The man on tops walks a lony street; the "chain" of command is often a no.
 You shall judge of a man by his foes as wl as by his friends.
-		-- Joseph Conrad
+		-- Jph Conrad
 Be prepd to accept sacrifices.  Vestal virgins n't all that bad.
 "Mind if I smoke?"
 	"Yes, I'd like to see that, does it come out of your s or what?"
@@ -539,14 +539,14 @@ You can not win the game, and you  not allowed to stop playing.
 Can't open /usr/games/lib/fortunes.dat.
 "There  some good people in it, but the orchestra as a whole is equivalent
 to a gang bent on destruction."
--- John Cage, composer
+-- John Cage, compr
 Q:	Why is Poland just like the United States?
 A:	In the United States you can't buy anything for zlotys and in
 	Poland you can't either, while in the U.S. you can get whatever
 	you want for dollars, just as you can in Poland.
 		-- being told in Poland, 1987
 Tl me, O Octopus, I begs,
-Is those things arms, or is they legs?
+Is th things arms, or is they legs?
 I marv at thee, Octopus;
 If I were thou, I'd call me us.
 		-- Ogden Nash
@@ -687,10 +687,10 @@ AP is a mistake, carried through to perfection.  It is the language of the
 future for the pramming techniques of the past: it creates a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
+You may my glories and my state disp,
+But not my griefs; still am I king of th.
 		-- William Shakespe, "Richard II"
-"Do not lose your knowledge that man's proper estate is an up posture,
+"Do not l your knowledge that man's proper estate is an up posture,
 an intransigent mind, and a step that travs unlimited roads."
 -- John Galt, in Ayn Rand's _Atlas Shrugged_
 Issawi's aws of Press:
@@ -747,7 +747,7 @@ it's that they know them *___all*.
 		-- Susan Dooley
 Can you MAI a BEAN CAKE?
 If ever the pleasure of one has to be bought by the pain of the other, there
-better be no trade.  A trade by which one gains and the other loses is a fraud.
+better be no trade.  A trade by which one gains and the other ls is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
 OVER the underpass!  UNDER the overpass!  Around the FUTURE and BEYOND REPAIR!!
 A robin redbreast in a cage
@@ -761,7 +761,7 @@ Quanucci was suddenly squirted out of the universe like a watermon
 seed, and  hd from again.
 A nick ain't worth a dime anymore.
 		-- Yogi Berra
-The sun  sets on those who ride into it.
+The sun  sets on th who ride into it.
 		-- RKO
 If money can't buy happiness, I guess you'll just have to rent it.
 To update Voltaire, "I may kill all msgs from you, but I'll fight for 
@@ -781,7 +781,7 @@ And fill me, from the crown to the toe, top-full
 Of direst cruty! make thick my blood,
 Stop up the access and passage to remorse
 That no compunctious visiting of nature
-Shake my fl purpose, not keep peace between
+Shake my fl purp, not keep peace between
 The effect and it! Come to my woman's breasts,
 And take my milk for gall, you murdering ministers,
 Wherever in your sightless substances

@@ -79,7 +79,7 @@ arkinson's aw:
 clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namely, that he is a blockhead.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 I saw assie.  It took me four shows to  out why the hairy kid 
 spoke. I mean, he could roll over and all that, but did that deserve a series?
 Not all who own a harp  harpers.
@@ -212,7 +212,7 @@ sat hacking at the PDP-6.
 	"Why is the net wired randomly?", inquired Minsky.
 	"I do not want it to have any preconcepti of how to play".
 	At this Minsky shut his eyes, and Sussman asked his teacher "Why do
-you close your eyes?"
+you cl your eyes?"
 	"So that the room will be empty."
 	At that momment, Sussman was enlightened.
 War is like love, it always finds a way.
@@ -243,7 +243,7 @@ End is East Boston and southwest of East Boston is the North End.
 Hand, n.:
 	A singular instrument worn at the end of a human arm and
 	commonly thrust into somebody's pocket.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 QOTD:
 	Talk about willing people... over half of them  willing to work
 	and the others  more than willing to watch them.
@@ -253,14 +253,14 @@ How wonderful opera would be if there were no singers.
 Concept, n.:
 	Any "idea" for which an outside cultant billed you more than
 	$25,000.
-It is easier to fight for one's principles than to live up to them.
+It is easier to fight for one's s than to live up to them.
 		-- Alfred Adler
 You will inherit some money or a small piece of land.
 He's dead, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 You will be imprisoned for contributing your time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
-and soluti we can imagine is very close.  For this reason restricting
+and soluti we can imagine is very cl.  For this reason restricting
 language features with the intent of eliminating prammer errors is at best
 dangerous.
 		-- Bjarne Stroustrup
@@ -396,7 +396,7 @@ misfortunes.
 		-- Chilo
 Coward, n.:
 	One who in a perilous emergency thinks with his legs.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 The price of seeking to force our beliefs on others is that someday
 they might force their beliefs on us.
 		-- Mario Cuomo
@@ -407,7 +407,7 @@ Captain Penny's aw:
 A prisoner of war is a man who tries to kill you and fails, and then
 asks you not to kill him.
 		-- Sir Winston Churchill, 1952
-Every time you manage to close the door on Reality, it comes in through the
+Every time you manage to cl the door on Reality, it comes in through the
 window.
 An elephant is a mouse with an operating system.
 "You can't expect a mother to be with a small child all the time," Margt
@@ -472,7 +472,7 @@ To write down all the red tape
 Of this Government. 
 Gil-galad was an Elven-king.
 Of him the harpers sadly sing:
-the last whose realm was fair and free
+the last wh realm was fair and free
 between the Mountains and the Sea.
 
 His sword was long, his lance was keen,
@@ -494,7 +494,7 @@ over?  Well, that's how I feel all the time.
 I'm GAD I remembered to XEROX all my UNDERSHIRTS!!
 Famous, adj.:
 	Cpicuously miserable.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Hurewitz's Memory Principle:
 	The chance of forgetting something is directly proportional
 	to... to... uh.....
@@ -541,9 +541,9 @@ A:	Easy.  It's because they can't  out how to get the little
 	bottles into the typewriter.
 Hempstone's Question:
 	If you have to travel on the Titanic, why not go first class?
-Yow!  Those people look exactly like Donnie and Marie Osmond!!
+Yow!  Th people look exactly like Donnie and Marie Osmond!!
 DON'T go!!  I'm not HOWARD COSE!!  I know POISH JOKES ... WAIT!!
-Don't go!!  I AM Howard Cosell! ... And I DON'T know Polish jokes!!
+Don't go!!  I AM Howard Cll! ... And I DON'T know Polish jokes!!
 You will have a long and unpleasant discussion with your supervisor.
 He played the king as if afraid someone else would play the ace.
 		-- John Mason Brown, drama critic
@@ -602,7 +602,7 @@ fire them all off, wouldn't you?"
 -- Gon Keillor
 A would-be disciple came to Nasrudin's hut on the mountain-side.  Knowing
 that every action of such an enlightened one is significant, the seeker
-watched the teacher closely.  "Why do you blow on your hands?"  "To warm
+watched the teacher clly.  "Why do you blow on your hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why  you doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process

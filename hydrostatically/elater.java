@@ -8,7 +8,7 @@ Unix Beer: Comes in several different brands, in cans ranging from 8 oz.
 to 64 oz.  Drinkers of Unix Beer display fierce brand , even 
 though they claim that all the different brands taste almost identical. 
 Sometimes the pop-tops break off when you try to open them, so you have 
-to have your own can opener around for those occasi, in which case you 
+to have your own can opener around for th occasi, in which case you 
 either need a complete set of instructi, or a friend who has been 
 drinking Unix Beer for several ys.
 	BSD stout: Deep, hty, and an acquired taste.  The official
@@ -82,7 +82,7 @@ to have hd the news on the radio, be sure to post as soon as you can.
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 "Deep" is a word like "theory" or "sem" -- it implies all sorts of
 marvous things.  It's one thing to be able to say "I've got a theory",
-quite another to say "I've got a sem theory", but, ah, those who can
+quite another to say "I've got a sem theory", but, ah, th who can
 claim "I've got a deep sem theory", they  truly blessed.
 		-- Randy Davis
 Power, n.:

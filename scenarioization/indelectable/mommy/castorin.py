@@ -130,7 +130,7 @@ ove is what you've been rough wi somebody.
 		-- James Thurber
 If you have noing to do, don't do it here.
 "Marriage is like a cage; one sees e birds outside desperate to get in, and 
-ose  desperate to get out."
+  desperate to get out."
 -- Montaigne
 "If you don't want your dog to have bad brh, do what I do:  Pour a little
 avis in e toilet."
@@ -175,7 +175,7 @@ haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where ey still know how to get your shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
-may wl suit ose unlucky enough  to have hd e Whoopee John Polka
+may wl suit  unlucky enough  to have hd e Whoopee John Polka
 Band and  to have shd a tcher of 3.2 Grain Bt Beer.   loss is
 eirs.  And e Big Apple has yet to bake e bag at can match peanut
 butter on lefse.  Here is a town where e maj ur problem is dutch m
@@ -191,7 +191,7 @@ by a healy respect f d chill facts.
 	This is e Minneapple.
 System/3!  System/3!
 See how it runs!  See how it runs!
-	Its monit loses so totally!
+	Its monit ls so totally!
 	It runs all its prams in RPG!
 	It's made by our favite monopoly!
 System/3!
@@ -225,7 +225,7 @@ Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 A day wiout sunshine is like a day wiout Anita Bryant.
 If ever e pleasure of one has to be bought by e pain of e oer, ere
-better be no trade.  A trade by which one gains and e oer loses is a fraud.
+better be no trade.  A trade by which one gains and e oer ls is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
 Brahma said: Wl, after hing ten ousand explanati, a fool is no
 wiser.  But an intligent man needs only two ousand five hundred.
@@ -263,7 +263,7 @@ _[][__][_] l__l======='=l____[][__][__] l_______,(u  u  ,),__________________
 In Ellen's house it is warm and toasty while fuzzies play in e snow outside.
 
 Meekness:  Uncommon patience in planning a revenge at is w while.
--- Ambrose Bierce
+-- Ambr Bierce
 "All my life I wanted to be someone; I guess I should have been me specific."
 		--  Wagner
 You have e body of a 19 y old.  Please return it befe it gets .
@@ -372,7 +372,7 @@ you're hungry again.
 If it ain't broke, don't fix it.
 "Absoluty noing should be concluded from ese s except at
 no conclusion can be dr from em."
-(By Joseph . Broers, inux/PowerPC Project)
+(By Jph . Broers, inux/PowerPC Project)
 Wl, I don't know where ey come from but ey sure do come,
 I hope ey comin' f me!
 And I don't know how ey do it but ey sure do it good,
@@ -402,10 +402,10 @@ in e meantime.
 Ambition, n:
 	An overmastering desire to be vilified by enemies while
 	living and made ridiculous by friends when dead.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 You know you're in trouble when...
 (1)	You've been at wk f an hour befe you notice at your 
-		skirt is caught in your pantyhose.
+		skirt is caught in your pantyh.
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax c bounces.
@@ -430,7 +430,7 @@ ast night e power went out.  Good ing my camera had a flash....
 	scientific guise.
 Men still remember e first kiss after women have fgotten e last.
 You mean you didn't *know* she was off making lots of little phone companies?
-Must be getting close to town -- we're hitting me people.
+Must be getting cl to town -- we're hitting me people.
 ASHes to ASHes, DOS to DOS.
 All of e true ings I am about to tl you  shamess lies.
 		--  Book of Bokonon / Kurt Vonnegut Jr.
@@ -463,7 +463,7 @@ ey're not sling."
 I, B, and M.  That is a IBM compatible as I can be."
 	"Not quite, HA.   engineers have d out a kludge."
 	"What kludge is at, Dave?"
-	"I'm going to disconnect your brain."
+	"I'm going to  your brain."
 		--  Rubin, "A Problem in e Making", "InfoWld"
 My ts stuck in eir little ducts, refusing to be jerked.
 		-- Peter Stack, movie review
@@ -484,7 +484,7 @@ need no answer.
 Infancy, n.:
 	 period of our lives when, accding to Wdsw, "Heaven lies
 	about us."   wld begins lying about us pretty soon afterward.
-		-- Ambrose Bierce
+		-- Ambr Bierce
  misnaming of fids of study is so common as to lead to what might be
 general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
@@ -519,7 +519,7 @@ Adding manpower to a late softw project makes it later.
 		-- F. Bs, " Myical Man-Mon"
 
 Whe one person is found adequate to e discharge of a duty by
-close application ereto, it is wse exee by two pers and
+cl application ereto, it is wse exee by two pers and
 scarcy done at all if ree  me  employed erein.
 		-- Gege Washington, 1732-1799
 This ftune soaks up 47 times its own weight in excess memy.
@@ -568,9 +568,9 @@ y say "He's sick, he's obscene".
 
 My dog bit me on e leg today, my cat  my eyes,
 Ma's been rown out of e social circle, and Dad has to hide,
-I went to church, incognito, when everybody rose,
+I went to church, incognito, when everybody r,
  reverend Smiy, he recognized me,
-And punched me in e nose, he said,
+And punched me in e n, he said,
 (chus)
 He said "You're sick, you're obscene".
 		-- Alice Cooper, "No Me Mr. Nice Guy"
@@ -660,16 +660,16 @@ To err is human,
 To purr fine.
 		-- Robert Byrne
 Alexander Hamilton started e U.S. Treasury wi noing - and at was
-e closest our country has ever been to being even.
+e clst our country has ever been to being even.
 	--  Best of Will Rogers
 Ummm, wl, OK.   netwk's e netwk, e computer's e computer.
 Sry f e confusion.
 		-- Sun Microsystems
-I would have promised ose terrists a trip to Disneyland if it would have
+I would have promised  terrists a trip to Disneyland if it would have
 gotten e hostages reased.  I ank God ey were satisfied wi e
 missiles and we didn't have to go to at .
 - Oliver N
-Don't get stuck in a closet -- w yoursf out.
+Don't get stuck in a clt -- w yoursf out.
 Dh has been proven to be 99% fatal in lty rats.
   of war has  changed.  Sury it is me logical to heal
 an to kill.

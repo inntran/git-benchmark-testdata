@@ -28,7 +28,7 @@ You  always doing something marginal when the boss drops by your desk.
 To be is to program.
 The full impact of pnthood doesn't hit you until you multiply the
 number of your kids by thirty-two teeth.
-For those who like this sort of thing, this is the sort of thing they like.
+For th who like this sort of thing, this is the sort of thing they like.
 		-- Abraham incoln
 Thou hast seen nothing yet.
 		-- Miguel de Cervantes
@@ -83,5 +83,5 @@ Optimism is the content of small men in high places.
 		-- F. Scott Fitzgerald, "The Crack Up"
 A lost ounce of gold may be found, a lost moment of time .
 Patience is a minor form of despair, disguised as virtue.
-		-- Ambrose Bierce, on qualifiers
+		-- Ambr Bierce, on qualifiers
 1: No code table for op: ++post

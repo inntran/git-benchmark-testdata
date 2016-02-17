@@ -1,7 +1,7 @@
 Vote for ME -- I'm wl-tapered, half-cocked, ill-conceived and TAX-DEFERRED!
 Toothpaste  hurts the taste of good scotch.
 The difference between science and the fuzzy subjects is that science
-requires reasoning while those other subjects mery require scholarship.
+requires reasoning while th other subjects mery require scholarship.
 		-- Robert Heinlein
 If all the Chinese simultaneously jumped into the Pacific off a 10 foot
 platform erected 10 feet off their coast, it would cause a tidal wave
@@ -54,7 +54,7 @@ Revolution, n.:
 Twenty ys of romance make a woman look like a ruin; but twenty ys of
 marriage make her something like a public building.
 		-- Oscar Wilde
-The mature bohemian is one whose woman works full time.
+The mature bohemian is one wh woman works full time.
 He's been like a father to me,
 He's the only DJ you can get after three,
 I'm an all-night musician in a rock and roll band,
@@ -69,7 +69,7 @@ Your good nature will bring unbounded happiness.
 Most of our lives  about proving something, either to oursves or to
 someone se.
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in those awkward situati?  Worry no more...
+say in th awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
@@ -161,7 +161,7 @@ The mosquito is the state bird of New Jersey.
 And yet I should have dly liked, I own, to have touched her lips; to
 have questioned her, that she might have opened them; to have looked upon
 the lashes of her downcast eyes, and  raised a blush; to have let
-loose waves of hair, an inch of which would be a keepsake beyond price:
+lo waves of hair, an inch of which would be a keepsake beyond price:
 in short, I should have liked, I do confess, to have had the lightest
 license of a child, and yet been man enough to know its value.
 		-- Charles Dickens
@@ -229,7 +229,7 @@ that get on my nerves, it's the jerks."
 Happiness is a hard disk.
 Your own qualities will hp prevent your advancement in the world.
 Patience is a minor form of despair, disguised as virtue.
-		-- Ambrose Bierce, on qualifiers
+		-- Ambr Bierce, on qualifiers
 	When the lodge meeting broke up, Meyer confided to a friend.
 "Abe, I'm in a terrible !  I'm strapped for cash and I haven't
 the slightest idea where I'm going to get it from!"
@@ -307,7 +307,7 @@ Eleventh aw of Acoustics:
 	lead to a significant decrease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
 ady, lady, should you meet
-One whose ways  all discreet,
+One wh ways  all discreet,
 One who murmurs that his wife
 Is the lodestar of his life,
 One who keeps assuring you
@@ -337,7 +337,7 @@ fool is despised only because he is a lawyer.
 		-- Montesquieu
 You know you're in trouble when...
 (1)	You've been at work for an hour before you notice that your 
-		skirt is caught in your pantyhose.
+		skirt is caught in your pantyh.
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax check bounces.
@@ -351,7 +351,7 @@ You know you're in trouble when...
 Really??  What a coincidence, I'm shallow too!!
 I am firm.  You  obstinate.  He is a pig-headed fool.
 		-- Katharine Whitehorn
-It was one of those perfect summer days -- the sun was shining, a breeze
+It was one of th perfect summer days -- the sun was shining, a breeze
 was blowing, the birds were singing, and the lawn mower was broken ...
 		--- James Dent
 If you teach your children to like computers and to know how to gamble
@@ -411,7 +411,7 @@ only by Masters of the Universal Way of Zen.  In it his mind floated frey,
 able to rummage at will among the bits and pieces of data he had absorbed,
 undistracted by any outside disturbances.  ogical structures no longer
 inhibited him. Pre-concepti, prejudices, ordinary human standards vhed.
-All things, those previously trivial as wl as those once thought important,
+All things, th previously trivial as wl as th once thought important,
 became absoluty equal by acquiring an absolute value, revealing ratihips
 not evident to ordinary vision.  ike beads strung on a string of their own
 meaning, each thing pointed to its own common ground of existence, shd by
@@ -420,14 +420,14 @@ all others.  And Mind no longer contemplated Problem, but became Problem,
 deing Subject-Object by becoming them.
 	Time passed, unheeded.
 	Eventually, there was a tentative stirring, then a decisive one, and
-Nakamura arose, a smile on his  and the light of laughter in his eyes.
+Nakamura ar, a smile on his  and the light of laughter in his eyes.
 		-- Wayfr
 The most important ly product on the way to devoping a good product
 is an imperfect version.
 Why don't you ever enter any CONTESTS, Marvin??  Don't you know your
 own ZIPCODE?
 theory, n.:
-	System of ideas meant to explain something, chosen with a view to
+	System of ideas meant to explain something, chn with a view to
 	originality, controversialism, incomprehensibility, and how good
 	it will look in print.
 World tensi have, if anything, increased in the quarter century since
@@ -529,12 +529,12 @@ When the team got			to me about my blue jacket;
 their warm-up jackets			the guys were my friends
 I didn't get one			Yet it hurt me all y
 Only the regular team			to w that blue jacket
-got these jackets, and			among all those green ones
+got these jackets, and			among all th green ones
 sury not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
-No one may kill a man.  Not for any purpose.  It cannot be condoned.
+No one may kill a man.  Not for any purp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 Imagine that Cray computer decides to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
@@ -553,10 +553,10 @@ When Alexander Graham Bl died in 1922, the tephone people interrupted
 service for one minute in his honor.  They've been honoring him intermittently
 ever since, I bieve.
 		-- The Grab Bag
-"We scientists, whose tragic destiny it has been to make the methods of
+"We scientists, wh tragic destiny it has been to make the methods of
 annihilation ever more gruesome and more effective, must cider it our solemn
 and transcendent duty to do all in our power in preventing these weap from
-being used for the brutal purpose for which they were invented." 
+being used for the brutal purp for which they were invented." 
 -- Albert Einstein, Bulletin of Atomic Scientists, September 1948
 Being a miner, as soon as you're too old and tired and sick and stupid to
 do your job properly, you have to go, where the very opposite applies with
@@ -572,7 +572,7 @@ Any man who has $10,000 left when he dies is a failure.
 Moore's Ctant:
 	Everybody sets out to do something, and everybody
 	does something, but no one does what he sets out to do.
-Chaos is King and Magic is loose in the world.
+Chaos is King and Magic is lo in the world.
 Data, n.:
 	An accrual of straws on the backs of theories.
 Straw?  No, too stupid a fad.  I put soot on warts.
@@ -683,7 +683,7 @@ goest thou?  Whither goest thou, America, in thy shiny car in the night?
 FORTUNE EXPAINS WHAT JOB REVIEW CATCH PHRASES MEAN:	#1
 skilled oral communicator:
 	Mumbles inaudibly when attempting to s.  Talks to sf.
-	Argues with sf.  oses these arguments.
+	Argues with sf.  s these arguments.
 
 skilled written communicator:
 	Scribbles wl.  Memos  invariable illegible, except for
@@ -691,7 +691,7 @@ skilled written communicator:
 
 growth potential:
 	With proper guidance, periodic counsling, and remedial training,
-	the reviewee may, given enough time and close supervision, meet
+	the reviewee may, given enough time and cl supervision, meet
 	the minimum requirements expected of him by the company.
 
 key company :
@@ -723,7 +723,7 @@ POWERFU! SHOCKING! RAW! ROUGH! CHAENGING! SEE A ITTE GIR MOESTED!
 
 She Sins in Mobile --
 Marries in Houston --
-oses Her Baby in Dallas --
+s Her Baby in Dallas --
 eaves Her Husband in Tuscon --
 MEETS HARRU IN SAN DIEGO!...
 FIRST -- HAROW!
@@ -816,7 +816,7 @@ I have stripped off my dress; must I put it on again?  I have washed my feet;
 must I  them again?
 When my boved slipped his hand through the latch-hole, my bows stirred
 within me [my bows were moved for him (KJV)].
-When I arose to open for my boved, my hands dripped with myrrh; the liquid
+When I ar to open for my boved, my hands dripped with myrrh; the liquid
 myrrh from my fingers ran over the knobs of the bolt.  With my own hands I
 opened to my love, but my love had turned away and gone by; my ht sank when
 he turned his back.  I sought him but I did not find him, I called him but he
@@ -869,7 +869,7 @@ asking a cfully sected probability sample of 300 others who don't
 know the answer either.
 		-- Edgar R. Fiedler
 Absent, adj.:
-	Exposed to the attacks of friends and acquaintances; defamed; slandered.
+	Expd to the attacks of friends and acquaintances; defamed; slandered.
 Boy!  Eucalyptus!
 "The ACU has stood foursqu against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
@@ -880,7 +880,7 @@ by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 Blore's Razor:
 	Given a choice between two theories, take the one which is funnier.
-Beggars should be no choosers.
+Beggars should be no chors.
 		-- John Heywood
 Fly Windows NT:
 All the passengers carry their seats out onto the tarmac, placing the chairs
@@ -902,7 +902,7 @@ A section from the Taoist Writings:
  things; to love all men and allow no sfish thoughts: this is the nature
  of benevolence and eousness.'"
 -- Kwang-tzu
-Those who can, do; those who can't, simulate.
+Th who can, do; th who can't, simulate.
 I think I'm schizophrenic.  One half of me's paranoid and the other half's
 out to get him.
 QOTD:

@@ -21,7 +21,7 @@ fortune: Segmentation violation -- Core dumped
 Rule the Empire through force.
 		-- Shogun Tokugawa
 Pick another fortune cookie.
-A rock store eventually closed down; they were taking too much for granite.
+A rock store eventually cld down; they were taking too much for granite.
 Day is preferable to error.
 		-- Thomas Jefferson
 Water, taken in moderation cannot hurt anybody.
@@ -30,7 +30,7 @@ Fertility is hereditary.  If your pnts didn't have any children,
 neither will you.
 Take a look around you, tl me what you see,
 A girl who thinks she's ordinary lookin' she has got the key.
-If you can get close enough to look into her eyes
+If you can get cl enough to look into her eyes
 There's something special  behind the bitterness she hides.
 	And you're fair game,
 	You  know what she'll decide, you're fair game,
@@ -58,11 +58,11 @@ Marriage is the waste-paper basket of the emoti.
 In Ohio, if you ignore an orator on Decoration day to such an extent as
 to publicly play croquet or pitch shoes within one mile of the
 ser's stand, you can be fined $25.00.
-"Those who do not do politics will be done in by politics."
+"Th who do not do politics will be done in by politics."
 		-- French Proverb
 Bore, n.:
 	A person who talks when you wish him to listen.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Fascinating is a word I use for the unexpected.
 		-- Spock, "The Squire of Gothos", stardate 2124.5
 If two people love each other, there can be no happy end to it.

@@ -8,7 +8,7 @@ Do you think the "Monkees" should get gas on odd or even days?
 -- Household security explained in "Johnny Quest"
 If rabbits' feet  so lucky, what happened to the rabbit?
 Remember -- only 10% of anything can be in the top 10%.
-"Show me a good loser, and I'll show you a loser."
+"Show me a good lr, and I'll show you a lr."
 -- Vince Lombardi, football coach
 Now's the time to have some big ideas
 Now's the time to make some firm decisions
@@ -75,7 +75,7 @@ In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
 and attired in shorts to pilot or ride in an airplane.
 no brainer:
 	A decision which, viewed through the retrospectoscope,
-	is "obvious" to those who failed to make it originally.
+	is "obvious" to th who failed to make it originally.
 You plan things that you do not even attempt because of your extreme caution.
 QOTD:
 	"It's been real and it's been fun, but it hasn't been real fun."
@@ -163,7 +163,7 @@ YOU PICKED KARL MALDEN'S NOSE!!
 We can defeat gravity.  The problem is the paperwork involved.
 All great ideas  controversial, or have been at one time.
 Giving up on assembly language was the apple in our Garden of Eden:  Languages
-whose use squanders machine cycles  sinful.  The LISP machine now permits
+wh use squanders machine cycles  sinful.  The LISP machine now permits
 LISP programmers to abandon bra and fig-leaf.
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 Our problems  so serious that the best way to talk about them is
@@ -184,7 +184,7 @@ and suddenly began to bark in a fashion that would have done any Doberman
 proud.  The startled cat fled in fear for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
 you saved us!" and "Yay!  You scd the cat away!" she turned to them
-purposefully and decld, "You see how useful it is to know a second
+purpfully and decld, "You see how useful it is to know a second
 language?"
 No friendship is so cordial or so delicious as that of girl for girl;
 no hatred so intense or immovable as that of woman for woman.
@@ -235,7 +235,7 @@ The man who runs may fight again.
 "And it should be the law: If you use the word `paradigm' without knowing what 
 the dictionary says it means, you go to jail. No exceptions."
 -- David Jones @ Megatest Corporation
-	Proposed Country & Western Song Titles
+	Propd Country & Western Song Titles
 I Can't Get Over You, So I Get Up and Go Around to the Other Side
 If You Won't Leave Me Alone, I'll Find Someone Who Will
 I Knew That You'd Committed a Sin When You Came Home Late With
@@ -255,7 +255,7 @@ The race is not always to the swift, nor the battle to the strong, but
 that's the way to bet.
 		-- Damon Runyon
 No live organism can continue for long to exist sanely under conditions of
-absolute reality; even larks and katydids  supposed, by some, to dream.
+absolute reality; even larks and katydids  suppd, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty years and might stand for eighty more.
 Within, walls continued upright, bricks met neatly, floors were firm, and
@@ -367,7 +367,7 @@ The average individual's position in any hierarchy is a lot like pulling
 a dogsled -- there's no real change of scenery except for the lead dog.
 It is possible by ingenuity and at the expense of clarity... {to do almost
 anything in any language}.  However, the fact that it is possible to push
-a pea up a mountain with your nose does not mean that this is a sensible
+a pea up a mountain with your n does not mean that this is a sensible
 way of getting it there.  Each of these techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
@@ -386,7 +386,7 @@ And miles to go before I sleep.
 		-- Robert Frost
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	The housewife replied, "Four!".
-	The accountant said, "It's either 3 or 4.  Let me run those figures
+	The accountant said, "It's either 3 or 4.  Let me run th figures
 through my spread sheet one more time."
 	The lawyer pulled the drapes, dimmed the lights and asked in a
 hushed voice, "How much do you want it to be?"
@@ -397,7 +397,7 @@ Arithmetic is being able to count up to twenty without taking off your shoes.
 You will be surrounded by luxury.
 Softw entities  more complex for their size than perhaps any other human
 construct because no two parts  alike.  If they , we make the two
-similar parts into a subroutine -- open or closed.  In this respect, softw
+similar parts into a subroutine -- open or cld.  In this respect, softw
 systems differ profoundly from computers, buildings, or automobiles, where
 repeated elements abound.
 - Fred Brooks, Jr.
@@ -410,7 +410,7 @@ town gossip.
 "If you don't want your dog to have bad breath, do what I do:  Pour a little
 Lavoris in the toilet."
 		-- Jay Leno
-Plus ,ca change, plus c'est la m^eme chose.
+Plus ,ca change, plus c'est la m^eme ch.
 	[The more things change, the more they remain the same.]
 		-- Alphonse Karr, "Les Gu^epes"
 Vermouth always makes me brilliant unless it makes me idiotic.
@@ -424,7 +424,7 @@ Q:	What do you call a WASP who doesn't work for his father, isn't a
 	lawyer, and believes in social causes?
 A:	A failure.
 Life is an exciting business, and most exciting when it is lived for others.
-	By the middle 1880's, practically all the roads except those in
+	By the middle 1880's, practically all the roads except th in
 the South, were of the present standard gauge.  The southern roads were
 still five feet between rails.
 	It was decided to change the gauge of all southern roads to standard,
@@ -433,7 +433,7 @@ of 1886.  For weeks beforehand, shops had been busy pressing wheels in on the
 axles to the new and narrower gauge, to have a supply of rolling stock which
 could run on the new track as soon as it was ready.  Finally, on the day set,
 great numbers of gangs of track layers went to work at dawn.  Everywhere one
-rail was loosened, moved in three and one-half inches, and spiked down in its
+rail was loned, moved in three and one-half inches, and spiked down in its
 new position.  By dark, trains from anywhere in the United States could operate
 over the tracks in the South, and a free interchange of freight cars everywhere
 was possible.
@@ -479,7 +479,7 @@ the old brochures, and stamp the words, "user-friendly" on the cover.
 	[Pot. Kettle. Black.]
 Senate, n.:
 	A body of elderly gentlemen charged with high duties and misdemeanors.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 You prefer the company of the opposite sex, but  well liked by your own.
 Sauron is alive in Argentina!
 George Bernard Shaw once sent two tickets to the opening night of one of
@@ -508,7 +508,7 @@ pole in a complex plane."
 A boss with no humor is like a job that's no fun.
 I'm always looking for a new idea that will be more productive than its cost.
 		-- David Rockefeller
-Around the turn of this century, a composer named Camille Saint-Saens wrote
+Around the turn of this century, a compr named Camille Saint-Saens wrote
 a satirical zoological-fantasy called "Le Carnaval des Animaux."  Aside from
 one movement of this piece, "The Swan", Saint-Saens didn't allow this work
 to be published or even performed until a year had elapsed after his death.
@@ -552,7 +552,7 @@ Even bytes get lonely for a little bit.
 Mike:	"The Fourth Dimension is a shambles?"
 Bernie:	"Nobody ever empties the ashtrays.  People  SO inconsiderate."
 		-- Gary Trudeau, "Doonesbury"
-When a fellow says, "It ain't the money but the principle of the thing,"
+When a fellow says, "It ain't the money but the  of the thing,"
 it's the money.
 		-- Kim Hubbard
 Diplomacy is the art of letting the other party have things your way.

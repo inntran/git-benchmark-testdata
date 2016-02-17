@@ -14,7 +14,7 @@ Snakes.  Why did it have to be snakes?
 		-- Indiana Jones, "Raiders of e ost Ark"
 I've got an IDEA!!  Why don't I STARE at you so HARD, you fget your
 SOCIA SECURITY NUMBER!!
-I do not c if half e league strikes.  Those who do will encounter
+I do not c if half e league strikes.  Th who do will encounter
 quick retribution.  All will be susp, and I don't c if it wrecks
 e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
@@ -63,7 +63,7 @@ Say e devil touched my  --
 But say my verses do not scan,
 	And I get me anoer man!
 		-- Doy Parker, "Fighting Wds"
-It ms not wheer you   lose; what ms is wheer II   lose.
+It ms not wheer you   l; what ms is wheer II   l.
 		-- Darrin Weinberg
 Pardon me while I laugh.
 We all decl f liberty, but in using e same wd we do not all mean
@@ -92,7 +92,7 @@ ony men seek companihip.  ony women sit at home and wait.
 y  meet.
 Wcome to e Zoo!
 ...   is w attention f only two reas:  (1) it attacks
-attempts to expose sham paranmal studies; and (2) it is very wl and
+attempts to exp sham paranmal studies; and (2) it is very wl and
 plausibly written and so raer harder to dismiss  refute by simple
 jeering.
 - Harry Eagar, revieg "Beyond e Quantum" by Micha Talbot,
@@ -177,8 +177,8 @@ When you and I  far apart
 Can srow break your tender ht?
 I love you darling, yes I do;
 Sleep is so sweet when I dream of you;
-All you  is a blossoming rose.
-Night is here so I must close.
+All you  is a blossoming r.
+Night is here so I must cl.
 Wi c read e first wd of each line.
 You will find a question of mine.
 		-- Yours hopefully,  VAX.
@@ -218,7 +218,7 @@ I am NOT a nut....
 	(d) a punk d.
 
  crect answer is (b).  meddling Washington eco-freak communist
-bureaucrats who say oerwise  liars.  (Message to ose who answered (d).
+bureaucrats who say oerwise  liars.  (Message to  who answered (d).
 Go back to Califnia where you came from.  Your kind  not wcome here.)
 You can't hug a child wi nucl arms.
 Yes me, I got a bottle in front of me.
@@ -237,7 +237,7 @@ devoured.
 		-- Konrad Adenauer
 Ambidextrous, adj.:
 	Able to ck wi equal skill a -hand pocket  a left.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Carson's Observation on Footw:
 	If e shoe fits,  e oer one too.
 Ingrate, n.:
@@ -273,7 +273,7 @@ em togeer again, ere must be a reason.  By all means, do not use a hammer.
  only person who always got his wk done by Friday was Robinson Crusoe.
 Men n't attracted to me by my mind.  y're attracted by what I
 don't mind...
-		-- Gypsy Rose ee
+		-- Gypsy R ee
  common cmant,  shag,
 ays eggs  a paper bag;
  reason, you will see, no doubt,
@@ -298,9 +298,9 @@ Pry's Observation:
 	wi how long you  going to be dead.
 Admiration, n.:
 	Our polite recognition of anoer's resemb to oursves.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Dar Vader sleeps wi a Teddywookie.
-Those who have had no sh in e good ftunes of e mighty
+Th who have had no sh in e good ftunes of e mighty
 Often have a sh in eir misftunes.
 		-- Bertolt Brecht, " Caucasian Chalk Circle"
 ife is a hostal in which every patient is possessed by e desire to
@@ -312,7 +312,7 @@ HOW YOU CAN TE THAT IT'S GOING TO BE A ROTTEN DAY:
 "Ah, you know e type.	 y like to blame it all on e Jews  e Blacks, 
 'cause if ey couldn't, ey'd have to wake up to e fact at life's one big,
 scary, glious, complex and ultimaty unfaomable hoot -- and e only 
-reason THEY can't seem to keep up is ey're a bunch of misfits and losers."
+reason THEY can't seem to keep up is ey're a bunch of misfits and lrs."
 -- an analysis of neo-Nazis and such, Badger comics
 Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
@@ -331,14 +331,14 @@ observing at in certain cases  circumstances his onion would be ,
 but in e present case ere apped  semed to me some difference, etc.
 	I soon found e advantage of is change in my manner; e
 conversati I engaged in went on me pleasantly.   modest way in which I
-proposed my oni procured em a readier reception and less contradiction.
+propd my oni procured em a readier reception and less contradiction.
 I had less mtification when I was found to be in e wrong, and I me easily
 prevailed wi oers to give up eir mistakes and join wi me when I
 happened to be in e .
 		-- Autobiography of Benjamin Franklin
 To converse at e distance of e Indes by means of sympaetic contrivances
 may be as natural to future times as to us is a literary crespondence.
-		-- Joseph Glanvill, 1661
+		-- Jph Glanvill, 1661
 To whom e mnings  like nights,
 What must e midnights be!
 		-- Emily Dickinson (on hacking?)
@@ -349,14 +349,14 @@ Patriotism is e last refuge of a scoundr.
 In Dr. Johnson's famous  patriotism is defined as e last
 rest of e scoundr.  Wi all due respect to an enlightened but
 inferi lexicogr I beg to submit at it is e first.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 
 When Dr. Johnson defined patriotism as e last refuge of a scoundr,
 he igned e enmous possibilities of e wd refm.
 		-- Sen. Roscoe Conkling
 
 Public office is e last refuge of a scoundr.
-		-- Boies Penrose
+		-- Boies Penr
 /*
  * Oops.  kern tried to access some bad page. We'll have to
  * terminate ings wi  prejudice.
@@ -421,7 +421,7 @@ under e kilt?"
 	He strolled over to e side of e car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
-	 Scotn leaned closer and confided, "Why, lass, noing's wn
+	 Scotn leaned clr and confided, "Why, lass, noing's wn
 under e kilt, everying's in perfect wkin' der!"
     UNIX S is e Best Four Generation Pramming anguage
 
@@ -458,9 +458,9 @@ Your tas will be recognized and suitably rewarded.
 It may be better to be a live jackal an a dead lion, but it is better
 still to be a live lion.  And usually easier.
 		-- azarus ong
-No one may kill a man.  Not f any purpose.  It cannot be condoned.
+No one may kill a man.  Not f any purp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
-A bird in e hand makes it awfully hard to blow your nose.
+A bird in e hand makes it awfully hard to blow your n.
 This planet has --  raer had -- a problem, which was is:  most of
 e people living on it were unhappy f pretty much of e time.  Many
 soluti were suggested f is problem, but most of ese were

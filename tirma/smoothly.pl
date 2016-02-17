@@ -46,7 +46,7 @@ You  number 6!  Who is number one?
  and I got mixed up wi a tevision show --  as we call it back
 east here: TV -- a clever contraction derived from e wds Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
-because noing's wl done. It was discovered, I suppose you've hd,
+because noing's wl done. It was discovered, I supp you've hd,
 by a man d Fulton Berle, and it has already revolutionized social
 grace by ting down parlour conversation to two s: "What's on
 tevision?" and "Good night".

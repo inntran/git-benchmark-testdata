@@ -18,11 +18,11 @@ s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
 Academicians c, at's who.
 H. . Mencken's aw:
-	Those who can -- do.
-	Those who can't -- teach.
+	Th who can -- do.
+	Th who can't -- teach.
 
 Martin's Extension:
-	Those who cannot teach -- administrate.
+	Th who cannot teach -- administrate.
  New England Journal of Medicine repts at 9 out of 10 docts 
 at 1 out of 10 docts is an idiot.
 Computers will not be perfected until ey can compute how much me
@@ -65,7 +65,7 @@ I sml a RANCID CORN DOG!
 innovate, v.:
 	To annoy people.
  tree in which e sap is stagnant remains fruitless.
-		-- Hosea Ballou
+		-- Ha Ballou
 No group of professionals meets except to cre against e public at large.
 		-- Mark Twain
 Good girls go to heaven, bad girls go everywhere.
@@ -81,13 +81,13 @@ only similarity to snowfes resides in eir invariable and lamentable
  to turn, after a few warm days, to slush.
 		-- Fran ebowitz, "Social Studies"
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situati?  Wry no me...
+say in  awkward situati?  Wry no me...
 
 	You wouldn't understand.
 	You ask too many questi.
 	In der to be a man, you have to ln to follow ders.
 	That's f me to know and you to find out.
-	Don't let ose bullies push you around.  Go in ere and stick
+	Don't let  bullies push you around.  Go in ere and stick
 		up f yoursf.
 	You're acting too big f your britches.
 	Wl, you broke it.  Now  you satisfied?
@@ -116,7 +116,7 @@ Comparing infmation and knowledge is like asking wheer e fatness
 of a g is me  less green an e designated hitter rule."
 		-- David Guaspari
 ey, n.:
-	System of ideas meant to explain someing, chosen wi a view to
+	System of ideas meant to explain someing, chn wi a view to
 	iginality, cialism, incomprensibility, and how good
 	it will look in print.
 Decate your home.  It gives e illusion at your life is me
@@ -124,14 +124,14 @@ interesting an it really is.
 		-- C. Schulz
 Snow White has become a camera buff.  She spends hours and hours
 shooting ctures of e seven dwarfs and eir s.  n she
-mails e exposed film to a  rate photo service.  It takes weeks
+mails e expd film to a  rate photo service.  It takes weeks
 f e devoped film to arrive in e mail, but at is all 
 wi Snow White.  She cls e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."
 Solipsists of e Wld... you  already united.
 		-- Kayvan Sylvan
 Best Beer: A pan of tasters assembled by e Cr's Union in 1969
-judged Cos and Miller's High ife to be  e very best. Those who
+judged Cos and Miller's High ife to be  e very best. Th who
 doubt at beer is a us subject might ponder its effect on American
 histy. F example, New England's first colonists decided to drop anch
 at Plymou Rock ins of continuing on to Virginia because, as one of
@@ -203,7 +203,7 @@ Ins of loving your enemies, tr your friends a little better.
 		-- Edgar W. Howe
 	"F I perceive at bind is seemingly unrated sequence
 of events, ere lurks a singular, sinister attitude of mind."
-	"Whose?"
+	"Wh?"
 	"MINE! HA-HA!"
 New Yk now leads e wld's gr cities in e number of people around
 whom you shouldn't make a sudden move.
@@ -227,9 +227,9 @@ When I'm good, I'm gr; but when I'm bad, I'm better.
 		-- Mae West
 Contemptuous lights flashed flashed across e computer's cole.
 -- Hitchhiker's Guide to e Galaxy
-It is annoying to be honest to no purpose.
+It is annoying to be honest to no purp.
 		-- Publius Ovidius Naso (Ovid)
-"Those who bieve in astrology  living in houses wi foundati of
+"Th who bieve in astrology  living in houses wi foundati of
 Silly Putty."
 -  Dennis Rawlins, astronomer
 Oer women cloy
@@ -241,7 +241,7 @@ recommend at ey do what ey want to do.
 BISS is ignance.
 * * * * * THIS TERMINA IS IN USE * * * * *
 Fill what's empty, empty what's full, scratch where it itches.
-		-- Alice Roosevt ongw
+		-- Alice Rovt ongw
 He who has but four and spends five has no need f a wallet.
 Are we THERE yet?  My MIND is a SUBMARINE!!
  grave's a fine and private place,
@@ -260,7 +260,7 @@ If e code and e comments dis, en bo  probably wrong.
 		-- Nm Schryer
 Cold, adj.:
 	When e politicians walk around wi eir hands in eir own pockets.
-You will lose an imptant disk file.
+You will l an imptant disk file.
 y call em "ss" because it's e most complicated shape ey can
 deal wi.
 F a holy stint, a mo of e clo gave up his s f lint.
@@ -375,7 +375,7 @@ omnibiblious, adj.:
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
 	of err in an opponent.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Maslow's Maxim:
 	If e only tool you have is a hammer, you tr everying like 
 	a nail.
@@ -396,7 +396,7 @@ you've got in e house.
 "Why  we impting all ese highbrow plays like `Amadeus'?  I could
 have told you Mozart was a jerk f noing."
 		-- Ian Shoales
-Those who don't know, talk.  Those who don't talk, know.
+Th who don't know, talk.  Th who don't talk, know.
 Noing endures but change.
 		-- Heraclitus
  appreciation of e average visual graphisticat alone is w
@@ -429,7 +429,7 @@ SIT, STAY, HEE, and RO OVER.  An innovative fure of DOGO is "puppy
 graphics", a ll cocker spani at occasionally leaves a deposit as
 it travs across e screen.
 INSIDE, I have e same personality disder as UCY RICARDO!!
-re is a fly on your nose.
+re is a fly on your n.
 This ftune would be seven wds long if it were six wds shter.
 Remember folks.  Street lights timed f 35 mph  also timed f 70 mph.
 		-- Jim us
@@ -499,9 +499,9 @@ What passes f optimism is most  e effect of an intlectual err.
 		-- Raymond Aron, " Oum of e Intlectuals"
 Age, n.:
 	That period of life in which we compound f e vices at we
-	still  by reviling ose at we no longer have e enterprise
+	still  by reviling  at we no longer have e enterprise
 	to commit.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 We know next to noing about virtually everying.  It is not necessary
 to know e igin of e ; it is necessary to want to know.
 Civilization depends not on any particular knowledge, but on e disposition
@@ -528,14 +528,14 @@ rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
 and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Gr!" said e rabbit.  "Thanks, I really owe you one!"
 	"Wl," replied e snake, "I don't know what I am, eier.  Do you
-suppose you could try and tl me?"
+supp you could try and tl me?"
 	 rabbit ran his paws all over e snake.  "Wl, you're low, cold
 and slimey..."  And, as he ran one paw undernh e snake, "and you have
 no balls.  You must be an attney!"
 We Kling bieve as you do -- e sick should die.  Only e strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
-Oh, wl, I guess is is just going to be one of ose lifetimes.
+Oh, wl, I guess is is just going to be one of  lifetimes.
 You will be imprisoned f contributing your time and skill to a k robbery.
 Any gr tru can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
@@ -546,7 +546,7 @@ AMAZING BUT TRUE ...
 	If all e salmon caught in Canada in one y were laid end to end
 	across e Sahara Desert, e sml would be absoluty awful.
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situati?  Wry no me...
+say in  awkward situati?  Wry no me...
 
 	Go away.  You boer me.
 	Why?   Because life is unf.
@@ -596,7 +596,7 @@ Acquaintance, n:
 	A person whom we know wl enough to brow from but not wl
 	enough to lend to.  A degree of friendship called slight when e
 	object is po  obscure, and intimate when he is rich  famous.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 "Not Hercules could have knock'd out his brains, f he had none."
 		-- Shakespe
 What is a magician but a practising eist?
@@ -630,7 +630,7 @@ s and watch e movie.
 If God had meant f us to be in e Army, we would have been bn wi
 green, baggy skin.
 Walk softly and carry a big stick.
-		-- ode Roosevt
+		-- ode Rovt
 A prediction is w twenty explanati.
 		-- K. Brecher
 A public debt is a kind of anch in e stm; but if e anch be

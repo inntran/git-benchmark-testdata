@@ -9,7 +9,7 @@ God's aw (prov.  [Usenet]):
 	tradition in many groups at, once is occurs, at read is
 	over, and whoever mentioned e Nazis has automatically lost
 	whatever argnt was in press.  God's aw us guarantees
-	e existence of an upper bound on read leng in ose groups.
+	e existence of an upper bound on read leng in  groups.
 ife is a hostal in which every patient is possessed by e desire to
 change his bed.
 		-- Charles Baude
@@ -34,12 +34,12 @@ reprimanding,  indulging em, wiout any power of engaging eir respect.
 You can't kiss a girl unexpectedly -- only sooner an she ought you would.
 Cheese -- milk's leap toward immtality.
 		-- Clifton Fadiman, "Any Number Can Play"
-Every time I lose weight, it finds me again!
+Every time I l weight, it finds me again!
 A gossip is one who talks to you about oers, a be is one who talks to
 you about himsf; and a brilliant conversationalist is one who talks to
 you about yoursf.
 		-- isa Kirk
-Your lucky number has been disconnected.
+Your lucky number has been ed.
  357.73 y:
 	Audits always reject expense accounts
 	wi a bottom line divisible by 5.
@@ -102,7 +102,7 @@ ive wiin your income, even if you have to brow to do so.
 		-- Josh ings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	 housewife replied, "Four!".
-	 accountant said, "It's eier 3  4.  et me run ose s
+	 accountant said, "It's eier 3  4.  et me run  s
 rough my spread sheet one me time."
 	 lawyer pulled e drapes, dimmed e lights and asked in a
 hushed voice, "How much do you want it to be?"

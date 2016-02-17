@@ -1,7 +1,7 @@
  ultimate game show will be e one where somebody gets killed at e end.
 		-- Chuck B, cr of " Gong Show"
 You Ear people glified ganized violence f fty centuries.  But
-you imprison ose who employ it privaty.
+you imprison  who employ it privaty.
 		-- Spock, "Dagger of e Mind", stardate 2715.1
 Yow!  Did someing bad happen  am I in a drive-in movie??
 Everying at you know is wrong, but you can be straightened out.
@@ -25,7 +25,7 @@ Marriages  made in heaven and cummated on .
 Duckies  fun!
 Buck-passing usually turns out to be a boomerang.
  Illiterati Pramus Canto 1:
-	A pram is a lot like a nose: Sometimes it runs, and
+	A pram is a lot like a n: Sometimes it runs, and
 	sometimes it blows.
 ...  were you driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
 If we see e light at e end of e tunn, it's e light of an
@@ -44,7 +44,7 @@ Ritchie's Rule:
 	(3) Sch and ye shall find -- but make sure it was lost.
 Gil-galad was an Elven-king.
 Of him e harpers sadly sing:
-e last whose realm was f and free
+e last wh realm was f and free
 between e Mountains and e Sea.
 
 His swd was long, his  was keen,
@@ -67,7 +67,7 @@ Hts will  be practical until ey can be made unbreakable.
 Most non-Caolics know at e Caolic schools  rendering a grer
 service to our nation an e public schools in which  texts
 have been used, in which Communist-minded teachers have taught, and from
-whose classrooms Christ and even God Himsf  barred.
+wh classrooms Christ and even God Himsf  barred.
 - from "Our Sunday Visit", an American-Caolic newspaper, 1949
 If I could stick my pen in my ht,
 I would sll it all over e stage.
@@ -81,8 +81,8 @@ Would it be enough f your teenage lust,
 Would it hp to ease e pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-After all, what is your hosts' purpose in having a party?  Sury not f
-you to enjoy yoursf; if at were eir sole purpose, ey'd have 
+After all, what is your hosts' purp in having a party?  Sury not f
+you to enjoy yoursf; if at were eir sole purp, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 Put a ue in e limight and he will act like an honest man.
@@ -91,7 +91,7 @@ You display e wonderful traits of charm and courtesy.
  problem wi any unwritten law is at you don't know where to go
 to erase it.
 		-- Glaser and Way
-... a ing called Eics, whose nature was confusing but if you had it you
+... a ing called Eics, wh nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
 a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositi.  But ey didn't imply at you were to be impractical
@@ -106,7 +106,7 @@ only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and oer dances of e same kind will be disastrous in eir effects
 to bo sexes.  Heal and vig will vh like e dew befe e sun.
 	It is not e extradinary exercise which harms e dancer, but
-raer e coming into close contact wi e opposite sex.  It is e
+raer e coming into cl contact wi e opposite sex.  It is e
 fury of lust craving incessantly f me pleasure at undermines e
 soul, e body, e sinews and nerves.  Experience and  show
 beyond doubt at passionate excessive dancing girls can hardly reach
@@ -137,7 +137,7 @@ suffer from e anti-science disease rampant in an appntly decaying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
 F courage mounte wi occasion.
 		-- William Shakespe, "King John"
-re  few people me  in e wrong an ose who cannot endure
+re  few people me  in e wrong an  who cannot endure
 to be ought so.
 Some of us  becoming e men we wanted to marry.
 		-- Glia Steinem
@@ -301,7 +301,7 @@ remaining ree folios  now in e British Museum.
 e manuscript of e first vol of Thomas Carlyle's " Hisy of e
 French Revolution", inking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
-People who ink ey know everying grly annoy ose of us who do.
+People who ink ey know everying grly annoy  of us who do.
 Whe a system becomes complety defined, some damn fool discovers
 someing which eier abolishes e system  expands it beyond recognition.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#6
@@ -323,7 +323,7 @@ ove is e triumph of imagination over intligence.
 		-- H. . Mencken
 Alone, adj.:
 	In bad company.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 Yow!  I'm imagining a surfer van filled wi soy sauce!
@@ -345,7 +345,7 @@ anying removed would  make you less an we bargained f.
 I love ROCK 'N RO!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
 Aberdeen was so ll at when e family wi e car went
-on vacation, e gas station and drive-in re had to close.
+on vacation, e gas station and drive-in re had to cl.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#4
 
 Cloes:
@@ -451,7 +451,7 @@ If you're  90% of e time, why quibble about e remaining 3%?
 O love, could ou and I wi fate cre
 To grasp is sry scheme of ings entire,
 Might we not sh it to bits
-And mould it closer to our hts' desire?
+And mould it clr to our hts' desire?
 		-- Omar Khayyam, tr. FitzGerald
 Time and tide wait f no man.
 			It's grad exam time...
@@ -473,10 +473,10 @@ Hand me a p of lher pants and a CASIO keyboard -- I'm living f today!
 It seems a little silly now, but is country was founded as a protest
 against taxation.
 I l like a wet parking meter on Darvon!
-Ccience is a moer-in-law whose visit  ends.
+Ccience is a moer-in-law wh visit  ends.
 		-- H. . Mencken
 Being ugly isn't illegal.  Yet.
-It's not wheer you   lose, it's how you place e blame.
+It's not wheer you   l, it's how you place e blame.
 One is not bn a woman, one becomes one.
 		-- e de Beauvoir
 Non-sequiturs make me  lampshades.
@@ -616,7 +616,7 @@ twve dancing rabbits singing about toilet paper.
 operating system and get realtime perfmance, out of e box."
 -- Peter da Silva
 Conversation enriches e understanding, but solitude is e school of genius.
-A closed mou gaers no foot.
+A cld mou gaers no foot.
 Hp stamp out and abolish redundancy and repetition.
 Ever since I was a young boy,
 I've hacked e ARPA net,
@@ -634,7 +634,7 @@ re has to be a twist.
 Unlimited space on disk.		Can't h no whistles  bls,
 How do you ink he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Those crazy little prams,
+What makes him so good?			Th crazy little prams,
 					 proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -665,13 +665,13 @@ Kington's aw of Perfation:
 	If a straight line of holes is made in a ece of paper, such
 	as a sheet of stamps  a c, at line becomes e strongest
 	part of e paper.
-God hp ose who do not hp emsves.
+God hp  who do not hp emsves.
 		-- Wilson Mizner
 America!!  I saw it all!!  Vomiting!  Waving!  JERRY FAWEING into
 your void tube of UHF oblivion!!  SAFEWAY of e mind ...
 I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
-miles closer to globular cluster M13 in e ctlation Hercules, and
+miles clr to globular cluster M13 in e ctlation Hercules, and
 still ere  some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
@@ -727,7 +727,7 @@ and everying was just fine ...
 Croll's Query:
 	If tin whistles  made of tin, what  foghns made of?
 God is love, but get it in writing.
-		-- Gypsy Rose ee
+		-- Gypsy R ee
 , n.:
 	 reason surge w masks.
 Cohn's aw:
@@ -745,7 +745,7 @@ ife is a grand adventure --  it is noing.
 		-- Hen Kler
 Think honk if you're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
-police and laws similar to ose in e USSR, ere 
+police and laws similar to  in e USSR, ere 
 ousands of underground publicati, a legal in
 Church, private agriculture, and e East bloc's first and only
 in trade union federation, NSZZ Solidarnosc, which is
@@ -802,7 +802,7 @@ Wi knog I got noone left to blame.
 Cfree Highway, I got to see you, my old flame...
 
 Sching rough e fragments of my dream shed sleep,
-I wonder if e ys have closed her mind,
+I wonder if e ys have cld her mind,
 I guess it must be   tryin' to get free,
 From e good old faiful lin' we once knew.
 		-- Gdon ightfoot, "Cfree Highway"

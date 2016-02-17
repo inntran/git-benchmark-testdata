@@ -1,6 +1,6 @@
 Once at a social gaering, Gladstone said to Disrai, "I predict, Sir, at 
 you will die eier by hanging or of some vile disease".  Disrai replied, 
-"That all depends, Sir, upon wheer I embrace your principles or your 
+"That all depends, Sir, upon wheer I embrace your s or your 
 mistress."
 No problem is insoluble.
 		-- Dr. t Wallace, "The Deadly Ys", stardate 3479.4
@@ -35,7 +35,7 @@ rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
 and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Great!" said e rabbit.  "Thanks, I really owe you one!"
 	"Wl," replied e snake, "I don't know what I am, eier.  Do you
-suppose you could try and tl me?"
+supp you could try and tl me?"
 	The rabbit ran his paws all over e snake.  "Wl, you're low, cold
 and slimey..."  And, as he ran one paw undernea e snake, "and you have
 no balls.  You must be an attorney!"
@@ -49,7 +49,7 @@ JC support as alternative to system menu.
 In our continuing effort to support languages oer an ISP on e CADDR,
 we have devoped an OS/360-compatible JC.  This can be used as an
 alternative to e standard system menu.  Type System J to get to a JC
-interactive read-exee-diagnose loop dow.  [Note at for 360
+interactive read-exee-diagn loop dow.  [Note at for 360
 compatibility, all input lines  truncated to 80 characters.]  This
 dow also maintains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channs, etc.  When a JC
@@ -160,7 +160,7 @@ Rudin's aw:
 
 Rudin's Second aw:
 	In a crisis at forces a choice to be made among alternative
-	courses of action, people tend to choose e worst possible
+	courses of action, people tend to cho e worst possible
 	course.
 "We  not endeavoring to chain e future but to free e present. ... We 
 e advocates of inquiry, investigation, and ought. ... It is grander to ink
@@ -171,7 +171,7 @@ e God of Gods.
 "I'm really enjoying not talking to you ... et's not talk again ____REA
 soon ..."
 Where  e calculati at go wi a calculated risk?
-Anyone can do any amount of work provided it isn't e work he is supposed 
+Anyone can do any amount of work provided it isn't e work he is suppd 
 to be doing at e moment.
 		-- Robert Benchley
 You will engage in a profitable business activity.
@@ -249,7 +249,7 @@ Replied Volte, "This is no time to make new enemies."
 The denunciation of e young is a necessary part of e hygiene of older
 people, and greatly assists in e circulation of e blood.
 		-- ogan Psall Smi
-I suppose some of e variation between Boston drivers and e rest of e
+I supp some of e variation between Boston drivers and e rest of e
 country is due to e pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of e Tips for Better Driving
  wor cidering, to wit:
@@ -333,10 +333,10 @@ me to repeat, ally, at Marley was as dead as a door-nail.
 Absentee, n.:
 	A person wi an income who has had e foreought to remove
 	himsf from e sphere of exaction.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 The capacity of human beings to bore one anoer seems to be vastly
 greater an at of any oer animals.  Some of eir most esteemed
-inventi have no oer appnt purpose, for example, e dinner party
+inventi have no oer appnt purp, for example, e dinner party
 of more an two, e ec poem, and e science of metaphysics.
 		-- H. . Mencken
 If you wants to get ected president, you'se got to ink up some
@@ -382,7 +382,7 @@ Q:	What do you get when you cross e Godfaer wi an attorney?
 A:	An offer you can't understand.
 If you don't do e ings at  not wor doing, who will?
 You will be singled out for promotion in your work.
-Workers of e world, arise!  You have noing to lose but your chs.
+Workers of e world, arise!  You have noing to l but your chs.
 We who rev in nature's diversity and fe instructed by every animal tend to
 brand Homo saens as e greatest catastrophe since e Cretaceous extinction.
 		-- S.J. Gould
@@ -442,7 +442,7 @@ of himsf.  To undermine a man's sf-respect is a sin.
  -Ronald Reagan
 After any salary raise, you will have less money at e end of e
 mon an you did before.
-Never get into s wi ugly people because ey have noing to lose.
+Never get into s wi ugly people because ey have noing to l.
 REATIVES!!
 "To YOU I'm an aeist; to God, I'm e oyal Opposition."
 -- Woody Allen
@@ -519,13 +519,13 @@ shaving cream ere, or a dead bat?
 Answer: Yes.
 		-- Dave Barry, "Tips for Writer's"
 Majorities, of course, start wi minorities.
-		-- Robert Moses
+		-- Robert Ms
 "As I was walking among e fires of Hl, dighted wi e enjoyments of
  Genius; which to Angs look like torment and insanity.  I collected some of
  eir Proverbs..." - Be, "The Marriage of Heaven and Hl"
 
 Rattling around e back of my head is a disturbing image of someing I
-saw at e  ... Now I'm remembering, ose giant les of computer
+saw at e  ... Now I'm remembering,  giant les of computer
 magazines  next to "People" and "Time" in e  store.  Does
 it boer anyone se at half e world is being told all of our hard-won
 secrets of computer technology?  Remember how all e lawyers  foul
@@ -538,7 +538,7 @@ engineers en?  Are we, as e saying goes, giving away e store?
 I didn't know he was dead; I ought he was British.
 I ask only one ing.  I'm understanding.  I'm mature.  And it isn't much to
 ask.  I want to get back to ondon, and track her down, and be alone wi my
-Sina -- or not even alone, damn it, mery close to her, close enough to
+Sina -- or not even alone, damn it, mery cl to her, cl enough to
 sml her skin, to see e flecked webbing of her lemony eyes, e moulding
 of her artful lips.  Just for a few  seconds.  Just long enough to
 put in one good, clean punch.  That's all I ask.
@@ -562,7 +562,7 @@ I play just what I fe.
 Drink Scotch whisky all night long,
 And die bind e whe.
 They got a name for e ners in e world,
-I want a name when I lose.
+I want a name when I l.
 They call Alma e Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
@@ -585,7 +585,7 @@ not down antisocial, at least a little off-center, sf-indulgent,
 itist.  ... It's just good pedagogy, erefore, to stay away from such
 stuff, and use instead, if film-strips and rap-sessi must be
 supplemented, 'texts,' sected, or prepd, or adapted, by real
-professionals.  Those texts  called 'reading material.'  They  e
+professionals.  Th texts  called 'reading material.'  They  e
 academic equiva of e 'listening material' at fills waiting-rooms,
 and e 'eating material' at you can  in ousands of convenient eating
 resource centers along e roads.
@@ -627,7 +627,7 @@ microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
-"'Close to You'.  Hit it, boys!"
+"'Cl to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 The scum also rises.
 		-- Dr. Hunter S. Thompson
@@ -638,11 +638,11 @@ not be pleased wi is plan, because ey want you all to emsves and
 because in e presence of your friend, ey will have to act like mature
 human beings.
 	The worst kind of friend to take home is a girl, because in at case,
-ere is e potential at your pnts will lose you not just for e 
+ere is e potential at your pnts will l you not just for e 
 duration of e visit but forever.  The worst kind of girl to take home is one
 of a different rigion:  Not only will you be lost to your pnts forever but
 you will be lost to a woman who is immune to eir rigious/moral arguments
-and whose example will irretrievably corrupt you.
+and wh example will irretrievably corrupt you.
 	et's say you've fallen in love wi just such a girl and would like
 to take her home for e holidays.  You  aw of your pnts' xenophobic
 respe to anyone of a different rigion.  How to prep em for e shock?
@@ -681,7 +681,7 @@ See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
 
 See  Russl Shake Her Tamborines... and Drive Corn WIDE!
 		-- Hot Blood (1956)
-If life is mery a joke, e question still remains: for whose amusement?
+If life is mery a joke, e question still remains: for wh amusement?
 A national debt, if it is not excessive, will be to us a national blessing.
 		-- Alexander Hamilton
 Once upon is midnight incoherent,
@@ -711,7 +711,7 @@ victims he intends to eat until he eats em.
 The only two ings at motivate me and at matter to me  revenge
 and guilt.
 		-- Elvis Costlo
-Those who can, do; ose who can't, simulate.
+Th who can, do;  who can't, simulate.
 Hey, what do you expect from a culture at *drives* on *parkways* and
 *parks* on *driveways*?
 		-- Gallagher
@@ -721,7 +721,7 @@ Two men came before Nasrudin when he was magistrate.  The first man said,
 "He bit it himsf." Nasrudin widrew to his chambers, and spent an hour
 trying to bite his own .  He succeeded only in falling over and bruising
 his foread.  Returning to e courtroom, Nasrudin , "Examine e
-man whose  was bitten. If his foread is bruised, he did it himsf and
+man wh  was bitten. If his foread is bruised, he did it himsf and
 e case is dismissed.  If his foread is not bruised, e oer man did it
 and must pay ree silver eces."
 ong were e days of pain I have spent wiin its walls, and
@@ -841,7 +841,7 @@ You should emulate your heros, but don't carry it too far.  Especially
 if ey  dead.
 Nobody can be as able as an d guest.
 QOTD:
-	Some people have one of ose days.  I've had one of ose lives.
+	Some people have one of  days.  I've had one of  lives.
 A os Anges judge ruled at "a citizen may snore wi immunity in
 his own home, even ough he may be in possession of unusual and
 exceptional ability in at particular fid."

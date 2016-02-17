@@ -13,7 +13,7 @@ it was in e summer, when ey complained about e h.
 Hebrew phrase "ha-Bracha dab'ra" which means "pronounce e blessing".
 Democracy is good.  I say is because oer systems  wse.
 		-- Jaarlal Nru
-This conj of an immense military establishment and a large arms 
+This conj of an immense military  and a large arms 
 industry is now in e American experience... We must not fail to 
 comprend its grave implicati... We must guard against e 
  of unwarranted influence...by e military-industrial
@@ -26,7 +26,7 @@ Better tried by twve an carried by six.
 		-- Jeff Cooper
 What is e difference between a Turing machine and e modern computer?
 It's e same as at between Hillary's ascent of Everest and e
-establishment of a Hilton on its .
+ of a Hilton on its .
 A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 4. DO NOT COMPAIN IF THE TREATMENT FAIS TO BRING REIEF.
@@ -58,14 +58,14 @@ a panacea so alleged.
 Whip it, whip it good!
 Boycott m -- suck your umb.
 Don't plan any hasty moves.  You'll be evicted soon anyway.
-Those who don't know, talk.  Those who don't talk, know.
+Th who don't know, talk.  Th who don't talk, know.
 	"That's ; e upper-case shift wks fine on e screen, but
 ey're not coming out on e damn printer...  Hold?  Sure, I'll hold."
 		-- e.e. cummings last service call
 Thank you f observing all safety precauti.
 Ftune finishes e gr quotati, #12
 
-	Those who can, do.  Those who can't, write e instructi.
+	Th who can, do.  Th who can't, write e instructi.
 Humanity has e stars in its future, and at future is too imptant to be
 lost under e burden of juvenile folly and ignant superstition.
 - Isaac Asimov
@@ -95,7 +95,7 @@ by all USEnauts.
 Rubber ds have snappy endings!
 All your people must ln befe you can reach f e stars.
 		-- Kirk, " Gamesters of Triskion", stardate 3259.2
-It's easier to  f one's principles an to live up to em.
+It's easier to  f one's s an to live up to em.
 Ftune's Real-ife Courtroom Quote #3:
 
 Q:  When he went, had you gone and had she, if she wanted to and were
@@ -143,7 +143,7 @@ Please stand f e National Anem:
 	O Canada we stand on guard f ee
 
 Thank you.  You may res your s.
-When a cow laughs, does milk come out of its nose?
+When a cow laughs, does milk come out of its n?
 And e crowd was stilled.  One derly man, wondering at e sudden silence,
  to e Child and asked him to rep what he had said.  Wide-eyed,
 e Child raised his voice and said once again, "Why, e Emper has no
@@ -175,7 +175,7 @@ What sin has not been committed in e  of efficiency?
 By trying we can easily ln to endure adversity.  Anoer man's, I mean.
 		-- Mark Twain
 A Riverside, Califnia, heal dinance states at two pers may
-not kiss each oer wiout first wing eir lips wi carbolized rosewater.
+not kiss each oer wiout first wing eir lips wi carbolized rwater.
 QOTD:
 	"I may not be able to walk, but I drive from e sitting posistion."
 AP is a mistake, carried rough to perfection.  It is e language of e
@@ -243,8 +243,8 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
 <<<<< EVACUATION ROUTE <<<<<
 "A commercial, and in some respects a social, doubt has been started wiin e
  last y  two, wheer  not it is  to discuss so openly e security
-  insecurity of locks.  Many wl-meaning pers suppose at e discus-
- sion respecting e means f baffling e supposed safety of locks offers a
+  insecurity of locks.  Many wl-meaning pers supp at e discus-
+ sion respecting e means f baffling e suppd safety of locks offers a
  premium f dishonesty, by shog oers how to be dishonest.  This is a fal-
  lacy.  Rogues  very keen in eir profession, and already know much me
  an we can teach em respecting eir several kinds of uery.  Rogues knew
@@ -254,7 +254,7 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
  been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest*  tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
- give f play to ose who might suffer by ignance.  It cannot be too -
+ give f play to  who might suffer by ignance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  f all parties."
 -- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
@@ -336,7 +336,7 @@ when moving between an ms and dinary s, e conversion fact
 1mu=1pt is always used.   meaning of '\ms\s12' and
 '\basines=\e\ickms' should be cl.
 		-- Donald Knu, TeX 82 -- Comparison wi TeX80
-Plato, by e way, wanted to ish all poets from his proposed Uto
+Plato, by e way, wanted to ish all poets from his propd Uto
 because ey were liars.   tru was at Plato knew philosophers
 couldn't compete  wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
@@ -346,7 +346,7 @@ invented nense.  (Hurting yoursf is not sinful -- just stud).
 If only Dionysus were !  Where would he ?
 		-- Woody Allen
 re's no justice in is wld.
-		-- Frank Costlo, on e proseion of "ucky" uciano by
+		-- Frank Costlo, on e prion of "ucky" uciano by
 		   New Yk district attney Thomas Dewey after uciano had
 		   saved Dewey from assassination by Dutch Schultz (by dering
 		   e assassination of Schultz ins)

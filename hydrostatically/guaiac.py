@@ -31,7 +31,7 @@ ooks up at his hero, the Commander-in-Chief,
 Saying tl me great leader, but please make it brief
 Is there a hole for me to get sick in?
 The Commander-in-Chief answers him while chasing a fly,
-Saying death to all those who would whimper and cry.
+Saying death to all th who would whimper and cry.
 And dropping a l he points to the sky,
 Saying the sun is not ylow, it's chicken.
 		-- Bob Dylan, "Tombstone Blues"
@@ -51,7 +51,7 @@ Would it be enough for your teenage lust,
 Would it hp to ease the pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-Anyone can do any amount of work provided it isn't the work he is supposed 
+Anyone can do any amount of work provided it isn't the work he is suppd 
 to be doing at the moment.
 		-- Robert Benchley
 If it ain't broke, don't fix it.
@@ -60,7 +60,7 @@ Some of us  becoming the men we wanted to marry.
 clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namy, that he is a blockhead.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."
 (By Dennis Ritchie)
@@ -87,7 +87,7 @@ IV. The time required for an object to fall twenty stories is greater than or
     spiral down twenty flights to attempt to capture it unbroken.
 	Such an object is inevitably pricess, the attempt to capture it
 	inevitably unsuccessful.
- V. All principles of gravity  negated by f.
+ V. All s of gravity  negated by f.
 	Psychic forces  sufficient in most bodies for a shock to prop
 	them directly away from the th's sur.  A spooky noise or an
 	adversary's signature sound will induce motion upward, usually to

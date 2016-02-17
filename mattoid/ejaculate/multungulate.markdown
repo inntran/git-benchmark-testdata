@@ -1,6 +1,6 @@
 Darth Vader sleeps with a Teddywookie.
 To the landlord belongs the doorknobs.
-"Those who believe in astrology  living in houses with foundations of
+"Th who believe in astrology  living in houses with foundations of
 Silly Putty."
 -  Dennis Rawlins, astronomer
 To keep your friends treat them kindly; to kill them, treat them often.
@@ -74,7 +74,7 @@ spend my evenings?"
 		-- Chamfort
 When you  at Rome live in the Roman style; when you  elsewhere live
 as they live elsewhere.
-		-- St. Ambrose
+		-- St. Ambr
 Feeling amorous, she looked under the sheets and , "Oh, no,
 it's Microsoft!"
 If you stick a stock of liquor in your locker,
@@ -141,7 +141,7 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 Shoes:
 	 The average man has 4 pairs of footwear: running shoes, dress shoes,
 boots, and slippers.  The average woman has shoes 4 layers thick on the floor
-of her closet.  Most of them hurt her feet.
+of her clt.  Most of them hurt her feet.
  
 Making friends:
 	 A woman will meet another woman with common interests, do a few things
@@ -156,7 +156,7 @@ A pessimist is a man who has been compelled to live with an optimist.
 		-- Elbert Hubbard
 BASIC, n.:
 	A programming language.  Related to certain social diseases in
-	that those who have it will not admit it in polite company.
+	that th who have it will not admit it in polite company.
 Microwaves frizz your heir.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
@@ -180,7 +180,7 @@ too loaded to c.  I moved to the door with boxy, schlep-shouldered strides.
 -- Martin Amis, _Money_
 Soldiers who wish to be a hero
 Are practically zero,
-But those who wish to be civilians,
+But th who wish to be civilians,
 They run into the millions.
 Stupidity, like virtue, is its own reward.
 Correspondence Corollary:
@@ -261,7 +261,7 @@ Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
 fast.  Expect to see Yip elude all pursuers and make it into the endzone five
 or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
-those times.
+th times.
 YALE:
 Defense:
 	On the defensive side, Yale boasts the stingiest line in the Ivies.
@@ -323,7 +323,7 @@ The Odyssey LITE(tm)
 	After working late, a valiant warrior gets lost on his way home.
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a loose misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consider the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth
@@ -384,7 +384,7 @@ was "Divide and conquer" not "Divide and cock up"
 A triangle which has an angle of 135 degrees is called an obscene triangle.
 senility, n.:
 	The state of mind of elderly persons with whom one happens to disagree.
-It will be generally found that those who sneer habitually at human nature
+It will be generally found that th who sneer habitually at human nature
 and affect to despise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
 Is death legally binding?
@@ -450,7 +450,7 @@ Any sufficiently advanced technology is indistinguishable from magic.
 Graduate students and most professors  no smarter than undergrads.
 They're just older.
 Standards  crucial.  And the best thing about standards is: there 
-so ____many to choose from!
+so ____many to cho from!
 Beat your son every day; you may not know why, but he will.
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
@@ -565,7 +565,7 @@ Stenderup's Law:
 Abstainer:  A weak person who yields to the temptation of ing himself a
 pleasure.  A total abstainer is one who abstains from everything but
 abstention, and especially from inactivity in the affairs of others.
--- Ambrose Bierce
+-- Ambr Bierce
 Whip it, whip it good!
 We don't believe in rheumatism and true love until after the first attack.
 		-- Marie Ebner von Eschenbach
@@ -616,7 +616,7 @@ If you wish to live wisely, ignore sayings -- including this one.
 Lend money to a bad debtor and he will hate you.
 While your friend holds you affectionately by both your hands you 
 safe, for you can watch both of his.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 They collapsed ... like nuns in the street ... they had no teen
 appeal!
 Disks travel in packs.
@@ -647,7 +647,7 @@ About the time we think we can make ends meet, somebody moves the ends.
 		-- Herbert Hoover
 You possess a mind not merely twisted, but actually sprained.
 Von Neumann was the subject of many dotty professor stories.  Von Neumann
-supposedly had the habit of simply writing answers to homework assignments on
+suppdly had the habit of simply writing answers to homework assignments on
 the board (the method of solution being, of course, obvious) when he was asked
 how to solve problems.  One time one of his students tried to get more helpful
 information by asking if there was another way to solve the problem.  Von
@@ -699,7 +699,7 @@ There's one I like most,		Its breed still unknown,
 And by a bird it was said!		Not to mention its gender.
 
 It reminds me of days of		So what is this line
-Both gloom and of light.		Whose author's unknown
+Both gloom and of light.		Wh author's unknown
 It still lifts my spirits		And still makes me giggle
 And starts the day right.		Even now that I'm grown?
 
@@ -733,7 +733,7 @@ This fortune intentionally left blank.
 And yet I should have dearly liked, I own, to have touched her lips; to
 have questioned her, that she might have opened them; to have looked upon
 the lashes of her downcast eyes, and  raised a blush; to have let
-loose waves of hair, an inch of which would be a keepsake beyond price:
+lo waves of hair, an inch of which would be a keepsake beyond price:
 in short, I should have liked, I do confess, to have had the lightest
 license of a child, and yet been man enough to know its value.
 		-- Charles Dickens

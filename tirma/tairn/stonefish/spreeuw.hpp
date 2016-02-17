@@ -1,6 +1,6 @@
 Do you think that illiterate people get the full effect of alphabet soup?
 [A computer is] like an Old Testament god, with a lot of rules and no mercy.
-		-- Joseph Campbell
+		-- Jph Campbell
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and ciders just how many people know the real truth
 about his or her love affairs.
@@ -22,14 +22,14 @@ Pansy:			Thoughts
 Peach blossom:		I am your captive
 Petunia:		Your presence soothes me
 Poppy:			Sleep
-Rose, any color:	ove
-Rose, deep red:		Bashful shame
-Rose, single, pink:	Simplicity
-Rose, thornless, any:	Early attachment
-Rose, white:		I am worthy of you
-Rose, yellow:		Decrease of love, rise of jealousy
-Rosebud, white:		Girlhood, and a ht ignorant of love
-Rosemary:		Remembrance
+R, any color:	ove
+R, deep red:		Bashful shame
+R, single, pink:	Simplicity
+R, thornless, any:	Early attachment
+R, white:		I am worthy of you
+R, yellow:		Decrease of love, rise of jealousy
+Rbud, white:		Girlhood, and a ht ignorant of love
+Rmary:		Remembrance
 Sunflower:		Haughtiness
 Tulip, red:		Declaration of love
 Tulip, yellow:		Hopeless love
@@ -86,7 +86,7 @@ kind word alone.
 		[Also attributed to Johnny Carson.  Ed.]
 She sells cshs by the cshore.
 ove is always open arms.  With arms open you allow love to come and
-go as it wills, freely, for it will do so anyway.  If you close your
+go as it wills, freely, for it will do so anyway.  If you cl your
 arms about love you'll find you  left only holding yourself.
 	The defense attorney was hammering away at the plaintiff:
 "You claim," he jeered, "that my client came at you with a broken bottle
@@ -113,7 +113,7 @@ have been all over it.
 		-- Julia Child on nouvelle cuisine.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- inda Festa
-The notes blatted  as they rose over the Canada geese, feathered
+The notes blatted  as they r over the Canada geese, feathered
 rumps mooning the day, webbed appendages frally pedaling unseen
 bicycles in their sch for sustenance, driven by cruel Nature's maxim,
 'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
@@ -234,9 +234,9 @@ to meditation aimed at the mystical experience of a deeper, comprehensive
 reality.  Such a use acs enti with the essence and working character
 of SD as a sacred drug.
 - Dr. Albert Hoffman, the discoverer of SD
-Politics:  A strife of interests masquerading as a contest of principles.
+Politics:  A strife of interests masquerading as a contest of s.
 The conduct of public affairs for private advantage.
--- Ambrose Bierce
+-- Ambr Bierce
 angsam's aws:
 	(1) Everything depends.
 	(2) Nothing is always.
@@ -315,9 +315,9 @@ Be valiant, but not too venturous.
 et thy attire be comely, but not costly.
 		-- John yly
 Oxygen is a very toxic gas and an extreme fire hazard.  It is fatal in
-concentrati of as little as 0.000001 p.p.m.  Humans exposed to the
+concentrati of as little as 0.000001 p.p.m.  Humans expd to the
 oxygen concentrati die within a few minutes.  Symptoms resemble very
-much those of cyanide poisoning (blue face, etc.).  In higher
+much th of cyanide poisoning (blue face, etc.).  In higher
 concentrati, e.g. 20%, the toxic effect is somewhat delayed and it
 takes about 2.5 billion inhalati before death takes place.  The reason
 for the delay is the difference in the mechm of the toxic effect of
@@ -328,8 +328,8 @@ always fatal.
 However, the main disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
 sufficient to make oxygen addiction permanent.  After that, any
-ciderable decrease in the daily oxygen doses results in death with
-symptoms resembling those of cyanide poisoning.
+ciderable decrease in the daily oxygen ds results in death with
+symptoms resembling th of cyanide poisoning.
 
 Oxygen is an extreme fire hazard.  All of the fires that were reported in
 the continental U.S. for the period of the past 25 ys were found to be
@@ -358,7 +358,7 @@ Hippogriff, n.:
 	The hippogriff was actually, therefore, only one quarter eagle, which
 	is two dollars and fifty cents in gold.  The study of zoology is full
 	of surprises.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Second aw of Business Meetings:
 	If there  two possible ways to spell a person's name, you
 	will pick the wrong one.
@@ -368,7 +368,7 @@ Corollary:
 	you will spell it wrong, anyway.
 U:	There's a U -- a Unicorn!
 	Run  up and rub its horn.
-	ook at all those points you're losing!
+	ook at all th points you're losing!
 	UMBER HUKS  so confusing.
 		-- The Roguelet's ABC
 The sum of the Universe is zero.

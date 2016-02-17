@@ -4,7 +4,7 @@ But as you see e trees have gone
 y went is mning wi e d.
 A logging firm from out of town
 Came and ped e trees all down.
-But I will trick ose dirty s
+But I will trick  dirty s
 And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
@@ -58,7 +58,7 @@ Chocolate chip.
 Do you know Montana?
  flow sat down at a bar, dered a drink and asked e bartender if he
 wanted to h a dumb-jock joke.
-	"Hey, buddy," e bartender replied, "you see ose two guys next to
+	"Hey, buddy," e bartender replied, "you see  two guys next to
 you?  y used to be wi e Chicago Bs.   two dudes bind you made
 e U.S. Olymc wrestling team.  And f you infmation, I used to play
 center at Notre Dame."
@@ -74,7 +74,7 @@ Island University, Hopper told a group of ong Island public school adminis-
 trats at e first computer "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of modern computers, e Mark I.  "Things were going badly;
-ere was someing wrong in one of e circuits of e long glass-enclosed
+ere was someing wrong in one of e circuits of e long glass-encld
 computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
@@ -87,7 +87,7 @@ question."
 Never let your schooling interfere wi your education.
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "ook," he says, "do you suppose you could find some
+maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks away mumbling to himsf.
@@ -133,7 +133,7 @@ one cavalry regiment during a sandstm in western Spain.  This
 reprensible cssness may be rated to e pressure of circumstance,
 since we  war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
-	This brings me to my present purpose, which is to request
+	This brings me to my present purp, which is to request
 ucidation of my instructi from His Majesty's Government so at I
 may better understand why I am dragging an army over ese  plains.
 I ctrue at perfce it must be one of two alternative duties, as
@@ -190,18 +190,18 @@ jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predicti -- like ose
+e astrological influence. . . .If so, astrological predicti -- like 
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
  done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
-I propose at we let ose beckoning lights in e sky awaken our interest
+I prop at we let  beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
-    "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
+    "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
 If swimming is so good f your , how come whales look e
 way ey do?
@@ -241,7 +241,7 @@ people got tired of living in a place called "Vespuccia" and changed its
 		-- Mike Harding, " Armch Anarchist's Almanac"
 I'd like to see e government get out of war altogeer and leave e
 whole fid to private industry.
-		-- Joseph Hler
+		-- Jph Hler
 We cannot command nature except by obeying her.
 		-- Sir Francis Bacon
 Questi   indiscreet, answers sometimes .
@@ -253,7 +253,7 @@ and simultaneously an appreciable diminution in e loss to humanity.
 		-- H. . Mencken
 ab, n.:
 	One of e processes by which A acquires proy f B.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Foolproof Operation:
 	No provision f adjustment.
 He who spends a stm benh a tree, takes life wi a grain of TNT.
@@ -387,7 +387,7 @@ it might wl prolong his life.
 I've already got a female to wry about.  Her  is e Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0
 Giving up on assembly language was e apple in our Garden of Eden:  anguages
-whose use squanders machine cycles  sinful.   ISP machine now permits
+wh use squanders machine cycles  sinful.   ISP machine now permits
 ISP prammers to adon bra and fig-leaf.
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
 Confucius say too much.

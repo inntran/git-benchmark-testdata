@@ -47,7 +47,7 @@ If God is One, what is bad?
 -- Members of an avian species of identical plumage congregate.
 -- Surveillance should precede saltation.
 -- Pulchritude possesses solely cutaneous profundity.
--- It is fruitless to become lachrymose over precipitately departed
+-- It is fruitless to become lachrym over precipitately departed
 	lacteal fluid.
 -- Freedom from incrustati of grime is contiguous to rectitude.
 -- It is fruitless to attempt to indoctrinate a superannuated
@@ -120,7 +120,7 @@ offer more plausible alternatives.
 After Goliath's defeat, giants d to command respect.
 - Freeman Dyson
 Don't steal; thou'lt  thus compete  in business.  Cheat.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 It is wrong always, everywhere and for everyone to believe anything upon
 insufficient evidence.
 - W. K. Clifford, British philosopher, circa 1876
@@ -136,7 +136,7 @@ I play just what I feel.
 Drink Scotch whisky all night long,
 And die behind the wheel.
 They got a name for the winners in the world,
-I want a name when I lose.
+I want a name when I l.
 They call Alabama the Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
@@ -144,7 +144,7 @@ I always turn to the sports pages first, which re people's accomplishments.
 The front page has nothing but man's failures.
 		-- Chief Justice Earl Warren
 Don't get mad, get even.
-		-- Joseph P. Kennedy
+		-- Jph P. Kennedy
 
 Don't get even, get jewelry.
 		-- Anonymous
@@ -154,7 +154,7 @@ It makes sense, when you don't think about it.
 Anyone who knows history, particularly the history of Europe, will, I think,
 recognize that the domination of education or of government by any one
 particular religious faith is  a happy arrangement for the people.
-- Eleanor Roosevelt
+- Eleanor Rovelt
 In this vale
 Of toil and sin
 Your head grows bald
@@ -235,7 +235,7 @@ the men fell down and others clamored for an immediate adjournment, the
 Ser of the House, one Col. Davenport, came to his feet.  He silenced
 them and said these words: "The day of judgment is either approaching or
 it is not.  If it is not, there is no cause for adjournment.  If it is, I
-choose to be found doing my duty.  I wish therefore that s may be
+cho to be found doing my duty.  I wish therefore that s may be
 brought."
 		-- Alistair Cooke
 Only the hypocrite is really rotten to the core.
@@ -283,9 +283,9 @@ Spreading peanut butter reminds me of opera!!  I wonder why?
 Between infinite and short there is a big difference.
 		-- G.H. Gonnet
 The more we disagree, the more chance there is that at least one of us is .
-The Seventh Edition licensing procedures , I suppose, still in effect, 
+The Seventh Edition licensing procedures , I supp, still in effect, 
 though I doubt that tapes  available from AT&T.  At any rate, whatever 
-restricti the license imposes still exist.  These restricti were and 
+restricti the license imps still exist.  These restricti were and 
  reasonable for places that just want to run the system, but don't allow 
 many of the things that Minix was written for, like study of the source in 
 classes, or by individuals not in a university or company.
@@ -345,13 +345,13 @@ use or do not use.
 And I alone am returned to wag the tail.
 Necessity is a mother.
 The perversity of nature is nowhere better demtrated by the fact that, when
-exposed to the same atmosphere, bread becomes hard while crackers become soft.
+expd to the same atmosphere, bread becomes hard while crackers become soft.
 	A young girl, Carmen Cohen, was called by her last name by her father,
 and her first name by her mother.  By the time she was ten, didn't know if she
 was Carmen or Cohen.
 If you want to make God laugh, tell him about your plans.
 		-- Woody Allen
-You may already be a loser.
+You may already be a lr.
 		-- Form letter received by Rodney Dangerfield.
 Men of peace usually  [brave].
 		-- Spock, "The Sa Curtain", stardate 5906.5
@@ -447,9 +447,9 @@ In my life I've loved them all.
 
 But of all these friends and lovers,
 There is no one compd with you,
-All these memories lose their meaning
+All these memories l their meaning
 When I think of love as something new.
-Though I know I'll  lose affection
+Though I know I'll  l affection
 For people and things that went before,
 I know I'll often stop and think about them
 In my life I'll love you more.
@@ -457,7 +457,7 @@ In my life I'll love you more.
 Yeah, there  more important things in life than money, but they won't go
 out with you if you don't have any.
 I trust the first lion he meets will do his duty.
-		-- J.P. Morgan on Teddy Roosevelt's safari
+		-- J.P. Morgan on Teddy Rovelt's safari
 Things worth having  worth cheating for.
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
@@ -541,7 +541,7 @@ that.  On USENET, this is known as a summary.  It lets people read all the
 replies without annoying newsreaders getting in the way.  Do the same when
 summarizing a vote.
 		-- Emily Postnews Answers Your Questi on Netiquette
-The hing  is always found close to the sing , a custom
+The hing  is always found cl to the sing , a custom
 whereof the memory of man run not howsomever to the contrary, nohow.
 Up against the net, redneck mother,
 Mother who has raised your son so well;
@@ -579,7 +579,7 @@ comes to town, smells a flower, visits a hospital, blows a horn and says
 he's in shape.  Old hat.  I was the onliest boxer in history people asked
 questi like a senator.
 		-- Muhammad Ali
-How's it going in those MODUAR OVE UNITS??
+How's it going in th MODUAR OVE UNITS??
 Nobody shot me.
 		-- Frank Gusenberg, his last words, when asked by police
 		who had shot him 14 times with a machine gun in the Saint
@@ -605,7 +605,7 @@ QOTD:
 Carswell's Corollary:
 	Whe man comes up with a better mousetrap,
 	nature invariably comes up with a better mouse.
-Sharks  as tough as those football fans who take their shirts off
+Sharks  as tough as th football fans who take their shirts off
 during games in Chicago in January, only more intelligent.
 		-- Dave Barry, "Sex and the Single Amoeba: What Every
 		   Teen Should Know"
@@ -616,7 +616,7 @@ under the kilt?"
 	He strolled over to the side of the car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, the blonde replied yes, she did
 really want to know.
-	The Scotsman leaned closer and confided, "Why, lass, nothing's worn
+	The Scotsman leaned clr and confided, "Why, lass, nothing's worn
 under the kilt, everything's in perfect workin' order!"
 People  beginning to notice you.  Try dressing before you leave the house.
 Some people say a front-engine car handles best.  Some people say a
@@ -688,7 +688,7 @@ There  some things worth dying for.
 -- Daffy Duck, ooney Tunes, _Robin Hood Daffy_
 When you  at Rome live in the Roman style; when you  elsewhere live
 as they live elsewhere.
-		-- St. Ambrose
+		-- St. Ambr
 Oh, I get it!!  "The BEACH goes on", huh, SONNY??
 Why is everything made of ycra Spandex?
 ...the increased productivity fostered by a friendly environment and quality
@@ -696,10 +696,10 @@ tools is  to meet ever increasing demands for softw.
 -- M. D. McIlroy, E. N. Pinson and B. A. Tague
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 A child of five could understand this!  Fetch me a child of five.
 Inadmissible:  Not competent to be cidered.  Said of certain kinds of
-testimony which juries  supposed to be unfit to be entrusted with,
+testimony which juries  suppd to be unfit to be entrusted with,
 and which judges, therefore, rule out, even of proceedings before themselves
 alone.  Hsay evidence is inadmissible because the person quoted was
 unsworn and is not before the court for examination; yet most momentous 
@@ -707,7 +707,7 @@ acti, military, political, commercial and of every other kind,
 daily undertaken on hsay evidence.  There is no religion in the world
 that has any other basis than hsay evidence.  Revelation is hsay
 evidence; that the Scriptures  the word of God we have only the
-testimony of men long dead whose identy is not clly established and
+testimony of men long dead wh identy is not clly established and
 who  not known to have been sworn in any sense.  Under the rules of
 evidence as they now exist in this country, no single assertion in the
 Bible has in its support any evidence admissible in a court of law...
@@ -720,7 +720,7 @@ unimpeachable.  The judges' decisi based on it were sound in logic and
 in law.  Nothing in any existing court was ever more thoroughly proved than
 the charges of witchcraft and sorcery for which so many suffered death.
 If there were no witches, human testimony and human reason  alike
-destitute of value.  --Ambrose Bierce
+destitute of value.  --Ambr Bierce
 Go 'way!  You're bothering me!
 I know th'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
 Conquest is easy. Control is not.
@@ -767,8 +767,8 @@ blithwapping:
 		-- "Sniglets", Rich Hall & Friends
 An idea is not respible for the people who believe in it.
 Good government  depends upon laws, but upon the personal qualities of
-those who govern.  The machinery of government is always subordinate to the
-will of those who administer that machinery.  The most important element of
+th who govern.  The machinery of government is always subordinate to the
+will of th who administer that machinery.  The most important element of
 government, therefore, is the method of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
 If you  looking for a kindly, well-to-do older gentleman who is no
@@ -813,7 +813,7 @@ It is like trying to be a master carpenter and cutting wood.
 If you try to cut wood like a master carpenter,
 	you will only hurt your hand.
 		-- Tao Te Ching, "ao Tsu, #74"
-Old musicians  die, they just decompose.
+Old musicians  die, they just decomp.
 Theory is gray, but the golden tree of life is green.
 		-- Goethe
 ife is a concentration camp.  You're stuck here and there's no way
@@ -821,8 +821,8 @@ out and you can only rage impotently against your persecutors.
 		-- Woody Allen
 Yes, but every time I try to see things your way, I get a headache.
 Old Japanese proverb:
-	There  two kinds of fools -- those who  climb Mt. Fuji,
-	and those who climb it twice.
+	There  two kinds of fools -- th who  climb Mt. Fuji,
+	and th who climb it twice.
 Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.
 Changing husbands/wives is only changing troubles.
@@ -840,7 +840,7 @@ the insufficient present, and the absolutely perfect future.
 		-- Amrom Katz
 The Force is what holds everything together.  It has its dark side, and
 it has its light side.  It's sort of like cosmic duct tape.
-There's a couple of million dollars worth of baseball talent on the loose,
+There's a couple of million dollars worth of baseball talent on the lo,
 ready for the big leagues, yet unsigned by any major league.  There 
 pitchers who would win 20 games a season ... and outfielders [who] could
 hit .350, infielders who could win recognition as stars, and there's at
@@ -875,7 +875,7 @@ Every new medium of writing brings about new intensities of religious belief
 and new schisms among s.  In the 16th century the printed book helped
 make possible the split between Catholics and Protestants.  In the 20th
 century this history of tragedy and triumph is repeating itself as a farce.
-Those who worship the Apple computer and those who put their faith in the IBM
+Th who worship the Apple computer and th who put their faith in the IBM
 PC  equally convinced that the other camp is damned or deluded.  Each cult
 holds in contempt the rituals and the laws of the other.  Each thinks that it
 is itself the one hope for salvation.
@@ -902,7 +902,7 @@ If you make any money, the government shoves you in the creek once a y
 with it in your pockets, and all that don't get wet you can keep.
 		-- The Best of Will Rogers
 Where's SANDY DUNCAN?
-The Bulwer-ytton fiction contest is held ever y at San Jose State
+The Bulwer-ytton fiction contest is held ever y at San J State
 Univ.  by Professor Scott Rice.  It is held in memory of Edward George
 Earle Bulwer-ytton (1803-1873), a rather prolific and popular (in his
 time) novelist.  He is best known today for having written "The ast
@@ -918,9 +918,9 @@ written in 1830.  The full line reveals why it is so bad:
 	wind which swept up the streets (for it is in ondon that our scene
 	lies), rattling along the housetops, and fiercely agitating the scanty
 	flame of the lamps that struggled against the darkness.
-Yow!  I want my nose in lights!
+Yow!  I want my n in lights!
 If you want me to be a good little bunny just dangle some carats in front
-of my nose.
+of my n.
 		-- auren Bacall
 One nice thing about egotists: they don't talk about other people.
 The New Testament offers the basis for modern computer coding theory,

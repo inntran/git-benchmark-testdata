@@ -18,7 +18,7 @@ Money is e root of all weal.
 	If you do your best e rest of e way, at takes c of
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
-	Bo ose ings sound pretty good to me.
+	Bo  ings sound pretty good to me.
 		-- Sparky Anderson
 Take your wk usly but  take yoursf usly; and do not
 take what happens eier to yoursf  your wk usly.
@@ -49,7 +49,7 @@ haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where ey still know how to get your shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
-may wl suit ose unlucky enough  to have hd e Whoopee John Polka
+may wl suit  unlucky enough  to have hd e Whoopee John Polka
 Band and  to have shd a tcher of 3.2 Grain Bt Beer.   loss is
 eirs.  And e Big Apple has yet to bake e bag at can match peanut
 butter on lefse.  Here is a town where e maj ur problem is dutch m
@@ -81,18 +81,18 @@ jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predicti -- like ose
+e astrological influence. . . .If so, astrological predicti -- like 
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
  done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
-I propose at we let ose beckoning lights in e sky awaken our interest
+I prop at we let  beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
-    "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
+    "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
 Even a blind g stumbles upon a few acns.
  ideal voice f radio may be defined as shog no substance, no sex,
@@ -104,7 +104,7 @@ Moe:	Wanna play r tonight?
 Joe:	I can't. It's e kids' night out.
 Moe:	So?
 Joe:	I gotta stay home wi e nurse.
-In e realm of scientific observation, luck is granted only to ose who 
+In e realm of scientific observation, luck is granted only to  who 
 prepd.
 - ouis Pasteur
 "As an adolescent I asred to lasting fame, I craved factual certainty,
@@ -149,7 +149,7 @@ Foolproof Operation:
 While most peoples' oni change, e conviction of eir
 crectness  does.
 	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
-his flow anti-establishment rabble-rousers, " first ing we do, let's
+his flow anti- rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, president of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
@@ -189,7 +189,7 @@ An American is a man wi two arms and four whes.
 I irsted f a meaningful vision of human life -- so I became a scientist.
 This is like becoming an archbishop so you can meet girls." 
 -- Matt Cartmill
-Don't confuse ings at need action wi ose at take c of emsves.
+Don't confuse ings at need action wi  at take c of emsves.
 "I prefer to ink at God is not dead, just drunk" 
 -- John Huston
 Most of your faults  not your fault.
@@ -213,7 +213,7 @@ Nm:  Not as wl as e sch f Mr. Donut.
 		-- Cheers, Head Over Hill
 "Deep" is a wd like "ey"  "sem" -- it implies all sts of
 marvous ings.  It's one ing to be able to say "I've got a ey",
-quite anoer to say "I've got a sem ey", but, ah, ose who can
+quite anoer to say "I've got a sem ey", but, ah,  who can
 claim "I've got a deep sem ey", ey  truly blessed.
 		-- Randy Davis
 Not every problem someone has wi his girlfriend is necessarily due to
@@ -290,7 +290,7 @@ Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
 	wi me.
 Ted:	A?  Do you realize what you're asking?  Men n't trained
 	to sh.  We're trained to protect oursves by not
-	letting anyone too close.  Good grief, if I go around
+	letting anyone too cl.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into
@@ -304,7 +304,7 @@ A:	Moby Pickle.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
 a ONG BACK BEARD and w a BASEBA HAT!! ...  Alough I don't know WHY!!
 I  my  conditioner e oer way around, and it got cold out.
- wherman said "I don't understand it.  I was supposed to be 80
+ wherman said "I don't understand it.  I was suppd to be 80
 degrees today," and I said "Oops."
 
 In my house on e s I have paintings of e rooms above... so

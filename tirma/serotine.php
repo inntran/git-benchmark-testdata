@@ -12,7 +12,7 @@ computer is so imptant, what e wds *fatal err* mean, and who and what
 you should blame when you make a mistake.
 
 	Yes, I want e brochure describing is incredible offer.
-	I enclose $1000 is ll unmarked bills to cover e cost of
+	I encl $1000 is ll unmarked bills to cover e cost of
 	postage and handling. (No live , please.)
 
 *** Our Slogan:  Top down pramming f e masses. ***
@@ -23,7 +23,7 @@ Show business is just like high school, except you get paid.
 We don't c how ey do it in New Yk.
 Some people live life in e fast lane.  You're in oncoming traffic.
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situati?  Wry no me...
+say in  awkward situati?  Wry no me...
 
 	Do as I say, not as I do.
 	Do me a favour and don't tl me about it.  I don't want to know.
@@ -103,7 +103,7 @@ e faer spanked em.  His wife asked, "Don't you love your children?"
  Fce is what holds everying togeer.  It has its dark side, and
 it has its light side.  It's st of like cosmic duct tape.
 Do not read is ftune under penalty of law.
-Violats will be proseed.
+Violats will be pred.
 (Penal Code sec. 2.3.2 (II.a.))
 "We want to cre puppets at pull eir own strings."
 -- Ann 
@@ -133,7 +133,7 @@ Do you ink at when ey asked Gege Washington f ID at he
 just whipped out a quarter?
 		-- Steven W
 D Sir,
-	I am firmly opposed to e spread of microchips eier to e home 
+	I am firmly oppd to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
 places.  y  a disgusting Americm, and can only result in e farmers
 being fced to grow ller potatoes, which in turn will cause massive un-
@@ -172,7 +172,7 @@ Fulle few too many drincce, hie luccen f fyht.
 [D]en Hrefnt[d]hwr, son of Hrwaerow[p]hewl,
 AEsccen aewful jek to steop outsyd.
 [P]hud!  Bashe!  Crasch!  Beoom!  [D]e bigge gye
-Eallum his bon brak, byt his nose offe;
+Eallum his bon brak, byt his n offe;
 Wicced Godsylla wad on his asse.
 Mtaer moppe fle wy[p] eallum men in hale.
 Beowulf in bacceroome fonecall bemaccen waes;
@@ -225,7 +225,7 @@ Some people's n'oeuvres.
 Heisenberg may have been here.
 Exercise caution in your daily affs.
 Wds must be weighed, not counted.
-Ill-chosen abstraction is particularly evident in e design of e ADA
+Ill-chn abstraction is particularly evident in e design of e ADA
 runtime system.  inter to e ADA runtime system is so opaque at
 it is impossible to mod  predict its perfmance, making it effectivy
 usess f real-time systems. -- Marc D. Donner and David H. Jameson.
@@ -253,7 +253,7 @@ re's none so bad as which and whom.
 Will be enshrined in our Who's Whom.
 		-- Fletcher Kneb
 I'm ly AMAZED at 'brhtaking effects of WIND EROSION!!
-Beggars should be no choosers.
+Beggars should be no chors.
 		-- John Heywood
 I  quote mysf; it adds sce to my conversation.
 		-- G. B. Shaw
@@ -270,7 +270,7 @@ Or bends wi e remover to remove:
 O, no! it is an ever-fixed mark,
 That looks on tempests and is  shaken;
 It is e star to every wandering bark,
-Whose w's unknown, alough his height be taken.
+Wh w's unknown, alough his height be taken.
 ove's not Time's fool, ough rosy lips and cheeks
 Wiin his bending 's compass come;
 ove alters not wi his brief hours and weeks,
@@ -318,7 +318,7 @@ O'Toole's commentary on Murphy's aw:
 	Murphy was an optimist.
 Noing is impossible f e man who doesn't have to do it himsf.
 		-- A.H. Weiler
-If life is mery a joke, e question still remains: f whose amusement?
+If life is mery a joke, e question still remains: f wh amusement?
 IT MAKES ME MAD when I go to all e trouble of having Marta cook up about
 a hundred drumsticks, en e guy at Marinand says, "You can't row
 at chicken to e dolphins. y  fish."
@@ -332,7 +332,7 @@ I have a rock garden.  ast week ree of em died.
 Some people need a good imaginary cure f eir painful imaginary ailment.
 Micro Credo:
 	Never trust a computer bigger an you can lift.
-"My sense of purpose is gone! I have no idea who I AM!"
+"My sense of purp is gone! I have no idea who I AM!"
     "Oh, my God... You've.. You've  him into a DEMOCRAT!"
 -- Doonesbury
 augh and e wld inks you're an idiot.
@@ -358,7 +358,7 @@ How many hardw guys does it take to change a light bulb?
 
 "Wl e diagnostics say it's fine buddy, so it's a softw problem."
 A man is crawling rough e Sahara desert when he is approached by anoer
-man riding on a cam.  When e rider gets close enough, e crawling man
+man riding on a cam.  When e rider gets cl enough, e crawling man
 whispers rough his sun-parched lips, "Water... please... can you give...
 water..."
 	"I'm sry," replies e man on e cam, "I don't have any water
@@ -398,7 +398,7 @@ maematics, ough she is still fbidden to rest to physics and chemistry.
 You're already carrying e sphere!
 No m how subtle e wizard, a knife in e shoulder blades will usly
 cramp his style.
-I do not c if half e league strikes.  Those who do will encounter
+I do not c if half e league strikes.  Th who do will encounter
 quick retribution.  All will be susp, and I don't c if it wrecks
 e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
@@ -444,7 +444,7 @@ about e tension and vibrati of e nerves,  as like to be true, as
 his about e suppt of e .  His ephant was a esis, and our
 eses  ephants.  Every ey in philosophy, which is built on
 pure conjecture, is an ephant; and every ey at is suppted partly
-by fact, and partly by conjecture, is like Nebuchadnezzar's image, whose
+by fact, and partly by conjecture, is like Nebuchadnezzar's image, wh
 t were partly of iron, and partly of clay.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 In Tulsa, Oklahoma, it is against e law to open a soda bottle wiout

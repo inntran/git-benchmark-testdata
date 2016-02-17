@@ -1,4 +1,4 @@
-Around the turn of this century, a composer named Camille Saint-Saens wrote
+Around the turn of this century, a compr named Camille Saint-Saens wrote
 a satirical zoological-fantasy called "e Carnaval des Animaux."  Aside from
 one movement of this piece, "The Swan", Saint-Saens didn't allow this work
 to be published or even performed until a y had elapsed after his death.
@@ -58,7 +58,7 @@ Brady's First aw of Problem Solving:
 	have handled this?"
 I found Rome a city of bricks and left it a city of marble.
 		-- Augustus Caesar
-Personifiers of the world, unite!  You have nothing to lose but Mr. Dignity!
+Personifiers of the world, unite!  You have nothing to l but Mr. Dignity!
 		-- Bernadette Bosky
 	"What do you do when your real life exceeds your wildest fantasies?"
 	"You keep it to yourself."
@@ -137,7 +137,7 @@ starts a long, long time before the event.
 You're working under a slight handicap.  You happen to be human.
 Pelorat sighed.
 	"I will  understand people."
-	"There's nothing to it.  All you have to do is take a close look
+	"There's nothing to it.  All you have to do is take a cl look
 at yourself and you will understand everyone else.  How would Seldon have
 worked out his Plan -- and I don't c how subtle his mathematics was --
 if he didn't understand people; and how could he have done that if people
@@ -204,10 +204,10 @@ Rudin's aw:
 
 Rudin's Second aw:
 	In a crisis that forces a choice to be made among alternative
-	courses of action, people tend to choose the worst possible
+	courses of action, people tend to cho the worst possible
 	course.
 I met a wonderful new man.  He's fictional, but you can't have everything.
-		-- Cecelia, "The Purple Rose of Cairo"
+		-- Cecelia, "The Purple R of Cairo"
 A kiss is a course of procedure, cunningly devised, for the mutual
 stoppage of speech at a moment when words  superfluous.
 Not to laugh, not to lament, not to curse, but to understand.
@@ -220,7 +220,7 @@ Cooper and Claudette Colbert, and to be beaten up by both of them!
 Q:	How many Zen masters does it take to screw in a light bulb?
 A:	None.  The Universe spins the bulb, and the Zen master stays out
 	of the way.
-You'll ln something about men and women -- the way they're supposed
+You'll ln something about men and women -- the way they're suppd
 to be.  Caring for each other, being happy with each other, being good
 to each other.  That's what we call love.  You'll like that a lot.
 		-- Kirk, "The Apple", stardate 3715.6
@@ -273,14 +273,14 @@ To date, the firm conclusi of Project Blue Book :
       national security;
    2. there has been no evidence submitted to or discovered by the Air
       Force that sightings categorized as UNIDENTIFIED represent
-      technological developments or principles beyond the range of
+      technological developments or s beyond the range of
       present-day scientific knowledge; and
    3. there has been no evidence indicating that sightings categorized
       as UNIDENTIFIED  extraterrestrial vehicles.
 - the summary of Project Blue Book, an Air Force study of UFOs from 1950
   to 1965, as quoted by James Randi in Flim-Flam!
 Remember, an int is not always 16 bits.  I'm not sure, but if the 80386 is one
-step closer to Intel's slugfest with the CPU curve that is aymptotically
+step clr to Intel's slugfest with the CPU curve that is aymptotically
 approaching a real machine, perhaps an int has been implemented as 32 bits by
 some Unix vendors...?
 -- Derek Terveer

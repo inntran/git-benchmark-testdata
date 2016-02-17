@@ -48,7 +48,7 @@ Marriage is a great institution -- but I'm not ready for an institution yet.
 You will soon forget this.
 Soldiers who wish to be a hero
 Are practically zero,
-But those who wish to be civilians,
+But th who wish to be civilians,
 They run into the millions.
 I had another dream the other day about music critics.  They were small
 and rodent-like with padlocked ears, as if they had stepped out of a
@@ -67,7 +67,7 @@ such difficult conditions.
 People love high ideals, but they got to be about 33-percent plausible.
 		-- The Best of Will Rogers
 It is impossible to make anything foolproof because fools  so ingenious.
-Reader, suppose you were an idiot.  And suppose you were a member of
+Reader, supp you were an idiot.  And supp you were a member of
 Congress.  But I repeat myself.
 		-- Mark Twain
 Now I lay me back to sleep.
@@ -86,7 +86,7 @@ And then to dying, and to me that don't sound like much fun."
 		-- John Cougar, "The Authority Song"
 Art is a jealous mistress.
 		-- Ralph Waldo Emerson
-Good advice is one of those insults that ought to be forgiven.
+Good advice is one of th insults that ought to be forgiven.
 He that bringeth a present, findeth the door open.
 		-- Scottish proverb.
 If you think nobody cs if you're alive, try missing a couple of car
@@ -105,7 +105,7 @@ Life only demands from you the strength you possess.
 Only one feat is possible -- not to have run away.
 		-- Dag Hammarskjold
 Succumb to natural tendencies.  Be hateful and boring.
-Has anyone realized that the purpose of the fortune cookie program is to
+Has anyone realized that the purp of the fortune cookie program is to
 defuse project tensions?  When did you ever see a cheerful cookie, a
 non-cynical, or even an informative cookie?
 	Perhaps inadvertently, we have a channel for our aggressions.  This
@@ -154,7 +154,7 @@ Fortune's Real-Life Courtroom Quote #41:
 
 Q:  Now, Mrs. Johnson, how was your first marriage terminated?
 A:  By death.
-Q:  And by whose death was it terminated?
+Q:  And by wh death was it terminated?
 A dwarf is passing out somewhere in Detroit!
 When in doubt, lead trump.
 Real Programmers don't write in FORTRAN.  FORTRAN is for pipe stress freaks and

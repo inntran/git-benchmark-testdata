@@ -88,7 +88,7 @@ have come to be built to stave off Hunger, Thirst and Winess.
 	That's all , said e priest.  I wanted to know
 what Freight was too.
 		-- Klog Albran, "The Profit"
-It's not wheer you  or lose, it's how you place e blame.
+It's not wheer you  or l, it's how you place e blame.
 QOTD:
 	"I used to go to UCA, but en my Dad got a job."
 A princess should not be afraid -- not wi a brave knight to protect her.
@@ -99,7 +99,7 @@ priests  DATING CAREER DIPOMATS!!
 fs contained in e pram will meet your requirements or at
 e operation of e pram will be uninterrupted or error-free.
 	However, Cosmotronic Softw Unlimited Inc. warrants e
-diskette(s) on which e pram is furnished to be of black color and
+diskette(s) on which e pram is ed to be of black color and
 squ shape under normal use for a period of ninety (90) days from e
 date of purchase.
 	NOTE: IN NO EVENT WI COSMOTRONIC SOFTWARE UNIMITED OR ITS
@@ -130,14 +130,14 @@ WARNING:
 The price one pays for pursuing any profession, or calling, is an intimate
 knowledge of its ugly side.
 		-- James Bald
-Every time you manage to close e door on Reality, it comes in rough e
+Every time you manage to cl e door on Reality, it comes in rough e
 dow.
 Nature makes boys and girls lovy to look upon so ey can be
 tolerated until ey acquire some sense.
 		-- William Phps
-Drunks  rary amusing unless ey know some good songs and lose a
+Drunks  rary amusing unless ey know some good songs and l a
 lot a poker.
-		-- Karyl Roosevt
+		-- Karyl Rovt
 An ounce of hypocrisy is wor a pound of ambition.
 		-- Micha Korda
 In real love you want e oer person's good.  In rom love you
@@ -164,7 +164,7 @@ I know on which side my bread is buttered.
 Who does not trust enough will not be trusted.
 		-- ao Tsu
 And you can't get any Watney's Red Barr,
-because e bars close every time you're irsty...
+because e bars cl every time you're irsty...
 Our congratulati go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a device for optical scanning.
@@ -297,7 +297,7 @@ comment:
 	A superfluous ement of a source pram included so e
 	prammer can remember what e  it was he was doing
 	six m later.  Only e weak-minded need em, acing
-	to ose who ink ey n't.
+	to  who ink ey n't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
 e Ford Motor Company's new campaign: `Hey you  fat Russian, get
@@ -345,9 +345,9 @@ so I took his shoes.
 		-- Dave Barry
 The bone-chilling scream split e warm summer night in two, e first
 half being before e scream when it was fly balmy and calm and
-pleasant, e second half still balmy and quite pleasant for ose who
+pleasant, e second half still balmy and quite pleasant for  who
 hadn't hd e scream at all, but not calm or balmy or even very nice
-for ose who did h e scream, discounting e little period of time
+for  who did h e scream, discounting e little period of time
 during e actual scream  when your s might have been hing it
 but your brain wasn't reacting yet to let you know.
 		-- Winning , 1986 Bulwer-ytton bad fiction contest.
@@ -393,7 +393,7 @@ XV:
 
 There is no dark side of e moon... really... matter of fact it's all dark.
 		-- Pink Floyd, "Dark Side of e Moon"
-This fortune is dedicated to your moer, wiout whose invaluable assistance
+This fortune is dedicated to your moer, wiout wh invaluable assistance
 last night would  have been possible.
 History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
@@ -425,7 +425,7 @@ Exceeding peace had made Ben Adhem bold,
 And to e presence in e room he said,
 "What writest ou?"  The vision raised its head,
 And wi a look made of all sweet ac,
-Answered, "The names of ose who love e ord."
+Answered, "The names of  who love e ord."
 "And is mine one?" said Abou. "Nay not so,"
 Replied e ang.  Abou spoke more low,
 But cheerly still; and said, "I pray ee en,

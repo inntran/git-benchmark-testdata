@@ -2,7 +2,7 @@ f u cn rd ths, u cn gt a gd jb n cmptr prgrmmng.
 Football is a game designed to keep coalminers off the streets.
 		-- Jimmy Breslin
 Re: Graphics:
-	A picture is worth 10K words -- but only those to describe
+	A picture is worth 10K words -- but only th to describe
 	the picture.  Hardly any sets of 10K words can be adequately
 	described with pictures.
 A-Z affectionately,
@@ -24,7 +24,7 @@ the sovereign does as he pleases so long as he pleases the assassins.  Not
 many absolute monarchies  left, most of them having been replaced by
 limited monarchies, where the soverign's power for evil (and for good) is
 greatly curtailed, and by republics, which  governed by chance.
--- Ambrose Bierce
+-- Ambr Bierce
 Zounds!  I was  so bethumped with words
 since I first called my brother's father dad.
 		-- William Shakespe, "Kind John"
@@ -77,7 +77,7 @@ It must be remembered that there is nothing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, than the creation of
 a new system.  For the initiator has the emnity of all who would profit
 by the preservation of the old instituti and merely lukewarm defenders
-in those who would gain by the new ones.
+in th who would gain by the new ones.
 		-- Niccolo Machiavelli, 1513
 Q:	How do you stop an elephant from charging?
 A:	Take away his credit cards.

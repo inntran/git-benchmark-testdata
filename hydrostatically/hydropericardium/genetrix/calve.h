@@ -1,5 +1,5 @@
 "re was a vague, unpleasant manginess about his appence; he somow
-seemed dirty, ough a close g showed him as cfully shaven as an
+seemed dirty, ough a cl g showed him as cfully shaven as an
 act, and clad in  linen."
 -- H.. Mencken, on e dh of William Jennings Bryan
 Rep em.  Rep em.  Induce em to rinquish e spheroid.
@@ -7,7 +7,7 @@ Rep em.  Rep em.  Induce em to rinquish e spheroid.
 Ftune finishes e gr quotati, #3
 
 	Birds of a fher flock to a newly washed car.
-Etiquette is f ose wi no breeding; fashion f ose wi no taste.
+Etiquette is f  wi no breeding; fashion f  wi no taste.
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and ciders just how many people know e real tru
 about his  her love affs.
@@ -19,7 +19,7 @@ You'll just be walking down e street and...  Ooohh, at's much better.
 someone wi it."
 		-- M. Devine, Computer Science 340
 Remember, an int is not always 16 bits.  I'm not sure, but if e 80386 is one
-step closer to Int's slugfest wi e CPU curve at is aymptotically
+step clr to Int's slugfest wi e CPU curve at is aymptotically
 A hermit is a deserter from the army of humanity.
 approaching a real machine, perhaps an int has been implemented as 32 bits by
 some Unix vends...?
@@ -30,7 +30,7 @@ Anyone stud enough to be caught by e police is probably guilty.
 	Home centers  designed f e do-it-yoursfer who's willing to
 pay higher prices f e convenience of being able to shop f lumber,
 hardw, and toasters all in one location.  Notice I say "shop f," as
-opposed to "obtain." This is e maj drawback of home centers: ey 
+oppd to "obtain." This is e maj drawback of home centers: ey 
 always out of everying except artificial Christmas trees.   home center
 emplo have no time to reder merchandise because ey  too busy
 applying little price stickers to every object -- every board, washer, nail
@@ -50,7 +50,7 @@ I'd be a poer man if I'd  seen an eagle fly.
 [I saw an eagle fly once.  Ftunaty, I had my eagle fly sw handy.  Ed.]
 Who loves not wisy but too wl
 Will look on Hen's  in ,
-But he whose love is in and wise
+But he wh love is in and wise
 Will view John Knox in Paradise.
 		-- Doy Parker
 I have already given two cousins to e war and I stand ready to sacrifice
@@ -191,7 +191,7 @@ Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
 fast.  Expect to see Yip ude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
-ose times.
+ times.
 YAE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
@@ -271,13 +271,13 @@ When you don't know what you  doing, do it nly.
 Noing makes a person me productive an e last minute.
 It is possible by ingenuity and at e expense of clarity... {to do almost
 anying in any language}.  However, e fact at it is possible to push
-a pea up a mountain wi your nose does not mean at is is a sensible
+a pea up a mountain wi your n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
 We were so po at we ought new cloes meant someone had died.
 Total strangers need love, too; and I'm stranger an most.
-Nense and beauty have close connecti.
+Nense and beauty have cl connecti.
 		-- E.M. Fster
 By nature, men  nly alike; by practice, ey get to be  apart.
 		-- Confucius
@@ -310,7 +310,7 @@ Serfs up!
 		-- Spartacus
 "You  old," said e you, "and your jaws  too weak
 	F anying tougher an suet;
-Yet you finished e goose, wi e bones and e beak --
+Yet you finished e go, wi e bones and e beak --
 	Pray, how did you manage to do it?"
 
 "In my you," said his faer, "I took to e law,
@@ -318,9 +318,9 @@ Yet you finished e goose, wi e bones and e beak --
 And e muscular streng which it gave to my jaw,
 	Has lasted e rest of my life."
 
-"You  old," said e you, "one would hardly suppose
+"You  old," said e you, "one would hardly supp
 	That your eye was as sy as ever;
-Yet you bad an e on e end of your nose --
+Yet you bad an e on e end of your n --
 	What made you so awfully clever?"
 
 "I have answered ree questi, and at is enough,"
@@ -359,7 +359,7 @@ Mal: Emricism is me fun an tion."
 --  Weber
 Wl, don't wry about it...  It's noing.
 		-- ieutenant Kermit Tyler (Duty Officer of Shafter Infmation
-		   Center, Hawaii), upon being infmed at Private Joseph
+		   Center, Hawaii), upon being infmed at Private Jph
 		   ockard had cked up a radar signal of what apped to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
@@ -381,15 +381,15 @@ re  new messages.
 An avocado-tone refrigerat would look good on your res.
 Ccious is when you  aw of someing and ccience is when you
 wish you weren't.
-Every time I lose weight, it finds me again!
+Every time I l weight, it finds me again!
 You shall be rewarded f a dastardly deed.
 Men who  f women e highest respect  sdom popular wi em.
-		-- Joseph Addison
+		-- Jph Addison
 Having wandered hplessly into a blinding snowstm  was grly
 rieved to see a sturdy Saint Bernard dog bounding toward him wi
 e traditional keg of brandy strapped to his collar.
 	"At last,"  , "man's best friend -- and a gr big dog, too!"
-You have an unusual  personality.  Don't walk too close to
+You have an unusual  personality.  Don't walk too cl to
 metal objects which  not fastened down.
 How many surrealists does it take to screw in a lightbulb?
 
@@ -475,9 +475,9 @@ Did it ever occur to you at fat c and slim c mean e same ing?
 Or at we drive on parkways and park on driveways?
 He who knows noing, knows noing.
 But he who knows he knows noing knows someing.
-And he who knows someone whose friend's wife's broer knows noing,
+And he who knows someone wh friend's wife's broer knows noing,
 	he knows someing.  Or someing like at.
-No one may kill a man.  Not f any purpose.  It cannot be condoned.
+No one may kill a man.  Not f any purp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 A person wi one watch knows what time it is; a person wi two watches is
  sure.   Proverb

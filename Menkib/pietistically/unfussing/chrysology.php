@@ -70,7 +70,7 @@ You of today!  Join me in a mass rally f traditional mental
 attitudes!
 Wl, don't wry about it...  It's noing.
 		-- ieutenant Kermit Tyler (Duty Officer of Shafter Infmation
-		   Center, Hawaii), upon being infmed at Private Joseph
+		   Center, Hawaii), upon being infmed at Private Jph
 		   ockard had cked up a radar signal of what apped to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
@@ -101,7 +101,7 @@ Min premise:
 	A man can dig a posole in sixty seconds.
 Conclusion:
 	Sixty men can dig a posole in one second.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 
 Secondary Conclusion:
 	Do you realize how many holes ere would be if people
@@ -122,7 +122,7 @@ anying removed would  make you less an we bargained f.
 When in doubt, mumble; when in trouble, degate; when in charge, ponder.
 		-- James H. Ben
 Pereant, inquit, qui ante nos nostra dixerunt.
-	[Confound ose who have said our remarks befe us.]
+	[Confound  who have said our remarks befe us.]
 	
 	[May ey perish who have expressed our b ideas befe us.]
 		-- Aius Donatus
@@ -148,7 +148,7 @@ okay wi me."
 Don't ever slam a do; you might want to go back.
 If you always postpone pleasure you will  have it.  Quit wk and play
 f once!
-" only way I can lose is ection is if I'm caught in bed wi a dead 
+" only way I can l is ection is if I'm caught in bed wi a dead 
 girl  a live boy."
 -- ouisiana govern Ed Edwards
 ife is a biochemical reaction to e stimulus of e surrounding
@@ -160,12 +160,12 @@ make it give you e CADR of Item H so you can get at yummie
 chocolate cupcake at's stuck bind e disgusting vanilla one.
 A gr nation is any mob of people which produces at least one honest
 man a century.
-F ose who like is st of ing, is is e st of ing ey like.
+F  who like is st of ing, is is e st of ing ey like.
 		-- Abraham incoln
 Hand, n.:
 	A singular instrnt wn at e end of a human arm and
 	commonly rust into somebody's pocket.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 "You know, we've won awards f is crap."
 -- David etterman
 Memy fault -- ce...uh...um...ce... Oh dammit, I fget!
@@ -199,9 +199,9 @@ If dolphins  so rt, why did Flipper wk f tevision?
 ife begins at e centerfold and expands outward.
 		-- Miss November, 1966
 I just had a NOSE JOB!!
- Seven Edition licensing procedures , I suppose, still in effect, 
+ Seven Edition licensing procedures , I supp, still in effect, 
 ough I doubt at tapes  available from AT&T.  At any rate, whatever 
-i e license imposes still exist.  se i were and 
+i e license imps still exist.  se i were and 
  reasonable f places at just want to run e system, but don't allow 
 many of e ings at Minix was written f, like study of e source in 
 classes,  by individuals not in a university  company.
@@ -268,7 +268,7 @@ just as high and wild as I was: no doubt at all about at.
 At no time is freedom of speech me  an when a man hits his
 umb wi a hammer.
 		-- Marshall umsden
-Some men  heterosexual, and some  bisexual, and some men don't ink
+Some men  heterxual, and some  bisexual, and some men don't ink
 about sex at all... ey become lawyers.
 		-- Woody Allen
 "I bieve at Ronald Reagan will someday make is
@@ -303,7 +303,7 @@ I don't c f e Sugar Smacks commercial.  I don't like e idea of
 a f jumng on my Breakfast.
 		-- owl, Chicago Reader 10/15/82
 Bach:
-	A guy who is footloose and fiancee-free.
+	A guy who is footlo and fiancee-free.
 "You tried it just f once, found it al f kicks,
  but now you find out you have a habit at sticks,
  you're an gasm addict,
@@ -379,7 +379,7 @@ New England ife, of course.  Why do you ask?
 An exotic journey in downtown Newark is in your future.
 Y, n.:
 	A period of ree hundred and sixty-five disaps.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Ho! Ho! Ho! to e bottle I go
 To heal my ht and drown my woe.
 Rain may fall and d may blow,
@@ -446,14 +446,14 @@ is at e image fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing at became a us issue....Not
 at long ago, it was Reagan's suppt of Crionism....Crionists actually
-got equal time wi evolutionists.   public was supposed to be open-minded
+got equal time wi evolutionists.   public was suppd to be open-minded
 to e claims of paleontologists and ists, as if e two were
 scientific colleagues....It has been cl f a long time at e president
 is averse to science...In general, ese attitudes fall onto friendly American
 turf....But at e outer edges, is skepticism about science easily turns
 into a kind of naive acceptance of ncience,  even nense.   same
 people who doubt exs can also bieve any ery, from e benefits of
-laetrile to eye of newt to e movment of planets.  We lose e capacity to
+laetrile to eye of newt to e movment of planets.  We l e capacity to
 make rational -- scientific -- judgments.  It's all e same.
 -- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
     Group
@@ -477,7 +477,7 @@ drinking Windows 3.1 Beer until eir friends try Windows 95 Beer and say
 ey like it.  ingredients list, when you look at e ll print, has 
 some of e same ingredients at come in DOS beer, even ough e 
 manufacturer claims at is is an entiry new brew.
-He at composes himsf is wiser an he at composes a .
+He at comps himsf is wiser an he at comps a .
 		-- B. Franklin
  solution of is problem is trivial and is left as an exercise f
 e reader.
@@ -500,7 +500,7 @@ take fceful action:
 	Do someing at should have been done a long time ago.
 "He flung himsf on his hse and rode madly off in all directi."
 hard, adj.:
-	 quality of your own data; also how it is to bieve ose
+	 quality of your own data; also how it is to bieve 
 	of oer people.
 America is e country where you  a lifetime supply of asrin f one
 dollar, and use it up in two weeks.
@@ -549,7 +549,7 @@ Rule of Crive Resch:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
 	(3) Never trace what you can  out and paste down.
-It is impossible to defend perfectly against e attack of ose who want
+It is impossible to defend perfectly against e attack of  who want
 to die.
 SHOP OR DIE, people of Ear!
 [offer void where prohibited]
@@ -567,7 +567,7 @@ Because we don't ink about future generati, ey will  fget us.
 Obviously e only rational solution to your problem is suicide.
 In der to discover who you , first ln who everybody se is;
 you're what's left.
-Men  ose crures wi two legs and eight hands.
+Men   crures wi two legs and eight hands.
 		-- Jayne Mansfid
 I am e moer of all ings, and all ings should w a swer.
 BYTE edits  people who separate e wh from e chaff, and en
@@ -599,7 +599,7 @@ alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 catal of Massachusetts.
-ba, n:	One whose business is to   trim h  bds.
+ba, n:	One wh business is to   trim h  bds.
 beea, n:	An alcoholic beverage brewed from malt and hops, 
 			found in baas.
 caaa, n:	An automobile.
@@ -626,7 +626,7 @@ Existed hand in hand
  Indians needed 
 y need skins f a roof
  only took what ey needed
-And e buffalo ran loose
+And e buffalo ran lo
 But en came e white man
 Wi his ick and empty head
 He couldn't see past his billfold
@@ -663,7 +663,7 @@ A wise person makes his own decisi, a weak one obeys public onion.
 		-- Chinese proverb
  gods gave man fire and he invented fire engines.  y gave him
 love and he invented marriage.
-Q:	How many gradual (sry, at's supposed to be "graduate") students
+Q:	How many gradual (sry, at's suppd to be "graduate") students
 	does it take to screw in a lightbulb?
 A:	"I'm afraid we don't know, but make my stipend tax-free, give my
 	advis a $30,000 grant of e taxpayer's money, and I'm sure he
@@ -713,7 +713,7 @@ Teachers have class.
 Pollyanna's Educational Ctant:
 	 hyperactive child is  absent.
 Cynic, n.:
-	One who looks rough rose-coled glasses wi a jaundiced eye.
+	One who looks rough r-coled glasses wi a jaundiced eye.
 Real weal can only increase.
 		-- R. Buckminster Fuller
 It gets late ly out ere.
@@ -729,7 +729,7 @@ Arnold's Addendum:
 	Anying not fitting into ese categies causes cancer in rats.
 Where's SANDY DUNCAN?
 Did I say 2?  I lied.
- man on tops walks a lony street; e "chain" of command is  a noose.
+ man on tops walks a lony street; e "chain" of command is  a no.
 Real softw engineers wk from 9 to 5, because at is e way e job is
 described in e fmal spec.  Wking late would l like using an
 undocnted  procedure.
@@ -740,7 +740,7 @@ what e  says it means, you go to jail.  No excepti.
 		-- David Jones
 Prejudice:
 	A vagrant onion wiout visible means of suppt.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 DYSEXICS OF THE WORD, UNTIE!
 "I couldn't remember ings until I took at  Carnegie course."
 --  Peterson, fmer Houston Oiler football coach
@@ -775,25 +775,25 @@ All prammers  playws and all computers  lousy acts.
 Optimism, n.:
 	 bief at everying is beautiful, including what is ugly, good,
 	bad, and everying  at is wrong.  It is hd wi grest
-	tenacity by ose aced to falling into adversity, and most
+	tenacity by  aced to falling into adversity, and most
 	acceptably expounded wi e grin at apes a smile.  Being a blind
 	fai, it is in to e light of disproof -- an intlectual
 	disder, yiding to no trment but dh.  It is hereditary, but
 	not contagious.
 re was a writer in 'ife' magazine ... who claimed at rabbits have
 no memy, which is one of eir defensive mechms.  If ey recalled
-every close shave ey had in e course of just an hour life would become
+every cl shave ey had in e course of just an hour life would become
 insupptable.
 		-- Kurt Vonnegut
  bone-chilling scream split e warm summer night in two, e first
 half being befe e scream when it was fly balmy and calm and
-pleasant, e second half still balmy and quite pleasant f ose who
+pleasant, e second half still balmy and quite pleasant f  who
 hadn't hd e scream at all, but not calm  balmy  even very nice
-f ose who did h e scream, discounting e little period of time
+f  who did h e scream, discounting e little period of time
 during e actual scream  when your s might have been hing it
 but your brain wasn't reacting yet to let you know.
 		-- Winning , 1986 Bulwer-ytton bad fiction contest.
-A rock ste eventually closed down; ey were taking too much f granite.
+A rock ste eventually cld down; ey were taking too much f granite.
 Misery loves company, but company does not reciprocate.
 FORTUNE'S FUN FACTS TO KNOW AND TE:		#14
 	 Baby Ru candy bar was not d after Gege Herman " Babe"

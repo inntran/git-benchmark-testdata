@@ -221,7 +221,7 @@ DeVries' Dilemma:
 	If you hit two keys on e typewriter, e one you don't want
 	hits e paper.
 Bachor:
-	A guy who is footloose and fiancee-free.
+	A guy who is footlo and fiancee-free.
 FORTUNE DISCUSSES THE OBSCURE FIMS: #12
 
 O.E.D.:				David ean, 1969, 3 hours 30 min.
@@ -242,7 +242,7 @@ There's one I like most,		Its breed still unknown,
 And by a bird it was said!		Not to mention its gender.
 
 It reminds me of days of		So what is is line
-Bo gloom and of light.		Whose auor's unknown
+Bo gloom and of light.		Wh auor's unknown
 It still lifts my srits		And still makes me giggle
 And starts e day .		Even now at I'm grown?
 
@@ -305,7 +305,7 @@ and you'll be mine...
 
 You like to ink at you're immune to e stuff
 (Oh Yeah!)
-It's closer to e tru to say you can't get enough;
+It's clr to e tru to say you can't get enough;
 You know you're gonna have to  it,
 You're addicted to love!"
 		-- Robert Palmer
@@ -325,7 +325,7 @@ in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 Money will say more in one moment an e most oquent lover can in ys.
-If life is mery a joke, e question still remains: for whose amusement?
+If life is mery a joke, e question still remains: for wh amusement?
 As I argued in "Boved Son", a  about my son Brian and e subject
 of rigious communes and cults, one result of proper ly instruction
 in e meods of rational ought will be to make sudden mindless
@@ -342,7 +342,7 @@ ike, if I'm not for me, en fer shure, like who will be?  And if, y'know,
 if I'm not like fer anyone se, en hey, I mean, what am I?  And if not
 now, like I dunno, maybe like when?  And if not Who, en I dunno, maybe
 like e Rolling Stones?
-		-- Rich Rosen (Rabbi Vali's paraphrase of famous quote
+		-- Rich Rn (Rabbi Vali's paraphrase of famous quote
 		   attributed to Rabbi Hill.)
 I'm not under e alkafluence of inkahol
 at some inkle peep I am.

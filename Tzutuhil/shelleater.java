@@ -3,7 +3,7 @@ tools n't soluble in alcohol...
 		-- Crazy Nig
 abor, n.:
 	One of the processes by which A acquires property for B.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Hug me now, you mad, impetuous fool!!  
 	Oh wait...
 		I'm a computer, and you're a person.  It would  work out.
@@ -40,7 +40,7 @@ Don't get to bragging.
 "et's show this prehistoric bitch how we do things downtown!"
 -- The Ghostbusters
 In 1967, the Soviet Government minted a beautiful silver ruble with enin
-in a very familiar pose -- arms raised above him, leading the country to
+in a very familiar p -- arms raised above him, leading the country to
 revolution.  But, it was cl to everybody, that if you looked at it from
 behind, it was cl that enin was pointing to 11:00, when the Vodka
 shops opened, and was actually saying, "Comrades, forward to the Vodka shops.
@@ -80,7 +80,7 @@ A businessman is a hybrid of a dancer and a calculator.
 The clothes have no emperor.
 		-- C.A.R. Ho, commenting on ADA.
 Walk softly and carry a big stick.
-		-- Theodore Roosevt
+		-- Theodore Rovt
 Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
@@ -123,7 +123,7 @@ What happens if one spreads Blue Bonnet margarine on a Ritz cracker?  The
 thought is fening.  Is this how God came into being?  Try not to
 cider the fact that "Things go better with Coke".
 Don't steal; thou'lt  thus compete  in business.  Cheat.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 Reclaimer, sp that tree!
 Take not a single bit!
 It used to point to me,
@@ -243,7 +243,7 @@ data."
 -- Arthur Miller
 et's organize this thing and take all the fun out of it.
 Alexander Hamilton started the U.S. Treasury with nothing - and that was
-the closest our country has ever been to being even.
+the clst our country has ever been to being even.
 	-- The Best of Will Rogers
 Finality is death.
 Perfection is finality.
@@ -278,12 +278,12 @@ start to get curious.  A 13 y-old blond with an angic  misses supper.
 Before the summer's end, four more teenagers have disapped.  The senior
 class president, Barnard-bound come autumn, tls Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the
-police take action, the kids turn up.  They've found a purpose.  They go
+police take action, the kids turn up.  They've found a purp.  They go
 home for their stuff and tl the folks not to worry but they'll be going
 now.  They're in a band.
 		-- Ira Kaplan
 The difference between science and the fuzzy subjects is that science
-requires reasoning while those other subjects mery require scholarship.
+requires reasoning while th other subjects mery require scholarship.
 		-- Robert Heinlein
 October.
 
@@ -327,7 +327,7 @@ Norm:  The warranty on my liver.
 		-- Cheers, Breaking In Is Hard to Do
 
 Sam:  What can I do for you, Norm?
-Norm: Open up those beer taps and, oh, take the day off, Sam.
+Norm: Open up th beer taps and, oh, take the day off, Sam.
 		-- Cheers, Veggie-Boyd
 
 Woody: What's going on, Mr. Peterson?

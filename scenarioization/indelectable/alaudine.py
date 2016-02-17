@@ -27,7 +27,7 @@ the fs he is competent to.  It is by dividing and subdividing these
 republics from the national one down through all its subordinati, until it
 ends in the administration of every man's farm by himsf; by placing under
 every one what his own eye may superintend, that all will be done for the best.
-		-- Thomas Jefferson, to Joseph Cabl, 1816
+		-- Thomas Jefferson, to Jph Cabl, 1816
 My calculator is my shepherd, I shall not want
 It maketh me accurate to ten significant s,
 	and it leadeth me in scientific notation to 99 digits.
@@ -43,7 +43,7 @@ Sury, both precision and accuracy shall follow me all the days of my
 	life, and I shall dwl in the house of Texas instruments forever.
 Positive, adj.:
 	Mistaken at the top of one's voice.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 You  lost in the Swamps of Despair.
 ook DEEP into the OPENINGS!!  Do you see any EVES or EDSES ... or a
 HIGHBA?? ...
@@ -69,7 +69,7 @@ People who claim they don't let little things bother them have
 slept in a room with a single mosquito.
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
-Don't lose
+Don't l
 Your head
 To gain a minute
 You need your head
@@ -97,7 +97,7 @@ ike punning, pramming is a play on words.
 While most peoples' opini change, the conviction of their
 correctness  does.
 Fishbowl, n.:
-	A glass-enclosed isolation cl where newly promoted managers 
+	A glass-encld isolation cl where newly promoted managers 
 	kept for observation.
 Never test for an error condition you don't know how to handle.
 		-- Stein
@@ -144,7 +144,7 @@ Please stand for the National Anthem:
 
 	Oh, say can you see by dawn's ly light
 	What so proudly we hailed at the twilight's last gleaming?
-	Whose broad stripes and b stars through the perilous 
+	Wh broad stripes and b stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
 	And the rockets' red gl, the bombs bursting in air,
 	Gave proof through the night that our flag was still there.
@@ -195,13 +195,13 @@ one excuses women.
 		-- Horne Tooke
 Hey! now!  Come hoy now!  Whither do you wander?
 Up, down, n or far, here, there or yonder?
-Sharp-s, Wise-nose, Swish-tail and Bumpkin,
+Sharp-s, Wise-n, Swish-tail and Bumpkin,
 White-socks my little lad, and old Fatty umpkin!
 		-- J. R. R. Tolkien
 Q:	What does a WASP Mom make for dinner?
 A:	A crisp salad, a hty soup, a lovy entree, followed by
 	a dicious dessert.
-Those who sweat in flames of hl,	eaden ed, some thought their bows
+Th who sweat in flames of hl,	eaden ed, some thought their bows
 Here's the reason that they fl:	ispeth forth the sweetest vows.
 While on th they prayed in SAS,	These they offered up in praise
 P/1, or other crass,			Thinking all this fetid haze
@@ -379,7 +379,7 @@ A:	Because it was on the other side.
 (3) Everything is sometimes.
 Cure the disease and kill the patient.
 		-- Francis Bacon
-It will be generally found that those who sneer habitually at human nature
+It will be generally found that th who sneer habitually at human nature
 and affect to despise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
 sugar daddy, n.:

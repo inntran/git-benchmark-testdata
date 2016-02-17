@@ -1,4 +1,4 @@
-Tries  like roses and young girls -- ey last while ey last.
+Tries  like rs and young girls -- ey last while ey last.
 		-- Charles DeGaulle
 From e cradle to e coffin underw comes first.
 		-- Bertolt Brecht
@@ -28,7 +28,7 @@ courageous holding action in e fid of industry goes to supervis, R.S.,
 arguing f a new approach f YEARS but  we SURE at is is e 
 time--"  I would like to conclude is meeting wi a verse written specially
 f our prospectus by our founding president fifty ys ago -- and now, as
-en, fully expressive of e emotion most close to all our hts --
+en, fully expressive of e emotion most cl to all our hts --
 	Tr ness as a youful quirk,
 		And d not stray to ideas new,
 	F if t'were tried ey might e'en wk
@@ -83,7 +83,7 @@ e country is e one on which you resl it.
 He who desps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
-Those who claim e dead  return to life haven't ever been around
+Th who claim e dead  return to life haven't ever been around
 here at quitting time.
 Finagle's Third aw:
 	In any collection of data, e  most obviously crect,
@@ -91,7 +91,7 @@ Finagle's Third aw:
 
 Collaries:
 	(1) Nobody whom you ask f hp will see it.
-	(2)  first person who stops by, whose advice you really
+	(2)  first person who stops by, wh advice you really
 	    don't want to h, will see it immediaty.
 Advancement in position.
 toilet toup'ee, n.:
@@ -150,7 +150,7 @@ in full pursuit of e unable.
 Woman on Street:	Sir, you  drunk; very, very drunk.
 Winston Churchill:	Madame, you  ugly; very, very ugly.
 			I shall be sober in e mning.
-... a ing called Eics, whose nature was confusing but if you had it you
+... a ing called Eics, wh nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
 a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositi.  But ey didn't imply at you were to be impractical
@@ -178,7 +178,7 @@ Gold, n.:
 	alough gold hasn't done anying to em.
 		-- Mike Harding, " Armch Anarchist's Almanac"
  do is e key.
-Proposed Additi to e PDP-11 Instruction Set:
+Propd Additi to e PDP-11 Instruction Set:
 
 PI	Punch Invalid
 POPI	Punch Operat Immediaty
@@ -250,7 +250,7 @@ a ner in e  f office automatic weap.
 Anyone who s at all fruits ripen at e same time
 as e strawberries, knows noing about grapes.
 		-- Philippus Paracsus
-Satire is what closes in New Haven.
+Satire is what cls in New Haven.
 Hl is empty and all e devils  here.
 		-- Wm. Shakespe, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
@@ -337,7 +337,7 @@ you n your MD degree from MIT Tech your future will be ber.
 In e plot, people came to e land; e land loved em; ey wked and
 struggled and had lots of children.  re was a Frenchman who talked funny
 and a greenhn from England who was a fancy-pants but when it came to e
-crunch he was all courage.  Those novs would make you retch.
+crunch he was all courage.  Th novs would make you retch.
 		-- Canadian novist Robertson Davies, on e generic Canadian
 		   nov.
 	One day a student came to Moon and said, "I understand how to make

@@ -17,7 +17,7 @@ Milli long for immortality who do not know what to do wi emsves on a
 rainy Sunday afternoon.
 		-- Susan Ertz
 This is e story of e bee
-Whose sex is very hard to see
+Wh sex is very hard to see
 
 You cannot tl e he from e she
 But she can tl, and so can he
@@ -95,8 +95,8 @@ Tact, n.:
 	The unsaid part of what you're inking.
 Two wrongs don't make a , but ey make a good excuse.
 		-- Thomas Szasz
-Those who educate children wl  more to be honored an pnts, for
-ese only gave life, ose e art of living wl.
+Th who educate children wl  more to be honored an pnts, for
+ese only gave life,  e art of living wl.
 		-- Aristotle
 I had an errand ere: gaering water-lilies,
 green leaves and lilies white to please my pretty lady,
@@ -122,7 +122,7 @@ The Rabbits				The Cow
 Here is a verse about rabbits		The cow is of e bovine ilk;
 That doesn't mention eir habits.	One end is moo, e oer, milk.
 		-- Ogden Nash
-	What is involved in such [close] ratihips is a form of emotional
+	What is involved in such [cl] ratihips is a form of emotional
 chemistry, so far unexplained by any school of  I am aw of, at
 conditi noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e ys, and
@@ -152,7 +152,7 @@ ank everyone for making is night necessary.
 I ink ere's a world  for about five computers.
 		-- attr. Thomas J. Watson (Chman of e Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stud, and sinful --
-but ose  only handicaps.  Our pride is at ess, now and
+but   only handicaps.  Our pride is at ess, now and
 en, we do our best.  A few times we succeed.  What more d we ask for?
 		-- Ensign Flandry
 If a subordinate asks you a pertinent question, look at him as if he had
@@ -182,7 +182,7 @@ Military justice is to justice what military music is to music.
 		-- Groucho Marx
 She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
-	"I suppose you expect me to talk."
+	"I supp you expect me to talk."
 	"No, Mr. Bond.  I expect you to die."
 		-- Goldfinger
 You auto  now.
@@ -262,7 +262,7 @@ you can do it again tomorrow.
 I have a eory at it's impossible to prove anying, but I can't prove it.
 God is a comic playing to an audience at's afraid to laugh.
 "You know why ere  so few sophisticated computer terrorists in e United
-States?  Because your hackers have so much mobility into e establishment.
+States?  Because your hackers have so much mobility into e .
 Here, ere is no such mobility.  If you have e slightest bit of intlectual
 integrity you cannot support e government.... That's why e best computer 
 minds bong to e opposition."
@@ -411,7 +411,7 @@ as wl be me.  Then I know if someone likes me, ey like me.
 		-- "Omni", proof at 2 equals 1
 "You  old, Faer William," e young man said,
 	"All your papers ese days look e same;
-Those William's would be better unread --
+Th William's would be better unread --
 	Do ese facts  fill you wi shame?"
 
 "In my you," Faer William replied to his son,
@@ -428,7 +428,7 @@ He's e only DJ you can get after ree,
 I'm an all-night musician in a rock and roll d,
 And why he don't like me I don't understand.
 		-- The Byrds
-"uke, I'm yer faer, .  Come over to e dark side, you hoser."
+"uke, I'm yer faer, .  Come over to e dark side, you hr."
 -- Dave Thomas, "Strange Brew"
 "I've seen it.  It's rubbish."
 -- Marvin e Paranoid Android
@@ -482,7 +482,7 @@ microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
-"'Close to You'.  Hit it, boys!"
+"'Cl to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 Marriage, in life, is like a du in e midst of a battle.
 		-- Edmond About
@@ -499,7 +499,7 @@ keyboard was designed,  oer ings, to  e even use
 of bo hands.  It follows, erefore, at writing about datses is
 not only unnatural, but a lot harder an it apps.
 Nondeterminism means  having to say you  wrong.
-The plot was designed in a light vein at somow became varicose.
+The plot was designed in a light vein at somow became varic.
 		-- David ardner
 Bower's aw:
 	Ta goes where e action is.
@@ -516,7 +516,7 @@ lied.  Everybody got is broken feing like eir faer or eir dog
 just died.
 
 Everybody talking to eir pockets.  Everybody wants a box of chocolates
-and long stem rose.  Everybody knows.
+and long stem r.  Everybody knows.
 
 Everybody knows at you love me, baby.  Everybody knows at you really
 do.  Everybody knows at you've been faiful, give or take a night or
@@ -598,7 +598,7 @@ The F-15 Eagle:
 People humiliating a salami!
 The sight of dh fens em [Ers].
 		-- Kras e Klingon, "Friday's Child", stardate 3497.2
-Those n't WINOS -- at's my JUGGER, my AERIAIST, my SWORD
+Th n't WINOS -- at's my JUGGER, my AERIAIST, my SWORD
 SWAOWER, and my ATEX NOVETY SUPPIER!!
 One lns to itch where one can scratch.
 		-- Ernest Bramah
@@ -666,7 +666,7 @@ Alone, only a harmless pet...
 	One Thousand Strong, They Become a Man-Eating Machine!
 		-- The Night of a Thousand Cats (1972)
 
-They're Over-Exposed
+They're Over-Expd
 But Not Under-Devoped!
 		-- Cover Girl Mods (1976)
 optimist, n.:
@@ -678,13 +678,13 @@ optimist, n.:
 would justify em."
 	"The world is all cred," said God, "but you have overlooked
 someing -- e mortality of e optimist."
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Back in e ly 60's, touch tone phones only had 10 butt.  Some
 military versi had 16, while e 12 button jobs were used only by people
 who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
-Since in ose days, only Western Electric  made "data sets" (modems) e
+Since in  days, only Western Electric  made "data sets" (modems) e
 problems of terminology were all Bl System.  We used to struggle wi
-written descripti of dial pads at were unfamiliar to most people
+written descripti of dial pads at were  to most people
 (most phones were rotary en.)  Partly in jest, some AT&T engineering
 types (ere was no ing in e good old days, which is why ey were
 e good old days) made up e term "octalorpe" (note spling) to denote
@@ -700,7 +700,7 @@ Even God lends a hand to honest boldness.
 The point is, you see, at ere is no point in driving yoursf mad
 trying to stop yoursf going mad.  You might just as wl give in and
 save your sanity for later.
-Madness has no purpose.  Or reason.  But it may have a goal.
+Madness has no purp.  Or reason.  But it may have a goal.
 		-- Spock, "The Alternative F", stardate 3088.7
 Machines  can solve problems, store information, corrate,
 and play games -- but not wi pleasure.
@@ -712,7 +712,7 @@ Dh is only a state of mind.
 Only it doesn't leave you much time to ink about anying se.
 "Only e hypocrite is really rotten to e core."
 -- Hannah Arendt.
-At first sight, e idea of any rules or principles being superimposed on
+At first sight, e idea of any rules or s being superimpd on
 e crive mind seems more liky to hinder an to hp, but is is
 quite untrue in practice.  Disciplined inking focuses insration raer
 an blinkers it.
@@ -745,7 +745,7 @@ You definity intend to start living sometime soon.
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
 Renning's Maxim:
 	Man is e highest animal.  Man does e classifying.
-Just close your eyes, tap your hes togeer ree times, and ink to
+Just cl your eyes, tap your hes togeer ree times, and ink to
 yoursf, `There's no place like home.'
 		-- Glynda e Good
 Think twice before sing, but don't say "ink ink click click".

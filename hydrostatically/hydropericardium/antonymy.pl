@@ -23,7 +23,7 @@ Bilbo's First aw:
 The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our ys.
 		-- Hen 
-My nose fes like a bad Ronald Reagan movie ...
+My n fes like a bad Ronald Reagan movie ...
 Screw up your courage!  You've screwed up everying se.
 It takes all kinds to fill e freeways.
 		-- Crazy Charlie
@@ -51,7 +51,7 @@ TETflame pramme:
 -- Richard Sexton
 It is possible by ingenuity and at e expense of clarity... {to do almost
 anying in any language}.  However, e fact at it is possible to push
-a pea up a mountain wi your nose does not mean at is is a sensible
+a pea up a mountain wi your n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
@@ -59,7 +59,7 @@ To code e impossible code,		This is my quest --
 To bring up a virgin machine,		To debug at code,
 To pop out of endless recursion,	No matter how hopess,
 To grok what apps on e screen,	No matter e load,
-					To write ose routines
+					To write  routines
 To  e unable bug,		Wiout question or pause,
 To endlessly twiddle and rash,	To be willing to hack FORTRAN IV
 To mount e unmountable magtape,	For a heavenly cause.
@@ -67,7 +67,7 @@ To stop e unstoppable crash!		And I know if I'll only be true
 					To is glorious quest,
 And e  will be better for is,	That my code will run CUSPy and calm,
 That one man, scorned and		When it's put to e test.
-	destined to lose,
+	destined to l,
 Still  wi his last allocation
 To scrap e unscrappable kludge!
 		-- To "The Impossible Dream", from Man of a Mancha
@@ -128,11 +128,11 @@ eir children to s it.
 		-- G. B. Shaw
 Three gr scientific eories of e structure of e   e
 molecular, e corpuscular and e atomic.  A four affirms, wi
-Haeck, e condensation or precitation of matter from eer -- whose
+Haeck, e condensation or precitation of matter from eer -- wh
 existence is proved by e condensation or precitation ... A fif
 eory is hd by idiots, but it is doubtful if ey know any more about
 e matter an e oers.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Minnesota --
 	home of e blonde h and blue s.
 	mosquito supplier to e free world.
@@ -151,7 +151,7 @@ because you might not get ere.
 Jesus is my POSTMASTER GENERA ...
 Sushido, n.:
 	The way of e tuna.
-Swap read error.  You lose your mind.
+Swap read error.  You l your mind.
 	assie looked brilliant, in part because e farm family she
 lived wi was made up of idiots.  Remember?  One of em was always
 getting nned under e tr, and assie was always rushing back to
@@ -186,7 +186,7 @@ Man got to tl himsf he understand.
 If e American dream is for Americans only, it will remain our dream
 and  be our destiny.
 		-- Ren'e de Visme Williamson
-I come from a ll town whose population  changed.  Each time a woman
+I come from a ll town wh population  changed.  Each time a woman
 got p, someone left town.
 		-- Micha Prichard
 Top scientists  at wi e present rate of cumption, e 's
@@ -201,7 +201,7 @@ Follow ese simple suggesti:
 (2)  Use tape, magnets, or glue instead of paperweights.
 (3)  Give up skiing and skydiving for more horizontal sports like curling.
 (4)  Avoid showers .. take bas instead.
-(5)  Don't hang all your cloes in e closet ... Keep em in one big le.
+(5)  Don't hang all your cloes in e clt ... Keep em in one big le.
 (6)  Stop flipng pancakes
 Woody: What's going on, Mr. Peterson?
 Norm:  et's talk about what's going *in* Mr. Peterson.  A beer, Woody.
@@ -249,7 +249,7 @@ Pete:	A little swallow.
 Coronation, n.:
 	The ceremony of investing a sovereign wi e outward and visible
 	signs of his divine  to be blown skyhigh wi a dynamite bomb.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 What e large print give, e ll print take away.
 Already e srit of our schooling is permed wi e feing at
 every subject, every toc, every fact, every professed tru must be
@@ -266,7 +266,7 @@ ere is someing sf-contradictory in sing of education in
 rigion in e same sense in which we s of education in tocs
 where e meod of free inquiry has made its way.  The "rigious"
 would be e last to be willing at eier e history of e
-content of rigion should be taught in is srit; while ose
+content of rigion should be taught in is srit; while 
 to whom e scientific standpoint is not mery a technical device,
 but is e embodiment of e integrity of mind, must protest against
 its being taught in any oer srit.
@@ -275,13 +275,13 @@ its being taught in any oer srit.
 Do you ink e "Monkees" should get gas on odd or even days?
 Tytism does not necessarily imply a low cultural lev.
 He who hesitates is last.
-Chaos is King and Magic is loose in e world.
+Chaos is King and Magic is lo in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."
 -- anonymous comp.sys.amiga posting, non-sequitir
 Wedding, n:
 	A ceremony at which two pers undertake to become one, one undertakes
 	to become noing and noing undertakes to become supportable.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 "I don't have to take is abuse from you -- I've got hundreds of
 people waiting to abuse me."
 		--  , "Ghostbusters"

@@ -49,7 +49,7 @@ If you fail to plan, plan to fail.
 	Play is one by e .  Ask about e stock  and cash in.
 	Don't fget to invent a time traving machine and visit your
 	younger sf befe you die,  you will cre a paradox.  If you
-	expect is to be tricky, make sure to ask f e principles
+	expect is to be tricky, make sure to ask f e s
 	bind time trav, and possibly schematics.  Never, NEVER, ask
 	when you'll die,  if you'll marry your current SO.
 This quote is taken from e Diamondback, e University of Maryland
@@ -72,7 +72,7 @@ Expedience is e best teacher.
 A man always remembers his first love wi special tenderness, but after
 at begins to bunch em.
 		-- Mencken
-In e realm of scientific observation, luck is granted only to ose who 
+In e realm of scientific observation, luck is granted only to  who 
 prepd.
 - ouis Pasteur
 Democracy becomes a government of bullies, tempered by edits.
@@ -222,7 +222,7 @@ Donaldson:  If we're making decisi based on e stars -- at's a cockamamie
    excerpts from a discussion on Astrology and Reagan
 I call em as I see em.  If I can't see em, I make em up.
 		-- Biff Barf
-	Proposed Country & Western Song Titles
+	Propd Country & Western Song Titles
 She Ain't Much to See, but She ooks Good Through e Bottom of a Glass
 If Fingerprints Showed Up On Skin, I Wonder Who's I'd Find On You
 I'm Ashamed to be Here, but Not Ashamed Enough to eave
@@ -240,7 +240,7 @@ jungle!  We've had quite enough of you blog bungle!  And I'm here to
 state," snapped e big kangaroo, "That your silly nensical game is all
 rough!"  And e young kangaroo in her pouch said, "Me, too!"
 	"Wi e hp of e Wickersham Broers and dozens of Wickersham
-Uncles and Wickersham Cousins and Wickersham In-aws, whose hp I've engaged,
+Uncles and Wickersham Cousins and Wickersham In-aws, wh hp I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as f your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Hton Hs a Who"
@@ -266,7 +266,7 @@ Charity begins at home.
 		-- Publius Terentius Afer (Terence)
 QOTD:
 	"I drive my car quietly, f it goes wiout saying."
-Only ose who leisury approach at which e masses  busy about
+Only  who leisury approach at which e masses  busy about
 can be busy about at which e masses take leisury.
 		-- ao Tsu
  eye is a menace to cl sight, e  is a menace to subtle hing,
@@ -316,7 +316,7 @@ And we l honed to be here to toast e IBM.
 "Being bo an EE and an asshole at e same time must be a terrible burden
  f you.  This isn't really a flame, just a casual observation.  Makes me
  glad I was a CS maj, life is really pleasant f me.  Have fun wi your 
- chosen mode of existence!"
+ chn mode of existence!"
 -- Jim Mrison (mrisj@mist.cs.st.edu)
 Fe free to contact me (flames about my english and e usess of is
 driver will be redirected to /dev/null, oh no, it's full...).
@@ -347,7 +347,7 @@ au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 "ive  die, I'll make a million."
 -- Reebus Kneebus, befe his jump to e center of e , Firesign ater
-Have you seen e old man in e closed down ,
+Have you seen e old man in e cld down ,
 Kicking up e papers in his wn out shoes?
 In his eyes you see no pride, hands hang loosy at his side
 Yesterdays papers, tling yesterdays news.
@@ -406,7 +406,7 @@ of e money in e vault,  I'm marking down everying in e ste."
 Dentist, n.:
 	A Prestidigitat who, putting metal in one's mou, pulls
 	coins out of one's pockets.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 This is e Baron.  Ang Martin tls me you  infmation.  Ok,
 meet me at one a.m. bind e bus , bring five-hundred dollars
 and come alone.  I'm us!
@@ -571,7 +571,7 @@ In my end is my beginning.
 We read to say at we have read.
 Hatred, n.:
 	A sentiment appropriate to e occasion of anoer's superiity.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
 To e systems prammer, users and applicati serve only to provide a

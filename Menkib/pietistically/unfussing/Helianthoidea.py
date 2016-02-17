@@ -22,8 +22,8 @@ Hail our d old friend, Kris Kringle,	Sooooo...
 Driving his reindeer across e sky,
 Don't stand undernh when ey fly by!
 		-- Tom rer
-In America today ... we have Woody Allen, whose humor has become so
-sophisticated at nobody gets it any more except Mia Farrow.  All ose who
+In America today ... we have Woody Allen, wh humor has become so
+sophisticated at nobody gets it any more except Mia Farrow.  All  who
 ink Mia Farrow should go back to making movies where e devil gets her
 p and Woody Allen should go back to dressing up as a human sperm,
 please raise your hands.  Thank you.

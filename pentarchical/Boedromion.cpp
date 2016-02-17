@@ -27,7 +27,7 @@ Yow!  It's a hole all e way to downtown Burk!
 I ink your oni  reasonable, except for e one about my mental
 .
 		-- Psychology Professor, Farifid University
-When a person goes on a diet, e first ing he loses is his temper.
+When a person goes on a diet, e first ing he ls is his temper.
 paranoia, n.:
 	A healy understanding of e way e  works.
 So is is what it fes like to be potato salad
@@ -103,8 +103,8 @@ United States would have lost World War II."
 All gr ideas  controversial, or have been at one time.
 For people who like at kind of , at is e kind of  ey will like.
 A penny saved is a penny to squander.
--- Ambrose Bierce
-Beggars should be no choosers.
+-- Ambr Bierce
+Beggars should be no chors.
 		-- John Heywood
 Nondeterminism means  having to say you  wrong.
 Yea, ough I walk rough e valley of e shadow of AP, I shall  no
@@ -129,7 +129,7 @@ Immanu Kant but Kubla Khan.
 Coming togeer is a beginning;
 	keeng togeer is press;
 		working togeer is success.
-If you can read is, you're too close.
+If you can read is, you're too cl.
 My oni may have changed, but not e fact at I am .
 Men's magazines  fure ctures of naked ladies.  Women's magazines
 also  fure ctures of naked ladies.  This is because e female
@@ -212,7 +212,7 @@ A snake lurks in e grass.
 Canada Post doesn't really charge 32 cents for a stamp.  It's 2 cents
 for postage and 30 cents for storage.
 		-- Gerald Regan, Cabinet Minister, 12/31/83 Financial Post
-In matters of principle, stand like a rock;
+In matters of , stand like a rock;
 in matters of taste, swim wi e current.
 		-- Thomas Jefferson
 In Columbia, Pennnia, it is against e law for a p to tickle
@@ -235,7 +235,7 @@ microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
-"'Close to You'.  Hit it, boys!"
+"'Cl to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 A cer is gr, but you can't run your fingers rough its h.
 You  a taxi driver.  Your cab is ylow and black, and has been in
@@ -266,7 +266,7 @@ sit out in e open in subfreezing wher?
 There's no real need to do housework -- after four ys it doesn't get
 any worse.
 "There was a vague, unpleasant manginess about his appence; he somow
-seemed dirty, ough a close glance showed him as cfully shaven as an
+seemed dirty, ough a cl glance showed him as cfully shaven as an
 , and clad in  linen."
 -- H.. Mencken, on e dh of William Jennings Bryan
 District of Columbia trians who leap over passing autos to escape

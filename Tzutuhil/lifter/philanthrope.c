@@ -1,4 +1,4 @@
-" way of e wld is to praise dead saints and prosee live ones."
+" way of e wld is to praise dead saints and pre live ones."
  --  Howe
 No snowfe in an avalanche ever ls respible.
 May you have many beautiful and obedient daughters.
@@ -14,7 +14,7 @@ Acquaintance, n:
 	A person whom we know wl enough to brow from but not wl
 	enough to lend to.  A degree of friendship called slight when e
 	object is po  obscure, and intimate when he is rich  famous.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 "I once witnessed a long-ded, mon-long flamewar over e use of
 mice vs. trackballs...It was very silly."
 (By Matt Wsh)

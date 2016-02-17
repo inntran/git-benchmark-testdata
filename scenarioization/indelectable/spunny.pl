@@ -9,7 +9,7 @@ above the web so long without lighting that the spider apped and said,
 where I don't see other flies and I don't see any other flies in your house."
 So he flew away until he came to a place where there were a great many other
 flies.  He was about to settle down among them when a bee buzzed up and said,
-"Hold it, stupid, that's flypaper.  All those flies  trapped."  "Don't be
+"Hold it, stupid, that's flypaper.  All th flies  trapped."  "Don't be
 silly," said the fly, "they're dancing."  So he settled down and became stuck
 to the flypaper with all the other flies.
 
@@ -52,7 +52,7 @@ Nothing recedes like success.
 A box without hinges, key, or lid,
 Yet golden treasure inside is hid.
 		-- J.R.R. Tolkien
-He walks as if balancing the family tree on his nose.
+He walks as if balancing the family tree on his n.
 Humor in the Court:
 Q.  What is your brother-in-law's name?
 A.  Borofkin.
@@ -106,8 +106,8 @@ us ever have the courage to face: and that is the child you once were,
 long before formal education ever got its claws into you -- that
 impatient, all-demanding child who wants love and power and can't get
 enough of either and who goes on raging and weeping in your spirit till
-at last your eyes  closed and all the fools say, "Doesn't he look
-peaceful?" It is those pent-up, craving children who make all the wars
+at last your eyes  cld and all the fools say, "Doesn't he look
+peaceful?" It is th pent-up, craving children who make all the wars
 and all the horrors and all the art and all the beauty and discovery in
 life, because they  trying to achieve what lay beyond their grasp
 before they were five ys old.
@@ -129,7 +129,7 @@ It were not best that we should all think alike; it is difference of opinion
 that makes horse-races.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Rattling around the back of my head is a disturbing image of something I
-saw at the airport ... Now I'm remembering, those giant piles of computer
+saw at the airport ... Now I'm remembering, th giant piles of computer
 magazines right next to "People" and "Time" in the airport store.  Does
 it bother anyone else that half the world is being told all of our hard-won
 secrets of computer technology?  Remember how all the lawyers  foul
@@ -161,7 +161,7 @@ ove is in the offing.
 I'm DESPONDENT ... I hope there's something DEEP-FRIED under this
 miniature DOMED STADIUM ...
 life, n.:
-	That brief interlude between nothingness and eternity.
+	That brief  between nothingness and eternity.
 Q:	How do you save a drowning lawyer?
 A:	Throw him a rock.
 Good night, Mrs. Calabash, wherever you .
@@ -190,7 +190,7 @@ For flaming youth.
 The meta-Turing test counts a thing as intelligent if it seeks to
 devise and apply Turing tests to objects of its own creation.
 		-- ew Mammel, Jr.
-Ill-chosen abstraction is particularly evident in the design of the ADA
+Ill-chn abstraction is particularly evident in the design of the ADA
 runtime system. The interface to the ADA runtime system is so opaque that
 it is impossible to model or predict its performance, making it effectively
 useless for real-time systems. -- Marc D. Donner and David H. Jameson.
@@ -211,7 +211,7 @@ to hell."
 -- Jimmy Swaggart, 5/20/88
 Often statistics  used as a drunken man uses lampposts -- for support
 rather than illumination.
-Your lucky number has been disconnected.
+Your lucky number has been ed.
 Cutting the space budget really restores my faith in humanity.  It
 eliminates dreams, goals, and ideals and lets us get straight to the
 business of hate, debauchery, and self-annihilation."
@@ -270,7 +270,7 @@ When the team got			to me about my blue jacket;
 their warm-up jackets			the guys were my friends
 I didn't get one			Yet it hurt me all y
 Only the regular team			to w that blue jacket
-got these jackets, and			among all those green ones
+got these jackets, and			among all th green ones
 surely not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
@@ -283,13 +283,13 @@ microphone, about to sing,  Jim Morrison and Janis Joplin, and the
 bassist is the late Barry Oakley of the Allman Brothers.  So Stevie
 Ray's thinking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just then, Kn Carpenter walks in, sits down at the drums, and says:
-"'Close to You'.  Hit it, boys!"
+"'Cl to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
 The husband who doesn't tell his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- eo J. Burke
 Every country has the government it deserves.
-		-- Joseph De Maistre
+		-- Jph De Maistre
 Absinthe makes the tart grow fonder.
 The idea of male and female  universal ctants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
@@ -309,7 +309,7 @@ I'd give to own that," she said, sighing.
 	"No problem," he said, throwing a brick through the window and grabbing
 the coat.
 	Finally, turning for home, they passed a car dealership.  "Boy, I'd do
-anything for one of those Rolls-Royces," she said.
+anything for one of th Rolls-Royces," she said.
 	"Jeez, baby," the guy moaned, "you think I'm made of bricks?"
 "Every group has a couple of experts.  And every group has at least one
 idiot.  Thus  balance and harmony (and discord) maintained.  It's
@@ -322,7 +322,7 @@ Chicago Transit Authority Rider's Rule #84:
 	for overheated passengers.  When your timer pops up, the driver will
 	cheerfully baste you.
 		-- Chicago Reader 5/28/82
-War is delightful to those who have had no experience of it.
+War is delightful to th who have had no experience of it.
 		-- Desiderius Erasmus
 It is ridiculous to call this an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they 
@@ -400,7 +400,7 @@ You took me away from home,
 Just to save you from being alone;
 You stole my ht, and that's what really hurts.
 
-I suppose I could collect my books and get on back to school,
+I supp I could collect my books and get on back to school,
 Or steal my daddy's cue and make a living out of playing pool,
 Or find myself a rock 'n' roll band,
 That needs a helping hand,
@@ -419,7 +419,7 @@ I've got a COUSIN who works in the GARMENT DISTRICT ...
 
 "Whatever the missing mass of the universe is, I hope it's not cockroaches!"
 		-- Mom
-Democracy is the worst form of government except all those other
+Democracy is the worst form of government except all th other
 forms that have been tried from time to time.
 		-- Winston Churchill
 Marriage causes dating problems.
@@ -436,7 +436,7 @@ Never use "etc." -- it makes people think there is more where there is not
 or that there is not space to list it all, etc.
 Just as most issues  seldom black or white, so  most good soluti
 seldom black or white.  Bew of the solution that requires one side to be
-totally the loser and the other side to be totally the winner.  The reason
+totally the lr and the other side to be totally the winner.  The reason
 there  two sides to begin with usually is because neither side has all
 the facts.  Therefore, when the wise mediator effects a compromise, he is
 not acting from political motivation.  Rather, he is acting from a deep
@@ -519,7 +519,7 @@ That is the true season of love, when we believe that we alone can love,
 that no one could have loved so before us, and that no one will love
 in the same way as us.
 		-- Johann Wolfgang von Goethe
-paak, n:	A stadium or inclosed playing field. To put or leave (a
+paak, n:	A stadium or incld playing field. To put or leave (a
 			a vehicle) for a time in a certain location.
 patato, n:	The starchy, edible tuber of a ly cultivated plant.
 Septemba, n:	The 9th month of the y.

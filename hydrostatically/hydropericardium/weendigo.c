@@ -9,12 +9,12 @@ Q:  When he went, had you gone and had she, if she wanted to and were
     go, gone also, would he have brought you, meaning you and she, wi
     him to e station?
 MR. BROOKS:  Objection.  That question should be taken out and shot.
-To ose aced to e precise, structured meods of conventional
+To  aced to e precise, structured meods of conventional
 system devopment, explaty devopment techniques may seem messy,
 inegant, and unsatisfying.  But it's a question of congruence:
 precision and flexibility may be just as disf in nov,
  situati as slopness and vacillation  in familiar,
-wl-defined ones.  Those who admire e massive, rigid bone structures
+wl-defined ones.  Th who admire e massive, rigid bone structures
 of dinosaurs should remember at jlyfish still enjoy eir very
 secure ecological .
 		-- Beau Sheil, "Power Tools f Prammers"
@@ -25,7 +25,7 @@ By wking faifully eight hours a day, you may eventually get to be
 boss and wk twve.
 		-- Robert Frost
  ht is wiser an e intlect.
-Disclose classified infmation only when a NEED TO KNOW exists.
+Discl classified infmation only when a NEED TO KNOW exists.
 You s of courage.  Obviously you do not know e difference between
 courage and foolhardiness.  Always it is e brave ones who die, e soldiers.
 		-- K, e Klingon Commander, "Errand of Mercy",
@@ -104,7 +104,7 @@ Noise proves noing.  Often a hen who has mery laid an egg cackles
 Words  the voice of the ht.
 as if she laid an asteroid.
 		-- Mark Twain
-And did ose t, in ancient times,
+And did  t, in ancient times,
 Walk upon England's mountains green?
 And was e Holy amb of God
 In England's pleasant pastures seen?
@@ -144,7 +144,7 @@ And wl enough f every day,
 But oh, d friends, you should have seen
  one at got away.
 		-- Doy Parker, " Fisherwoman"
-Those of you who ink you know everying  annoying ose of us who do.
+Th of you who ink you know everying  annoying  of us who do.
 A copy of e  is not what is required of art; one of e damned
 ings is ample.
 		-- Rebecca West
@@ -168,7 +168,7 @@ You will not be ected to public office is y.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
 		-- Steven W
-Those who bieve at ey bieve in God, but wiout passion in eir
+Th who bieve at ey bieve in God, but wiout passion in eir
 hts, wiout anguish in mind, wiout ty, wiout doubt,
 wiout an ement of desp even in eir colation, bieve only
 in e God idea, not God Himsf.
@@ -190,7 +190,7 @@ tool wiout training  understanding is even me wrong f computing an
 it is f oer tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
  connection between e language in which we ink/pram and e problems
-and soluti we can  is very close.  F is reason ing
+and soluti we can  is very cl.  F is reason ing
 language fures wi e intent of iminating prammer errs is at best
 dangerous.
 - Bjarne Stroustrup in " C++ Pramming anguage"
@@ -228,7 +228,7 @@ million hardbound coes of " Naked unch."
 "All language s  arant.  Goes wi e territy..."
 (By arry Wall)
 This Ftune Examined By INSPECTOR NO. 2-14
-He at composes himsf is wiser an he at composes a .
+He at comps himsf is wiser an he at comps a .
 		-- B. Franklin
 X dows:
 	 ultimate bottleneck.
@@ -261,7 +261,7 @@ I do?
 D Angry:
 	Include e entire text wi your article, and include your comments
 between e lines.  Be sure to post, and not mail, even ough your article
-looks like a reply to e iginal.  Everybody *loves* to read ose long
+looks like a reply to e iginal.  Everybody *loves* to read  long
 point-by-point debates, especially when ey evolve into -calling and
 lots of "Is too!" -- "Is not!" -- "Is too, twizot!" exchanges.
 		-- Emily Postnews Answers Your Questi on Netiquette
@@ -295,7 +295,7 @@ I'd give to own at," she said, sighing.
 	"No problem," he said,  a brick rough e dow and grabbing
 e coat.
 	Finally, turning f home, ey passed a car dealership.  "Boy, I'd do
-anying f one of ose Rolls-Royces," she said.
+anying f one of  Rolls-Royces," she said.
 	"Jeez, baby," e guy moaned, "you ink I'm made of bricks?"
 A visit to a strange place will bring  wk.
 Psychiatry enables us to crect our faults by confessing our pnts'
@@ -442,7 +442,7 @@ cheap hot in HONOUU!
  rich get rich, and e po get poer.
  haves get me, e have-nots die.
 Sooner  later you must pay f your sins.
-(Those who have already paid may disregard is cookie).
+(Th who have already paid may disregard is cookie).
 Peter's hungry, time to  lunch.
 Football combines e two wst fures of American life.
 It is violence punctuated by committee meetings.
@@ -455,7 +455,7 @@ e Fce.
 What a COINCIDENCE!  I'm an auized "SNOOTS OF THE STARS" dealer!!
 Hapness, n.:
 	An able sensation arising from contemplating e misery of anoer.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Wk is e curse of e drinking classes.
 		-- Mike Romanoff
 Maintainer's Motto:
@@ -503,7 +503,7 @@ System restarting, wait...
 F ee e wonder-wking  puts f sweet flowers.
 		-- Titus ucretius Carus
 AP is a natural extension of assembler language pramming;
-...and is best f educational purposes.
+...and is best f educational purps.
 		-- A. Perlis
 et us go en you and I
 while e night is laid out against e sky
@@ -522,7 +522,7 @@ asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
 Physician:  One upon whom we set our hopes when ill and our dogs when wl.
--- Ambrose Bierce
+-- Ambr Bierce
 et oers praise ancient times; I am glad I was bn in ese.
 		-- Ovid (43 B.C. - A.D. 18)
 Moer is far too clever to understand anying she does not like.
@@ -576,7 +576,7 @@ You will outgrow your usefulness.
 	If you do your best e rest of e way, at takes c of
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
-	Bo ose ings sound pretty good to me.
+	Bo  ings sound pretty good to me.
 		-- Sparky Anderson
 If you're crossing e nation in a covered wagon, it's better to have four
 strong oxen an 100 chickens.  Chickens  OK but we can't make em wk

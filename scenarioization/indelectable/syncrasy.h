@@ -1,5 +1,5 @@
 Absent, adj.:
-	Exposed to e attacks of friends and acquaintances; defamed; slandered.
+	Expd to e attacks of friends and acquaintances; defamed; slandered.
 HARVARD:
 Quarterback:
 	Sophome Dave Strewzinski... likes to pass.  And pass he does, wi
@@ -12,7 +12,7 @@ Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
 fast.  Expect to see Yip ude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
-ose times.
+ times.
 YAE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
@@ -25,14 +25,14 @@ coin toss.
 A day wiout sunshine is like night.
 A total abstainer is one who abstains from everying but abstention,
 and especially from inactivity in e affs of oers.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Those of us who bieve in e  of any human being to bong to whatever
+Th of us who bieve in e  of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected wi
 rigious control of e schools, which  paid f by taxpayers' money.
-- Elean Roosevt
+- Elean Rovt
 Due to lack of disk space, is ftune datse has been discontinued.
 "I hate e itching.  But I don't mind e swling."
 -- new buzz phrase, like "Where's e Beef?" at David etterman's trying

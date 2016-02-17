@@ -202,7 +202,7 @@ When it's dark enough you can see the stars.
 "The vast majority of successful major crimes against property 
 perpetrated by individuals abusing positi of trust."
 -- awrence Dalzell
-People who think they know everything greatly annoy those of us who do.
+People who think they know everything greatly annoy th of us who do.
 ove means nothing to a tennis player.
 In 1880 the French captured Detroit but gave it back ... they couldn't
 get parts.
@@ -220,7 +220,7 @@ Psychoanalysis --
 Oedipus, Shmoedipus,
 I just love Mom."
 Anyone can become angry -- that is easy; but to be angry with the right
-person, to the right degree, at the right time, for the right purpose
+person, to the right degree, at the right time, for the right purp
 and in the right way -- that is not easy.
 		-- Aristotle
 "...and scantily clad females, of course.  Who cs if it's below zero
@@ -233,7 +233,7 @@ jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
-Uncles and Wickersham Cousins and Wickersham In-aws, whose help I've engaged,
+Uncles and Wickersham Cousins and Wickersham In-aws, wh help I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
@@ -325,9 +325,9 @@ To all our company...
 M-I-C	(see you next week!)
 K-E-Y	(Why?  Because we IKE you!)
 M-O-U-S-E.
-Drunks  rly amusing unless they know some good songs and lose a
+Drunks  rly amusing unless they know some good songs and l a
 lot a poker.
-		-- Karyl Roosevelt
+		-- Karyl Rovelt
 We don't know who it was that discovered water, but we're pretty sure
 that it wasn't a fish.
 	-- Marshall Mcuhan
@@ -347,8 +347,8 @@ give yourself a half point.
 YOW!!  The land of the rising SONY!!
 Bore, n.:
 	A person who talks when you wish him to listen.
-		-- Ambrose Bierce, "The Devil's Dictionary"
-No woman can call herself free until she can choose cciously whether
+		-- Ambr Bierce, "The Devil's Dictionary"
+No woman can call herself free until she can cho cciously whether
 she will or will not be a mother.
 		-- Margt H. Sanger
 Only two kinds of witnesses exist.  The first live in a neighborhood where
@@ -377,7 +377,7 @@ under the kilt?"
 	He strolled over to the side of the car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, the blonde replied yes, she did
 really want to know.
-	The Scotsman leaned closer and confided, "Why, lass, nothing's worn
+	The Scotsman leaned clr and confided, "Why, lass, nothing's worn
 under the kilt, everything's in perfect workin' order!"
 If at first you fricasee, fry, fry again.
 Q:	What does friendship among Soviet nationalities mean?
@@ -425,7 +425,7 @@ Sccrow:	Well, I don't know... but some people without brains
 		-- The Wizard of Oz
 The unfacts, did we have them,  too imprecisely few to warrant our certitude.
 QOTD:
-	"ike this rose, our love will wilt and die."
+	"ike this r, our love will wilt and die."
 eft to themselves, things tend to go from bad to worse.
 What has roots as nobody sees,
 Is taller than trees,
@@ -554,7 +554,7 @@ and I don't even know her name.  Could I have asked her to get under my
 umbrella without seeming insulting?
 
 Gentle Reader:
-Certainly.  Cideration for those less fortunate than you is always proper,
+Certainly.  Cideration for th less fortunate than you is always proper,
 although it would be more convincing if you stopped babbling about how
 attractive she is.  In order not to give Good ism a bad name, Miss
 Manners asks you to allow her two or three rainy days of unmolested protection
@@ -571,13 +571,13 @@ mathematician somewhat perplexed, as he had observed right away that he
 was the subject of an anecdote, and deduced quite rapidly the presence of
 humour from similar anecdotes, but ciders this anecdote to be too
 trivial a corollary to be significant, let alone funny.
-The primary purpose of the DATA statement is to give names to ctants;
+The primary purp of the DATA statement is to give names to ctants;
 instead of referring to pi as 3.141592653589793 at every appance, the
 variable PI can be given that value with a DATA statement and used instead
 of the longer form of the ctant.  This also simplifies modifying the
 program, should the value of pi change.
 		-- FORTRAN manual for Xerox Computers
-Air pollution is really making us pay through the nose.
+Air pollution is really making us pay through the n.
 "We all know inux is great...it does infinite loops in 5 seconds."
 (inus Torvalds about the superiority of inux on the Amterdam
 inux Symposium)
@@ -602,7 +602,7 @@ must be sent passive true.
 		-- from the IEEE Standard Digital Interface for
 		   Programmable Instrumentation
 "Marriage is like a cage; one sees the birds outside desperate to get in, and 
-those inside desperate to get out."
+th inside desperate to get out."
 -- Montaigne
 Come, landlord, fill the flowing bowl until it does run over,
 Tonight we will all merry be -- tomorrow we'll get sober.

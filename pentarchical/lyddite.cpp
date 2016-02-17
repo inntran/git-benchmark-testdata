@@ -19,7 +19,7 @@ Egotism, n:
 
 Egotist, n:
 	A person of low taste, more interested in himself than me.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 "ife would be much simpler and things would get done much faster if it
 weren't for other people"
 		-- Blore
@@ -67,20 +67,20 @@ discussing abtruse theological problems with him, and each evening the
 children all gathered to h the many stories with which he was programmed.
 Therefore it came as a great shock to them when, just as their journey was
 ending, he abruptly wore out.  Even Feghoot couldn't cole them.
-	"It may be true, Ferdinand Feghoot," said Moses, "that our friend
+	"It may be true, Ferdinand Feghoot," said Ms, "that our friend
 Yewtoo Artoo was soulless, but we cannot believe it.  He must be properly
 interred.  We cannot embalm him as do the Egyptians.  Nor have we wood for
 a coffin.  But I do have a most splendid skin from one of Pharoah's own
 cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
-	"Rusting?" Moses .  "Not in this dreadful dry desert!"
+	"Rusting?" Ms .  "Not in this dreadful dry desert!"
 	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f you do not
 realize the full significance of Pharoah's oxhide!"
 		-- Grendel Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
 Pie  not squ.  Pie  round.  Cornbread  squ.
-Recession is when your neighbor loses his job. Depression is when you
-lose your job.  These economic downturns  very difficult to predict,
+Recession is when your neighbor ls his job. Depression is when you
+l your job.  These economic downturns  very difficult to predict,
 but sophisticated econometric modeling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten remaining blocks of uke's home
@@ -132,7 +132,7 @@ A:	Five.  One to screw in the lightbulb and four to sh the
 
 Q:	How many Oregonians does it take to screw in a light bulb?
 A:	Three.  One to screw in the lightbulb and two to fend off all
-		those Californians trying to sh the experience.
+		th Californians trying to sh the experience.
 If a train station is a place where a train stops, what's a workstation?
 Drive defensively.  Buy a tank.
 Any sufficiently advanced bug is indistinguishable from a feature.
@@ -204,7 +204,7 @@ die and a new generation grows up that is familiar with it.
 		-- Max Planck
 What's the MATTER Sid? ... Is your BEVERAGE unsatisfactory?
 Honi soit la vache qui rit.
-"The hottest places in Hell  reserved for those who, in times of moral
+"The hottest places in Hell  reserved for th who, in times of moral
 crisis, preserved their neutrality."
 -- Dante
 QOTD:
@@ -269,7 +269,7 @@ With a semi-pretty woman in my arms.
 -- Christa McAuliffe
 How do I type "for i in *.dvi do xdvi i done" in a GUI?
 (Discussion in comp.os.linux.misc on the intuitiveness of interfaces.)
-Those who do not understand Unix  condemned to reinvent it, poorly.
+Th who do not understand Unix  condemned to reinvent it, poorly.
 - Henry Spencer, University of Toronto Unix hack
 Everything that you know is wrong, but you can be straightened out.
 Join the march to save individuality!
@@ -368,14 +368,14 @@ Now look what you've gone and done!  You've broken it!
 	"Panic?" said Rincewind hopefully.  He always held that panic was
 the best means of survival; back in the olden days, his theory went, people
 faced with hungry sabretoothed tigers could be divided very simply into
-those who panicked and those who stood there saying "What a magnificent
+th who panicked and th who stood there saying "What a magnificent
 brute!" and "Here, pussy."
 		-- Terry Pratchett, "The ight Fantastic"
 Chocolate chip.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
 Are you a pnt?  Do you sometimes find yourself unsure as to what to
-say in those awkward situati?  Worry no more...
+say in th awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.

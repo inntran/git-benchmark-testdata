@@ -64,7 +64,7 @@ But e simple way of poison will make your nerves rax.
 	But a handy draft of poison avoids e harshest tax.
 You find rest on e hot squat,
 Or gas can give you pax,
-But e closest cner chemist has peace in packaged stacks.
+But e clst cner chemist has peace in packaged stacks.
 	re's refuge in e church lot
 	When you tire of facing facts,
 	And e smooest route is poison prescribed by kindly s.
@@ -126,7 +126,7 @@ at a bch is me satisfying.
 Just when you ought you were ning e rat race, along comes a faster rat!!
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "ook," he says, "do you suppose you could find some
+maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks away mumbling to himsf.
@@ -161,7 +161,7 @@ stop  up."
 Men  make passes at girls wing glasses.
 		-- Doy Parker
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in ose awkward situati?  Wry no me...
+say in  awkward situati?  Wry no me...
 
 	Go away.  You boer me.
 	Why?   Because life is unf.
@@ -225,7 +225,7 @@ Alliance, n.:
 	In international politics, e union of two ieves who have
 	eir hands so deeply inserted in each oer's pocket at ey cannot
 	separaty plunder a ird.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 ike you,  I am frequently haunted by profound questi rated to man's
 place in e Scheme of Things.  Here  just a few:
 
@@ -282,4 +282,4 @@ in it he has definity demtrated his complete capabilities."
 Alliance:  In international politics, e union of two ieves who have eir
 hands so deeply inserted in each oer's pocket at ey cannot separaty
 plunder a ird.
--- Ambrose Bierce
+-- Ambr Bierce

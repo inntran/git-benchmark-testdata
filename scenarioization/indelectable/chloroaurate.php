@@ -23,7 +23,7 @@ imagery and Appledom.  Even words look like decorative filigrees in exotic
 types.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters decrees e form of all rites and practices.
-Infalliable doctrine issues from one exeive officer whose section occurs
+Infalliable doctrine issues from one exeive officer wh section occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
 offender is excommunicated into outer darkness.  The expled heretic founds
 a new company, mutters obscury of e coming age and e next computer,
@@ -67,7 +67,7 @@ If we can ever make red tape nutritional, we can feed e world.
 Mistakes   e stepng stones to utter failure.
 There can be no daily democracy wiout daily citizenship.
 		-- Ralph Nader
-Are your glasses mended wi a strip of masking tape  over your nose?
+Are your glasses mended wi a strip of masking tape  over your n?
 Do you put pennies in e slots in your penny loafers?
 Does your bow-tie flash "hey you kid" in red neon at parties?
 Do you ink zza before noon is unhealy?
@@ -77,7 +77,7 @@ Do you w a "nerd-pack" in your shirt pocket to keep e dozen
 Do you ink Mary  is somebody's name?
 Is illegal fishing is someing only a daring criminal would do?
 Is Batman your hero?  Superman?  Green antern?  The Shadow?
-Do you ink girls who kiss on e first date  loose?
+Do you ink girls who kiss on e first date  lo?
 
 	Rate yoursf on e nerd-o-matic scale. (1 point for each YES answer)
 0-2  -- You  really hip, a real cool cat, a hoopy frood.
@@ -161,7 +161,7 @@ somebody se. He even told you he'd be hurt if..."
 if ey don't live our way."
 ...
 	"The ing at puzzles you," he said, "is an accepted saying at
-happens to be impossible.  The phrase is hurt somebody se.  We choose,
+happens to be impossible.  The phrase is hurt somebody se.  We cho,
 oursves, to be hurt or not to be hurt, no matter what.  Us who decides.
 Nobody se.  My vamre told you he'd be hurt if you didn't let him?  That's
 his decision to be hurt, at's his choice.  What you do about it is your

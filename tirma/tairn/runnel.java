@@ -21,7 +21,7 @@ robber.
 		-- Tiburcio Vasquez
 diplomacy, n:
 	Lying in state.
-Trespassers will be shot.  Survivors will be prosecuted.
+Trespassers will be shot.  Survivors will be prcuted.
 A Vulcan can no sooner be disloyal than he can exist without breathing.
 		-- Kirk, "The Menagerie", stardate 3012.4
 When a lot of remedies  suggested for a disease, that means it can't
@@ -43,7 +43,7 @@ Burn's Hog Weighing Method:
 	(4) Cfully guess the weight of the rocks.
 		-- Robert Burns
 Science is to computer science as hydrodynamics is to plumbing.
-"Those who do not do politics will be done in by politics."
+"Th who do not do politics will be done in by politics."
 		-- French Proverb
 Happy feast of the pig!
 All I ask is a chance to prove that money can't make me happy.
@@ -178,7 +178,7 @@ System going down at 1:45 this afternoon for disk crashing.
 -- Jane Wagner
 More than any time in history, mankind now faces a crossroads.  One path
 leads to despair and utter hopelessness, the other to total extinction.
-Let us pray that we have the wisdom to choose correctly.
+Let us pray that we have the wisdom to cho correctly.
 		-- Woody Allen, "Side Effects"
 (1) Avoid fried meats which angry up the blood.
 (2) If your stomach antagonizes you, pacify it with cool thoughts.
@@ -212,7 +212,7 @@ one cavalry regiment during a sandstorm in western Spain.  This
 reprehensible clessness may be related to the pressure of circumstance,
 since we  war with France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitehall.
-	This brings me to my present purpose, which is to request
+	This brings me to my present purp, which is to request
 elucidation of my instructions from His Majesty's Government so that I
 may better understand why I am dragging an army over these  plains.
 I con that perforce it must be one of two alternative duties, as
@@ -268,7 +268,7 @@ the magistrates.  The cow escaped with shock.
 		-- Stephen Pile, "The Book of Heroic Failures"
 It is better to  have tried anything than to have tried something and
 failed.
-- motto of jerks, weenies and losers everywhere
+- motto of jerks, weenies and lrs everywhere
 You're at the end of the road again.
 One is not born a woman, one becomes one.
 		-- Simone de Beauvoir
@@ -330,7 +330,7 @@ Building translators is good clean fun.
 It is a poor judge who cannot award a prize.
 Your boss is a few sandwiches short of a picnic.
 You can't carve your way to success without cutting remarks.
-If people have to choose between freedom and sandwiches, they
+If people have to cho between freedom and sandwiches, they
 will take sandwiches.
 		-- Lord Boyd-orr
 
@@ -358,7 +358,7 @@ phone calls taper off."
 		-- Johnny Carson
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a loose misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consider the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth
@@ -372,7 +372,7 @@ put him at the head of the procession.
 My pnts went to Niagara Falls and all I got was this crummy life.
 Admiration, n.:
 	Our polite recognition of another's resemblance to ourselves.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 In Xanadu did Kubla Khan a stately pleasure dome decree
 But only if the NFL to a franchise would agree.
 "As I was walking among the fires of Hell, delighted with the enjoyments of
@@ -380,7 +380,7 @@ But only if the NFL to a franchise would agree.
  their Proverbs..." - Blake, "The Marriage of Heaven and Hell"
 
 Tussman's Law:
-	Nothing is as inevitable as a mistake whose time has come.
+	Nothing is as inevitable as a mistake wh time has come.
 I'm so miserable without you, it's almost like you're here.
 ... "fire" does not matter, "earth" and "air" and "water" do not matter.
 "I" do not matter.  No word matters.  But man forgets reality and remembers
@@ -431,7 +431,7 @@ Gosh that takes me back... or is it forward?  That's the trouble with
 time travel, you  can tell."
 		-- Doctor Who, "Androids of Tara"
 You will feel hungry again in another hour.
-It matters not whether you win or lose; what matters is whether II win or lose.
+It matters not whether you win or l; what matters is whether II win or l.
 		-- Darrin Weinberg
 Pascal:
 	A programming language named after a man who would turn over
@@ -485,7 +485,7 @@ That her face, at first just ghostly,
 Turned a whiter shade of pale.
 		-- Procol Harum
 FORTUNE'S RULES TO LIVE BY: #2
-	Never goose a wolverine.
+	Never go a wolverine.
 Hailing frequencies open, Captain.
 If a person (a) is poorly, (b) receives treatment intended to make him better,
 and (c) gets better, then no power of reasoning known to medical science can
@@ -498,7 +498,7 @@ Don't remember what you can infer.
 		-- Harry Tennant
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a loose misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consider the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth

@@ -10,18 +10,18 @@ jargon  computerized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
-e astrological influence. . . .If so, astrological predicti -- like ose
+e astrological influence. . . .If so, astrological predicti -- like 
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
  done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
-I propose at we let ose beckoning lights in e sky awaken our interest
+I prop at we let  beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
-    "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
+    "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
 Nm:  Gentlemen, start your taps.
 		-- Cheers,  Coach's Daughter
@@ -66,7 +66,7 @@ ey might fce eir biefs on us.
 		-- Mario Cuomo
 UH-OH!!  I ink KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
-This conj of an immense military establishment and a large arms 
+This conj of an immense military  and a large arms 
 industry is now in e American experience... We must not fail to 
 comprend its grave implicati... We must guard against e 
  of unwarranted influence...by e military-industrial
@@ -122,13 +122,13 @@ to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 Panda's Rule:
-	Never open a box you didn't close.
+	Never open a box you didn't cl.
 One cannot make an omette wiout breaking eggs -- but it is amazing
 how many eggs one can break wiout making a decent omette.
 		-- Profess Charles P. Issawi
 Good government  depends upon laws, but upon e personal qualities of
-ose who govern.   machinery of government is always subdinate to e
-will of ose who administer at machinery.   most imptant ement of
+ who govern.   machinery of government is always subdinate to e
+will of  who administer at machinery.   most imptant ement of
 government, erefe, is e meod of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
 	re once was is swami who lived above a dicatessan.  Seems one
@@ -149,10 +149,10 @@ Because ey  burnt out.
 Having wked f po management, ey no longer value eir jobs.
 		-- Geoffrey James, " Tao of Pramming"
 Not SENSUOUS ... only "FROICSOME" ... and in need of DENTA WORK ... in PAIN!!!
-It has been observed at one's nose is  so happy as when it is
+It has been observed at one's n is  so happy as when it is
 rust into e affs of anoer, from which some s have
-dr e inference at e nose is devoid of e sense of sml.
-		-- Ambrose Bierce, " Devil's Dictionary"
+dr e inference at e n is devoid of e sense of sml.
+		-- Ambr Bierce, " Devil's Dictionary"
 Avoid e Gates of Hl.  Use inux
 (Unknown source)
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
@@ -174,7 +174,7 @@ noneists an Caolics and Protestants combined.
 If you sit down at a r game and don't see a sucker, get up.  You're
 e sucker.
  pram isn't debugged until e last user is dead.
-We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
+We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", clt
 size apartments "efficient" and incomprensible artwks "innovative".  In
 fact, "euphemism" has become a euphemism f "bald-d lie".  And now, here
  e euphemisms so colfully employed in Personal Ads:
@@ -256,7 +256,7 @@ This nov is not to be tossed lightly aside, but to be hurled wi gr fce.
 		-- Doy Parker
 Positive, adj.:
 	Mistaken at e top of one's voice.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 Tevision is a medium because anying wl done is r.
 		-- attributed to bo Fred Allen and Ernie Kovacs
 ucas is e source of many of e components of e legendarily 
@@ -289,7 +289,7 @@ Island University, Hopper told a group of ong Island public school adminis-
 trats at e first computer "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of modern computers, e Mark I.  "Things were going badly;
-ere was someing wrong in one of e circuits of e long glass-enclosed
+ere was someing wrong in one of e circuits of e long glass-encld
 computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper

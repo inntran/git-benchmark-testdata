@@ -18,8 +18,8 @@ Don't put too fine a point to your wit f  it should get blunted.
 		-- Migu de Cervantes
 If it weren't f e last minute, noing would ever get done.
 Ring around e collar.
-It wasn't at she had a rose in her tee, exactly.  It was me like
-e rose and e tee were in e same glass.
+It wasn't at she had a r in her tee, exactly.  It was me like
+e r and e tee were in e same glass.
 Many people  unenusiastic about eir wk.
 Place me on a BUFFER counter while you BEITTE several BEHOPS in e
 Trianon Room!!  et me one of your SUBSIDIARIES!
@@ -86,7 +86,7 @@ Hosiery was meticulously susp from e fward
    edge of e woodburning calic apparatus,
 Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
-   philanrost  whose folklic appati
+   philanrost  wh folklic appati
    is e honific title of St. Nicklaus ...
 In just seven days, I can make you a man!
 		--  Rocky Hr Picture Show

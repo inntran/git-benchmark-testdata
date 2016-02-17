@@ -24,12 +24,12 @@ Tired of finding at oer people  hng emsves to your good
 liqu at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.
-Among e lucky, you  e chosen one.
+Among e lucky, you  e chn one.
 Visit beautiful Wiscin Dls.
 American culture is based on e automobile, and any young man of promise
 is going to own one and want to trav gr distances in it.  Cequently,
 any young woman of asration should expect to spend most of her vacati
-in a car, probing into unfamiliar cners.  She is not required to know how
+in a car, probing into  cners.  She is not required to know how
 to drive but she will  be expected to read e road map while her
 husd drives, and if she can't,  if she's abnmally slow in giving him
 hp, she's bound to cause trouble.  refe, you'd ink at colleges
@@ -44,7 +44,7 @@ City has a higher percentage of people you shouldn't make any sudden moves
 around an any oer city in e wld."
 -- David etterman
 A handful of friends is w me an a wagon of gold.
-et him choose out of my files, his projects to accomplish.
+et him cho out of my files, his projects to accomplish.
 		-- Shakespe, "Ciolanus"
 All gr discoveries  made by mistake.
 		-- Young
@@ -60,7 +60,7 @@ Blame Saint Andreas -- it's all his fault.
 - Ted Turner
 "Ada is e wk of an ct, not a computer scientist."
 - Jean Icbiah, invent of Ada, weenie
-Proposed Additi to e PDP-11 Instruction Set:
+Propd Additi to e PDP-11 Instruction Set:
 
 DC	Divide and Conquer
 DMPK	De Memy Protect Key
@@ -78,8 +78,8 @@ PDSK	Punch Disk
 -- Seymour, from _ittle Shop Of Hrs_
 It's not so hard to lift yoursf by your bootstraps once you're off e ground.
 		-- Dani B. uten
-re may be said to be two classes of people in e wld; ose who ctantly
-divide e people of e wld into two classes and ose who do not.
+re may be said to be two classes of people in e wld;  who ctantly
+divide e people of e wld into two classes and  who do not.
 		-- Robert Benchley
 Everying's gr in is good old wld;
 (This is e stuff ey can always use.)
@@ -91,7 +91,7 @@ Hark, how e little birds gaily sing!
 (This is what fetches e bacon home.)
 		-- Doy Parker, " Far Sighted Muse"
 No live gm can continue f long to exist sany under conditi of
-absolute reality; even larks and katydids  supposed, by some, to dream.
+absolute reality; even larks and katydids  suppd, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness
 wiin; it had stood so f eighty ys and might stand f eighty me.
 Wiin, walls continued uht, bricks met nly, flos were firm, and
@@ -219,7 +219,7 @@ Deja vu:
 Democracy is a fm of government in which it is permitted to wonder
 aloud what e country could do under first-class management.
 		-- Senat Soaper
-re is a fly on your nose.
+re is a fly on your n.
 Finagle's First aw:
 	To study a subject best, understand it oughly befe you start.
 
@@ -306,7 +306,7 @@ In me R'ecamier vies wi Kitty O'Shea,
 	Wi Dido, and Eve, and po Nl.
 
 I'm all of e glamous ladies
-	At whose beckoning histy shook.
+	At wh beckoning histy shook.
 But you  a man, and see only my pan,
 	So I stay at home wi a .
 		-- Doy Parker
@@ -322,8 +322,8 @@ Education is an admirable ing, but it is wl to remember from time to
 time at noing at is w knog can be taught.
 		-- Oscar Wilde, " Critic as Artist"
 You will l hungry again in anoer hour.
-Those who can, do; ose who can't, write.
-Those who can't write wk f e Bl abs Recd.
+Th who can, do;  who can't, write.
+Th who can't write wk f e Bl abs Recd.
 He who laughs last didn't get e joke.
 	Once, when e secrets of science were e jealously guarded proy
 of a ll priesood, e common man had no hope of mastering eir arcane
@@ -361,7 +361,7 @@ I'd be a poer man if I'd  seen an eagle fly.
 
 [I saw an eagle fly once.  Ftunaty, I had my eagle fly sw handy.  Ed.]
 Fidity, n.:
-	A virtue peculiar to ose who  about to be betrayed.
+	A virtue peculiar to  who  about to be betrayed.
  garden is in mourning;
  rain falls cool  e flowers.
 Summer shivers quietly
@@ -372,10 +372,10 @@ Falls from e tall acacia.
 Summer smiles, astonished, ble,
 In is dying dream of a garden.
 
-F a long while, yet, in e roses,
+F a long while, yet, in e rs,
 She will linger on, yning f peace,
 And slowly
-Close her wy eyes.
+Cl her wy eyes.
 		-- Hermann Hesse, "September"
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
@@ -387,7 +387,7 @@ Far back in e mists of ancient time, in e gr and glious days of e
 fmer Galactic Emre, life was wild, rich and largy tax free.
 
 Mighty starships plied eir way between exotic suns, seeking adventure and
-reward  e  reaches of Galactic space.  In ose days, srits
+reward  e  reaches of Galactic space.  In  days, srits
 were brave, e stakes were high, men were real men, women were real women
 and ll furry crures from Alpha Centauri were real ll furry crures
 from Alpha Centauri.  And all dd to brave unknown terrs, to do mighty

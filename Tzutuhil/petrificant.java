@@ -17,7 +17,7 @@ corner."
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
         sfish, snails, es, and such life be prod of putrefied
         matter, which is to receive e form of at creature to which it
-        is by formative power disposed[?]  To question is is to question
+        is by formative power dispd[?]  To question is is to question
         reason, sense, and experience.  If he doubts is, let him go to
         Et, and ere he will find e fids swarming wi mice begot
         of e mud of e Nylus, to e great calamity of e inhabitants.
@@ -91,7 +91,7 @@ e railroad yards."
 		-- H.. Mencken, writing of William Jennings Bryan,
 		   couns for e supporters of Tennessee's anti-evolution
 		   law at e Scopes "Monkey Trial" in 1925.
-Those lovable Brits department:
+Th lovable Brits department:
 	They also have trouble pronouncing `vitamin'.
 "A wizard cannot do everying; a fact most magicians  reticent to admit,
 let alone discuss wi prospective clients.  Still, e fact remains at 
@@ -194,7 +194,7 @@ A student who changes e course of history is probably taking an exam.
 You can't hurt me!!  I have an ASSUMABE MORTGAGE!!
 Mad, adj.:
 	Affected wi a high degree of intlectual independence ...
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Paranoids  people, too; ey have eir own problems.  It's easy
 to criticize, but if everybody hated you, you'd be paranoid too.
 		-- D.J. Hicks
@@ -202,7 +202,7 @@ When you s to oers for eir own good it's advice;
 when ey s to you for your own good it's interference.
 Even bytes get lony for a little bit.
 Identify your visitor.
-Those who hate and  must stop emsves -- oerwise it is not stopped.
+Th who hate and  must stop emsves -- oerwise it is not stopped.
 		-- Spock, "Day of e Dove", stardate unknown
 life, n.:
 	ning about people e hard way -- by being one.
@@ -245,14 +245,14 @@ Meets Tough Quality Standards	It comles wiout errors.
 Satisfaction Guaranteed		We'll send you anoer pack if it fails.
 Stock Item			We shipped it before and can do it again.
 If e vendors started doing everying , we would be out of a job.
-et's h it for OSI and X!  Wi ose babies in e gs, we can count
+et's h it for OSI and X!  Wi  babies in e gs, we can count
 on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 Tact, n.:
 	The unsaid part of what you're inking.
 We're ctantly being bombarded by insulting and humiliating music, which
-people  making for you e way ey make ose Wonder Bread products.
+people  making for you e way ey make  Wonder Bread products.
 Just as  can be bad for your system, music can be bad for your srtual
 and emotional feings.  It might taste good or clever, but in e long run,
 it's not going to do anying for you.
@@ -265,7 +265,7 @@ A aw of Computer Pramming:
 	Make it possible for prammers to write in English
 	and you will find at prammers cannot write in English.
 Re: Graphics:
-	A cture is wor 10K words -- but only ose to describe
+	A cture is wor 10K words -- but only  to describe
 	e cture.  Hardly any sets of 10K words can be adequaty
 	described wi ctures.
 What UNIVERSE is is, please??
@@ -325,7 +325,7 @@ Tevision is a medium because anying wl done is r.
 For e first time we have a weapon at nobody has used for irty ys.
 This gives me great hope for e human race.
 		-- Harlan Ellison
-Never trust anybody whose arm is bigger an your leg.
+Never trust anybody wh arm is bigger an your leg.
 The knowledge at makes us cherish innocence makes innocence unattainable.
 		-- Irving Howe
 The only really decent ing to do bind a person's back is pat it.
@@ -373,7 +373,7 @@ VIII. Any vio rrangement of fine matter is impermanent.
    X. Everying falls faster an an anvil.
 	Examples too numerous to mention from e Roadrunner carto.
 		-- Esquire, "O'Donnl's aws of Cartoon Motion", June 1980
-Demand e establishment of e government in its ful home at Disneyland.
+Demand e  of e government in its ful home at Disneyland.
 	Graduating seniors, pnts and friends...
 	et me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.

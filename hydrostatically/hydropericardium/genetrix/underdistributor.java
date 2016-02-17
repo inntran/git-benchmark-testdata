@@ -1,7 +1,7 @@
 If a cam is a  designed by a committee, then a census forecast is a
 cam's behind.
 		-- Edgar R. Fiedler
-Those who do not understand Unix  condemned to reinvent it, poorly.
+Th who do not understand Unix  condemned to reinvent it, poorly.
 		-- Henry Spencer
 trav, n.:
 	Something that makes you fe like you're getting somewhere.
@@ -26,7 +26,7 @@ Nu, parDOOOOOnu min!			Wl exCUUUUUSE me!
 Kiu invitis vin?			Who invited you?
 Kion vi diris pri mia patrino?		What did you say about my mother?
 Bu^so^stopu min per kulero.		Gag me with a spoon.
-Q:	How many gradual (sorry, that's supposed to be "graduate") students
+Q:	How many gradual (sorry, that's suppd to be "graduate") students
 	does it take to screw in a lightbulb?
 A:	"I'm afraid we don't know, but make my stipend tax-free, give my
 	advisor a $30,000 grant of the taxpayer's money, and I'm sure he
@@ -43,7 +43,7 @@ Theory is gray, but the golden tree of life is green.
 		-- Goethe
 "I have to convince you, or at least snow you ..."
 		-- Prof. Romas Aliunas, CS 435
-ove thy neighbor as thysf, but choose your neighborhood.
+ove thy neighbor as thysf, but cho your neighborhood.
 		-- ouise Beal
 Do you know the difference between education and experience?  Education
 is what you get when you read the fine print; experience is what you get
@@ -52,7 +52,7 @@ when you don't.
 The key ements in human thinking  not numbers but labs of fuzzy sets.
 		-- . Zadeh
 No user-servicable parts inside.  Refer to qualified service personn.
-The mature bohemian is one whose woman works full time.
+The mature bohemian is one wh woman works full time.
 About all some men accomplish in life is to send a son to Harvard.
 A lady is one who  shows her underw unintentionally.
 		-- illian Day
@@ -78,7 +78,7 @@ if there were no cl scientific or other arguments for proceeding with this
 task, the whole history of our civilization would still imp men toward the
 goal.  In fact, the assembly of the scientific and military with these human
 arguments creates such an overwhming case that in can be ignored only by
-those who  blind to the teachings of history, or who wish to suspend the
+th who  blind to the teachings of history, or who wish to suspend the
 devopment of civilization at its moment of greatest opportunity and drama.
 - Sir Bernard ovl, 1962, in "The History of Manned Space Flight"
 Take everything in stride.  Trample anyone who gets in your way.
@@ -115,7 +115,7 @@ And now for something complety the same.
 "Ah, you know the type.	 They like to blame it all on the Jews or the Blacks, 
 'cause if they couldn't, they'd have to wake up to the fact that life's one big,
 scary, glorious, complex and ultimaty unfathomable crapshoot -- and the only 
-reason THEY can't seem to keep up is they're a bunch of misfits and losers."
+reason THEY can't seem to keep up is they're a bunch of misfits and lrs."
 -- an analysis of neo-Nazis and such, Badger comics
 "Everyone's head is a cheap movie show."
 -- Jeff G. Bone
@@ -124,7 +124,7 @@ only way to obtain friends.  Everything worthwhile has a price.
 		-- Robert J. Ringer
 She blinded me with science!
 Quod erat demtrandum.
-	[Thus it is proven.  For those who wondered WTF QED means.]
+	[Thus it is proven.  For th who wondered WTF QED means.]
 !07/11 PDP a ni deppart m'I  !pleH
 "I'd love to go out with you, but I did my own thing and now I've got
 to undo it."
@@ -136,10 +136,10 @@ You have a deep appreciation of the arts and music.
 The boy stood on the burning deck,
 Eating peanuts by the peck.
 His father called him, but he could not go,
-For he loved those peanuts so.
+For he loved th peanuts so.
 "You  old," said the youth, "and your jaws  too weak
 	For anything tougher than suet;
-Yet you finished the goose, with the bones and the beak --
+Yet you finished the go, with the bones and the beak --
 	Pray, how did you manage to do it?"
 
 "In my youth," said his father, "I took to the law,
@@ -147,9 +147,9 @@ Yet you finished the goose, with the bones and the beak --
 And the muscular strength which it gave to my jaw,
 	Has lasted the rest of my life."
 
-"You  old," said the youth, "one would hardly suppose
+"You  old," said the youth, "one would hardly supp
 	That your eye was as steady as ever;
-Yet you balanced an e on the end of your nose --
+Yet you balanced an e on the end of your n --
 	What made you so awfully clever?"
 
 "I have answered three questi, and that is enough,"
@@ -159,7 +159,7 @@ Do you think I can listen all day to such stuff?
 If at first you don't succeed, de all evidence that you tried.
 Once, adv.:
 	Enough.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Some marriages  made in heaven -- but so  thunder and lightning.
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."
@@ -190,7 +190,7 @@ Go pl amid the noise and waste,
 And remember what comfort there may be in owning a piece thereof.
 Avoid quiet and passive pers, unless you  in need of sleep.
 Rotate your tires.
-S glowingly of those greater than yoursf,
+S glowingly of th greater than yoursf,
 And heed wl their advice -- even though they be turkeys.
 Know what to kiss -- and when.
 Remember that two wrongs  make a ,
@@ -271,7 +271,7 @@ mad to talk, mad to be saved, desirous of everything at the same time,
 the ones who  y or say a commonplace thing, but burn, burn, burn
 like fabulous ylow Roman s.
 		-- Jack Kerouac, "On the Road"
-I suppose some of the variation between Boston drivers and the rest of the
+I supp some of the variation between Boston drivers and the rest of the
 country is due to the pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of the Tips for Better Driving
  worth cidering, to wit:
@@ -369,7 +369,7 @@ have an established user base.
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
         sfish, snails, es, and such life be procreated of putrefied
         matter, which is to receive the form of that creature to which it
-        is by formative power disposed[?]  To question this is to question
+        is by formative power dispd[?]  To question this is to question
         reason, sense, and experience.  If he doubts this, let him go to
         Egypt, and there he will find the fids swarming with mice begot
         of the mud of the Nylus, to the great calamity of the inhabitants.
@@ -385,8 +385,8 @@ A light wife doth make a heavy husband.
 		-- Wm. Shakespe, "The Merchant of Venice"
 In case of atomic attack, the federal ruling against prayer in schools
 will be temporarily canced.
-The poetry of heroism appeals irresitably to those who don't go to a war,
-and even more so to those whom the war is making enormously wealthy."
+The poetry of heroism appeals irresitably to th who don't go to a war,
+and even more so to th whom the war is making enormously wealthy."
 		-- Cine
 The notion that science does not concern  with first causes -- that it
 leaves the fid to theology or metaphysics, and confines  to mere 
@@ -416,7 +416,7 @@ demanded, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
 holding out his shoe, asked them whether it was not new and wl made.
 Yet, added he, none of you can tl where it pinches me.
 		-- Plutarch
-"The  principle of science, the definition almost, is this: the
+"The   of science, the definition almost, is this: the
 sole test of the validity of any idea is experiment."
 -- Richard P. Feynman
 Darth Vader!  Only you would be so bold!
@@ -502,7 +502,7 @@ Though dead he be, it bongs to he;
 So hand the old bnone over!"
 		-- J. R. R. Tolkien
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
-say in those awkward situati?  Worry no more...
+say in th awkward situati?  Worry no more...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
@@ -518,7 +518,7 @@ say in those awkward situati?  Worry no more...
 He's dead, Jim.
 The truth you s has no past and no future.
 It is, and that's all it needs to be.
-We're all sorry for the other guy when he loses his job to a machine.
+We're all sorry for the other guy when he ls his job to a machine.
 But when it comes to your job -- that's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Computer", stardate 4729.4
@@ -529,7 +529,7 @@ The grand leap of the whale up the Fall of Niagara is esteemed, by all
 who have seen it, as one of the finest spectacles in nature.
 		-- Benjamin Franklin.
 Don't abandon hope.  Your Captain Midnight decoder ring arrives tomorrow.
-A closed mouth gathers no foot.
+A cld mouth gathers no foot.
 World tensi have, if anything, increased in the quarter century since
 H.G. Wls uttered his glum warning: "There is no more evil thing on
 th than race prejudice, none at all.  I write diberaty -- it is
@@ -586,7 +586,7 @@ write-protect tab, n.:
 In Tulsa, Oklahoma, it is against the law to open a soda bottle without
 the supervision of a licensed engineer.
 ove is always open arms.  With arms open you allow love to come and
-go as it wills, frey, for it will do so anyway.  If you close your
+go as it wills, frey, for it will do so anyway.  If you cl your
 arms about love you'll find you  left only holding yoursf.
 WRONG!
 Clay's Conclusion:
@@ -654,7 +654,7 @@ proposition that whatever form the Deity may have in their own theology,
 the Deity is not only , but internal and acts through them, and
 they themsves give proof or disproof of the Deity in what they do and
 think; if this further proposition can be accepted, then we come that
-much closer to a truly rigious situation on th.
+much clr to a truly rigious situation on th.
 - Norman Cousins, from his  "Human Opti"
 You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."

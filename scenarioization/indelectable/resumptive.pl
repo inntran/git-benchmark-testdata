@@ -53,7 +53,7 @@ act of justice.
 		-- John Altgeld
 To converse at the distance of the Indes by means of sympathetic contrivances
 may be as natural to future times as to us is a literary correspondence.
-		-- Joseph Glanvill, 1661
+		-- Jph Glanvill, 1661
 Go on, EMOTE!  I was RAISED on thought ballo!!
 It is by the fortune of God that, in this country, we have three benefits:
 freedom of speech, freedom of thought, and the wisdom  to use either.
@@ -84,7 +84,7 @@ Rule of Feline Frustration:
 As Will Rogers would have said, "There is no such things as a free variable."
 Q:	How much does it cost to ride the Unibus?
 A:	2 bits.
-Once the realization is accepted that even between the closest human beings
+Once the realization is accepted that even between the clst human beings
 infinite distances continue to exist, a wonderful living side by side can
 grow up, if they succeed in loving the distance between them which makes it
 possible for each to see each other whole against the sky.
@@ -149,7 +149,7 @@ imagine the grandeur and scope of a pram that would take as long?
 I am two with nature.
 		-- Woody Allen
 Anyone who has attended a USENIX conference in a fancy hotel can tell you
-that a sentence like "You're one of those computer people, n't you?"
+that a sentence like "You're one of th computer people, n't you?"
 is roughly equivalent to "ook, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
@@ -159,7 +159,7 @@ Why isn't there some cheap and easy way to prove how much she means to me?
 Xerox  comes up with anything original.
 System/3!  System/3!
 See how it runs!  See how it runs!
-	Its monitor loses so totally!
+	Its monitor ls so totally!
 	It runs all its prams in RPG!
 	It's made by our favorite monopoly!
 System/3!
@@ -222,7 +222,7 @@ Of course, it would orbit Sputnik, not Earth!
 Mos Eisley Spaceport; you'll not find a more wretched collection of
 villainy and disreputable types...
 		-- Obi-wan Kenobi, "Star Wars"
-I always choose my friends for their good looks and my enemies for their
+I always cho my friends for their good looks and my enemies for their
 good intellects.  Man cannot be too cful in his choice of enemies.
 		-- Oscar Wilde, "The Picture of Dorian Gray"
 Hiccuping & trembling into the WASTE DUMPS of New Jersey like some
@@ -266,7 +266,7 @@ And into the black
 Truth has always been found to promote the best interests of mankind...
 - Percy Bysshe Shelley
 The tree in which the sap is stagnant remains fruitless.
-		-- Hosea Ballou
+		-- Ha Ballou
 Never fen a small man -- he'll kill you.
 There's nothing like good food, good wine, and a bad girl.
 Gauls! We have nothing to f; except perhaps that the sky may fall on
@@ -306,7 +306,7 @@ When the team got			to me about my blue jacket;
 their warm-up jackets			the guys were my friends
 I didn't get one			Yet it hurt me all y
 Only the regular team			to w that blue jacket
-got these jackets, and			among all those green ones
+got these jackets, and			among all th green ones
 su not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
@@ -326,5 +326,5 @@ We ARE as gods and might as well get good at it.
 Computer prams expand so as to fill the core available.
 To be is to be related.
 		-- C.J. Keyser.
-Don't confuse things that need action with those that take c of themselves.
+Don't confuse things that need action with th that take c of themselves.
 Is a wedding successful if it comes off without a hitch?

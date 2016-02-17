@@ -24,7 +24,7 @@ Clutching the night to you like a fig leaf
 	Home centers  designed for the do-it-yoursfer who's willing to
 pay higher prices for the convenience of being able to shop for lumber,
 hardw, and toasters all in one location.  Notice I say "shop for," as
-opposed to "obtain." This is the major drawback of home centers: they 
+oppd to "obtain." This is the major drawback of home centers: they 
 always out of everything except artificial Christmas trees.  The home center
 employees have no time to re merchandise because they  too busy
 applying little price stickers to every object -- every board, washer, nail

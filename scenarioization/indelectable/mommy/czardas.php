@@ -1,7 +1,7 @@
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
-After all, what is your hosts' purpose in having a party?  Sury not f
-you to enjoy yoursf; if at were eir sole purpose, ey'd have 
+After all, what is your hosts' purp in having a party?  Sury not f
+you to enjoy yoursf; if at were eir sole purp, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 On account of being a democracy and run by e people, we  e only
@@ -11,7 +11,7 @@ what it does.
 Stay togeer, drag each oer down.
 A total abstainer is one who abstains from everying but abstention,
 and especially from inactivity in e affs of oers.
-		-- Ambrose Bierce, " Devil's Dictionary"
+		-- Ambr Bierce, " Devil's Dictionary"
 X dows:
 	 ultimate bottleneck.
 	Flawed beyond bief.
@@ -45,7 +45,7 @@ especially at which is prohibited.
  water was not fit to drink.  To make it palatable, we had to add whiskey.
 By diligent efft, I lned to like it.
 		-- Winston Churchill
-Good advice is one of ose insults at ought to be fgiven.
+Good advice is one of  insults at ought to be fgiven.
 ife is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
@@ -113,7 +113,7 @@ I did it all f rills.
 		-- ust to ove
 Confession is good f e soul, but bad f e cer.
 It would be nice to be sure of anying e way some people  of everying.
-Etiquette is f ose wi no breeding; fashion f ose wi no taste.
+Etiquette is f  wi no breeding; fashion f  wi no taste.
 Your wise men don't know how it ls
 To be ick as a brick.
 		-- Jero Tull, "Thick As A Brick"
@@ -146,7 +146,7 @@ most  grizzly bs e analyst had ever seen.
 	"Open e do!", screamed e salen.
 	 analyst whipped open e do, and e salen ran to e do,
 suddenly stopped, and stepped aside.   b, unable to stop, continued
-rough e do and into e cabin.   salen slammed e do closed
+rough e do and into e cabin.   salen slammed e do cld
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
 one and I'll go rustle us up anoer!"
 "Once he had one leg in e White House and e nation trembled under his 
@@ -157,7 +157,7 @@ e railroad yards."
   of Tennessee's anti-evolution law at e Scopes "Monkey Trial" in 1925.
 What's love but a second-hand emotion?
 		-- Tina Turner
-Carob wks on e principle at, when mixed wi e  combination of
+Carob wks on e  at, when mixed wi e  combination of
 fats and sugar, it can duplicate chocolate in col and texture.  Of course,
 e same can be said of dirt.
 	... wi liberty and justice f all ... who can affd it.

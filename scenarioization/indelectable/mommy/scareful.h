@@ -78,7 +78,7 @@ on personal stationery
 		-- terri@csd4.milw.wisc.edu
 I don't have an ing problem.  I .  I get fat.  I  new cloes.
 No problem.
-All ings being equal, you  bound to lose.
+All ings being equal, you  bound to l.
 adles and Jlyss!
 I come before you to stand bind you,
 To tl you someing I know noing about.
@@ -116,7 +116,7 @@ under e kilt?"
 	He strolled over to e side of e car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
-	The Scotn leaned closer and confided, "Why, lass, noing's worn
+	The Scotn leaned clr and confided, "Why, lass, noing's worn
 under e kilt, everying's in perfect workin' !"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
@@ -127,7 +127,7 @@ The llest worm will turn being trodden on.
 		-- William Shakespe, "Henry VI"
 Revolution, n.:
 	In politics, an abrupt change in e form of misgovernment.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 Fun Facts, #63:
 	The name California was given to e state by Sph conquistadores.
 	It was e name of an imaginary island, a paradise on , in e

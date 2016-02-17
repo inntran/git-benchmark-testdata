@@ -4,7 +4,7 @@ only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
 to both sexes.  Health and vigor will vh like the dew before the sun.
 	It is not the extraordinary exercise which harms the dancer, but
-rather the coming into close contact with the opposite sex.  It is the
+rather the coming into cl contact with the opposite sex.  It is the
 fury of lust craving incessantly for more pleasure that undermines the
 soul, the body, the sinews and nerves.  Experience and statistics show
 beyond doubt that passionate excessive dancing girls can hardly reach
@@ -49,7 +49,7 @@ We were 15 days on the water, and 3 on the boat when we finally arrived in
 Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
 6:00, breakfast, and back in bed by 7:00.  Pretty soon we were back in bed by
 6:30.  Now Africa is full of big game.  The first day I shot two bucks.  That
-was the biggest game we had.  Africa is primerally inhabited by Elks, Moose
+was the biggest game we had.  Africa is primerally inhabited by Elks, Mo
 and Knights of Pithiests.
 	The elks live up in the mountains and come down once a y for their
 annual conventi.  And you should see them gathered around the water hole,
@@ -67,7 +67,7 @@ So we're going back in a few ys...
 		-- Claude Shouse
 
 "Einstein's mother must have been one heck of a physicist."
-		-- Joseph C. Wang
+		-- Jph C. Wang
 It is easier to run down a hill than up one.
 I have a map of the United States.  It's actual size.  I spent last summer
 folding it.  People ask me where I live, and I say, "E6".
@@ -80,7 +80,7 @@ In most countries selling harmful things like drugs is punishable.
 Then howcome people can sell Microsoft softw and go unpunished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 Egotist:  A person of low taste, more interested in himself than in me.
--- Ambrose Bierce
+-- Ambr Bierce
 If you're going to do something tonight that you'll be sorry for tomorrow
 morning, sleep late.
 		-- Henny Youngman

@@ -18,7 +18,7 @@ The UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't h no whistles or bls,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Those crazy little prams,
+What makes him so good?			Th crazy little prams,
 					The proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -79,7 +79,7 @@ Arbitrary systems, pl.n.:
 American culture is based on the automobile, and any young man of promise
 is going to own one and want to trav great distances in it.  Cequently,
 any young woman of aspiration should expect to spend most of her vacati
-in a car, probing into unfamiliar corners.  She is not required to know how
+in a car, probing into  corners.  She is not required to know how
 to drive but she will  be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
 hp, she's bound to cause trouble.  Therefore, you'd think that colleges
@@ -101,7 +101,7 @@ I play just what I fe.
 Drink Scotch whisky all night long,
 And die behind the whe.
 They got a name for the winners in the world,
-I want a name when I lose.
+I want a name when I l.
 They call Alabama the Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
@@ -141,7 +141,7 @@ stupidity, sir, is not in Nature.
 Alimony and bribes will engage a large sh of your wealth.
 The degree of technical confidence is inversy proportional to the
 lev of management.
-We're all sorry for the other guy when he loses his job to a machine.
+We're all sorry for the other guy when he ls his job to a machine.
 But when it comes to your job -- that's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Computer", stardate 4729.4
@@ -160,7 +160,7 @@ yours too."
 Santa Claus is watching!
 Clovis' Cideration of an Atmospheric Anomaly:
 	The perversity of nature is nowhere better demtrated
-	than by the fact that, when exposed to the same atmosphere,
+	than by the fact that, when expd to the same atmosphere,
 	bread becomes hard while crackers become soft.
 Excessive login or logout messages  a sure sign of senility.
 I got tired of listening to the reing on the phone at the movie
@@ -234,7 +234,7 @@ To purr fine.
 		-- Robert Byrne
 In a gathering of two or more people, when a lighted cigtte is
 placed in an ashtray, the smoke will waft into the  of the non-smoker.
-Wl, O.K.  I'll compromise with my principles because of EXISTENTIA DESPAIR!
+Wl, O.K.  I'll compromise with my s because of EXISTENTIA DESPAIR!
 Get Revenge!  ive long enough to be a problem for your children!
 "An ounce of prevention is worth a ton of code."
 -- an anonymous prammer
@@ -296,7 +296,7 @@ jungle!  We've had quite enough of you blowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the hp of the Wickersham Brothers and dozens of Wickersham
-Uncles and Wickersham Cousins and Wickersham In-aws, whose hp I've engaged,
+Uncles and Wickersham Cousins and Wickersham In-aws, wh hp I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
@@ -342,16 +342,16 @@ I think very probably he might be cured."
 	The ders murmured assent.
 	"Now, what affects it?"
 	"Ah!" said old Yacob.
-	"This," said the doctor, answering his own question.  "Those queer
+	"This," said the doctor, answering his own question.  "Th queer
 things that  called the eyes, and which exist to make an able soft
 depression in the ,  diseased, in the case of Bogota, in such a way
 as to affect his brain.  They  greatly distended, he has eyashes, and
-his eyids move, and cosequently his brain is in a state of ctant
+his eyids move, and cquently his brain is in a state of ctant
 irritation and distraction."
 	"Yes?" said old Yacob.  "Yes?"
 	"And I think I may say with reasonable certainty that, in 
 to cure him complety, all that we need do is a simple and easy surgical
-operation -- namy, to remove those irritant bodies."
+operation -- namy, to remove th irritant bodies."
 	"And then he will be sane?"
 	"Then he will be perfectly sane, and a quite admirable citizen."
 	"Thank heaven for science!" said old Yacob.
@@ -469,7 +469,7 @@ MOUNT TAPE U1439 ON B3, NO RING
 Tephone, n.:
 	An invention of the devil which abates some of the advantages
 	of making a disable person keep his distance.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 All great ideas  controversial, or have been at one time.
 To the systems prammer, users and applicati serve only to provide a
 test load.
@@ -557,8 +557,8 @@ women.
 		-- George Bernard Shaw
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali Baba Bunny (1957, Chuck Jones)
-It's a recession when your neighbour loses his job; it's a depression
-when you lose yours.
+It's a recession when your neighbour ls his job; it's a depression
+when you l yours.
 		-- Harry S. Truman
 You're growing out of some of your problems, but there  others that
 you're growing into.
@@ -569,7 +569,7 @@ ratihips to the wolf the shepherd may have forgotten.
 Hand, n.:
 	A singular instrument worn at the end of a human arm and
 	commonly thrust into somebody's pocket.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 The fancy is indeed no other than a mode of memory emancipated from the 
 of space and time.  -- u Taylor Coleridge
 Bagbiter:

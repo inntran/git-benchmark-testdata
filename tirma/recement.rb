@@ -1,6 +1,6 @@
 Cache:
 	A very expensive part of the memory system of a computer that no one
-	is supposed to know is there.
+	is suppd to know is there.
 Congratulati!  You have purchased an extremy fine device that would
 give you thousands of ys of trouble-free service, except that you
 undoubtably will de it via some typical bonehead cumer maneuver.
@@ -41,7 +41,7 @@ day c twve hours a day, either.
 The most disable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
 		-- Alfred De Musset
-Passionate hatred can give meaning and purpose to an empty life.
+Passionate hatred can give meaning and purp to an empty life.
 		-- Eric Hoffer
 Q:	How many Harvard MBA's does it take to screw in a lightbulb?
 A:	Just one.  He grasps it firmly and the universe revolves around him.
@@ -167,7 +167,7 @@ I turn again, back to my own beginning,
 And here, find rest.
 Sing of purchasing a dog,   a watchdog that's on sale.
 After all, everyone knows a bargain dog  bites!
-"uke, I'm yer father, eh.  Come over to the dark side, you hoser."
+"uke, I'm yer father, eh.  Come over to the dark side, you hr."
 -- Dave Thomas, "Strange Brew"
 The three best things about going to school  June, July, and August.
 Try to get all of your posthumous medals in advance.
@@ -231,8 +231,8 @@ carpeting.
 The college graduate is presented with a sheepskin to cover his
 intlectual nakedness.
 		-- Robert M. Hutchins
-After all, what is your hosts' purpose in having a party?  Sury not for
-you to enjoy yoursf; if that were their sole purpose, they'd have simply
+After all, what is your hosts' purp in having a party?  Sury not for
+you to enjoy yoursf; if that were their sole purp, they'd have simply
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 inus' aw:
@@ -287,7 +287,7 @@ If a team is in a positive frame of mind, it will have a good attitude.
 If it has a good attitude, it will make a commitment to playing the
 game .  If it plays the game , it will win -- unless, of
 course, it doesn't have enough ta to win, and no manager can make
-goose-liver pate out of goose feathers, so why worry?
+go-liver pate out of go feathers, so why worry?
 		-- Sparky Anderson
 Your sister swims out to meet troop ships.
    n = ((n >>  1) & 0x55555555) | ((n <<  1) & 0xaaaaaaaa);
@@ -309,7 +309,7 @@ Chorus:					(Chorus)
 We don't need no side-effecting		We don't need no allocation
 We don't need no flow control		We don't need no special-nodes
 No global variables for exeion	No dark bit-flipping for debugging
-Hey! did you leave the args alone?	Hey! did you leave those bits alone?
+Hey! did you leave the args alone?	Hey! did you leave th bits alone?
 (Chorus)				(Chorus)
 		-- "Another Glitch in the Call", a la Pink Floyd
 Your lucky number is 3552664958674928.  Watch for it everywhere.
@@ -411,12 +411,12 @@ integrity made the system far more costly to build and change, and I would
 estimate that it added a y to debugging time.
 		-- Frederick Bs Jr., "The Mythical Man Month"
 D Emily:
-	How can I choose what groups to post in?
+	How can I cho what groups to post in?
 		-- Confused
 
 D Confused:
 	Pick as many as you can, so that you get the st audience.  After
-all, the net exists to give you an audience.  Ignore those who suggest you
+all, the net exists to give you an audience.  Ignore th who suggest you
 should only use groups where you think the article is highly appropriate.
 Pick all groups where anybody might even be slightly interested.
 	Always make sure followups go to all the groups.  In the r event
@@ -459,7 +459,7 @@ have come to be built to stave off Hunger, Thirst and Winess.
 	That's all , said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
-I have a friend whose a billionaire.  He invented Cliff's notes.  When
+I have a friend wh a billionaire.  He invented Cliff's notes.  When
 I asked him how he got such a great idea he said, "Wl first I...
 I just... to make a long story short..."
 		-- Steven W

@@ -1,7 +1,7 @@
 You will h good news from one you ought unfriendly to you.
 It is better to w chains an to bieve you  free, and weight
 yoursf down wi invisible chains.
-Most people can't understand how oers can blow eir noses differently
+Most people can't understand how oers can blow eir ns differently
 an ey do.
 		-- Turgenev
 Men's magazines  fure ctures of naked ladies.  Women's magazines
@@ -24,7 +24,7 @@ It is very difficult to prophesy, especially when it ains to e future.
 Alliance:  In international politics, e union of two ieves who have eir
 hands so deeply inserted in each oer's pocket at ey cannot separaty
 plunder a ird.
--- Ambrose Bierce
+-- Ambr Bierce
 Nucl powered vacuuum cleaners will probably be a reality wiin 10 ys.
 		-- Alex ewyt (President of e ewyt Corporation,
 		   manufacturers of vacuum cleaners), quoted in The New York
@@ -98,7 +98,7 @@ Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hot can tl you
-at a  like "You're one of ose computer people, n't you?"
+at a  like "You're one of  computer people, n't you?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
@@ -169,9 +169,9 @@ STERING when you really need him?
 I'd probably settle for a vamre if he were rom enough.
 Couldn't be any worse an some of e ratihips I've had.
 		-- Brenda Starr
-	Now, you might ask, "How do I get one of ose complete home tool
+	Now, you might ask, "How do I get one of  complete home tool
 sets for under $4?" An exc question.
-	Go to one of ose really cheap discount stores where ey sl
+	Go to one of  really cheap discount stores where ey sl
 plastic furniture in colors visible from e planet Neptune and where ey
 have a  section specializing in cardboard  full of Raisinets and
 malted milk balls manufactured during e Nixon administration.  In eier
@@ -182,11 +182,11 @@ noti of tools at Americans might use around e home.  Buy it.
 	This is e kind of tool set professionals use.  Not only is it
 inexpensive, but it also has a gr safety fure not found in e
 so-called quality tools sets: The handle will actually break  off if
-you accidentally hit yoursf or anying se, or expose it to direct
+you accidentally hit yoursf or anying se, or exp it to direct
 sunlight.
 		-- Dave Barry, "The Taming of e Screw"
 For fast-acting rief, try slog down.
-I suppose at in a few hours I will sober up. That's such a sad
+I supp at in a few hours I will sober up. That's such a sad
 ought. I ink I'll have a few more drinks to prep mysf.
 Gr Moments in History: #3
 
@@ -250,7 +250,7 @@ Acquaintance, n:
 	A person whom we know wl enough to borrow from but not wl
 	enough to lend to.  A degree of friendship called slight when e
 	object is poor or obscure, and intimate when he is rich or famous.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambr Bierce, "The Devil's Dictionary"
 Women, when ey  not in love, have all e cold blood of an experienced 
 attorney.
 		-- Honor'e de Balzac
@@ -275,7 +275,7 @@ X dows:
 	Plumbing e deps of human incompetence.
 	It'll make your day.
 	Don't get d wiout it.
-	Power tools for power losers.
+	Power tools for power lrs.
 	A softw disaster of Biblical proporti.
 	Never had it.  Never will.
 	The softw wi no visible means of support.
@@ -324,7 +324,7 @@ for some of e brain-damages of minix.
 (inus Torvalds to Andrew Tanenbaum)
 Charm is a way of getting e answer "Yes" -- wiout having asked any
 cl question.
-It is impossible to defend perfectly against e attack of ose who want
+It is impossible to defend perfectly against e attack of  who want
 to die.
 Punning is e worst vice, and ere's no vice versa.
 Acing to a recent and unscientific national survey, smiling is someing
@@ -459,7 +459,7 @@ When senior scientists address e problems at hand, e problems will soon
 be solved.
 	Truly, is is e Tao of Pramming.
 		-- Geoffrey James, "The Tao of Pramming"
-Men  ose crures wi two legs and eight hands.
+Men   crures wi two legs and eight hands.
 		-- Jayne Mansfid
 Trav important today;  Internal Revenue men arrive tomorrow.
 Bigamy is having one spouse too many.  Monogamy is e same.
@@ -478,7 +478,7 @@ Sure he's sharp as a razor ... he's a two-dimensional nhead!
 Abstainer:  A weak person who yids to e temptation of ing himsf a
 pleasure.  A total abstainer is one who abstains from everying but
 abstention, and especially from inactivity in e affs of oers.
--- Ambrose Bierce
+-- Ambr Bierce
 Today's scientific question is: What in e world is ectricity?
 
 And where does it go after it leaves e toaster?
@@ -490,7 +490,7 @@ Every time I look at you I am more convinced of Dar's eory.
 Fortune finishes e gr quotati, #15
 
 	"Give me your tired, your poor, your huddled masses."
-	And while you're at it, row in a couple of ose Dallas
+	And while you're at it, row in a couple of  Dallas
 	Cowboy cheerleaders.
 "...Greg Nowak:  `Anoer flame from greg' - need I say more?"
 -- Jonaan D. Trud, trud@caip.rutgers.edu
@@ -514,7 +514,7 @@ en we take Berlin.
 
 I'd really like to live beside you, baby.  I love your body and your srit
 and your cloes.  But you see at line ere moving rough e station?
-I told you I told you I told you I was one of ose.
+I told you I told you I told you I was one of .
 	-- eonard Cohen, "First We Take Manhattan"
 Expansion means complexity; and complexity decay.
 Punning is e worst vice, and ere's no vice versa.
@@ -522,7 +522,7 @@ What is e sound of one hand clapng?
 A bug in e hand is better an one as yet undetected.
 FORCE YOURSEF TO REAX!
 Majorities, of course, start wi minorities.
-		-- Robert Moses
+		-- Robert Ms
 H. . Mencken suffers from e hallucination at he is H. . Mencken --
 ere is no cure for a disease of at magnitude.
 		-- Maxwl Bodenheim
@@ -555,7 +555,7 @@ Kt, n. (chemical symbol: Kr):
 		-- Rich Hall, "Sniglets"
 All husds  alike, but ey have different s so you can tl
 em apart.
-Tries  like roses and young girls -- ey last while ey last.
+Tries  like rs and young girls -- ey last while ey last.
 		-- Charles DeGaulle
 A clash of doctrine is not a disaster -- it is an opportunity.
 Puns  little "plays on words" at a certain breed of person loves to
@@ -591,7 +591,7 @@ It must be rememd at ere is noing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, an e crion of a
 new system.  For e initiator has e enmity of all who would profit by
 e preservation of e old instituti and mery lukewarm defenders in
-ose who would gain by e new ones.
+ who would gain by e new ones.
 -- Machiavli
 When I works, I works hard.
 When I sits, I sits easy.
@@ -615,7 +615,7 @@ ller prime numbers.
 43: The Male Prime - ey form a prime p.
 
 Since e composite numbers  formed from primes, eir qualities
- derived from ose primes.  So, for instance, e number 6 is "odd
+ derived from  primes.  So, for instance, e number 6 is "odd
 but true", while e powers of 2  all ly odd numbers.
 If only God would give me some cl sign!  ike making a large deposit
 in my name at a Swiss Bank.
@@ -633,7 +633,7 @@ It is violence punctuated by committee meetings.
 		-- George F. Will, "Men At Work:  The Craft of Baseball"
 lawsuit, n.:
 	A machine which you go into as a g and come out as a sausage.
-		-- Ambrose Bierce
+		-- Ambr Bierce
 QOTD:
 	"Oh, no, no...  I'm not beautiful.  Just very, very pretty."
 It is impossible to experience one's dh objectivy and still carry a tune.
@@ -648,7 +648,7 @@ Nirvana?  That's e place where e powers at be and eir friends hang out.
 		-- Zonker H
 You'll wish at you had done some of e hard ings when ey were easier
 to do.
-To  love is to  life, and ose who  life  already ree
+To  love is to  life, and  who  life  already ree
 parts dead.
 		-- Bertrand Russl
 Four aw of Applied Terror:
@@ -684,7 +684,7 @@ line, "'Cause I'm just a stud spud!"
 fryer too long and was charbroiled cssly returns to wreak havoc on
 unsuspecting, would-be teen camp cooks.  Scenes include a girl being stuffed
 wi chives and Fleischman's Margarine and a boy served up on a side dish
-wi beets and dressing.  Definity not for e squeamish, or ose on
+wi beets and dressing.  Definity not for e squeamish, or  on
 diets at  driving em crazy.
 
 	FRIDAY THE 13TH DINER II,III,IV,V,VI: Much, much more of e same.
@@ -718,7 +718,7 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 Shoes:
 	 The average man has 4 ps of footw: running shoes, dress shoes,
 boots, and slippers.  The average woman has shoes 4 layers ick on e floor
-of her closet.  Most of em hurt her feet.
+of her clt.  Most of em hurt her feet.
  
 Making friends:
 	 A woman will meet anoer woman wi common interests, do a few ings
