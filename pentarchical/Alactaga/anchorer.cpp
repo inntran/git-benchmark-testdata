@@ -61,8 +61,8 @@ student newspaper, of Tuesday, 3/10/87.
 	which identifies errs in the iginal program.
 What's so funny?
 Man has never reconciled himself to the ten commandments.
- herd instinct among economists makes sheep look like independent thinkers.
-Fights between cats and dogs are prohibited by statute in Barber, Nth
+ herd instinct  economists makes sheep look like independent thinkers.
+Fights between cats and dogs are prohibited by ste in Barber, Nth
 Carolina.
 Goda's Truism:
 	By the time you get to the point where you can make ends meet,
@@ -153,7 +153,7 @@ out of things they can do with UNIX. y'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking f something, you can easily and quickly
 c that small manual and find out that it's not there.  With VMS, no m
-what you look f -- it's literally a five-foot shelf of documentation -- if
+what you look f -- it's literally a five-foot shelf of docntation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.
 		-- Ken Olsen, president of DEC, DECWORLD Vol. 8 No. 5, 1984
@@ -208,7 +208,7 @@ Will:  I wouldn't put it in the newspaper.  I think it's transparent rubbish.
   sixteenth century, that we are in the center of a caring .  We are
   not the center of the , and it doesn't care.   star's alignment
   at the time of our birth -- that is absolute rubbish.  It is not funny to
-  have it intruded among people who have nuclear weapons.
+  have it intruded  people who have nuclear weapons.
 Sam Donaldson:  This isn't something new.  Govern Ronald Reagan was swn
   in just after midnight in his first term in Sacramento because the stars
   said it was a propitious time.
@@ -415,7 +415,7 @@ Someone is speaking well of you.
 Love sometimes expresses itself in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 I enjoy the time that we spend together.
- instruments of science do not in themselves discover truth.  And there are
+ instrnts of science do not in themselves discover truth.  And there are
 searchings that are not concluded by the coincidence of a pointer and a mark.
 		-- Fred Saberhagen, " Berserker Wars"
 	" combination of a number of things to make existence wthwhile."
@@ -465,7 +465,7 @@ F knighthood is not in the fs of war,
 As f to fight in quarrel right  wrong,
 But in a cause which truth cannot defer:
 He ought himself f to make sure and strong,
-Just to keep mixt with mercy among:
+Just to keep mixt with mercy :
 And no quarrel a knight ought to take
 But f a truth,  f the common's sake.
 		-- Stephen Hawes
@@ -513,7 +513,7 @@ Troglodytism does not necessarily imply a low cultural level.
 	Starring  Harrison Fd  Bette Midler  Marlon Brando
 		  Christopher Reeves  Marilyn Chambers
 		  and Bob Hope as " Waiter".
-	Costumes Designed by Pierre Cardin.
+	Costs Designed by Pierre Cardin.
 	Special Effects by Timothy Leary.
 	Read the Warner paperback!
 	Invoke the Unix program!

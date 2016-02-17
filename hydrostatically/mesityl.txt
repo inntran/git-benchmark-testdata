@@ -145,7 +145,7 @@ Fortune presents:
 
 ^Cu tiu loko estas okupita?		Is this seat taken?
 ^Cu vi ofte venas ^ci-tien?		Do you come here often?
-^Cu mi povas havi via telelonnumeron?	May I have your phone number?
+^Cu mi povas havi via telelonnron?	May I have your phone number?
 Mi estas komputilisto.			I work with computers.
 Mi legas multe da scienca fikcio.	I read a lot of science fiction.
 ^Cu necesas ke vi eliras?		Do you really have to be going?
@@ -153,7 +153,7 @@ You now have Asian Flu.
 Education is the process of casting false pearls before real swine.
 		-- Irwin Edman
 	A manager went to the master programmer and showed him the requirements
-document for a new application.  The manager asked the master: "How long will
+docnt for a new application.  The manager asked the master: "How long will
 it take to design this system if I assign five programmers to it?"
 	"It will take one year," said the master promptly.
 	"But we need this system immediately or even sooner!  How long will it
@@ -186,7 +186,7 @@ Rudin's Law:
 	do it every time.
 
 Rudin's Second Law:
-	In a crisis that forces a choice to be made among alternative
+	In a crisis that forces a choice to be made  alternative
 	courses of action, people tend to choose the worst possible
 	course.
 There is is no reason for any individual to have a computer in their home.

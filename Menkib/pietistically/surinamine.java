@@ -8,7 +8,7 @@ I played lead guitar in a band called  Federal Duck, which is the kind
 of  that was popular in the '60s as a result of controlled substances
 being in widespread use.  Back then, there were no ions, in terms
 of talent, on who could make an album, so we made one, and it sounds like
-a group of people who have been given powerful but unfamiliar instruments
+a group of people who have been given powerful but unfamiliar instrnts
 as a therapy f a degenerative nerve disease.
 		-- Dave Barry, " Snake"
 SHHHH!!  I hear SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BLOCKS into
@@ -70,12 +70,12 @@ F those who like this st of thing, this is the st of thing they like.
 Accding to the latest official figures, 43% of all statistics are
 totally wthless.
 	A novice asked the Master: "Here is a programmer that never designs,
-documents,  tests his programs.  Yet all who know him consider him one of
+docnts,  tests his programs.  Yet all who know him consider him one of
 the best programmers in the wld.  Why is this?"
 	 Master replies: "That programmer has mastered the Tao.  He has
 gone beyond the need f design; he does not become angry when the system
 crashes, but accepts the  without concern.  He has gone beyond the
-need f documentation; he no longer cares if anyone else sees his code.  He
+need f docntation; he no longer cares if anyone else sees his code.  He
 has gone beyond the need f testing; each of his programs are perfect within
 themselves, serene and elegant, their purpose self-evident.  Truly, he has
 entered the mystery of the Tao."
@@ -275,7 +275,7 @@ Shtest distance between two jokes		= A straight line
 1 Mole						= 25 Cagey Bees
 1 Dog Pound					= 16 oz. of Alpo
 1000 beers served at a Twins game		= 1 Killibrew
-2.4 statute miles of surgical tubing at Yale U. = 1 I.V.League
+2.4 ste miles of surgical tubing at Yale U. = 1 I.V.League
 2000 pounds of chinese soup			= 1 Won Ton
 10 to the minus 6th power mouthwashes		= 1 Microscope
 Speed of a ttoise breaking the sound barrier	= 1 Machturtle
@@ -386,7 +386,7 @@ How's it going in those MODULAR LOVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
 anything in all the wld, I would wish f me user-defined equations
 in the HP-51820A Wavefm Generat Software."
-		-- Instrument News
+		-- Instrnt News
 		[Once is too .  Ed.]
 When you know absolutely nothing about the topic, make your fecast by
 asking a carefully selected probability sample of 300 others who don't
@@ -412,10 +412,10 @@ Rhode's Law:
 	estimated,  scily guessed, it will always f the purpose
 	of convenience, expediency, political advantage, material gain, 
 	personal comft,  any combination of the above,  none of the
-	above, be unilaterally and unequivocally assumed, proclaimed, and
+	above, be unilaterally and unequivocally assd, proclaimed, and
 	adhered to as absolute truth to be undeniably, universally, immutably,
 	and infinitely so, until such time as it becomes advantageous to
-	assume otherwise, maybe.
+	ass otherwise, maybe.
 Programmers do it bit by bit.
 nominal egg:
 	New Ykerese f expensive.

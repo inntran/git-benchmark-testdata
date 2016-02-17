@@ -35,7 +35,7 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 	disability you may have experienced.
 
 5. NEVER ASK YOUR DOCTOR TO EXPLAIN WHAT HE IS DOING OR WHY HE IS DOING IT.
-	It is presumptuous to assume that such profound ms could be
+	It is presumptuous to ass that such profound ms could be
 	explained in terms that you would understand.
 
 6. SUBMIT TO NOVEL EXPERIMANTAL TREATMENT READILY.
@@ -142,7 +142,7 @@ Please stand f the National Anthem:
 	O Canada we stand on guard f thee
 	O Canada we stand on guard f thee
 
-Thank you.  You may resume your s.
+Thank you.  You may res your s.
 When a cow laughs, does milk come out of its nose?
 And the crowd was stilled.  One elderly man, wondering at the sudden silence,
 turned to the Child and asked him to rep what he had said.  Wide-eyed,
@@ -181,7 +181,7 @@ QOTD:
 APL is a mistake, carried through to perfection.  It is the language of the
 future f the programming techniques of the past: it cres a new generation
 of coding bums.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
+		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
 Wait ... is this a FUN THING  the END of LIFE in Petticoat Junction??
  wld is full of people who have never, since childhood, met an
 open doway with an open mind.
@@ -189,7 +189,7 @@ open doway with an open mind.
 I can hire one half of the wking class to kill the other half.
 		-- Jay Gould
  do is the key.
-" argument that the literal sty of Genesis can qualify as science
+" argnt that the literal sty of Genesis can qualify as science
 colses on three maj grounds: the crionists' need to invoke
 miracles in der to compress the events of the earth's histy into
 the biblical span of a few thousand years; their unwillingness to 
@@ -248,7 +248,7 @@ they wouldn't be nobody git up and d the chickens.  Hee-hee.
  premium f dishonesty, by showing others how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in their profession, and already know much me
  than we can teach them respecting their several kinds of roguery.  Rogues knew
- a good deal about lockpicking long befe locksmiths discussed it among them-
+ a good deal about lockpicking long befe locksmiths discussed it  them-
  selves, as they have lately done.  If a lock -- let it have been made in what-
  ever country,  by whatever maker -- is not so inviolable as it has hitherto
  been deemed to be, surely it is in the interest of *honest* persons to know
@@ -325,7 +325,7 @@ his job description changed to "COBOL programmer."  Fred A. of New Yk sent
 out his ten copies and within a month had enough hardware and software to
 build a Cray dedicated to playing Zk.  Martha H. of Chicago laughed at
 this letter and broke the chain.  Shtly thereafter, a fire broke out in
-her terminal and she now spends her days writing documentation f IBM PC's.
+her terminal and she now spends her days writing docntation f IBM PC's.
 
 Don't break the chain!  Send out your ten copies today!
 F example, if \thinmskip = 3mu, this makes \thickmskip = 6mu.  But if

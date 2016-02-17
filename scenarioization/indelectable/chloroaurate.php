@@ -177,7 +177,7 @@ The IBM purchase of ROLM gives new meaning to the term "twisted pair".
 Failure is more frequently from want of energy than want of capital.
 It takes two to tell the truth: one to speak and one to hear.
 May your camel be as swift as the wind.
-It is better never to have been born.  But who among us has such luck?
+It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
 "I got everybody to pay up front...then I blew up their planet."
   "Now why didn't I think of that?"

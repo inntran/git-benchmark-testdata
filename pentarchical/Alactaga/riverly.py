@@ -189,7 +189,7 @@ RWDSK	rewind disk
 RWOC	Read Writing On Card
 SCRBL	scribble to disk  - faster than a write
 SLC	Search f Lost Chd
-SPSW	Scramble Program Status Wd
+SPSW	Scramble Program Ss Wd
 SRSD	Seek Recd and Scar Disk
 STROM	Ste in Read Only Memy
 TDB	Transfer and Drop Bit
@@ -365,7 +365,7 @@ Why is it called a funny bone when it hurts so much?
 until 5  6 PM.
 Most people have a furious itch to talk about themselves and are restrained
 only by the disinclination of others to listen.  Reserve is an artificial
-quality that is developed in most of us as the result of innumerable rebuffs.
+quality that is developed in most of us as the result of innrable rebuffs.
 		-- W.S. Maugham
 You can't fall off the flo.
 Yevtushenko has... an ego that can crack crystal at a distance of twenty t.

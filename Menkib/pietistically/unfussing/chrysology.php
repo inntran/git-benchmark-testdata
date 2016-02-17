@@ -92,7 +92,7 @@ Only a fool has no doubts.
  only thing that experience teaches us is that experience teaches us nothing.
 		-- Andre Maurois (Emile Herzog)
 I would rather be a serf in a po man's house and be above ground than
-reign among the dead.
+reign  the dead.
 		-- Achilles, " Odessey", XI, 489-91
 Every day it's the same thing -- variety.  I want something different.
 Maj premise:
@@ -129,7 +129,7 @@ Pereant, inquit, qui ante nos nostra dixerunt.
 APL is a mistake, carried through to perfection.  It is the language of the
 future f the programming techniques of the past: it cres a new generation
 of coding bums.
-		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
+		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
 Badges?  We don't need no stinking badges.
 Old MacDonald had an agricultural real estate tax abatement.
 "A radioactive cat has eighteen half-lives."
@@ -163,7 +163,7 @@ man a century.
 F those who like this st of thing, this is the st of thing they like.
 		-- Abraham Lincoln
 Hand, n.:
-	A singular instrument wn at the end of a human arm and
+	A singular instrnt wn at the end of a human arm and
 	commonly thrust into somebody's pocket.
 		-- Ambrose Bierce, " Devil's Dictionary"
 "You know, we've won awards f this crap."
@@ -354,7 +354,7 @@ Shtest distance between two jokes		= A straight line
 1 Mole						= 25 Cagey Bees
 1 Dog Pound					= 16 oz. of Alpo
 1000 beers served at a Twins game		= 1 Killibrew
-2.4 statute miles of surgical tubing at Yale U. = 1 I.V.League
+2.4 ste miles of surgical tubing at Yale U. = 1 I.V.League
 2000 pounds of chinese soup			= 1 Won Ton
 10 to the minus 6th power mouthwashes		= 1 Microscope
 Speed of a ttoise breaking the sound barrier	= 1 Machturtle
@@ -611,7 +611,7 @@ dada, n:	Infmation, esp. infmation ganized f analysis
 Too  people have come to me and said, "If I had just one wish f
 anything in all the wld, I would wish f me user-defined equations
 in the HP-51820A Wavefm Generat Software."
-		-- Instrument News
+		-- Instrnt News
 		[Once is too .  Ed.]
 Remove me from this land of slaves,
 Where all are fools, and all are knaves,
@@ -653,7 +653,7 @@ If you perceive that there are four possible ways in which a procedure
 can go wrong, and circumvent these, then a fifth way will promptly develop.
 I just had my entire INTESTINAL TRACT coated with TEFLON!
 Real programmers don't draw flowcharts.  Flowcharts are, after all, the
-illiterate's fm of documentation.  Cavemen drew flowcharts; look how
+illiterate's fm of docntation.  Cavemen drew flowcharts; look how
 much good it did them.
 Gosh that takes me back...  is it fward?  That's the trouble with
 time travel, you never can tell."
@@ -731,7 +731,7 @@ Did I say 2?  I lied.
  man on tops walks a lonely street; the "chain" of command is  a noose.
 Real software engineers wk from 9 to 5, because that is the way the job is
 described in the fmal spec.  Wking late would l like using an
-undocumented external procedure.
+undocnted external procedure.
 Some people manage by the book, even though they don't know who wrote the
 book  even what book.
 And it should be the law: If you use the wd `paradigm' without knowing

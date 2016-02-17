@@ -81,7 +81,7 @@ we value the lifelong learning of arts and letters as a springboard for
 personal and societal growth, should any less effort be spent to make computing
 a part of our lives?"
 -- Alan Kay, "Computer Software", Scientific American, September 1984
-The number of arguments is unimportant unless some of them are correct.
+The number of argnts is unimportant unless some of them are correct.
 		-- Ralph Hartley
 All of the animals except man know that the principal business of life is
 to enjoy it.
@@ -163,7 +163,7 @@ Thinks't thou existence doth depend on time?
 It doth; but actions are our epochs; mine
 Have made my days and nights imperishable,
 Endless, and all alike, as sands on the shore,
-Innumerable atoms; and one desert,
+Innrable atoms; and one desert,
 Barren and cold, on which the wild waves break,
 But nothing rests, save carcasses and wrecks,
 Rocks, and the salt-surf weeds of bitterness.
@@ -445,17 +445,17 @@ SPECIES:	Cranial Males
 SUBSPECIES:	The Hacker (homo computatis)
 Plumage:
 	All clothes have a slightly crumpled look as though they came off the
-	top of the laundry basket.  Style varies with status.  Hacker managers
+	top of the laundry basket.  Style varies with ss.  Hacker managers
 	wear gray polyester slacks, pink or pastel shirts with wide collars,
 	and paisley ties; staff wears cinched-up baggy corduroy pants, white
 	or blue shirts with button-down collars, and penholder in pocket.
 	Both managers and staff wear running shoes to work, and a black
 	plastic digital watch with calculator.
 Computer science:
-	(1) A study akin to numerology and astrology, but lacking the
+	(1) A study akin to nrology and astrology, but lacking the
 	   precision of the former and the success of the latter.
 	(2) The protracted value analysis of algorithms.
-	(3) The costly enumeration of the obvious.
+	(3) The costly enration of the obvious.
 	(4) The boring art of coping with a large number of trivialities.
 	(5) Tautology harnessed in the service of Man at the speed of light.
 	(6) The Post-Turing decline in formal systems theory.
@@ -495,7 +495,7 @@ O wind on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
 Has everyone noticed that all the letters of the word "database" are
 typed with the left hand?  Now the layout of the QWERTYUIOP typewriter
-keyboard was designed, among other things, to facilitate the even use
+keyboard was designed,  other things, to facilitate the even use
 of both hands.  It follows, therefore, that writing about databases is
 not only unnatural, but a lot harder than it appears.
 Nondeterminism means never having to say you are wrong.
@@ -724,7 +724,7 @@ Some men are all right in their place -- if they only the knew the right places!
 Expert, n.:
 	Someone who comes from out of town and shows slides.
 He draweth out the thread of his verbosity finer than the staple of his
-argument.
+argnt.
 		-- William Shakespeare, "Love's Labour's Lost"
 Life may have no meaning, or, even worse, it may have a meaning of which
 you disapprove.

@@ -34,7 +34,7 @@ Joe:	 usual gift -- she ate my heart out.
 Surprise your boss.  Get to wk on time.
 Cheer Up!  Things are getting wse at a slower rate.
 Two things are certain about science.  It does not stand still f long,
-and it is never bing.  Oh, among some po souls, including even
+and it is never bing.  Oh,  some po souls, including even
 intellectuals in fields of high scholarship, science is frequently
 misperceived.  Many see it as only a body of facts, promulgated from
 on high in must, unintelligible textbooks, a collection of unchanging
@@ -71,7 +71,7 @@ No group of professionals meets except to conspire against the public at large.
 Good girls go to heaven, bad girls go everywhere.
 F every problem there is one solution which is simple, n, and wrong.
 -- H. L. Mencken
-An avocado-tone refrigerat would look good on your resume.
+An avocado-tone refrigerat would look good on your res.
 Oh, so there you are!
 People (a group that in my opinion has always attracted an undue amount of
 attention) have  been likened to snowflakes.  This analogy is meant to
@@ -111,7 +111,7 @@ Nice boy, but about as sharp as a sack of wet mice.
 		-- Foghn Leghn
 "Facts are stupid things."
 -- President Ronald Reagan 
-   (a blooper from his speeach at the '88 GOP convention)
+   (a b from his speeach at the '88 GOP convention)
 Comparing infmation and knowledge is like asking whether the fatness
 of a pig is me  less green than the designated hitter rule."
 		-- David Guaspari
@@ -130,8 +130,8 @@ with Snow White.  She clears the table, washes the dishes and sweeps
 the flo, all the while singing "Someday my prints will come."
 Solipsists of the Wld... you are already united.
 		-- Kayvan Sylvan
-Best Beer: A panel of tasters assembled by the Consumer's Union in 1969
-judged Cos and Miller's High Life to be among the very best. Those who
+Best Beer: A panel of tasters assembled by the Consr's Union in 1969
+judged Cos and Miller's High Life to be  the very best. Those who
 doubt that beer is a serious subject might ponder its effect on American
 histy. F example, New England's first colonists decided to drop anch
 at Plymouth Rock ins of continuing on to Virginia because, as one of
@@ -323,7 +323,7 @@ unsoundness of mind.
 Wiker's Law:
 	Government expands to absb revenue and then some.
 It is an imptant and popular fact that things are not always what
-they seem.  F instance, on the planet Earth, man had always assumed
+they seem.  F instance, on the planet Earth, man had always assd
 that he was me intelligent than dolphins because he had achieved so
 much -- the wheel, New Yk, wars and so on -- whilst all the dolphins
 had ever done was muck about in the water having a good time.  But

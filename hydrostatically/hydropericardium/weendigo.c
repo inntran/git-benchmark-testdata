@@ -96,7 +96,7 @@ If you can survive dh, you can probably survive anything.
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.
 		-- Charles Baudelaire
-Never reveal your best argument.
+Never reveal your best argnt.
 Save a little money each month and at the end of the year you'll be
 surprised at how little you have.
 		-- Ernest Haskins

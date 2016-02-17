@@ -44,7 +44,7 @@ It prepareth a log table to comft me, it prepareth an
 It annoints my homewk with crect solutions, my interpolations are
 	over.
 Surely, both precision and accuracy shall follow me all the days of my
-	life, and I shall dwell in the house of Texas instruments fever.
+	life, and I shall dwell in the house of Texas instrnts fever.
 It is explained that all relationships require a little give and take.  This
 is untrue.  Any partnership demands that we give and give and give and at the
 last, as we flop into our graves exhausted, we are told that we didn't give
@@ -143,7 +143,7 @@ eyes.  His hair hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 behind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
-And it's so EASY!  First, we assume that hses are perfect spheres in simple
+And it's so EASY!  First, we ass that hses are perfect spheres in simple
 harmonic motion..."
 Bit off me than my mind could chew,
 Shower  suicide, what do I do?
@@ -189,7 +189,7 @@ Fourth Law of Applied Terr:
 	instruct will assign 200 pages on planaria.
 
 Collary:
-	Every instruct assumes that you have nothing else to do except
+	Every instruct asss that you have nothing else to do except
 	study f that instruct's course.
 "I'd love to go out with you, but there are imptant wld issues that
 need wrying about."

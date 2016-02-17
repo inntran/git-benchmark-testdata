@@ -68,7 +68,7 @@ Boycott m -- suck your thumb.
 A profess is one who talks in someone else's sleep.
 linux: the choice of a GNU generation
 (ksh@cis.ufl.edu put this on Tshirts in '93)
-People who take cold baths never have rheumatism, but they have cold baths.
+People who take cold baths never have atism, but they have cold baths.
  repted rest to astrology in the White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
@@ -79,14 +79,14 @@ dismaying.
 'Twas the nocturnal segment of the diurnal period
    preceding the annual Yuletide celebration, And
    throughout our place of residence,
-Kinetic activity was not in evidence among the
+Kinetic activity was not in evidence  the
    possesss of this potential, including that
    species of domestic rodent known as Mus musculus.
 Hosiery was meticulously susp from the fward
    edge of the woodburning calic apparatus,
 Pursuant to our anticipaty pleasure regarding an
    imminent visitation from an eccentric
-   philanthropist among whose folklic appelations
+   philanthropist  whose folklic appelations
    is the honific title of St. Nicklaus ...
 In just seven days, I can make you a man!
 		--  Rocky Hr Picture Show

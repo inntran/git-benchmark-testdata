@@ -12,7 +12,7 @@ structure reaching to the heavens.  One by one, the Mathematicians climbed
 out from under the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
 understand each other.  y all s different languages.  y all fought
-amongst themselves and each went about their own way.  To this day the
+st themselves and each went about their own way.  To this day the
 Topologists remain the iginal Mathematicians.
 		--  Sty of Babel
 Imagine what we can imagine!
@@ -113,7 +113,7 @@ Be warned that typing \fBkillall \fI\fP may not have the desired
 effect on non-Linux systems, especially when done by a privileged user.
 (From the killall manual page)
 He draweth out the thread of his verbosity finer than the staple of his
-argument.
+argnt.
 		-- William Shakespeare, "Love's Labour's Lost"
 	A master programmer passed a novice programmer one day.   master
 noted the novice's preoccupation with a hand-held computer game.  "Excuse me",
@@ -247,7 +247,7 @@ want to go to someplace, you know, with me, sometime."
 	"Friday, then?"
 	"Why not, David, it might even be fun."
 		-- Dating in Minnesota
-A healthy male adult be consumes each year one and a half times his own
+A healthy male adult be conss each year one and a half times his own
 weight in other people's patience.
 		-- John Updike
 At about 2500 A.D., humankind discovers a computer problem that *must* be
@@ -267,7 +267,7 @@ computer here, and accelerate the earth!"
 the earth came back, they were presented with the answer:
 
 	IEH032 Err in JOB Control Card.
-This was the ultimate fm of ostentation among technology freaks -- to have
+This was the ultimate fm of ostentation  technology freaks -- to have
 a system so complete and sophisticated that nothing showed; no machines,
 no wires, no controls.
 - Michael Swanwick, "Vacuum Flowers"
@@ -363,7 +363,7 @@ I'd be a poer man if I'd never seen an eagle fly.
 Fidelity, n.:
 	A virtue peculiar to those who are about to be betrayed.
  garden is in mourning;
- rain falls cool among the flowers.
+ rain falls cool  the flowers.
 Summer shivers quietly
 On its way towards its end.
 
@@ -387,7 +387,7 @@ Far back in the mists of ancient time, in the gr and glious days of the
 fmer Galactic Empire, life was wild, rich and largely tax free.
 
 Mighty starships plied their way between exotic suns, seeking adventure and
-reward among the furthest reaches of Galactic space.  In those days, spirits
+reward  the furthest reaches of Galactic space.  In those days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry crures from Alpha Centauri were real small furry crures
 from Alpha Centauri.  And all dared to brave unknown terrs, to do mighty

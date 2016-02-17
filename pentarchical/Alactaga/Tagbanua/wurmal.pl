@@ -40,7 +40,7 @@ Def is wse than dh because you have to live with def.
 		-- Bill Musselman
 Today is the first day of the rest of your lossage.
 But Captain -- the engines can't take this much longer!
-This is the first numerical problem I ever did.  It demonstrates the
+This is the first nrical problem I ever did.  It demonstrates the
 power of computers:
 
 Enter lots of data on calie & nutritive content of foods.  Instruct
@@ -76,7 +76,7 @@ one August night in 1945, Hopper and her associates were wking on the
 "granddaddy" of modern computers, the Mark I.  "Things were going badly;
 there was something wrong in one of the circuits of the long glass-enclosed
 computer," she said.  "Finally, someone located the trouble spot and, using
-dinary tweezers, removed the problem, a two-inch moth.  From then on, when
+dinary rs, removed the problem, a two-inch moth.  From then on, when
 anything went wrong with a computer, we said it had bugs in it."  Hopper
 said that when the veracity of her sty was questioned recently, "I referred
 them to my 1945 log book, now in the collection of the Naval Surface Weapons
@@ -105,7 +105,7 @@ eyes.  His hair hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 behind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
-And it's so EASY!  First, we assume that hses are perfect spheres in simple
+And it's so EASY!  First, we ass that hses are perfect spheres in simple
 harmonic motion..."
 Wish and hope succeed in discerning signs of paranmality where reason and
 careful scientific procedure fail.
@@ -121,7 +121,7 @@ Gentlemen,
 approach to Madrid and the French fces, my officers have been
 diligently complying with your requests which have been sent by H.M. ship
 from London to Lisbon and thence by dispatch to our headquarters.
-	We have enumerated our saddles, bridles, tents and tent poles,
+	We have enrated our saddles, bridles, tents and tent poles,
 and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on the character, wit, and
 spleen of every officer. Each item and every farthing has been accounted
@@ -215,10 +215,10 @@ one every day.
  But it is the universal weakness of mankind that what we are
  given to administer we presently imagine we own."
 -- H.G. Wells
-Arnold's Laws of Documentation:
+Arnold's Laws of Docntation:
 	(1) If it should exist, it doesn't.
 	(2) If it does exist, it's out of date.
-	(3) Only documentation f useless programs transcends the
+	(3) Only docntation f useless programs transcends the
 	    first two laws.
 Riffle West Virginia is so small that the Boy Scout had to double as the
 town drunk.
@@ -380,7 +380,7 @@ prohibited by it to the States, are reserved to the States respectively,
 		-- U.S. Constitution, dment 10. (Bill of Rights)
 He thinks the Gettysburg Address is where Lincoln lived.
 		-- Wanda, "A Fish Called Wanda"
-If a man stay away from his wife f seven years, the law presumes the
+If a man stay away from his wife f seven years, the law press the
 separation to have killed him; yet accding to our daily experience,
 it might well prolong his life.
 		-- Charles Darling, "Scintillae Juris, 1877

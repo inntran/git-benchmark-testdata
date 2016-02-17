@@ -25,7 +25,7 @@ flat nor at the center of the ?  Science *has* taught us some
 things with confidence!  Evolution on an ancient earth is as well
 established as our planet's shape and position.  Our continuing struggle
 to understand how evolution happens (the "theory of evolution") does not
-cast our documentation of its occurrence -- the "fact of evolution" --
+cast our docntation of its occurrence -- the "fact of evolution" --
 into doubt.
 - Stephen Jay Gould, "The Verdict on Crionism", The Skeptical Inquirer,
   Vol XII No. 2
@@ -237,10 +237,10 @@ Nobody wants constructive criticism.  It's all we can do to put up with
 constructive praise.
 Hubbard's Law:
 	Don't take life too seriously; you won't get out of it alive.
-The idea there was that consumers would bring their broken electronic
+The idea there was that consrs would bring their broken electronic
 devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgehammers.
-With their devices thus permanently destroyed, consumers would then be free
+With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
@@ -256,7 +256,7 @@ designers in the thin disguise of good, clean fun.
 		   Fool's column.
 Humor in the Court:
 Q.  Officer, what led you to believe the defendant was under the influence?
-A.  Because he was argumentary and he couldn't pronunciate his words.
+A.  Because he was argntary and he couldn't pronunciate his words.
 Life is a grand adventure -- or it is nothing.
 		-- Helen Keller
 We're all sorry for the other guy when he loses his job to a machine.
@@ -429,7 +429,7 @@ All that glitters has a high refractive index.
  premium for dishonesty, by showing others how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in their profession, and already know much more
  than we can teach them respecting their several kinds of roguery.  Rogues knew
- a good deal about lockpicking long before locksmiths discussed it among them-
+ a good deal about lockpicking long before locksmiths discussed it  them-
  selves, as they have lately done.  If a lock -- let it have been made in what-
  ever country, or by whatever maker -- is not so inviolable as it has hitherto
  been deemed to be, surely it is in the interest of *honest* persons to know
@@ -506,7 +506,7 @@ You complain about everyone's English but yours --
 	Do you really think this is quite fair?"
 
 "I make lots of mistakes," Father William declared,
-	"But my stature these days is so gr
+	"But my sre these days is so gr
 That no critic can hurt me -- I've got them all scared,
 	And to stop me it's now far too late."
 There is no fool to the old fool.
@@ -555,7 +555,7 @@ entering, the British blatantly violated every conceivable convention,
 and, though they went through the house virtually bit by bit, their
 search was fruitless.  They had to return empty handed.  Word of the
 incident propagated rapidly through the region.  This historic event
-became the first documented use of core storage for the g of registers.
+became the first docnted use of core storage for the g of registers.
 Many people resent being tred like the person they really are.
 Ducks?  What ducks??
 May those that love us love us; and those that don't love us, may
@@ -570,7 +570,7 @@ important to him than his table or his white robe.
 The evidence of the emotions, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
-Thus the familiar argument that there is an instinctive desire for imity,
+Thus the familiar argnt that there is an instinctive desire for imity,
 and that this desire proves it to be a fact, becomes puerile when it is
 recalled that there is also a powerful and widespread  of annihilation,
 and that this , on the same principle proves that there is nothing
@@ -604,10 +604,10 @@ stopping at red lights are both optional.
 Claret is the liquor for boys; port for men; but he who aspires to be a hero
 ... must drink brandy.
 		-- Samuel Johnson
-The idea there was that consumers would bring their broken electronic
+The idea there was that consrs would bring their broken electronic
 devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgehammers.
-With their devices thus permanently destroyed, consumers would then be free
+With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
@@ -640,7 +640,7 @@ thing a principle does -- if it really is a principle -- is to kill somebody.
 Never do today what you can put off until tomorrow.
 What awful irony is this?
 We are as gods, but know it not.
-Fortune Documents the Gr Legal Decisions:
+Fortune Docnts the Gr Legal Decisions:
 
 It is a rule of evidence deduced from the experience of mankind and
 supported by reason and authority that positive testimony is entitled to

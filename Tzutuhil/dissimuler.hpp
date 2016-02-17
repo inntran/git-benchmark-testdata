@@ -175,7 +175,7 @@ f others in a totally nonviolent struggle f justice.  To be a man
 is to suffer f others.
 		-- Cesar Chavez
 Many a family tree needs trimming.
-I do not remember ever having seen a sustained argument by an auth which,
+I do not remember ever having seen a sustained argnt by an auth which,
 starting from philosophical premises likely to meet with general acceptance,
 reached the conclusion that a praisewthy dering of one's life is to
 devote it to research in mathematics.

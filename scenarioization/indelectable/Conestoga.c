@@ -328,7 +328,7 @@ to die.
 Punning is the worst vice, and there's no vice versa.
 According to a recent and unscientific national survey, smiling is something
 everyone should do at least 6 times a day.  In an effort to increase the
-national average  (the US ranks third among the world's superpowers in
+national average  (the US ranks third  the world's superpowers in
 smiling), Xerox has instructed all personnel to be happy, effervescent, and
 most importantly, to smile.  Xerox employees agree, and even feel strongly
 that they can not only meet but surpass the national average...  except for
@@ -377,7 +377,7 @@ clutching his ankle.  The other two tried to make their getaway, but got
 trapped in the revolving doors again.
 This life is yours.  Some of it was given to you; the rest, you made yourself.
 Abstract:
-	This study examined the incidence of neckwear tightness among a group
+	This study examined the incidence of neckwear tightness  a group
 of 94 white-collar working men and the effect of a tight business-shirt collar
 and tie on the visual performance of 22 male subjects.  Of the white-collar
 men measured, 67% were found to be wearing neckwear that was tighter than
@@ -655,7 +655,7 @@ Fourth Law of Applied Terror:
 	instructor will assign 200 pages on planaria.
 
 Corollary:
-	Every instructor assumes that you have nothing else to do except
+	Every instructor asss that you have nothing else to do except
 	study for that instructor's course.
 Littering is dumb.
 		-- Ronald Macdonald

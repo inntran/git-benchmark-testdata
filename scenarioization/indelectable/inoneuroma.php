@@ -198,7 +198,7 @@ mixed emotions:
 	in your brand new Mercedes.
 Give all orders verbally.  Never write anything down that might go into a
 "Pearl Harbor File".
-Fortune Documents the Great Legal Decisions:
+Fortune Docnts the Great Legal Decisions:
 
 We can imagine no reason why, with ordinary care, human toes could not be
 left out of chewing tobacco, and if toes are found in chewing tobacco, it
@@ -398,7 +398,7 @@ last night would never have been possible.
 History shows that the human mind, fed by constant accessions of knowledge,
 periodically grows too large for its theoretical coverings, and bursts
 them asunder to appear in new habiliments, as the feeding and growing
-grub, at intervals, casts its too narrow skin and assumes another...
+grub, at intervals, casts its too narrow skin and asss another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Darwin, from "Origin of the Species"
@@ -451,5 +451,5 @@ History repeats itself.  That's one thing wrong with history.
 Coming together is a beginning;
 	keeping together is progress;
 		working together is success.
-YOW!!  What should the entire human race DO??  Consume a fifth of
+YOW!!  What should the entire human race DO??  Cons a fifth of
 CHIVAS REGAL, ski NUDE down MT. EVEREST, and have a wild SEX WEEKEND!

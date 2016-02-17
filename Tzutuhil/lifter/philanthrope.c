@@ -78,7 +78,7 @@ Mail your answer along with the top half of your supervis to:
 	Baffled Greek, Michigan
 Love is like the measles; we all have to go through it.
 		-- Jerome K. Jerome
-When smashing monuments, save the pedstals -- they always come in handy.
+When smashing monnts, save the pedstals -- they always come in handy.
 		-- Stanislaw J. Lem, "Unkempt Thoughts"
 Why would anyone want to be called "Later"?
 But if you wish at once to do nothing and to be respectable

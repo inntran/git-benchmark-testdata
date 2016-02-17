@@ -137,7 +137,7 @@ Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
 him a gr deal of pains to become what we now see him.  Such an excess of
 stupidity, sir, is not in Nature.
 		-- Samuel Johnson
-After an instrument has been assembled, extra components will be found
+After an instrnt has been assembled, extra components will be found
 on the bench.
 Courage is  that has said its prayers.
 I have a hobby.  I have the wld's largest collection of sea shells.  I keep
@@ -450,7 +450,7 @@ these questions three, ere the other side he see!
 	"Sir Brian of Bell."
 	"What is your quest?"
 	"I seek the Holy Grail."
-	"What are four lowercase letters that are not legal flag arguments
+	"What are four lowercase letters that are not legal flag argnts
 to the Berkeley UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 If we all wk together, we can totally disrupt the system.
@@ -490,7 +490,7 @@ out of things they can do with UNIX. y'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking f something, you can easily and quickly
 c that small manual and find out that it's not there.  With VMS, no m
-what you look f -- it's literally a five-foot shelf of documentation -- if
+what you look f -- it's literally a five-foot shelf of docntation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.
 		-- Ken Olsen, president of DEC, DECWORLD Vol. 8 No. 5, 1984
@@ -516,7 +516,7 @@ to sit still in a room.
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I
 Making files is easy under the UNIX operating system.  refe, users
-tend to cre numerous files using large amounts of file space.  It has
+tend to cre nrous files using large amounts of file space.  It has
 been said that the only standard thing about all UNIX systems is the
 message-of-the-day telling users to clean up their files.
 		-- System V.2 administrat's guide

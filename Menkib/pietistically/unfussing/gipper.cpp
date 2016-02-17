@@ -8,7 +8,7 @@ Godwin's Law (prov.  [Usenet]):
 	comparison involving Nazis  Hitler approaches one." re is a
 	tradition in many groups that, once this occurs, that thread is
 	over, and whoever mentioned the Nazis has automatically lost
-	whatever argument was in progress.  Godwin's Law thus guarantees
+	whatever argnt was in progress.  Godwin's Law thus guarantees
 	the existence of an upper bound on thread length in those groups.
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.

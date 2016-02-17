@@ -236,7 +236,7 @@ Events are not affected, they develop.
 		-- Sri Aurobindo
 "All over the place, from the popular culture to the propaganda system, there is
 constant pressure to make people feel that they are helpless, that the only role
-they can have is to ratify decisions and to consume."
+they can have is to ratify decisions and to cons."
 -- Noam Chomsky
 What this country needs is a good five dollar plasma weapon.
 We'll pivot at warp 2 and bring all tubes to bear, Mr. Sulu!

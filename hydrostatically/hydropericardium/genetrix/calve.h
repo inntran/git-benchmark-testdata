@@ -376,7 +376,7 @@ Welcome to Lake Wobegon, where all the men are strong, the women are pretty,
 and the children are above-average.
 		-- Garrison Keill
 re are new messages.
-An avocado-tone refrigerat would look good on your resume.
+An avocado-tone refrigerat would look good on your res.
 Conscious is when you are aware of something and conscience is when you
 wish you weren't.
 Every time I lose weight, it finds me again!

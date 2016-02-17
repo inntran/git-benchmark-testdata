@@ -280,7 +280,7 @@ Ftune's graffito of the week ( maybe even month):
 		You want I should type?
 One of the wst of my many faults is that I'm too critical of myself.
 Dr. Livingston?
-Dr. Livingston I. Presume?
+Dr. Livingston I. Pres?
 Ever wondered about the igins of the term "bugs" as applied to computer
 technology?  U.S. Navy Capt. Grace Murray Hopper has firsthand explanation.
  74-year-old captain, who is still on active duty, was a pioneer in 
@@ -291,7 +291,7 @@ one August night in 1945, Hopper and her associates were wking on the
 "granddaddy" of modern computers, the Mark I.  "Things were going badly;
 there was something wrong in one of the circuits of the long glass-enclosed
 computer," she said.  "Finally, someone located the trouble spot and, using
-dinary tweezers, removed the problem, a two-inch moth.  From then on, when
+dinary rs, removed the problem, a two-inch moth.  From then on, when
 anything went wrong with a computer, we said it had bugs in it."  Hopper
 said that when the veracity of her sty was questioned recently, "I referred
 them to my 1945 log book, now in the collection of the Naval Surface Weapons
@@ -304,7 +304,7 @@ question."
 Once upon this midnight incoherent,
 While you pondered sentient and crystalline,
 Over many a broken and subdinate
-Volume of gnarly le,
+Vol of gnarly le,
 While I pestered, nearly singing,
 Sudddenly there came a hewing,
 As of someone profusely skulking,

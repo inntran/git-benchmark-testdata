@@ -56,7 +56,7 @@ XLVI:
 I thought there was something fishy about the butler.  Probably a Pisces,
 wking f scale.
 		-- Firesign atre, " Further Adventures of Nick Danger"
- herd instinct among economists makes sheep look like independent thinkers.
+ herd instinct  economists makes sheep look like independent thinkers.
 You can learn many things from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
@@ -194,7 +194,7 @@ computers (you know no one's going to trip over something and kill your
 DFA in mid-transit), except that they need 8 megabytes to run their
 Crectness Verification Aid packages.
  individual choice of garnishment of a burger can be an imptant
-point to the consumer in this day when individualism is an increasingly
+point to the consr in this day when individualism is an increasingly
 imptant thing to people.
 		-- Donald N. Smith, president of Burger King
 A day without sunshine is like a day without ange juice.
@@ -215,7 +215,7 @@ c," he says.
 conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
 He draweth out the thread of his verbosity finer than the staple of his
-argument.
+argnt.
 		-- William Shakespeare, "Love's Labour's Lost"
 I have learned
 To spell hs d'oeuvres

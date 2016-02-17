@@ -151,7 +151,7 @@ dance with the cows till you come home.
 		-- Groucho Marx
 senility, n.:
 	The state of mind of elderly persons with whom one happens to disagree.
-Some of the most interesting documents from Sweden's middle ages are the
+Some of the most interesting docnts from Sweden's middle ages are the
 old county laws (well, we never had counties but it's the nearest equivalent
 I can find for "landskap").  These laws were written down sometime in the
 13th century, but date back even down into Viking times.  The oldest one is

@@ -114,7 +114,7 @@ You complain about everyone's English but yours --
 	Do you really think this is quite fair?"
 
 "I make lots of mistakes," Father William declared,
-	"But my stature these days is so gr
+	"But my sre these days is so gr
 That no critic can hurt me -- I've got them all scared,
 	And to stop me it's now far too late."
 The Golden Rule is of no use to you whatever unless you realize it
@@ -381,7 +381,7 @@ I was the best I ever had.
 		-- Woody Allen
 Hard reality has a way of cramping your style.
 		-- Daniel Dennett
-Good night to spend with family, but avoid arguments with your mate's
+Good night to spend with family, but avoid argnts with your mate's
 new lover.
 Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.
@@ -506,7 +506,7 @@ hopeless and you might just as well follow your own attitudes -- must have
 carried me.
 		-- Hannah Tillich, "From Time to Time"
 I'm still waiting for the advent of the computer science groupie.
-It is better never to have been born.  But who among us has such luck?
+It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
 He's just a politician trying to save both his faces...
 When you are about to do an objective and scientific piece of investigation
@@ -555,7 +555,7 @@ Excellent time to become a missing person.
 Increased knowledge will help you now.  Have mate's phone bugged.
 Whip it, whip it good!
 Necessity is the plea for every infringement of human freedom.
-It is the argument of tyrants; it is the creed of slaves.
+It is the argnt of tyrants; it is the creed of slaves.
 		-- William Pitt, 1783
 Q:	Why did Menachem Begin invade Lebanon?
 A:	To impress Jodie Foster.

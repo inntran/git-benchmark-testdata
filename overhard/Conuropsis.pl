@@ -105,9 +105,9 @@ eyes.  His hair hasn't been combed for many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 behind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
-And it's so EASY!  First, we assume that horses are perfect spheres in simple
+And it's so EASY!  First, we ass that horses are perfect spheres in simple
 harmonic motion..."
-Throw away documentation and manuals,
+Throw away docntation and manuals,
 and users will be a hundred times happier.
 Throw away privileges and quotas,
 and users will do the Right Thing.
@@ -173,7 +173,7 @@ days will be devoted to discussion of the ramifications of whodo.  Two
 seconds have been allotted for a complete rundown of all the user-
 friendly features of Unix.  Seminars include "Everything You Know is
 Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
-"cc C?  Si!  Si!" led by Kerwin Bernighan, and "Document Unix, Are You
+"cc C?  Si!  Si!" led by Kerwin Bernighan, and "Docnt Unix, Are You
 Kidding?" led by Jan Yeats.  No Reader Service No. is necessary because
 all GUGUs (Gurus of Unix Group of Users) already know everything we
 could tell them.
@@ -273,7 +273,7 @@ future.
 - Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Keep your laws off my body!
 I'm having a MID-WEEK CRISIS!
-Don't let your status become too quo!
+Don't let your ss become too quo!
 	"But Huey, you PROMISED!"
 	"Tell 'em I lied."
 Flattery will get you everywhere.
@@ -483,7 +483,7 @@ the little girl?
 If it's not in the computer, it doesn't exist.
 Meade's Maxim:
 	Always remember that you are absolutely unique, just like everyone else.
-This is the first numerical problem I ever did.  It demonstrates the
+This is the first nrical problem I ever did.  It demonstrates the
 power of computers:
 
 Enter lots of data on calorie & nutritive content of foods.  Instruct

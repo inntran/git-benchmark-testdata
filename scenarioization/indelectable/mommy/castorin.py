@@ -214,7 +214,7 @@ Don't change the reason, just change the excuses!
 Histy shows that the human mind, fed by constant accessions of knowledge,
 periodically grows too large f its theetical coverings, and bursts
 them asunder to appear in new habiliments, as the ding and growing
-grub, at intervals, casts its too narrow skin and assumes another...
+grub, at intervals, casts its too narrow skin and asss another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Darwin, from "Origin of the Species"
@@ -498,7 +498,7 @@ Manly's Maxim:
 	with confidence.
 Gravity:
 	What you get when you  too much and too fast.
-"To IBM, 'open' means there is a modicum of interoperability among some of their
+"To IBM, 'open' means there is a modicum of interoperability  some of their
 equipment."
 -- Harv Masterson
 A gentleman is a man who wouldn't hit a lady with his hat on.

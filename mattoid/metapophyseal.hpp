@@ -14,7 +14,7 @@ BLOTTO.  Commands refer to ingredients such as CHABLIS, CHARDONNAY,
 CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
 
  many versions of the FIFTH language reflect the sophistication and
-financial status of its users.  Commands in the ELITE dialect include
+financial ss of its users.  Commands in the ELITE dialect include
 VSOP and LAFITE, while commands in the GUTTER dialect include HOOTCH
 and RIPPLE.  l is a favite of d FORTH programmers
 who end up using this language.
@@ -297,7 +297,7 @@ wks of Shakespeare.
 legibility.  Betsy had either burned them  used them as pie bottoms.  
 remaining three folios are now in the British Museum.
 	 only comparable literary figure was the maid who in 1835 burned
-the manuscript of the first volume of Thomas Carlyle's " Hisy of the
+the manuscript of the first vol of Thomas Carlyle's " Hisy of the
 French Revolution", thinking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
 People who think they know everything grly annoy those of us who do.
@@ -363,12 +363,12 @@ replaced by tasteful foam replicas of ANN MARGARET!
 "It follows that any commander in chief who undertakes to carry out a plan
  which he considers defective is at fault; he must put fth his reasons,
  insist of the plan being changed, and finally tender his resignation rather
-than be the instrument of his army's downfall."
+than be the instrnt of his army's downfall."
 -- Napoleon, "Military Maxims and Thought"
 "Tell the truth and run."
 -- Yugoslav proverb
 "I went to the museum where they had all the heads and arms from the
-statues that are in all the other museums."
+ses that are in all the other museums."
 		-- Steven Wright
 An idealist is one who helps the other fellow to make a profit.
 		-- Henry Fd
@@ -444,7 +444,7 @@ If you see an onion ring -- answer it!
 " Right Honable Gentleman is indebted to his memy f his jests
 and to his imagination f his facts."
 		-- Sheridan
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Do what comes naturally.  Seethe and f and throw a tantrum.
  luck that is dained f you will be coveted by others.
 If you're right 90% of the time, why quibble about the remaining 3%?
 O love, could thou and I with fate conspire
@@ -528,7 +528,7 @@ Proceed by induction:
 	If N = 1, then A and B, being positive integers, must both be 1.
 	So A = B.
 
-Assume that the theem is true f some value k.  Take A and B with
+Ass that the theem is true f some value k.  Take A and B with
 	MAX(A, B) = k+1.  n  MAX((A-1), (B-1)) = k.  And hence
 	(A-1) = (B-1).  Consequently, A = B.
 Every wd is like an unnecessary stain on silence and nothingness.
@@ -545,7 +545,7 @@ Editing is a rewding activity.
  last time I saw him he was walking down Lover's Lane holding his own hand.
 		-- Fred Allen
 I would rather be a serf in a po man's house and be above ground than
-reign among the dead.
+reign  the dead.
 		-- Achilles, " Odessey", XI, 489-91
 Everyone hates me because I'm paranoid.
 Breast Feeding should not be attempted by fathers with hairy chests,
@@ -607,7 +607,7 @@ in billigrahams.
   Cards were fine in 'sixty nine,
  But the Cubs will be heavenly in nineteen and seventy."
 -- Ernie Banks
-It is difficult to produce a television documentary that is both
+It is difficult to produce a television docntary that is both
 incisive and probing when every twelve minutes one is interrupted by
 twelve dancing rabbits singing about toilet paper.
 		-- Rod Serling
@@ -780,7 +780,7 @@ God made everything out of nothing, but the nothingness shows through.
 		-- Paul Valery
 Coincidences are spiritual puns.
 		-- G.K. Chesterton
-I argue very well.  Ask any of my remaining friends.  I can win an argument on
+I argue very well.  Ask any of my remaining friends.  I can win an argnt on
 any topic, against any opponent.  People know this, and steer clear of me at
 parties.  Often, as a sign of their gr respect, they don't even invite me.
 		-- Dave Barry

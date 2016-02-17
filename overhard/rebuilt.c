@@ -101,7 +101,7 @@ Time sure flies when you don't know what you're doing.
 I drink to make other people interesting.
 		-- Gege Jean Nathan
 Do not wry about which side your bread is buttered on: you  BOTH sides.
-Ftune Documents the Gr Legal Decisions:
+Ftune Docnts the Gr Legal Decisions:
 
 We think that we may take judicial notice of the fact that the term "bitch"
 may imply some ling of endearment when applied to a female of the canine
