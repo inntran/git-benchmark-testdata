@@ -192,7 +192,7 @@ Unaffected and earthy		Slob and lacking basic social skills
 Irreverent			Nasty and lacking basic social skills
 Very human			Quasimodo's best friend
 Swarthy				Sweaty even when cold or standing still
-Spontaneous/Eclectic		Scatterbrained
+Spontaneous/Eclectic		Scbrained
 Flexible			Desperate
 Aging child			Self-centered adult
 Youthful			Over 40 and trying to deny it

@@ -16,7 +16,7 @@ CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
 The many versions of the FIFTH language reflect the sophistication and
 financial status of its users.  Commands in the ELITE dialect include
 VSOP and LAFITE, while commands in the GUTTER dialect include HOOTCH
-and RIPPLE. The latter is a favorite of frustrated FORTH programmers
+and RIPPLE. The l is a favorite of frustrated FORTH programmers
 who end up using this language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Support wildlife -- vote for an orgy.
@@ -47,7 +47,7 @@ Of him the harpers sadly sing:
 the last whose realm was fair and free
 between the Mountains and the Sea.
 
-His sword was long, his lance was keen,
+His sword was long, his  was keen,
 his shining helm afar was seen;
 the countless stars of heaven's field
 were mirrored in his silver shield.
@@ -118,7 +118,7 @@ With the news that Nancy Reagan has referred to an astrologer when planning
 her husband's schedule, and reports of Californians evacuating Los Angeles
 on the strength of a prediction from a sixteenth-century physician and
 astrologer Michel de Notredame, the image of the U.S. as a scientific and
-technological nation has taking a bit of a battering lately.  Sadly, such
+technological nation has taking a bit of a bing lately.  Sadly, such
 happenings cannot be dismissed as passing fancies.  They are manifestations
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
 could threaten the country's position as a technological power. . . .  The
@@ -130,7 +130,7 @@ significant section of the public, this point of view encourages ignorance
 of and, indeed, contempt for science and for rational methods of approaching
 truth. . . . It is becoming clear that if the U.S. does not pick itself up
 soon and devote some effort to educating the young effectively, its hope of
-maintaining a semblance of leadership in the world may rest, paradoxically,
+maintaining a semb of leadership in the world may rest, paradoxically,
 with a new wave of technically interested and trained immigrants who do not
 suffer from the anti-science disease rampant in an apparently decaying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
@@ -495,7 +495,7 @@ Go out and tell a lie that will make the whole family proud of you.
 		-- Cadmus, to Pentheus, in "The Bacchae" by Euripides
 The bank sent our statement this morning,
 The red ink was a sight of great awe!
-Their figures and mine might have balanced,
+Their figures and mine might have bad,
 But my wife was too quick on the draw.
 Dealing with the problem of pure staff accumulation,
 all our researches ... point to an average increase of 5.75% per year.
@@ -656,7 +656,7 @@ FORTUNE REMEMBERS THE GREAT MOTHERS: #5
 	"And, and, and, and, but, but, but, but!"
 		-- Mrs. Janice Markowsky, April 8, 1965
 We have a equal opportunity Calculus class -- it's fully integrated.
-No matter where I go, the place is always called "here".
+No m where I go, the place is always called "here".
 Bad men live that they may eat and drink, whereas good men eat and drink
 that they may live.
 		-- Socrates
@@ -710,7 +710,7 @@ what it is I'll get married again.
 Not far from here, by a white sun, behind a green star, lived the
 Steelypips, illustrious, industrious, and they hadn't a care: no spats in
 their vats, no rules, no schools, no gloom, no evil influence of the
-moon, no trouble from matter or antimatter -- for they had a machine, a
+moon, no trouble from m or antim -- for they had a machine, a
 dream of a machine, with springs and gears and perfect in every respect.
 And they lived with it, and on it, and under it, and inside it, for it
 was all they had -- first they saved up all their atoms, then they put
@@ -784,7 +784,7 @@ I argue very well.  Ask any of my remaining friends.  I can win an argument on
 any topic, against any opponent.  People know this, and steer clear of me at
 parties.  Often, as a sign of their great respect, they don't even invite me.
 		-- Dave Barry
-Picking up the pieces of my sweet shattered dream,
+Picking up the pieces of my sweet shed dream,
 I wonder how the old folks are tonight,
 Her name was Ann, and I'll be damned if I recall her face,
 She left me not knowing what to do.
@@ -800,7 +800,7 @@ Now the thing that I call livin' is just bein' satisfied,
 With knowing I got noone left to blame.
 Carefree Highway, I got to see you, my old flame...
 
-Searching through the fragments of my dream shattered sleep,
+Searching through the fragments of my dream shed sleep,
 I wonder if the years have closed her mind,
 I guess it must be wanderlust or tryin' to get free,
 From the good old faithful feelin' we once knew.

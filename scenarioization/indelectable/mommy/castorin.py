@@ -185,7 +185,7 @@ when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
-Here's to the Minneapple.  And to its people.  Our flair for style is balanced
+Here's to the Minneapple.  And to its people.  Our flair for style is bad
 by a healthy respect for wind chill factors.
 	And we always, always eat our vegetables.
 	This is the Minneapple.
@@ -331,7 +331,7 @@ The memory's soft figures melt away.
 		-- Alexander Pope (on runtime bounds checking?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
-	No matter what the anticipated result, there will always be
+	No m what the anticipated result, there will always be
 	someone eager to (a) misinterpret it, (b) fake it, or (c) believe it
 	happened according to his own pet theory.
 Give me your students, your secretaries,
@@ -342,7 +342,7 @@ I lift my disk beside the processor.
 		-- Inscription on a Word Processor
 Trying to establish voice contact ... please ____yell into keyboard.
 War is never imperative.
-		-- McCoy, "Balance of Terror", stardate 1709.2
+		-- McCoy, "Ba of Terror", stardate 1709.2
 Anything is good if it's made of chocolate.
 The difference between genius and stupidity is that genius has its limits.
 Ours is a world of nuclear giants and ethical infants.
@@ -636,11 +636,11 @@ instead of going home, aimed the big 650 Lightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
-that no matter which way I went I would come to a place where people were
+that no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about that.
 		-- Hunter S. Thompson
 You know, Callahan's is a peaceable bar, but if you ask that dog what his
-favorite formatter is, and he says "roff! roff!", well, I'll just have to...
+favorite form is, and he says "roff! roff!", well, I'll just have to...
 Confusion will be my epitaph
 as I walk a cracked and broken path
 If we make it we can all sit back and laugh

@@ -1,5 +1,5 @@
 "There was a vague, unpleasant manginess about his appearence; he somehow
-seemed dirty, though a close glance showed him as carefully shaven as an
+seemed dirty, though a close g showed him as carefully shaven as an
 actor, and clad in immaculate linen."
 -- H.L. Mencken, on the death of William Jennings Bryan
 Repel them.  Repel them.  Induce them to relinquish the spheroid.
@@ -46,7 +46,7 @@ around the middle of next week."
 I'd be a poorer man if I'd never seen an eagle fly.
 		-- John Denver
 
-[I saw an eagle fly once.  Fortunately, I had my eagle fly swatter handy.  Ed.]
+[I saw an eagle fly once.  Fortunately, I had my eagle fly sw handy.  Ed.]
 Who loves not wisely but too well
 Will look on Helen's face in hell,
 But he whose love is thin and wise
@@ -318,7 +318,7 @@ And the muscular strength which it gave to my jaw,
 
 "You are old," said the youth, "one would hardly suppose
 	That your eye was as steady as ever;
-Yet you balanced an eel on the end of your nose --
+Yet you bad an eel on the end of your nose --
 	What made you so awfully clever?"
 
 "I have answered three questions, and that is enough,"
@@ -381,7 +381,7 @@ Conscious is when you are aware of something and conscience is when you
 wish you weren't.
 Every time I lose weight, it finds me again!
 You shall be rewarded for a dastardly deed.
-Men who cherish for women the highest respect are seldom popular with them.
+Men who  for women the highest respect are seldom popular with them.
 		-- Joseph Addison
 Having wandered helplessly into a blinding snowstorm Sam was greatly
 relieved to see a sturdy Saint Bernard dog bounding toward him with

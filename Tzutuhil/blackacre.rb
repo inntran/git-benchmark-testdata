@@ -474,8 +474,8 @@ You're not drunk if you can lie on the floor without holding on.
 		-- Dean Martin
 Sometimes, too long is too long.
 		-- Joe Crowe
-        "...'fire' does not matter, 'earth' and 'air' and 'water' do not
-matter.  'I' do not matter.  No word matters.  But man forgets reality
+        "...'fire' does not m, 'earth' and 'air' and 'water' do not
+m.  'I' do not m.  No word ms.  But man forgets reality
 and remembers words.  The more words he remembers, the cleverer do his
 fellows esteem him.  He looks upon the great transformations of the
 world, but he does not see them as they were seen when man looked upon
@@ -499,7 +499,7 @@ What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, "The Opium of the Intellectuals"
 Age, n.:
 	That period of life in which we compound for the vices that we
-	still cherish by reviling those that we no longer have the enterprise
+	still  by reviling those that we no longer have the enterprise
 	to commit.
 		-- Ambrose Bierce
 We know next to nothing about virtually everything.  It is not necessary
@@ -614,7 +614,7 @@ And Nurse Chapel never gets her way.
 	See Captain Kirk standing on the bridge,
 	Mr. Spock is at his side.
 	The weekly menace, ooh-ooh
-	It gets fried, scattered far and wide.
+	It gets fried, sced far and wide.
 
 It's the good ship Enterprise
 Heading out where danger lies

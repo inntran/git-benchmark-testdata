@@ -5,7 +5,7 @@ you to enjoy yourself; if that were their sole purpose, they'd have simply
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 On account of being a democracy and run by the people, we are the only
-nation in the world that has to keep a government four years, no matter
+nation in the world that has to keep a government four years, no m
 what it does.
 		-- Will Rogers
 Stay together, drag each other down.
@@ -91,7 +91,7 @@ If what they've been doing hasn't solved the problem, tell them to
 do something else.
 	-- Gerald Weinberg, "The Secrets of Consulting"
 You know the great thing about TV?  If something important happens
-anywhere at all in the world, no matter what time of the day or night,
+anywhere at all in the world, no m what time of the day or night,
 you can always change the channel.
 		-- Jim Ignatowski
 news: gotcha

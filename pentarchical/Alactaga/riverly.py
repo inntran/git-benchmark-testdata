@@ -220,14 +220,14 @@ should live.
 concern to be different, the African apes would be included in our 
 family, the Hominidae.
 - Richard Leakey
-	"Well, it's garish, ugly, and derelicts have used it for a toilet.
+	"Well, it's , ugly, and derelicts have used it for a toilet.
 The rides are dilapidated to the point of being lethal, and could easily
 maim or kill innocent little children."
 	"Oh, so you don't like it?"
 	"Don't like it?  I'm CRAZY for it."
 		-- The Killing Joke
 		The Guy on the Right Doesn't Stand a Chance
-The guy on the right has the Osborne 1, a fully functional computer system
+The guy on the right has the Osborne 1, a fully f computer system
 in a portable package the size of a briefcase.  The guy on the left has an
 Uzi submachine gun concealed in his attache case.  Also in the case are four
 fully loaded, 32-round clips of 125-grain 9mm ammunition.  The owner of the
@@ -257,7 +257,7 @@ agreeable, too -- it really was -- to see him cut it off, so smooth and juicy.
 There was nothing savage in the act, although the knife was large and keen;
 it was a piece of art, high art; there was delicacy of touch, clearness of
 tone, skilful handling of the subject, fine shading.  It was the triumph of
-mind over matter; quite.
+mind over m; quite.
 		-- Dickens, "Martin Chuzzlewit"
 Rules for Writers:
 	Avoid run-on sentences they are hard to read.  Don't use no double

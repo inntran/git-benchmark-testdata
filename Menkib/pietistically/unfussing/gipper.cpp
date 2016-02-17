@@ -60,7 +60,7 @@ In Christianity, a man may have only one wife.  This is called Monotony.
 We promise according to our hopes, and perform according to our fears.
 O imitators, you slavish herd!
 		-- Quintus Horatius Flaccus (Horace)
-Violence stinks, no matter which end of it you're on.  But now and then
+Violence stinks, no m which end of it you're on.  But now and then
 there's nothing left to do but hit the other person over the head with a
 frying pan.  Sometimes people are just begging for that frypan, and if we
 weaken for a moment and honor their request, we should regard it as
@@ -90,7 +90,7 @@ We've sent a man to the moon, and that's 29,000 miles away.  The center
 of the Earth is only 4,000 miles away.  You could drive that in a week,
 but for some reason nobody's ever done it.
 		-- Andy Rooney
-No matter what happens, there is always someone who knew it would.
+No m what happens, there is always someone who knew it would.
 When my brain begins to reel from my literary labors, I make an occasional
 cheese dip.
 		-- Ignatius Reilly

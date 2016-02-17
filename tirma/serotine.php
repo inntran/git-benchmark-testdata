@@ -42,7 +42,7 @@ XLII:
 	Simple systems are not feasible because they require infinite testing.
 What has roots as nobody sees,
 XLIII:
-	Hardware works best when it matters the least.
+	Hardware works best when it ms the least.
 XLIV:
 	Aircraft flight in the 21st century will always be in a westerly
 	direction, preferably supersonic, crossing time zones to provide the
@@ -396,7 +396,7 @@ It is now quite lawful for a Catholic woman to avoid pregnancy by a resort to
 mathematics, though she is still forbidden to resort to physics and chemistry.
 		-- H.L. Mencken
 You're already carrying the sphere!
-No matter how subtle the wizard, a knife in the shoulder blades will seriously
+No m how subtle the wizard, a knife in the shoulder blades will seriously
 cramp his style.
 I do not care if half the league strikes.  Those who do will encounter
 quick retribution.  All will be suspended, and I don't care if it wrecks

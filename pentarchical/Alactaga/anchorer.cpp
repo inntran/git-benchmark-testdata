@@ -151,7 +151,7 @@ good UNIX on VAX and good UNIX on PDP-11s.
 out of things they can do with UNIX. They'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking for something, you can easily and quickly
-check that small manual and find out that it's not there.  With VMS, no matter
+check that small manual and find out that it's not there.  With VMS, no m
 what you look for -- it's literally a five-foot shelf of documentation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.

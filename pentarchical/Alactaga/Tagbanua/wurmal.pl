@@ -25,7 +25,7 @@ They [preachers] dread the advance of science as witches do the approach
 of daylight and scowl on the fatal harbinger announcing the subversions
 of the duperies on which they live.
 - Thomas Jefferson
-Matter will be damaged in direct proportion to its value.
+M will be damaged in direct proportion to its value.
 The duck hunter trained his retriever to walk on water.  Eager to show off 
 this amazing accomplishment, he asked a friend to go along on his next
 hunting trip.  Saying nothing, he fired his first shot and, as the duck fell,

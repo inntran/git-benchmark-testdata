@@ -6,7 +6,7 @@ Carperpetuation (kar' pur pet u a shun), n.:
 There can be no daily democracy without daily citizenship.
 		-- Ralph Nader
 First study the enemy.  Seek weakness.
-		-- Romulan Commander, "Balance of Terror", stardate 1709.2
+		-- Romulan Commander, "Ba of Terror", stardate 1709.2
 Winter is the season in which people try to keep the house as warm as
 it was in the summer, when they complained about the heat.
 The default Magic Word, "Abracadabra", actually is a corruption of the
@@ -35,7 +35,7 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 	disability you may have experienced.
 
 5. NEVER ASK YOUR DOCTOR TO EXPLAIN WHAT HE IS DOING OR WHY HE IS DOING IT.
-	It is presumptuous to assume that such profound matters could be
+	It is presumptuous to assume that such profound ms could be
 	explained in terms that you would understand.
 
 6. SUBMIT TO NOVEL EXPERIMANTAL TREATMENT READILY.
@@ -411,7 +411,7 @@ psycho-prompter couch?"
 	"Thank you, Red."
 	"Now, Evelyn, last week you went up to $40,000 by properly citing
 your rivalry with your sibling as a compulsive sado-masochistic behavior
-pattern which developed out of an early post-natal feeding problem."
+pn which developed out of an early post-natal feeding problem."
 	"Yes, Red."
 	"But -- later, when asked about pre-adolescent oedipal phantasy
 repressions, you rationalized twice and mental blocked three times.  Now,

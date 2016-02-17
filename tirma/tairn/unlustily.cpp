@@ -94,7 +94,7 @@ No live organism can continue for long to exist sanely under conditions of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty years and might stand for eighty more.
-Within, walls continued upright, bricks met neatly, floors were firm, and
+Within, walls continued uht, bricks met neatly, floors were firm, and
 doors were sensibly shut; silence lay steadily against the wood and stone
 of Hill House, and whatever walked there, walked alone.
 		-- Shirley Jackson, "The Haunting of Hill House"
@@ -152,12 +152,12 @@ Column 1		Column 2		Column 3
 1. total		1. organizational	1. flexibility
 2. systematized		2. monitored		2. capability
 3. parallel		3. reciprocal		3. mobility
-4. functional		4. digital		4. programming
+4. f		4. digital		4. programming
 5. responsive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
 8. compatible		8. third-generation	8. hardware
-9. balanced		9. policy		9. contingency
+9. bad		9. policy		9. contingency
 
 	The procedure is simple.  Think of any three-digit number, then select
 the corresponding buzzword from each column.  For instance, number 257 produces
@@ -189,7 +189,7 @@ and just keeps on typing.
 Sum quod eris.
 The first version always gets thrown away.
 Lieberman's Law:
-	Everybody lies, but it doesn't matter since nobody listens.
+	Everybody lies, but it doesn't m since nobody listens.
 The following statement is not true.  The previous statement is true.
 One Bell System - it sometimes works.
 Ladybug, ladybug,
@@ -359,7 +359,7 @@ So I went to the kitchen, but WALNUT PANELING whup me upside mah HAID!!
 I'd be a poorer man if I'd never seen an eagle fly.
 		-- John Denver
 
-[I saw an eagle fly once.  Fortunately, I had my eagle fly swatter handy.  Ed.]
+[I saw an eagle fly once.  Fortunately, I had my eagle fly sw handy.  Ed.]
 Fidelity, n.:
 	A virtue peculiar to those who are about to be betrayed.
 The garden is in mourning;

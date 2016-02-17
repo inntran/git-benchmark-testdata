@@ -19,7 +19,7 @@ systematic organisation of hatreds.
  of a Russian Su-27
 WYSIWYG:
 	What You See Is What You Get.
-Matter cannot be created or destroyed, nor can it be returned without a receipt.
+M cannot be created or destroyed, nor can it be returned without a receipt.
 No man is an island, but some of us are long peninsulas.
 Children begin by loving their parents.  After a time they judge them.  Rarely,
 if ever, do they forgive them.
@@ -143,7 +143,7 @@ Nipples, dimples, knuckles, NICKLES, wrinkles, pimples!!
 broad-mindedness, n:
 	The result of flattening high-mindedness out.
 "Every group has a couple of experts.  And every group has at least one idiot.
- Thus are balance and harmony (and discord) maintained.  It's sometimes hard
+ Thus are ba and harmony (and discord) maintained.  It's sometimes hard
  to remember this in the bulk of the flamewars that all of the hassle and
  pain is generally caused by one or two highly-motivated, caustic twits."
 -- Chuq Von Rospach, chuq@apple.com, about Usenet

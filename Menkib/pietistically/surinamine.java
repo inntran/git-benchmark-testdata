@@ -168,7 +168,7 @@ IBM Pollyanna Principle:
 Facts do not cease to exist because they are ignored.
 		-- Aldous Huxley
 "I am ready to meet my Maker.  Whether my Maker is prepared for the
-great ordeal of meeting me is another matter."
+great ordeal of meeting me is another m."
 		-- Winston Churchill
 If you would know the value of money, go try to borrow some.
 		-- Ben Franklin
@@ -211,7 +211,7 @@ I do not doubt that natural selection acted in building our oversized
 brains -- and I am equally confident that our brains became large as
 an adaptation for definite roles (probably a complex set of interacting
 functions).  But these assumptions do not lead to the notion, often
-uncritically embraced by strict Darwinians, that all major capacities
+uncritically embraced by strict s, that all major capacities
 of the brain must arise as direct products of natural selection.
 		-- S.J. Gould, "The Mismeasure of Man"
 "Most of us, when all is said and done, like what we like and make up reasons 
@@ -365,7 +365,7 @@ of the hyper-cube.
 The most important thing in a relationship between a man and a woman
 is that one of them be good at taking orders.
 		-- Linda Festa
-egrep patterns are full regular expressions; it uses a fast deterministic
+egrep pns are full regular expressions; it uses a fast deterministic
 algorithm that sometimes needs exponential space.
 -- unix manuals
 A wise man can see more from a mountain top than a fool can from the bottom

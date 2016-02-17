@@ -16,7 +16,7 @@ This is not the age of pamphleteers. It is the age of the engineers.  The
 spark-gap is mightier than the pen.  Democracy will not be salvaged by men
 who talk fluently, debate forcefully and quote aptly.
 		-- Lancelot Hogben, Science for the Citizen, 1938
-No matter who you are, some scholar can show you the great idea you had
+No m who you are, some scholar can show you the great idea you had
 was had by someone before you.
 "In corporate life, I think there are three important areas which contracts
 can't deal with, the area of conflict, the area of change and area of reaching
@@ -261,7 +261,7 @@ instead of going home, aimed the big 650 Lightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
-that no matter which way I went I would come to a place where people were
+that no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about that.
 		-- Hunter S. Thompson
 At no time is freedom of speech more precious than when a man hits his
@@ -699,7 +699,7 @@ This "brain-damaged" epithet is getting sorely overworked.  When we can
 speak of someone or something being flawed, impaired, marred, spoiled;
 batty, bedlamite, bonkers, buggy, cracked, crazed, cuckoo, daft, demented,
 deranged, loco, lunatic, mad, maniac, mindless, non compos mentis, nuts,
-Reaganite, screwy, teched, unbalanced, unsound, witless, wrong;  senseless,
+Reaganite, screwy, teched, unbad, unsound, witless, wrong;  senseless,
 spastic, spasmodic, convulsive; doped, spaced-out, stoned, zonked;  {beef,
 beetle,block,dung,thick}headed, dense, doltish, dull, duncical, numskulled,
 pinhead;  asinine, fatuous, foolish, silly, simple;  brute, lumbering, oafish;

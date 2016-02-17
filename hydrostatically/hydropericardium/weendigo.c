@@ -12,7 +12,7 @@ MR. BROOKS:  Objection.  That question should be taken out and shot.
 To those accustomed to the precise, structured methods of conventional
 system development, exploratory development techniques may seem messy,
 inelegant, and unsatisfying.  But it's a question of congruence:
-precision and flexibility may be just as disfunctional in novel,
+precision and flexibility may be just as disf in novel,
 uncertain situations as sloppiness and vacillation are in familiar,
 well-defined ones.  Those who admire the massive, rigid bone structures
 of dinosaurs should remember that jellyfish still enjoy their very
@@ -202,7 +202,7 @@ knows when to stop."
 It is possible that blondes also prefer gentlemen.
 		-- Maimie Van Doren
 What this country needs is a good five cent microcomputer.
-"For that matter, compare your pocket computer with the massive jobs of
+"For that m, compare your pocket computer with the massive jobs of
 a thousand years ago.  Why not, then, the last step of doing away with
 computers altogether?"
 		-- Jehan Shuman
@@ -319,7 +319,7 @@ than I am.
 	I ran into an old classmate the other day and she has aged so much
 that she didn't recognize me.
 	I got to thinking about the poor dear while I was combing my hair
-this morning and in so doing I glanced at my own reflection.  Really now,
+this morning and in so doing I gd at my own reflection.  Really now,
 they don't even make good mirrors like they used to.
 		Sandy Frazier, "I Have Noticed"
 A little inaccuracy sometimes saves tons of explanation.
@@ -431,7 +431,7 @@ EYES:		Grey
 SKIN:		Tanned
 HAIR:		Not much
 LAST MAGAZINE READ:
-		Lobes 'n' Probes, the Ferengi-Betazoid Sex Quarterly
+		Lobes 'n' Probes, the Ferengi-zoid Sex Quarterly
 TEA:		Earl Grey.  Hot.
 
 EARL GREY NEVER VARIES.

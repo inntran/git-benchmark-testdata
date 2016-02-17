@@ -59,7 +59,7 @@ when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
-Here's to the Minneapple.  And to its people.  Our flair for style is balanced
+Here's to the Minneapple.  And to its people.  Our flair for style is bad
 by a healthy respect for wind chill factors.
 	And we always, always eat our vegetables.
 	This is the Minneapple.
@@ -196,7 +196,7 @@ Most of your faults are not your fault.
 You are taking yourself far too seriously.
 I'm very good at integral and differential calculus,
 I know the scientific names of beings animalculous;
-In short, in matters vegetable, animal, and mineral,
+In short, in ms vegetable, animal, and mineral,
 I am the very model of a modern Major-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
 "To vacillate or not to vacillate, that is the question ... or is it?"

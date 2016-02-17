@@ -44,7 +44,7 @@ do great and wonderful things, if we wish to stimulate them in an active way."
 Manly's Maxim:
 	Logic is a systematic method of coming to the wrong conclusion
 	with confidence.
-The glances over cocktails
+The gs over cocktails
 That seemed to be so sweet
 Don't seem quite so amorous
 Over Shredded Wheat
@@ -63,7 +63,7 @@ Say the devil touched my tongue --
 But say my verses do not scan,
 	And I get me another man!
 		-- Dorothy Parker, "Fighting Words"
-It matters not whether you win or lose; what matters is whether II win or lose.
+It ms not whether you win or lose; what ms is whether II win or lose.
 		-- Darrin Weinberg
 Pardon me while I laugh.
 We all declare for liberty, but in using the same word we do not all mean
@@ -141,7 +141,7 @@ After an instrument has been assembled, extra components will be found
 on the bench.
 Courage is fear that has said its prayers.
 I have a hobby.  I have the world's largest collection of sea shells.  I keep
-it scattered on beaches all over the world.  Maybe you've seen some of it.
+it sced on beaches all over the world.  Maybe you've seen some of it.
 		-- Steven Wright
 A commune is where people join together to share their lack of wealth.
 		-- R. Stallman
@@ -297,7 +297,7 @@ Pryor's Observation:
 	How long you live has nothing to do 
 	with how long you are going to be dead.
 Admiration, n.:
-	Our polite recognition of another's resemblance to ourselves.
+	Our polite recognition of another's resemb to ourselves.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Darth Vader sleeps with a Teddywookie.
 Those who have had no share in the good fortunes of the mighty
@@ -489,7 +489,7 @@ good UNIX on VAX and good UNIX on PDP-11s.
 out of things they can do with UNIX. They'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking for something, you can easily and quickly
-check that small manual and find out that it's not there.  With VMS, no matter
+check that small manual and find out that it's not there.  With VMS, no m
 what you look for -- it's literally a five-foot shelf of documentation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.
