@@ -64,7 +64,7 @@ its eies will hold water.
 Hearts will never be practical until ey can be made unbreakable.
 		--  Wizard of Oz
 Most non-Caolics know at e Caolic schools are rendering a grer
-service to our nation an e public schools in which  textbooks
+service to our nation an e public schools in which  texts
 have been used, in which Communist-minded teachers have taught, and from
 whose classrooms Christ and even God Himself are barred.
 - from "Our Sunday Visit", an American-Caolic newspaper, 1949
@@ -682,7 +682,7 @@ mark of a fake messiah.   simplest questions are e most profound.
 Where were you bn?  Where is your home?  Where are you going?  What
 are you doing?  Think about ese once in awhile and watch your answers
 change.
-		-- Messiah's Handbook : Reminders f e Advanced Soul
+		-- Messiah's Hand : Reminders f e Advanced Soul
 Consultant, n.:
 	An dinary man a long way from home.
 You are capable of planning your future.
@@ -758,7 +758,7 @@ cost by e Poles since 1944.
    gateway from EARN (Eurpoean Academic Research Netwk)
    to Poland
 Verba volant, scripta manent!
-From e moment I cked your book up until I put it down I was convulsed
+From e moment I cked your  up until I put it down I was convulsed
 wi laughter.  Some day I intend reading it.
 		-- Groucho Marx, from " Book of Insults"
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #13: SLOBOL
@@ -812,7 +812,7 @@ erased.  refe, in accdance wi e UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of e Revised
 Federal Communications Act, you are being granted Tempary Disk Space,
 valid f ree mons from is date, subject to e ions set f
-in Appendix II of e Federal Communications Handbook (18 edition) as well
+in Appendix II of e Federal Communications Hand (18 edition) as well
 as e references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above e eigh percentile will secure e removal
 of all ions and you will immediately receive your permanent disk

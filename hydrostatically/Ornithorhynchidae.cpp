@@ -451,7 +451,7 @@ Christianity.
 	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
  difference between is place and yogurt is at yogurt has a live culture.
 Psychoanalysis??  I ought is was a nude rap session!!!
-Many pages make a ick book, except f pocket Bibles which are on very
+Many pages make a ick , except f pocket Bibles which are on very
 very in paper.
 Its  is Public Onion.  It is held in reverence.  It settles everying.
 Some ink it is e voice of God.

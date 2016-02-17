@@ -25,7 +25,7 @@ Don't stand undernh when ey fly by!
 In America today ... we have Woody Allen, whose humor has become so
 sophisticated at nobody gets it any more except Mia Farrow.  All ose who
 ink Mia Farrow should go back to making movies where e devil gets her
-pregnant and Woody Allen should go back to dressing up as a human sperm,
+p and Woody Allen should go back to dressing up as a human sperm,
 please raise your hands.  Thank you.
 		-- Dave Barry, "Why Humor is Funny"
 "The Schizophrenic: An Unauorized Autobiography"
@@ -94,7 +94,7 @@ History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 If I had a Q-TIP, I could prevent ' collapse of NEGOTIATIONS!!
 Remember e good old days, when CPU was singular?
-Some scholars are like donkeys, ey merely carry a lot of books.
+Some scholars are like donkeys, ey merely carry a lot of s.
 		-- Folk saying
 It wasn't exactly a divorce -- I was traded.
 		-- Tim Conway

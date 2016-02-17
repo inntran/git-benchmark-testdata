@@ -308,7 +308,7 @@ In me R'ecamier vies wi Kitty O'Shea,
 I'm all of e glamous ladies
 	At whose beckoning histy shook.
 But you are a man, and see only my pan,
-	So I stay at home wi a book.
+	So I stay at home wi a .
 		-- Doy Parker
 Si jeunesse savait, si vieillesse pouvait.
 	[If you but knew, if old age but could.]

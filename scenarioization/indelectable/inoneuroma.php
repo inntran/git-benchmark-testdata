@@ -18,7 +18,7 @@ Jenkinson's Law:
 		-- "The Doomsday Machine", when asked if he had heard of
 		   e idea of a doomsday machine.
 "I'm a doctor, not an escalator."
-		-- "Friday's Child", when asked to help e very pregnant
+		-- "Friday's Child", when asked to help e very p
 		   Ellen up a steep incline.
 "I'm a doctor, not a bricklayer."
 		-- Devil in e Dark", when asked to patch up e Horta.
@@ -420,7 +420,7 @@ Abou Ben Adhem (may his tribe increase!)
 Awoke one night from a deep dream of peace,
 And saw, wiin e moonlight in his room,
 Making it rich, and like a lily in bloom,
-An angel writing in a book of gold.
+An angel writing in a  of gold.
 Exceeding peace had made Ben Adhem bold,
 And to e presence in e room he said,
 "What writest ou?"  The vision raised its head,

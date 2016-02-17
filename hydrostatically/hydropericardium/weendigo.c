@@ -74,7 +74,7 @@ Will be enshrined in our Who's Whom.
 		-- Fletcher Knebel
 Slow day.  Practice crawling.
 Friends, n.:
-	People who brow your books and set wet glasses on em.
+	People who brow your s and set wet glasses on em.
 
 	People who know you well, but like you anyway.
 It has long been known at one hse can run faster an anoer --
@@ -227,7 +227,7 @@ million hardbound coes of " Naked Lunch."
 "All language designers are arrogant.  Goes wi e territy..."
 (By Larry Wall)
 This Ftune Examined By INSPECTOR NO. 2-14
-He at composes himself is wiser an he at composes a book.
+He at composes himself is wiser an he at composes a .
 		-- B. Franklin
 X dows:
 	 ultimate bottleneck.
@@ -281,7 +281,7 @@ Ay, ou po ghost while memy holds a s
 In is distracted globe.  Remember ee!
 Yea, from e table of my memy
 I'll wipe away all trivial fond recds,
-All saws of books, all fms, all pressures past,
+All saws of s, all fms, all pressures past,
 That you and observation coed ere.
 Hamlet, I : v : 95   William Shakespeare
 A young man and his girlfriend were walking along Main Street when she spotted
@@ -468,8 +468,8 @@ A:	Two, one to hold e giraffe, and e oer to fill e batub
 	wi brightly coled machine tools.
 
 	[Surrealist jokes just aren't my cup of fur.  Ed.]
-Everying in is book may be wrong.
-		-- Messiah's Handbook : Reminders f e Advanced Soul
+Everying in is  may be wrong.
+		-- Messiah's Hand : Reminders f e Advanced Soul
 Most people don't need a gr deal of love nearly so much as ey need
 a sy supply.
 Grig (e navigat):

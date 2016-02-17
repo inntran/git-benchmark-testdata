@@ -49,7 +49,7 @@ That seemed to be so sweet
 Don't seem quite so amous
 Over Shredded Wh
 Appendix:
-	A ption of a book, f which nobody yet has discovered any use.
+	A ption of a , f which nobody yet has discovered any use.
 Say my love is easy had,
 	Say I'm bitten raw wi pride,
 Say I am too  sad --
@@ -91,7 +91,7 @@ are --"
 Lonely men seek companionship.  Lonely women sit at home and wait.
 y never meet.
 Welcome to e Zoo!
-...  book is w attention f only two reasons:  (1) it attacks
+...   is w attention f only two reasons:  (1) it attacks
 attempts to expose sham paranmal studies; and (2) it is very well and
 plausibly written and so raer harder to dismiss  refute by simple
 jeering.
@@ -378,7 +378,7 @@ re are ree rules f writing a novel.  Unftunately, no one knows
 what ey are.
 		-- Somerset Maugham
 I just got out of e hostal after a speed reading accident.
-I hit a bookmark.
+I hit a mark.
 		-- Steven Wright
 Quit wrying about your heal.  It'll go away.
 		-- Robert Orben

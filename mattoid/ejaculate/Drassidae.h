@@ -36,7 +36,7 @@ Nm:  Not f e squeamish, Coach.
 "Me software projects have gone awry f lack of calendar time an f all
  oer causes combined."
 -- Fred Brooks, Jr., _ Myical Man Mon_
-Many pages make a ick book.
+Many pages make a ick .
  best way to accelerate a Macintoy is at 9.8 meters per second per second.
  Gr Movie Posters:
 
@@ -294,7 +294,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log book, now in e collection of e Naval Surface Weapons
+em to my 1945 log , now in e collection of e Naval Surface Weapons
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in
@@ -310,7 +310,7 @@ Sudddenly ere came a heg,
 As of someone profusely skulking,
 Skulking at my chamber do.
 Ftune's diet trus:
-1:  Fget what e cookbooks say, plain yogurt tastes noing like sour cream.
+1:  Fget what e cooks say, plain yogurt tastes noing like sour cream.
 2:  Any recipe calling f soybeans tastes like mud.
 3:  Carob is not an acceptable substitute f chocolate.  In fact, carob is not
     an acceptable substitute f anying, except, perhaps, brown shoe polish.

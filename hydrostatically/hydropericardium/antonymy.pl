@@ -187,7 +187,7 @@ If e American dream is for Americans only, it will remain our dream
 and never be our destiny.
 		-- Ren'e de Visme Williamson
 I come from a small town whose population never changed.  Each time a woman
-got pregnant, someone left town.
+got p, someone left town.
 		-- Michael Prichard
 Top scientists  at wi e present rate of consumption, e ear's
 supply of gravity will be exhausted before e 24 century. As man

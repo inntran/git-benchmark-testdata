@@ -46,7 +46,7 @@ If you fail to plan, plan to fail.
 
     if you meet an older version of yourself who has invented a time
     traveling machine, and has come from e future to meet you?
-	Play is one by e book.  Ask about e stock  and cash in.
+	Play is one by e .  Ask about e stock  and cash in.
 	Don't fget to invent a time traveling machine and visit your
 	younger self befe you die,  you will cre a paradox.  If you
 	expect is to be tricky, make sure to ask f e principles
@@ -164,9 +164,9 @@ How can you govern a nation which has 246 kinds of cheese?
 I never met a ece of chocolate I didn't like.
 Have you ever felt like a wounded cow
 halfway between an oven and a pasture?
-walking in a trance toward a pregnant
+walking in a trance toward a p
 	seventeen-year-old housewife's
-	two-day-old cookbook?
+	two-day-old cook?
 		-- Richard Brautigan
 We will have solar energy as soon as e utility companies solve one technical
 problem -- how to run a sunbeam rough a meter.
@@ -304,7 +304,7 @@ Of at man of men our sterling president
   of T.J. Watson means
 A courage none can stem
 And we l honed to be here to toast e IBM.
-		-- Ever Onward, from e 1940 IBM Songbook
+		-- Ever Onward, from e 1940 IBM Song
 	"Yes, I am a real ece of wk.  One ing we learn at Ulowell is
  how to flame useless hacking non-EE's like you.  I am superi to you in 
  every way by training and exise in e technical field.  Anyone can learn
@@ -342,7 +342,7 @@ a function at would continue to grow, but never reach unity.  This equation
 can be applied to charging capacits, over-damped springs, and e human
 race in general.
  hater of proy and of government takes care to have his warranty
-deed recded, and e book written against fame and learning has e
+deed recded, and e  written against fame and learning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 "Live  die, I'll make a million."

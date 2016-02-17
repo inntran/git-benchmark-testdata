@@ -32,7 +32,7 @@ entrepreneurs in their 30's who are hiring salesmen in their 40's and
 50's and paying them in the 60's and 70's to bring their marketing into
 the 80's.
 		-- Marty Winston
-Many pages make a thick book, except for pocket Bibles which are on very
+Many pages make a thick , except for pocket Bibles which are on very
 very thin paper.
 Illegal aliens have always been a problem in the United States. Ask any Indian.
 		-- Robert Orben
@@ -58,7 +58,7 @@ The mature bohemian is one whose woman works full time.
 He's been like a father to me,
 He's the only DJ you can get after three,
 I'm an all-night musician in a rock and roll band,
-Be careful of reading health books, you might die of a misprint.
+Be careful of reading health s, you might die of a misprint.
 And why he don't like me I don't understand.
 		-- The Byrds
 Common sense and a sense of humor are the same thing, moving at
@@ -113,7 +113,7 @@ I can still remember the sensation I felt at that moment, primarily in
 the armpit area -- headed right straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
-heads.  We did exactly what the textbook says you should do when you're
+heads.  We did exactly what the text says you should do when you're
 unarmed and a shark that is nearly two feet long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
@@ -461,7 +461,7 @@ If the designers of X-window built cars, there would be no fewer than five
 steering wheels hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
 feature, that.
-		-- From the programming notebooks of a heretic, 1990.
+		-- From the programming notes of a heretic, 1990.
 Gold coast slave ship bound for cotton fields
 Sold in a market down in New Orleans
 Scarred old slaver knows he's doing alright
@@ -805,7 +805,7 @@ A:	With a blue-elephant gun.
 Q:	How do you shoot a pink elephant?
 A:	Twist its trunk until it turns blue, then shoot it with
 	a blue-elephant gun.
-Some books are to be tasted, others to be swallowed, and some few to be
+Some s are to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]

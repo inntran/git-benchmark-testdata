@@ -374,8 +374,8 @@ Hapness is a hard disk.
  mark of a good party is at you wake up e next mning wanting to
 change your  and start a new life in different city.
 		-- Vance Bourjaily, "Esquire"
- best book on programming f e layman is "Alice in Wonderland";
-but at's because it's e best book on anying f e layman.
+ best  on programming f e layman is "Alice in Wonderland";
+but at's because it's e best  on anying f e layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
 I wonder if I ought to tell em about my PREVIOUS LIFE as a COMPLETE

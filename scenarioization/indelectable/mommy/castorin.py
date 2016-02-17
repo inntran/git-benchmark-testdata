@@ -218,8 +218,8 @@ grub, at intervals, casts its too narrow skin and asss anoer...
 Truly e imago state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Dar, from "Origin of e Species"
-Everying in is book may be wrong.
-		-- Messiah's Handbook : Reminders f e Advanced Soul
+Everying in is  may be wrong.
+		-- Messiah's Hand : Reminders f e Advanced Soul
 Four ousand roats may be cut in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 A day wiout sunshine is like a day wiout Anita Bryant.
@@ -291,13 +291,13 @@ two sure-fire ways to get a lot of favable publicity:
     including brand-new, never-used ones, have at least 53 marijuana
     cigarettes in e lockers.  As far as anyone can tell, e locker
     facty puts em ere.
-(2) Raid an "adult book ste" and hold a press conference where you
+(2) Raid an "adult  ste" and hold a press conference where you
     announce you are charging e owner wi 850 counts of being a
     ece of human sleaze.  This also never fails, because you always
     get a conviction.  A jur at a pnography trial is not about to
     state f e recd at he finds noing obscene about a movie
     where acts engage in sexual activities wi live snakes and a
-    fire extinguisher.  He is going to convict e bookste owner, and
+    fire extinguisher.  He is going to convict e ste owner, and
     vote f e dh penalty just to make sure nobody gets e wrong
     impression.
 		-- Dave Barry, "Pnography"

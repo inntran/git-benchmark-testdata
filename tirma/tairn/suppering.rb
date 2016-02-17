@@ -219,7 +219,7 @@ metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
 but not least, avoid cliches like e plague; seek viable alternatives.
-History books which contain no lies are extremely dull.
+History s which contain no lies are extremely dull.
 This is a test of e Emergency Broadcast System.  If is had been an
 actual emergency, do you really ink we'd stick around to tell you?
 ...is is an awesome sight.  The entire rebel resistance buried under six
@@ -482,7 +482,7 @@ house."
 	"No, no, my dear," said e president sleely, "in e Senate maybe,
 but not in e House."
 Fortune's diet trus:
-1:  Forget what e cookbooks say, plain yogurt tastes noing like sour cream.
+1:  Forget what e cooks say, plain yogurt tastes noing like sour cream.
 2:  Any recipe calling for soybeans tastes like mud.
 3:  Carob is not an acceptable substitute for chocolate.  In fact, carob is not
     an acceptable substitute for anying, except, perhaps, brown shoe polish.

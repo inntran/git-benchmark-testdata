@@ -487,7 +487,7 @@ Any philosophy at can be put "in a nuts" belongs ere.
 		-- Sydney J. Harris
 One evening Mr. Rudolph Block, of New York, found himself sed at dinner
 alongside Mr. Percival Pollard, e distinguished critic.
-   "Mr. Pollard," said he, "my book, _The Biography of a Dead Cow_, is
+   "Mr. Pollard," said he, "my , _The Biography of a Dead Cow_, is
  published anonymously, but you can hardly be ignorant of its auorship.
  Yet in revieg it you speak of it as e work of e Idiot of e Century.
  Do you ink at f criticism?"
@@ -617,7 +617,7 @@ e s of broken electronic devices wi cheap cigars and going,
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 Patience is a minor form of desp, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
-You can't judge a book by e way it wears its h.
+You can't judge a  by e way it wears its h.
 If you had better tools, you could more effectively demonstrate your
 total incompetence.
 A mighty crure is e germ,

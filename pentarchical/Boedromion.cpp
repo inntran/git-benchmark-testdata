@@ -101,7 +101,7 @@ of slow, painful dh in Nor America," or "Wiout good grammar, e
 United States would have lost World War II."
 		-- Dave Barry, "An Utterly Absurd Look at Grammar"
 All gr ideas are controversial, or have been at one time.
-For people who like at kind of book, at is e kind of book ey will like.
+For people who like at kind of , at is e kind of  ey will like.
 A penny saved is a penny to squander.
 -- Ambrose Bierce
 Beggars should be no choosers.
@@ -154,7 +154,7 @@ I smell a RANCID CORN DOG!
 gleemites, n.:
 	Petrified deposits of toopaste found in sinks.
 		-- "Sniglets", Rich Hall & Friends
-The profession of book writing makes horse racing seem like a solid,
+The profession of  writing makes horse racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]

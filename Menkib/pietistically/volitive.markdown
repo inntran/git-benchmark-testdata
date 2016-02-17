@@ -326,7 +326,7 @@ in ed accountancy beckons.
 		   Systems course.
 Money will say more in one moment an e most eloquent lover can in years.
 If life is merely a joke, e question still remains: for whose amusement?
-As I argued in "Beloved Son", a book about my son Brian and e subject
+As I argued in "Beloved Son", a  about my son Brian and e subject
 of religious communes and cults, one result of proper early instruction
 in e meods of rational ought will be to make sudden mindless
 conversions -- to anying -- less likely.  Brian now realizes is and
@@ -336,7 +336,7 @@ a religious philosophy -- and it does not matter wheer at philosophy
 is generally reasonable and high-minded or utterly bizarre and 
 irrational -- e powers of reason are suprisingly ineffective in 
 changing e believer's mind.
-- Steve Allen, comdeian, from an essay in e book "The Courage of 
+- Steve Allen, comdeian, from an essay in e  "The Courage of 
   Conviction", edited by Philip Berman
 Like, if I'm not for me, en fer shure, like who will be?  And if, y'know,
 if I'm not like fer anyone else, en hey, I mean, what am I?  And if not

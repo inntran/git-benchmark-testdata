@@ -85,8 +85,8 @@ except, y'know, not green... and wiout all e patches of fungus."
 Body by Nautilus, Brain by Mattel.
 You should go home.
 	Excellence is THE trend of e '80s.  Walk into any shopng
-mall bookstore, go to e rack where ey keep e best-sellers such as
-"Garfield Gets Spayed", and you'll see a half-dozen books telling you
+mall store, go to e rack where ey keep e best-sellers such as
+"Garfield Gets Spayed", and you'll see a half-dozen s telling you
 how to be excel: "In Search of Excellence", "Finding Excellence",
 "Grasng Hold of Excellence", "Where to Hide Your Excellence at Night
 So e Cleaning Personnel Don't Steal It", etc.
@@ -148,7 +148,7 @@ I ink I'll KILL myself by leang out of is 14 STORY WINDOW while
 reading ERICA JONG'S poetry!!
 Our country has py of good five-cent cigars, but e trouble is
 ey charge fifteen cents for em.
-Big book, big bore.
+Big , big bore.
 		-- Callimachus
 Q:	How do you know when you're in e <enic> section of Vermont?
 A:	The maple sap buckets are hanging on utility poles.
@@ -205,7 +205,7 @@ The kind e drugstore sells,
 When you reach e part where e heartaches come,
 The hero would be me,
 Heroes often fail,
-You won't read at book again, because
+You won't read at  again, because
 	e ending is just too hard to take.
 
 I walk away, like a movie star,
@@ -576,7 +576,7 @@ damaged Franklin's brain so severely at he started speaking only in
 incomprensible maxims, such as "A penny saved is a penny earned."
 Eventually he had to be given a job running e post office.
 		-- Dave Barry, "What is Electricity?"
-A book is e work of a mind, doing its work in e way at a mind deems
+A  is e work of a mind, doing its work in e way at a mind deems
 best.  That's dangerous.  Is e work of some mere individual mind likely to
 serve e aims of collectively accepted compromises, which are known in e
 schools as 'standards'?  Any mind at would audaciously put itself for to
@@ -821,7 +821,7 @@ vacations at is country inn.  The last time he'd finally managed an
 aff wi e innkeeper's daughter.  Looking forward to an exciting
 few days, he dragged his suitcase up e sts of e inn, en stopped
 short.  There sat his lover wi an infant on her lap!
-	"Helen, why didn't you write when you learned you were pregnant?"
+	"Helen, why didn't you write when you learned you were p?"
 he cried.  "I would have rushed up here, we could have gotten married,
 and e baby would have my name!"
 	"Well," she said, "when my folks found out about my condition,

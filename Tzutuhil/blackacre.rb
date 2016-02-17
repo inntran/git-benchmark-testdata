@@ -37,7 +37,7 @@ Two ings are certain about science.  It does not stand still f long,
 and it is never bing.  Oh,  some po souls, including even
 intellectuals in fields of high scholarship, science is frequently
 misperceived.  Many see it as only a body of facts, promulgated from
-on high in must, unintelligible textbooks, a collection of unchanging
+on high in must, unintelligible texts, a collection of unchanging
 precepts def wi auitarian vig.  Oers view it as noing
 but a cold, dry narrow, pding, rule-bound process -- e scientific
 meod: hidebound, linear, and left brained.
@@ -52,7 +52,7 @@ at every day, in some way, change our view (if not eirs) of e
 natural wld.
 
 -- Kendrick Frazier, " Year in Science: An Overview," in
-   1988 Yearbook of Science and e Future, Encyclopaedia Britannica, Inc.
+   1988 Year of Science and e Future, Encyclopaedia Britannica, Inc.
 Confession is good f e soul only in e sense at a tweed coat is
 good f dandruff.
 		-- Peter de Vries

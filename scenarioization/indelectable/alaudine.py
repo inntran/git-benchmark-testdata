@@ -8,7 +8,7 @@ to change your mind.
 He who despairs over an event is a coward, but he who holds hopes for
 the human condition is a fool.
 		-- Albert Camus
-The profession of book writing makes horse racing seem like a solid,
+The profession of  writing makes horse racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]

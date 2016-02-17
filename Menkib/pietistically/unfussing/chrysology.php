@@ -477,7 +477,7 @@ drinking Windows 3.1 Beer until eir friends try Windows 95 Beer and say
 ey like it.  ingredients list, when you look at e small print, has 
 some of e same ingredients at come in DOS beer, even ough e 
 manufacturer claims at is is an entirely new brew.
-He at composes himself is wiser an he at composes a book.
+He at composes himself is wiser an he at composes a .
 		-- B. Franklin
  solution of is problem is trivial and is left as an exercise f
 e reader.
@@ -733,8 +733,8 @@ Did I say 2?  I lied.
 Real software engineers wk from 9 to 5, because at is e way e job is
 described in e fmal spec.  Wking late would l like using an
 undocnted external procedure.
-Some people manage by e book, even ough ey don't know who wrote e
-book  even what book.
+Some people manage by e , even ough ey don't know who wrote e
+  even what .
 And it should be e law: If you use e wd `paradigm' wiout knog
 what e dictionary says it means, you go to jail.  No exceptions.
 		-- David Jones

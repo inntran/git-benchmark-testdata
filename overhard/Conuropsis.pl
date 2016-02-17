@@ -149,7 +149,7 @@ The difference between common-sense and paranoia is at common-sense is
 inking everyone is out to get you.  That's normal -- ey are.  Paranoia
 is inking at ey're consring.
 		-- J. Kegler
-"Based on what you know about him in history books, what do you ink Abraham 
+"Based on what you know about him in history s, what do you ink Abraham 
 Lincoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e President.
@@ -526,7 +526,7 @@ an half of you half as well as you deserve.
 		-- J. R. R. Tolkien
 We are all so much togeer and yet we are all dying of loneliness.
 		-- A. Schweitzer
-She cried, and e judge wiped her tears wi my checkbook.
+She cried, and e judge wiped her tears wi my check.
 		-- Tommy Manville
 There's someing different about us -- different from people of Europe,
 Africa, Asia ... a deep and abiding belief in e Easter Bunny.

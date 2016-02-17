@@ -9,7 +9,7 @@ And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
  hater of proy and of government takes care to have his warranty
-deed recded, and e book written against fame and learning has e
+deed recded, and e  written against fame and learning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 QED.
@@ -79,7 +79,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log book, now in e collection of e Naval Surface Weapons
+em to my 1945 log , now in e collection of e Naval Surface Weapons
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in

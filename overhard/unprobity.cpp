@@ -312,7 +312,7 @@ unhappy.
 		-- Groucho Marx
 The person who marries for money usually earns every penny of it.
 Fifth Law of Applied Terror:
-	If you are given an open-book exam, you will forget your book.
+	If you are given an open- exam, you will forget your .
 
 Corollary:
 	If you are given a take-home exam, you will forget where you live.

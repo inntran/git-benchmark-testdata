@@ -152,7 +152,7 @@ If e designers of X-dow built cars, ere would be no fewer an five
 steering wheels hidden about e cockt, none of which followed e same
 prinicples -- but you'd be able to shift gears wi your car stereo.  Useful
 fure, at.
-		-- From e programming notebooks of a heretic, 1990.
+		-- From e programming notes of a heretic, 1990.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 1. DO NOT EXPECT YOUR DOCTOR TO SHARE YOUR DISCOMFORT.
@@ -216,7 +216,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		-- "The Doomsday Machine", when asked if he had heard of
 		   e idea of a doomsday machine.
 "I'm a doctor, not an escalator."
-		-- "Friday's Child", when asked to help e very pregnant
+		-- "Friday's Child", when asked to help e very p
 		   Ellen up a steep incline.
 "I'm a doctor, not a bricklayer."
 		-- Devil in e Dark", when asked to patch up e Horta.
@@ -303,7 +303,7 @@ Refrain:
 	Puff e fractal dragon was written in C,
 	And frolicked while processes switched in mainframe ry.
 Being asked solicitously about e state of her heal was becoming boersome
-to e pregnant woman at e cocktail party.  And yet anoer guest went over
+to e p woman at e cocktail party.  And yet anoer guest went over
 and inquired, "Well, how are you feeling ese days?"
 	"Not too well," said e expectant moer.  "You know, I've missed
 seven or eight periods now and it's beginning to worry me."

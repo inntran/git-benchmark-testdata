@@ -654,7 +654,7 @@ the Deity is not only external, but internal and acts through them, and
 they themselves give proof or disproof of the Deity in what they do and
 think; if this further proposition can be accepted, then we come that
 much closer to a truly religious situation on earth.
-- Norman Cousins, from his book "Human Options"
+- Norman Cousins, from his  "Human Options"
 You are in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes

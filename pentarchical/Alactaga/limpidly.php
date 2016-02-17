@@ -23,7 +23,7 @@ That, at is, is not at, at is not.
 That, at is not, is not at, at is.
 Campus sidewalks never exist as e straightest line between two points.
 		-- M. M. Johnston
-From e moment I cked your book up until I put it down I was convulsed
+From e moment I cked your  up until I put it down I was convulsed
 wi laughter.  Some day I intend reading it.
 		-- Groucho Marx, from "The Book of Insults"
 Actresses will happen in e best regulated families.
@@ -50,8 +50,8 @@ I wish you were a Scotch on e rocks.
 If you fail to plan, plan to fail.
 If you always postpone pleasure you will never have it.  Quit work and play
 for once!
-The best book on programming for e layman is "Alice in Wonderland";
-but at's because it's e best book on anying for e layman.
+The best  on programming for e layman is "Alice in Wonderland";
+but at's because it's e best  on anying for e layman.
 It is a lesson which all history teaches wise men, to put trust in ideas,
 and not in circumstances.
 		-- Emerson

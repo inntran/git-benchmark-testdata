@@ -25,7 +25,7 @@ transparency.
 but to be wrong f me sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:
-	A ption of a book, f which nobody yet has discovered any use.
+	A ption of a , f which nobody yet has discovered any use.
 After a number of decimal places, nobody gives a damn.
 Heisenberg may have slept here...
 Two wrongs are only e beginning.

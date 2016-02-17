@@ -248,7 +248,7 @@ Better tried by twelve an carried by six.
 		-- Jeff Cooper
 How do I get HOME?
 When does later become never?
-"Based on what you know about him in history books, what do you ink Abraham 
+"Based on what you know about him in history s, what do you ink Abraham 
 Lincoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e President.
@@ -474,7 +474,7 @@ is to believe e one in which people appear at eir worst.
 		-- H. Allen Smi, "Let e Crabgrass Grow"
 	"What did you do when e ship sank?"
 	"I grabbed a cake of soap and washed myself ashore."
-For people who like at kind of book, at is e kind of book ey will like.
+For people who like at kind of , at is e kind of  ey will like.
 Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himself, "is guy is my idol."  Over at e

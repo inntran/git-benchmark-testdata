@@ -18,7 +18,7 @@ advertising and industry.  F best consistent contribution in e field of
 publishing our award goes to edit, R.L.K., [...] f his unrivalled alle-
 giance wiout variation to e statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not e kind of
-book our house knows how to handle."  Our superi perfmance award in e
+ our house knows how to handle."  Our superi perfmance award in e
 field of advertising goes to media executive, E.L.M., [...] f e continu-
 ally crive use of e old favite: "I ink what you've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
@@ -67,7 +67,7 @@ reps were swift and e computer was wking again e same evening.
 ``Thank God we were able to buy enough needles and read and patch it
 togeer wiout maj problems.''   site has also installed a new
 rottle on e netwk pe, allog at most four clients at e same
-time, us making a new crash less likely.  `` book is now in our
+time, us making a new crash less likely.  ``  is now in our
 Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
 		-- Lars Wirzenius <wirzeniu@cs.helsinki.fi>
 		   [comp.os.linux.announce]
@@ -156,7 +156,7 @@ Bigger Propositions.  But ey didn't imply at you were to be impractical
 and refuse to take twice e value f a house if a buyer was such an idiot
 at he didn't fce you down on e asking price.
 		-- Sincl Lewis, "Babbitt"
-"A hrible little boy came up to me and said, `You know in your book
+"A hrible little boy came up to me and said, `You know in your 
  Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
 talk about  rising in e East?'  I said, `Yes?'  He said `No.'
 -- So I hit him."
@@ -350,7 +350,7 @@ Men use ought only to justify eir wrong doings, and speech only to
 conceal eir oughts.
 		-- Volte
  hater of proy and of government takes care to have his warranty
-deed recded, and e book written against fame and learning has e
+deed recded, and e  written against fame and learning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 C++ is e best example of second-system effect since OS/360.

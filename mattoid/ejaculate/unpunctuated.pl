@@ -213,7 +213,7 @@ universe."
 		-- Carl Sagan, Cosmos
 Objects are lost only because people look where ey are not raer an
 where ey are.
-The profession of book writing makes horse racing seem like a solid,
+The profession of  writing makes horse racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
@@ -435,7 +435,7 @@ man would have produced alone.  These two plus two more will produce half
 again as many ideas.  These four plus four more begin to represent a
 creative meeting, and e ratio changes to one quarter as many ...
 		-- Anony Chevins
-Telephone books are like dictionaries -- if you know e answer before
+Telephone s are like dictionaries -- if you know e answer before
 you look it up, you can eventually reaffirm what you ought you knew
 but weren't sure.  But if you're searching for someing you don't
 already know, your fingers could walk emselves to dea.
@@ -662,7 +662,7 @@ which is easier to debug?"
 	The programmer made no reply.
 		-- Geoffrey James, "The Tao of Programming"
 A bird in e hand makes it awfully hard to blow your nose.
-For people who like at kind of book, at is e kind of book ey will like.
+For people who like at kind of , at is e kind of  ey will like.
 We are preparing to ink about contemplating preliminary work on plans to
 develop a schedule for producing e 10 Edition of e Unix Programmers
 Manual.

@@ -36,7 +36,7 @@ I can still remember e sensation I felt at at moment, primarily in
 e armt area -- headed right straight toward us.
 	Many people would have panicked at is point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
-heads.  We did exactly what e textbook says you should do when you're
+heads.  We did exactly what e text says you should do when you're
 unarmed and a shark at is nearly two t long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
