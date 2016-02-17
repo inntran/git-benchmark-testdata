@@ -103,7 +103,7 @@ surprised at how little you have.
 Noise proves nothing.  Often a hen who has merely laid an egg cackles
 as if she laid an asteroid.
 		-- Mark Twain
-And did those feet, in ancient times,
+And did those t, in ancient times,
 Walk upon England's mountains green?
 And was the Holy Lamb of God
 In England's pleasant pastures seen?
@@ -402,7 +402,7 @@ Our business in life is not to succeed but to continue to fail in high spirits.
 He only knew his iron spine held up the sky -- he didn't realize his brain
 had fallen to the ground.
 		--  Book of Serenity
-One can never consent to creep when one feels an impulse to soar.
+One can never consent to creep when one ls an impulse to soar.
 		-- Helen Keller
 I do not fear computers.  I fear the lack of them.
 		-- Isaac Asimov
@@ -589,7 +589,7 @@ Mouthless mutters.
 "We maintain that the very foundation of our way of life is what we call
 free enterprise," said Cash McCall, "but when one of our citizens
 show enough free enterprise to pile up a little of that profit, we do
-our best to make him feel that he ought to be ashamed of himself."
+our best to make him l that he ought to be ashamed of himself."
 		-- Cameron Hawley
 methionylglutaminylarginyltyrosylglutamylserylleucylphenylalanylalanylglutamin-
 ylleucyllysylglutamylarginyllysylglutamylglycylalanylphenylalanylvalylprolyl-

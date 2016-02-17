@@ -205,13 +205,13 @@ gets out and goes into the office.
 	"You must mean two-by-four's" replies the clerk.
 	 man scratches his head.  "Wait a minute," he says, "I'll go
 check." 
-	Back, after an animated conversation with the other occupants of the
+	Back, after an d conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
 	"OK," says the clerk, writing it down, "how long you want 'em?"
 	 guy gets the blank look again.  "Uh... I guess I better go
 check," he says.
-	He goes back out to the truck, and there's another animated
+	He goes back out to the truck, and there's another d
 conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
 He draweth out the thread of his verbosity finer than the staple of his
@@ -373,7 +373,7 @@ and he heads off into the distance.
 	 man, losing track of time, crawls for what seems like days.
 Finally, nearly dead, sun-blind and with his skin peeling and blistering, he
 sees a restaurant in the distance.  Summoning the last of his strength he
-staggers up to the door and confronts the head waiter.
+staggers up to the door and s the head waiter.
 	"Water... can I get... water," the dying man manages to stammer.
 	"I'm sorry, sir, ties required."
  moving cursor writes, and having written, blinks on.
@@ -445,7 +445,7 @@ his about the support of the earth.  His elephant was a hypothesis, and our
 hypotheses are elephants.  Every theory in philosophy, which is built on
 pure conjecture, is an elephant; and every theory that is supported partly
 by fact, and partly by conjecture, is like Nebuchadnezzar's image, whose
-feet were partly of iron, and partly of clay.
+t were partly of iron, and partly of clay.
 		-- Thomas Reid, "An Inquiry into the Human Mind", 1764
 In Tulsa, Oklahoma, it is against the law to open a soda bottle without
 the supervision of a licensed engineer.

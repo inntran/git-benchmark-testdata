@@ -1,7 +1,7 @@
 re are two jazz musicians who are great buddies.  y hang out and play
 together for years, virtually inseparable.  Unfortunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
-the middle of the night with a start because he can feel a presence in the
+the middle of the night with a start because he can l a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is that you?  Where are
@@ -169,7 +169,7 @@ I dote on his very absence.
 		-- William Shakespeare, " Merchant of Venice"
 I didn't like the play, but I saw it under adverse conditions.   curtain
 was up.
-It's amazing how much better you feel once you've given up hope.
+It's amazing how much better you l once you've given up hope.
 	Some 1500 miles west of the Big Apple we find the Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
@@ -206,14 +206,14 @@ the little girl?
 		-- Jake Blues, " Blues Brothers"
 Bank error in your favor.  Collect $200.
 You go slow, be gentle.  It's no one-way street -- you know how you
-feel and that's all.  It's how the girl feels too.  Don't press.  If
-the girl feels anything for you at all, you'll know.
+l and that's all.  It's how the girl ls too.  Don't press.  If
+the girl ls anything for you at all, you'll know.
 		-- Kirk, "Charlie X", stardate 1535.8
 Don't change the reason, just change the excuses!
 		-- Joe Cointment
 History shows that the human mind, fed by constant accessions of knowledge,
 periodically grows too large for its theoretical coverings, and bursts
-them asunder to appear in new habiliments, as the feeding and growing
+them asunder to appear in new habiliments, as the ding and growing
 grub, at intervals, casts its too narrow skin and assumes another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
@@ -319,7 +319,7 @@ Q:	What's the difference between a JAP and a baby elephant?
 A:	About 10 pounds.
 
 Q:	How do you make them the same?
-A:	Force feed the elephant.
+A:	Force d the elephant.
 Nature to all things fixed the limits fit,
 And wisely curbed proud man's pretending wit.
 As on the land while here the ocean gains,
@@ -396,7 +396,7 @@ My computer can beat up your computer.
 She just came in, pounced around this thing with me for a few years, enjoyed
 herself, gave it a sort of beautiful quality and left.  Excited a few men
 in the meantime.
-		-- Patrick Macnee, reminiscing on Diana Rigg's
+		-- Patrick Macnee, reminiscing on  Rigg's
 		   involvement in " Avengers".
 Ambition, n:
 	An overmastering desire to be vilified by enemies while
@@ -524,7 +524,7 @@ scarcely done at all if three or more are employed therein.
 This fortune soaks up 47 times its own weight in excess memory.
 It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
-and knocked on the front door.  No one responded.  He could feel the water
+and knocked on the front door.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
@@ -558,8 +558,8 @@ Trouble always comes at the wrong time.
 I used to be such a sweet sweet thing, 'til they got a hold of me,
 I opened doors for little old ladies, I helped the blind to see,
 I got no friends 'cause they read the papers, they can't be seen,
-With me, and I'm feelin' real shot down,
-And I'm, uh, feelin' mean,
+With me, and I'm lin' real shot down,
+And I'm, uh, lin' mean,
 	No more, Mr. Nice Guy,
 	No more, Mr. Clean,
 	No more, Mr. Nice Guy,
@@ -604,7 +604,7 @@ If you want to see card tricks, you have to expect to take cards.
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
 		-- Honor'e de Balzac
-I've got a bad feeling about this.
+I've got a bad ling about this.
 Always the dullness of the fool is the whetstone of the wits.
 		-- William Shakespeare, "As You Like It"
 I do desire we may be better strangers.

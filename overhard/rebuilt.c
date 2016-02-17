@@ -104,7 +104,7 @@ Do not worry about which side your bread is buttered on: you eat BOTH sides.
 Fortune Documents the Great Legal Decisions:
 
 We think that we may take judicial notice of the fact that the term "bitch"
-may imply some feeling of endearment when applied to a female of the canine
+may imply some ling of endearment when applied to a female of the canine
 species but that it is seldom, if ever, so used when applied to a female
 of the human race. Coming as it did, reasonably close on the heels of two
 revolver shots directed at the person of whom it was probably used, we think
@@ -152,7 +152,7 @@ And find they do not know your .
 Squeeze the teddy bear too tight,
 And watch the feathers burst the seams.
 Touch the stained glass with your cheek,
-And feel its chill upon your blood.
+And l its chill upon your blood.
 Hold a candle to the night,
 And see the darkness bend the flame.
 Tear the mask of peace from God,
@@ -175,7 +175,7 @@ An investment in knowledge always pays the best interest.
 MSDOS is not dead, it just smells that way.
 		-- Henry Spencer
 I don't get no respect.
-Sally:	C'mon, Ted, all I'm asking you to do is share your feelings
+Sally:	C'mon, Ted, all I'm asking you to do is share your lings
 	with me.
 Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
 	to share.  We're trained to protect ourselves by not

@@ -20,7 +20,7 @@ According to convention there is a sweet and a bitter, a hot and a cold,
 and according to convention, there is an order.  In truth, there are atoms
 and a void.
 		-- Democritus, 400 B.C.
-I feel partially hydrogenated!
+I l partially hydrogenated!
 Q:  What's the difference between a car salesman and a computer
     salesman?
 

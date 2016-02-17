@@ -18,7 +18,7 @@ decide whether to write in COBOL or FORTRAN.
 Sacher's Observation:
 	Some people grow with responsibility -- others merely swell.
 over in west Philadelphia a puppy is vomiting ...
-Exhilaration is that feeling you get just after a great idea hits you,
+Exhilaration is that ling you get just after a great idea hits you,
 and just before you realize what is wrong with it.
 1893  ideal brain tonic
 1900 Drink Coca-Cola -- delicious and refreshing -- 5 cents at all
@@ -123,7 +123,7 @@ your job is to make sure it isn't you ...
 	 `I'm a hologram, kids,
 	  please don't try this at home!'"
 	-- Bob Violence
--- Howie Chaykin's little animated 3-dimensional darling, Bob Violence
+-- Howie Chaykin's little d 3-dimensional darling, Bob Violence
 Help stamp out and abolish redundancy and repetition.
 I have learned
 To spell hors d'oeuvres
@@ -182,7 +182,7 @@ He that is giddy thinks the world turns round.
 Best of all is never to have been born.  Second best is to die soon.
 Death is a spirit leaving a body, sort of like a shell leaving the nut behind.
 		-- Erma Bombeck
-If we can ever make red tape nutritional, we can feed the world.
+If we can ever make red tape nutritional, we can d the world.
 		-- R. Schaeberle, "Management Accounting"
 You will inherit millions of dollars.
 This is not the age of pamphleteers. It is the age of the engineers.  
@@ -254,7 +254,7 @@ For a holy stint, a moth of the cloth gave up his woolens for lint.
 Have you noticed the way people's intelligence capabilities decline
 sharply the minute they start waving guns around?
 		-- Dr. Who
- early bird gets the coffee left over from the night before.
+ early bird gets the cof left over from the night before.
 From 0 to "what seems to be the problem officer" in 8.3 seconds.
 		-- Ad for the new VW Corrado
 "...Local prohibitions cannot block advances in military and commercial
@@ -302,7 +302,7 @@ We're here to cheer each pioneer and also proudly boast,
 Of that man of men our sterling president
   of T.J. Watson means
 A courage none can stem
-And we feel honored to be here to toast the IBM.
+And we l honored to be here to toast the IBM.
 		-- Ever Onward, from the 1940 IBM Songbook
 	"Yes, I am a real piece of work.  One thing we learn at Ulowell is
  how to flame useless hacking non-EE's like you.  I am superior to you in 
@@ -487,11 +487,11 @@ finite or an infinite number.
 Power tends to corrupt, absolute power corrupts absolutely.
 		-- Lord Acton
 Am I accompanied by a PARENT or GUARDIAN?
-A mathematician is a device for turning coffee into theorems.
+A mathematician is a device for turning cof into theorems.
 		-- P. Erdos
 This fortune intentionally left blank.
 	"Wrong," said Renner.
-	" tactful way," Rod said quietly, "the polite way to disagree with
+	"  way," Rod said quietly, "the polite way to disagree with
 the Senator would be to say, `That turns out not to be the case.'"
 I do not know myself and God forbid that I should.
 		-- Johann Wolfgang von Goethe
@@ -523,7 +523,7 @@ Q:	Why did the tachyon cross the road?
 A:	Because it was on the other side.
 To err is human.
 To blame someone else for your mistakes is even more human.
-He who has imagination without learning has wings but no feet.
+He who has imagination without learning has wings but no t.
 It is possible that blondes also prefer gentlemen.
 		-- Maimie Van Doren
 I would have you imagine, then, that there exists in the mind of man a block

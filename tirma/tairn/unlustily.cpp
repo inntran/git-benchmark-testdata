@@ -271,7 +271,7 @@ This was the ultimate form of ostentation among technology freaks -- to have
 a system so complete and sophisticated that nothing showed; no machines,
 no wires, no controls.
 - Michael Swanwick, "Vacuum Flowers"
-So this is what it feels like to be potato salad
+So this is what it ls like to be potato salad
 I hate small towns because once you've seen the cannon in the park
 there's nothing else to do.
 		-- Lenny Bruce
@@ -321,7 +321,7 @@ If you don't do the things that are not worth doing, who will?
 Education is an admirable thing, but it is well to remember from time to
 time that nothing that is worth knowing can be taught.
 		-- Oscar Wilde, " Critic as Artist"
-You will feel hungry again in another hour.
+You will l hungry again in another hour.
 Those who can, do; those who can't, write.
 Those who can't write work for the Bell Labs Record.
 He who laughs last didn't get the joke.
@@ -369,7 +369,7 @@ On its way towards its end.
 
 Golden leaf after leaf
 Falls from the tall acacia.
-Summer smiles, astonished, feeble,
+Summer smiles, astonished, ble,
 In this dying dream of a garden.
 
 For a long while, yet, in the roses,

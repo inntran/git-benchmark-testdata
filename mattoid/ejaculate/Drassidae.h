@@ -156,7 +156,7 @@ drawn the inference that the nose is devoid of the sense of smell.
 Avoid the Gates of Hell.  Use Linux
 (Unknown source)
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
-Los Angeles.  Disregard personal feelings about city and intercept."
+Los Angeles.  Disregard personal lings about city and intercept."
 --  Firesign atre movie, _J-Men Forever_
 Love sometimes expresses itself in sacrifice.
 		-- Kirk, "Metamorphosis", stardate 3220.3

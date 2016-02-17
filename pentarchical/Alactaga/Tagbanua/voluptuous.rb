@@ -37,10 +37,10 @@ the armpit area -- headed right straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what the textbook says you should do when you're
-unarmed and a shark that is nearly two feet long turns on you in water
+unarmed and a shark that is nearly two t long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
-our feet never once went below the surface of the water.  We ran all
+our t never once went below the surface of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
 cartoon we would have run right INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked

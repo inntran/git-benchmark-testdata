@@ -150,7 +150,7 @@ Love in your heart wasn't put there to stay.
 Love isn't love 'til you give it away.
 		-- Oscar Hammerstein II
 We are all agreed that your theory is crazy.   question which divides us is
-whether it is crazy enough to have a chance of being correct.  My own feeling
+whether it is crazy enough to have a chance of being correct.  My own ling
 is that it is not crazy enough. 
 		-- Niels Bohr
 A real friend isn't someone you use once and then throw away.
@@ -233,7 +233,7 @@ It is annoying to be honest to no purpose.
 Silly Putty."
 -  Dennis Rawlins, astronomer
 Other women cloy
- appetites they feed, but she makes hungry
+ appetites they d, but she makes hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
 Many people are desperately looking for some wise advice which will
@@ -273,7 +273,7 @@ For we know from experience that they won't roll by...
  heaviest object in the world is the body of the woman you have ceased
 to love.
 		-- Marquis de Lac de Ciers Vauvenargues
-I hear the sound that the machines make, and feel my heart break, just
+I hear the sound that the machines make, and l my heart break, just
 for a moment.
 Most people want either less corruption or more of a chance to
 participate in it.
@@ -490,11 +490,11 @@ program.  He had his face lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Within months, the
 rejuvenated man won the young woman's heart, and she agreed to marry him.
 	On the way out of the chapel, however, Harold was fatally struck
-by lightning.  Furious, he confronted Saint Peter at the pearly gates.  "How
+by lightning.  Furious, he ed Saint Peter at the pearly gates.  "How
 could you do this to me after all the pain I went through?"
 	"To be honest, Harold," Saint Peter sheepishly replied, "I didn't
 recognize you."
-Do not drink coffee in early A.M.  It will keep you awake until noon.
+Do not drink cof in early A.M.  It will keep you awake until noon.
 What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, " Opium of the Intellectuals"
 Age, n.:
@@ -623,7 +623,7 @@ If you're wearing a shirt that's red.
 	-- Doris Robin and Karen Trimble of  L.A. Filkharmonics,
 	   " Good Ship Enterprise," to the tune of " Good Ship Lollipop"
 Mac Airways:
- cashiers, flight attendants and pilots all look the same, feel the same
+ cashiers, flight attendants and pilots all look the same, l the same
 and act the same. When asked questions about the flight, they reply that you
 don't want to know, don't need to know and would you please return to your
 seat and watch the movie.

@@ -1,6 +1,6 @@
 " way of the world is to praise dead saints and prosecute live ones."
  -- Nathaniel Howe
-No snowflake in an avalanche ever feels responsible.
+No snowflake in an avalanche ever ls responsible.
 May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek for `This bath is too hot.'"
 		-- Dr. Who
@@ -46,7 +46,7 @@ I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
 Down from the door where it began.
 Now far ahead the Road has gone,
 And I must follow, if I can,
-Pursuing it with eager feet,
+Pursuing it with eager t,
 Until it joins some larger way
 Where many paths and errands meet.
 And whither then?  I cannot say.
@@ -70,7 +70,7 @@ Mathematicians practice absolute freedom.
 May Euell Gibbons eat your only copy of the manual!
 Finish the sentence below in 25 words or less:
 
-	"Love is what you feel just before you give someone a good ..."
+	"Love is what you l just before you give someone a good ..."
 
 Mail your answer along with the top half of your supervisor to:
 
@@ -87,7 +87,7 @@ nowdays, the best pretext is to be at work on some profound study.
 My own life has been spent chronicling the rise and fall of human systems,
 and I am convinced that we are terribly vulnerable.  ...  We should be
 reluctant to turn back upon the frontier of this epoch. Space is indifferent
-to what we do; it has no feeling, no design, no interest in whether or not
+to what we do; it has no ling, no design, no interest in whether or not
 we grapple with it. But we cannot be indifferent to space, because the grand,
 slow march of intelligence has brought us, in our generation, to a point
 from which we can explore and understand and utilize it. To turn back now

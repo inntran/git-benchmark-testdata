@@ -82,7 +82,7 @@ Go away, I'm all right.
 		-- H.G. Wells' last words.
 If you are what you eat, does that mean Euell Gibbons really was a nut?
  surest way to remain a winner is to win once, and then not play any more.
-Go ahead, capitalize the T on technology, deify it if it will make you feel
+Go ahead, capitalize the T on technology, deify it if it will make you l
 less responsible -- but it puts you in with the neutered, brother, in with
 the eunuchs keeping the harem of our stolen Earth for the numb and joyless
 hardons of human sultans, human elite with no right at all to be where they
@@ -200,7 +200,7 @@ re is only one way to kill capitalism -- by taxes, taxes, and more taxes.
 		-- Karl Marx
 Always do right.  This will gratify some people and astonish the rest.
 		-- Mark Twain
- best things in life are for a fee.
+ best things in life are for a .
 Your mind is the part of you that says,
 	"Why'n'tcha eat that piece of cake?"
 ... and then, twenty minutes later, says,
@@ -241,7 +241,7 @@ Ambidextrous, adj.:
 Carson's Observation on Footwear:
 	If the shoe fits, buy the other one too.
 Ingrate, n.:
-	A man who bites the hand that feeds him, and then complains of
+	A man who bites the hand that ds him, and then complains of
 	indigestion.
 A poet who reads his verse in public may have other nasty habits.
 Largest Number of Driving Test Failures
@@ -365,8 +365,8 @@ die_if_kernel("Oops", regs, error_code);
 (From linux/arch/i386/mm/fault.c)				   
 "Roman Polanski makes his own blood.  He's smart -- that's why his movies work."
 -- A brilliant director at "Frank's Place"
-I feel like I'm in a Toilet Bowl with a thumbtack in my forehead!!
-Your wise men don't know how it feels
+I l like I'm in a Toilet Bowl with a thumbtack in my forehead!!
+Your wise men don't know how it ls
 To be thick as a brick.
 		-- Jethro Tull, "Thick As A Brick"
 Suspicion always haunts the guilty mind.
@@ -397,13 +397,13 @@ gets out and goes into the office.
 	"You must mean two-by-four's" replies the clerk.
 	 man scratches his head.  "Wait a minute," he says, "I'll go
 check." 
-	Back, after an animated conversation with the other occupants of the
+	Back, after an d conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
 	"OK," says the clerk, writing it down, "how long you want 'em?"
 	 guy gets the blank look again.  "Uh... I guess I better go
 check," he says.
-	He goes back out to the truck, and there's another animated
+	He goes back out to the truck, and there's another d
 conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
 Comedy, like Medicine, was never meant to be practiced by the general public.

@@ -238,7 +238,7 @@ devil when he is the only explanation of it.
 I think I'll KILL myself by leaping out of this 14th STORY WINDOW while
 reading ERICA JONG'S poetry!!
 Sho' they got to have it against the law.  Shoot, ever'body git high,
-they wouldn't be nobody git up and feed the chickens.  Hee-hee.
+they wouldn't be nobody git up and d the chickens.  Hee-hee.
 		-- Terry Southern
 <<<<< EVACUATION ROUTE <<<<<
 "A commercial, and in some respects a social, doubt has been started within the
@@ -307,7 +307,7 @@ Examinations are formidable even to the best prepared, for
 even the greatest fool may ask more the the wisest man can answer.
 		-- C.C. Colton
 Unix gives you just enough rope to hang yourself -- and then a couple
-of more feet, just to be sure.
+of more t, just to be sure.
 		-- Eric Allman
 
 ... We make rope.
@@ -411,7 +411,7 @@ psycho-prompter couch?"
 	"Thank you, Red."
 	"Now, Evelyn, last week you went up to $40,000 by properly citing
 your rivalry with your sibling as a compulsive sado-masochistic behavior
-pn which developed out of an early post-natal feeding problem."
+pn which developed out of an early post-natal ding problem."
 	"Yes, Red."
 	"But -- later, when asked about pre-adolescent oedipal phantasy
 repressions, you rationalized twice and mental blocked three times.  Now,
@@ -427,7 +427,7 @@ explain the failure of your three marriages."
 	"We'll get back to Evelyn in one minute.  First a word about our
 product."
 		-- Jules Feiffer
-Meantime, in the slums below Ronnie's Ranch, Cynthia feels as if some one
+Meantime, in the slums below Ronnie's Ranch, Cynthia ls as if some one
 has made voodoo boxen of her and her favorite backplanes. On this fine
 moonlit night, some horrible persona has been jabbing away at, dragging
 magnets over, and surging these voodoo boxen.  Fortunately, they seem to

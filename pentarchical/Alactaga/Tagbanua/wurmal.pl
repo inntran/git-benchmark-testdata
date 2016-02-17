@@ -259,7 +259,7 @@ Foolproof Operation:
 He who spends a storm beneath a tree, takes life with a grain of TNT.
 I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
-No one can feel as helpless as the owner of a sick goldfish.
+No one can l as helpless as the owner of a sick goldfish.
 Living in the complex world of the future is somewhat like having bees
 live in your head.  But, there they are.
 Either I'm dead or my watch has stopped.
@@ -285,7 +285,7 @@ the instruction afterward.
 Democracy is the recurrent suspicion that more than half of the people
 are right more than half of the time.
 		-- E. B. White
-Do not drink coffee in early A.M.  It will keep you awake until noon.
+Do not drink cof in early A.M.  It will keep you awake until noon.
 Your mode of life will be changed to EBCDIC.
 Never face facts; if you do you'll never get up in the morning.
 		-- Marlo Thomas

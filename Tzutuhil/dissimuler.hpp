@@ -286,7 +286,7 @@ Q.  Mrs. Smith, do you believe that you are emotionally unstable?
 A.  I should be.
 Q.  How many times have you comitted suicide?
 A.  Four times.
-Sally:	C'mon, Ted, all I'm asking you to do is share your feelings
+Sally:	C'mon, Ted, all I'm asking you to do is share your lings
 	with me.
 Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
 	to share.  We're trained to protect ourselves by not

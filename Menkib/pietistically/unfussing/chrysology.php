@@ -135,7 +135,7 @@ Old MacDonald had an agricultural real estate tax abatement.
 "A radioactive cat has eighteen half-lives."
 It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
-and knocked on the front door.  No one responded.  He could feel the water
+and knocked on the front door.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
@@ -325,8 +325,8 @@ Article the Third:
 	enjoy the right to a speedy diaper change.  Public s and
 	guided tours of the aforementioned are not necessary.
 Article the Fourth:
-	 decision to eat strained lamb or not should be with the "feedee"
-	and not the "feeder".  Blowing the strained lamb into the feeder's
+	 decision to eat strained lamb or not should be with the "dee"
+	and not the "der".  Blowing the strained lamb into the der's
 	face should be accepted as an opinion, not as a declaration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
@@ -360,7 +360,7 @@ Shortest distance between two jokes		= A straight line
 Speed of a tortoise breaking the sound barrier	= 1 Machturtle
 8 Catfish					= 1 Octo-puss
 365 Days of drinking Lo-Cal beer.		= 1 Lite-year
-16.5 feet in the Twilight Zone			= 1 Rod Serling
+16.5 t in the Twilight Zone			= 1 Rod Serling
 Force needed to accelerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
 One half large intestine			= 1 Semicolon
@@ -506,9 +506,9 @@ dollar, and use it up in two weeks.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #13: SLOBOL
 
 SLOBOL is best known for the speed, or lack of it, of its compiler.
-Although many compilers allow you to take a coffee break while they
+Although many compilers allow you to take a cof break while they
 compile, SLOBOL compilers allow you to travel to Bolivia to pick the
-coffee.  Forty-three programmers are known to have died of boredom
+cof.  Forty-three programmers are known to have died of boredom
 sitting at their terminals while waiting for a SLOBOL program to
 compile.  Weary SLOBOL programmers often turn to a related (but
 infinitely faster) language, COCAINE.
@@ -573,7 +573,7 @@ BYTE editors are people who separate the wheat from the chaff, and then
 carefully print the chaff.
 Life is like a sewer.  What you get out of it depends on what you put into it.
 		-- Tom Lehrer
-Many people feel that if you won't let them make you happy, they'll make you
+Many people l that if you won't let them make you happy, they'll make you
 suffer.
 In the midst of one of the wildest parties he'd ever been to, the young man 
 noticed a very prim and pretty girl sitting quietly apart from the rest of
@@ -592,7 +592,7 @@ personality.
 When you're away, I'm restless, lonely,
 Wretched, bored, dejected; only
 Here's the rub, my darling dear
-I feel the same when you are near.
+I l the same when you are near.
 		-- Samuel Hoffenstein, "When You're Away"
 alta, v:	To change; make or become different; modify.
 ansa, v:	A spoken or written reply, as to a question.
@@ -721,7 +721,7 @@ It gets late early out there.
 cruising for burgers in daddy's new car.
 You are wise, witty, and wonderful, but you spend too much time reading
 this sort of trash.
-In the strict scientific sense we all feed on death -- even vegetarians.
+In the strict scientific sense we all d on death -- even vegetarians.
 		-- Spock, "Wolf in the Fold", stardate 3615.4
 Don't interfere with the stranger's style.
 Arnold's Addendum:
@@ -730,7 +730,7 @@ Where's SANDY DUNCAN?
 Did I say 2?  I lied.
  man on tops walks a lonely street; the "chain" of command is often a noose.
 Real software engineers work from 9 to 5, because that is the way the job is
-described in the formal spec.  Working late would feel like using an
+described in the formal spec.  Working late would l like using an
 undocumented external procedure.
 Some people manage by the book, even though they don't know who wrote the
 book or even what book.

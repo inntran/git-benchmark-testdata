@@ -98,7 +98,7 @@ toilet toup'ee, n.:
 		-- Rich Hall, "Sniglets"
 It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
-and knocked on the front door.  No one responded.  He could feel the water
+and knocked on the front door.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
@@ -117,7 +117,7 @@ I'd LOVE to, but...
 	-- None of my socks match.
 	-- I'm having all my plants neutered.
 	-- I changed the lock on my door and now I can't get out.
-	-- My yucca plant is feeling yucky.
+	-- My yucca plant is ling yucky.
 	-- I'm touring China with a wok band.
 	-- My chocolate-appreciation class meets that night.
 	-- I'm running off to Yugoslavia with a foreign-exchange student
@@ -126,7 +126,7 @@ I'd LOVE to, but...
 	-- I'm going to count the bristles in my toothbrush.
 	-- I prefer to remain an enigma.
 	-- I think you want the OTHER Peggy/Cathy/Mike/whomever.
-	-- I feel a song coming on.
+	-- I l a song coming on.
 Man who arrives at party two hours late will find he has been beaten
 to the punch.
 I consider a new device or technology to have been culturally accepted when
@@ -321,7 +321,7 @@ their children to speak it.
 YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIELD OF PAPER SHUFFLING!
 
 Mr. Smith of Muddle, Mass. says:  "Before I took this course I used to be
-a lowly bit twiddler.  Now with what I learned at MIT Tech I feel really
+a lowly bit twiddler.  Now with what I learned at MIT Tech I l really
 important and can obfuscate and confuse with the best."
 
 Mr. Watkins had this to say:  "Ten short days ago all I could look forward
@@ -368,7 +368,7 @@ only by the disinclination of others to listen.  Reserve is an artificial
 quality that is developed in most of us as the result of innumerable rebuffs.
 		-- W.S. Maugham
 You can't fall off the floor.
-Yevtushenko has... an ego that can crack crystal at a distance of twenty feet.
+Yevtushenko has... an ego that can crack crystal at a distance of twenty t.
 		-- John Cheever
 "Dump the condiments.  If we are to be eaten, we don't need to taste good."
 -- "Visionaries" cartoon

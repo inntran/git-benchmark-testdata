@@ -147,7 +147,7 @@ Troubled day for virgins over 16 who are beautiful and wealthy and live
 in eucalyptus trees.
 To be awake is to be alive.  -- Henry David Thoreau, in "Walden"
 I'm ANN LANDERS!!  I can SHOPLIFT!!
-"Right now I feel that I've got my feet on the ground as far as my head
+"Right now I l that I've got my t on the ground as far as my head
 is concerned."
 -- Baseball pitcher Bo Belinsky
 Just because you like my stuff doesn't mean I owe you anything.
@@ -356,7 +356,7 @@ them to use, hoping they'll become more comfortable with age.
 	Women think clothes are radioactive, with a half-life of one year.
 y exercise precautions to avoid contamination by last year's fashions.
 Household hint:
-	If you are out of cream for your coffee, mayonnaise makes a
+	If you are out of cream for your cof, mayonnaise makes a
 	dandy substitute.
 If I am elected, the concrete barriers around the WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
@@ -471,7 +471,7 @@ Describe the Universe.  Give three examples.
 Hand me a pair of leather pants and a CASIO keyboard -- I'm living for today!
 It seems a little silly now, but this country was founded as a protest
 against taxation.
-I feel like a wet parking meter on Darvon!
+I l like a wet parking meter on Darvon!
 Conscience is a mother-in-law whose visit never ends.
 		-- H. L. Mencken
 Being ugly isn't illegal.  Yet.
@@ -764,9 +764,9 @@ with laughter.  Some day I intend reading it.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #13: SLOBOL
 
 SLOBOL is best known for the speed, or lack of it, of its compiler.
-Although many compilers allow you to take a coffee break while they
+Although many compilers allow you to take a cof break while they
 compile, SLOBOL compilers allow you to travel to Bolivia to pick the
-coffee.  Forty-three programmers are known to have died of boredom
+cof.  Forty-three programmers are known to have died of boredom
 sitting at their terminals while waiting for a SLOBOL program to
 compile.  Weary SLOBOL programmers often turn to a related (but
 infinitely faster) language, COCAINE.
@@ -803,7 +803,7 @@ Carefree Highway, I got to see you, my old flame...
 Searching through the fragments of my dream shed sleep,
 I wonder if the years have closed her mind,
 I guess it must be wanderlust or tryin' to get free,
-From the good old faithful feelin' we once knew.
+From the good old faithful lin' we once knew.
 		-- Gordon Lightfoot, "Carefree Highway"
 **** IMPORTANT ****  ALL USERS PLEASE NOTE ****
 

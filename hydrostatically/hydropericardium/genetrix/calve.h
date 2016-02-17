@@ -66,7 +66,7 @@ Angels we have heard on High
 Tell us to go out and Buy.
 		-- Tom Lehrer
 	"Do you believe in intuition?"
-	"No, but I have a strange feeling that someday I will."
+	"No, but I have a strange ling that someday I will."
 You canna change the laws of physics, Captain; I've got to have thirty minutes!
 If I set here and stare at nothing long enough, people might think
 I'm an engineer working on something.
@@ -117,7 +117,7 @@ And tapes mixed up on the racks --
 Down from the door where it began.
 Now far ahead the Road has gone,
 And I must follow, if I can,
-Pursuing it with eager feet,
+Pursuing it with eager t,
 Until it joins some larger way
 Where many paths and errands meet.
 And whither then?  I cannot say.
@@ -224,7 +224,7 @@ went to speak with him.
 	"We have heard that you are enlightened.  Is this true?" his fellow
 students inquired.
 	"It is", Kyogen answered.
-	"Tell us", said a friend, "how do you feel?"
+	"Tell us", said a friend, "how do you l?"
 	"As miserable as ever", replied the enlightened Kyogen.
 Nature is by and large to be found out of doors, a location where,
 it cannot be argued, there are never enough comfortable chairs.
@@ -361,7 +361,7 @@ Well, don't worry about it...  It's nothing.
 		   Lockard had picked up a radar signal of what appeared to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
- hardest thing is to disguise your feelings when you put a lot of
+ hardest thing is to disguise your lings when you put a lot of
 relatives on the train for home.
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghorn Leghorn
@@ -462,7 +462,7 @@ necessary, family, hobbies, and friends -- if you had any of these left
 Life Sucks.  Cynical, misanthropic male, 34, looking for soul mate but
 certain not to find her.  Drop me a note.  I'll call you, we'll talk and
 I'll ask you out to dinner where I'll probably spend more than I can
-afford in a feeble attempt to impress you.  n we'll realize we have
+afford in a ble attempt to impress you.  n we'll realize we have
 absolutely nothing in common and we'll go our separate ways, more
 embittered and depressed than before (if such a thing is possible).
 Fourth Law of Revision:

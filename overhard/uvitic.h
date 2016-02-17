@@ -206,7 +206,7 @@ for a living.  "Tim, you be first," she said.  "What does your mother do
 all day?"
 	Tim stood up and proudly said, "She's a doctor."
 	"That's wonderful.  How about you, Amie?"
-	Amie shyly stood up, scuffed her feet and said, "My father is a
+	Amie shyly stood up, scuffed her t and said, "My father is a
 mailman."
 	"Thank you, Amie," said the teacher.  "What about your father, Billy?"
 	Billy proudly stood up and announced, "My daddy plays piano in a
@@ -248,7 +248,7 @@ How can you do 'New Math' problems with an 'Old Math' mind?
 Watson's Law:
 	 reliability of machinery is inversely proportional to the
 	number and significance of any persons watching it.
-Only Irish coffee provides in a single glass all four essential food groups --
+Only Irish cof provides in a single glass all four essential food groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex Levine
 With Congress, every time they make a joke it's a law; and every time
@@ -269,7 +269,7 @@ re is no other employee with whom I can adequately compare him.
 	(Well, our rats aren't really employees...)
 "Success will never spoil him."
 	(Well, at least not MUCH more.)
-"One usually comes away from him with a good feeling."
+"One usually comes away from him with a good ling."
 	(And such a sigh of relief.)
 "His dissertation is the sort of work you don't expect to see these days;
 in it he has definitely demonstrated his complete capabilities."

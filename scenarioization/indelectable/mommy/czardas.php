@@ -101,7 +101,7 @@ Lawrence Radiation Laboratory keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
 " wages of sin are death; but after they're done taking out taxes,
-it's just a tired feeling:"
+it's just a tired ling:"
 Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	you can find it.  Murphy's Law applies to Newton's.
@@ -113,7 +113,7 @@ I did it all for thrills.
 Confession is good for the soul, but bad for the career.
 It would be nice to be sure of anything the way some people are of everything.
 Etiquette is for those with no breeding; fashion for those with no taste.
-Your wise men don't know how it feels
+Your wise men don't know how it ls
 To be thick as a brick.
 		-- Jethro Tull, "Thick As A Brick"
 Poverty must have its satisfactions, else there would not be so many poor
@@ -131,7 +131,7 @@ Famous last words:
 	(7) y'd never (be stupid enough to) make him a manager.
 	(8) Don't worry!  Women love it!
 I've always considered statesmen to be more expendable than soldiers.
-Conscience is what hurts when everything else feels so good.
+Conscience is what hurts when everything else ls so good.
 	 salesman and the system analyst took off to spend a weekend in the
 forest, hunting bear.  y'd rented a cabin, and, when they got there, took
 their backpacks off and put them inside.  At which point the salesman turned

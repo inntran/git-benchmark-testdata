@@ -106,7 +106,7 @@ do great and wonderful things, if we wish to stimulate them in an active way."
 I smell a wumpus.
 My religion consists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight details we are able to perceive
-with our frail and feeble mind.
+with our frail and ble mind.
 		-- Albert Einstein
 Good evening, gentlemen.  I am a HAL 9000 computer.  I became operational
 at the HAL plant in Urbana, Illinois, on January 11th, nineteen hundred
@@ -198,7 +198,7 @@ and amendment to a motion may be adopted and the substitute may be amended.
 I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
 Gibble, Gobble, we ACCEPT YOU ...
-If only one could get that wonderful feeling of accomplishment without
+If only one could get that wonderful ling of accomplishment without
 having to accomplish anything.
 Politics, as a practice, whatever its professions, has always been the
 systematic organisation of hatreds.
@@ -235,8 +235,8 @@ On Thanksgiving Day all over America, families sit down to dinner at the
 same moment -- halftime.
 What is worth doing is worth the trouble of asking somebody to do.
 A bug in the hand is better than one as yet undetected.
-You know that feeling when you're leaning back on a stool and it starts to tip 
-over?  Well, that's how I feel all the time.
+You know that ling when you're leaning back on a stool and it starts to tip 
+over?  Well, that's how I l all the time.
 -- Steven Wright
 Unix is a lot more complicated (than CP/M) of course -- the typical Unix
 hacker can never remember what the PRINT command is called this week --
@@ -281,7 +281,7 @@ Shortest distance between two jokes		= A straight line
 Speed of a tortoise breaking the sound barrier	= 1 Machturtle
 8 Catfish					= 1 Octo-puss
 365 Days of drinking Lo-Cal beer.		= 1 Lite-year
-16.5 feet in the Twilight Zone			= 1 Rod Serling
+16.5 t in the Twilight Zone			= 1 Rod Serling
 Force needed to accelerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
 One half large intestine			= 1 Semicolon
@@ -305,7 +305,7 @@ A liveware monitor is a person dedicated to the task of ensuring that the
 liveware does not interfere with the real-time processes, invoking the
 REAL-TIME EXECUTIONER to delete liveware that adversely affects ...
 		-- Linden and Wihelminalaan
-I feel ... JUGULAR ...
+I l ... JUGULAR ...
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
 his fellow anti-establishment rabble-rousers, " first thing we do, let's
 kill all the lawyers."  That action may be extreme but a similar sentiment
