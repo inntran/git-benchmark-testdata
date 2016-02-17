@@ -5,8 +5,8 @@ It is a wise father that knows his own child.
 Do you guys know what you're doing, or are you just hacking?
 Money doesn't talk, it swears.
 		-- Bob Dylan
-...I don't care for the term 'mechanistic'. The word 'cybernetic' is a lot
-more apropos. The mechanistic world-view is falling further and further behind
+...I don't care for the term 'mechtic'. The word 'cybernetic' is a lot
+more apropos. The mechtic world-view is falling further and further behind
 the real world where even simple systems can produce the most marvlous
 chaos. 
 -- Peter da Silva

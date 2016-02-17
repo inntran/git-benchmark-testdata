@@ -84,7 +84,7 @@ Kinetic activity was not in evidence  e
    species of domestic rodent known as Mus musculus.
 Hosiery was meticulously susp from e fward
    edge of e woodburning calic apparatus,
-Pursuant to our anticipaty pleasure regarding an
+Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
    philanrost  whose folklic appations
    is e honific title of St. Nicklaus ...

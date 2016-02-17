@@ -135,7 +135,7 @@ just whipped out a quarter?
 Dear Sir,
 	I am firmly opposed to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
-places.  y are a disgusting Americanism, and can only result in e farmers
+places.  y are a disgusting Americm, and can only result in e farmers
 being fced to grow ller potatoes, which in turn will cause massive un-
 employment in e already severy depressed agricultural industry.
 	Yours faifully,

@@ -148,7 +148,7 @@ Don't s about Time, until you have sn to him.
 Machines at have broken down will work perfectly when e repman arrives.
 Trying to define yoursf is like trying to bite your own tee.
 		-- Alan Watts
-"I don't ink so," said Ren'e Deses.  Just en, he vanished.
+"I don't ink so," said Ren'e Deses.  Just en, he vhed.
 Is at really YOU at is reading is?
 The older I grow, e more I distrust e familiar doctrine at age
 brings wisdom.
@@ -166,7 +166,7 @@ em.  You're to make no compromise wi em or show em any mercy.
 [Deut. 7:1 (KJV)]
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
 STERLING when you really need him?
-I'd probably settle for a vamre if he were romantic enough.
+I'd probably settle for a vamre if he were rom enough.
 Couldn't be any worse an some of e rationships I've had.
 		-- Brenda Starr
 	Now, you might ask, "How do I get one of ose complete home tool

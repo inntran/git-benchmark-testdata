@@ -286,7 +286,7 @@ Many receive advice, few profit by it.
 		-- Publilius Syrus
 "I have me infmation in one place an anybody in e wld."  
 -- Jerry Pournle, an absurd notion, apparently about e BIX BBS
-We're ing against humanism, we're ing against liberalism...
+We're ing against humm, we're ing against liberalism...
 we are ing against all e systems of Satan at are deing
 our nation today...our battle is wi Satan himsf.
 - Jerry Falwl
@@ -435,7 +435,7 @@ under e kilt, everying's in perfect wkin' der!"
     RPG, e most tedious of e ird generation lanaguages.
 
 "UNIX Rational Datse Management:  Application Devopment in e UNIX 
- Environment" by Rod Manis, Evan Schaffer, and Robert Jgensen.  Prentice
+ Environment" by Rod M, Evan Schaffer, and Robert Jgensen.  Prentice
  Hall Software Series.  Brian Kerrighan, Advis.  1988.
 Fuch's Warning:
 	If you actually look like your passpt photo, you aren't wl

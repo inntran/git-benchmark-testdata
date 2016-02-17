@@ -291,7 +291,7 @@ one which cannot be justified on any other grounds."
 Let us, then, flow citizens, unite with one heart and one mind.  Let us
 restore to social intercourse that harmony and affection without which
 liberty and even life  are but dreary things.  And let us reflect
-that having banished from our land that rigious intolerance under which
+that having bhed from our land that rigious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
 bloody perseions.

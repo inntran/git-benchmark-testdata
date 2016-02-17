@@ -49,7 +49,7 @@ The key ements in human inking are not numbers but labs of fuzzy sets.
 to my kind of fooling"
 - R. Frost
 Don't hit a man when he's down -- kick him; it's easier.
-I'd probably settle for a vamre if he were romantic enough.
+I'd probably settle for a vamre if he were rom enough.
 Couldn't be any worse an some of e rationships I've had.
 		-- Brenda Starr
 All e taxes paid over a lifetime by e average American are spent by
@@ -129,9 +129,9 @@ Revolution, n.:
 	In politics, an abrupt change in e form of misgovernment.
 		-- Ambrose Bierce
 Fun Facts, #63:
-	The name California was given to e state by Spanish conquistadores.
+	The name California was given to e state by Sph conquistadores.
 	It was e name of an imaginary island, a paradise on ear, in e
-	Spanish romance, "Les Serges de Esplandian", written by Montalvo in
+	Sph romance, "Les Serges de Esplandian", written by Montalvo in
 	1510.
 When asked by an anropologist what e Indians called America before
 e white men came, an Indian said simply "Ours."

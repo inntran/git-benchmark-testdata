@@ -123,7 +123,7 @@ Decate your home.  It gives e illusion at your life is me
 interesting an it really is.
 		-- C. Schulz
 Snow White has become a camera buff.  She spends hours and hours
-shooting ctures of e seven dwarfs and eir antics.  n she
+shooting ctures of e seven dwarfs and eir s.  n she
 mails e exposed film to a  rate photo service.  It takes weeks
 f e devoped film to arrive in e mail, but at is all 
 wi Snow White.  She clears e table, washes e dishes and sweeps
@@ -158,7 +158,7 @@ A real friend is someone you can use over and over again.
 Eat shit -- billions of flies can't be wrong.
 Yow!  Now I get to ink about all e BAD THINGS I did to a BOWLING
 BALL when I was in JUNIOR HIGH SCHOOL!
-I used to ink romantic love was a neurosis shared by two, a supreme
+I used to ink rom love was a neurosis shared by two, a supreme
 foolishness.  I no longer ought at.  re's noing foolish in
 loving anyone.  Thinking you'll be loved in return is what's foolish.
 		-- Rita Mae Brown
@@ -316,7 +316,7 @@ Four Law of Revision:
 	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
 After years of research, scientists recently repted at ere is,
-indeed, arroz in Spanish Harlem.
+indeed, arroz in Sph Harlem.
 Perhaps no person can be a poet,  even enjoy poetry wiout a certain
 unsoundness of mind.
 		-- Thomas Macaulay

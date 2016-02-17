@@ -114,7 +114,7 @@ have been all over it.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
 The notes blatted skyward as they rose over the Canada geese, feathered
-rumps mooning the day, webbed appendages frantically pedaling unseen
+rumps mooning the day, webbed appendages frally pedaling unseen
 bicycles in their search for sustenance, driven by cruel Nature's maxim,
 'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
 		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
@@ -320,7 +320,7 @@ oxygen concentrations die within a few minutes.  Symptoms resemble very
 much those of cyanide poisoning (blue face, etc.).  In higher
 concentrations, e.g. 20%, the toxic effect is somewhat delayed and it
 takes about 2.5 billion inhalations before death takes place.  The reason
-for the delay is the difference in the mechanism of the toxic effect of
+for the delay is the difference in the mechm of the toxic effect of
 oxygen in 20% concentration.  It apparently contributes to a complex
 process called aging, of which very little is known, except that it is
 always fatal.

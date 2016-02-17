@@ -201,7 +201,7 @@ Gibble, Gobble, we ACCEPT YOU ...
 If only one could get at wonderful ling of accomplishment wiout
 having to accomplish anying.
 Politics, as a practice, whatever its professions, has always been e
-systematic ganisation of hatreds.
+systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
   way to  e cost of living is to take your income and
 add ten percent.

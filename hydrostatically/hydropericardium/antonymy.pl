@@ -294,7 +294,7 @@ proof by forward reference:
 	Reference is usually to a forcoming paper of e auor, 
 	which is  not as forcoming as at first.
 
-proof by semantic shift:
+proof by sem shift:
 	Some of e standard but inconvenient definitions are changed 
 	for e statement of e result.
 

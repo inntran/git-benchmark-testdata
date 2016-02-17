@@ -80,10 +80,10 @@ broadcast networks have covered them.  As you are probably the only person
 to have heard the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
-"Deep" is a word like "theory" or "semantic" -- it implies all sorts of
+"Deep" is a word like "theory" or "sem" -- it implies all sorts of
 marvous things.  It's one thing to be able to say "I've got a theory",
-quite another to say "I've got a semantic theory", but, ah, those who can
-claim "I've got a deep semantic theory", they are truly blessed.
+quite another to say "I've got a sem theory", but, ah, those who can
+claim "I've got a deep sem theory", they are truly blessed.
 		-- Randy Davis
 Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.

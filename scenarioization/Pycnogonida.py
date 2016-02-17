@@ -527,7 +527,7 @@ sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
 Virtue would go far if vanity did not keep it company.
 		-- La Rochefoucauld
-All press is based upon a universal innate desire of every organism
+All press is based upon a universal innate desire of every orgm
 to live beyond its income.
 		-- Samuel Butler, "Notebooks"
 Dear Emily:
@@ -554,7 +554,7 @@ Hoaars-Faisse Gallery presents:
 An exhibit of works by the artist known only as Pretzel.
 
 The exhibit includes several large conceptual works using non-traditional
-media and found objects including old sofa-beds, used mace canisters,
+media and found objects including old sofa-beds, used mace cters,
 discarded sanitary napkins and parts of freeways.  The artist explores
 our dehumanization due to high technology and unresponsive governmental
 structures in a post-industrial world.  She/he (the artist prefers to

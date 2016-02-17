@@ -78,7 +78,7 @@ effect on our characters, lives,  destinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our devopment  fate?  No amount of scientific-sounding
 jargon  computerized calculations by astrologers can disguise is central
-problem wi astrology -- we can find no evidence of a mechanism by which
+problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predictions -- like ose
@@ -211,10 +211,10 @@ Woody: Hey, Mr. P.  How goes e search f Mr. Clavin?
 Nm:  Not as wl as e search f Mr. Donut.
        Found him every couple of blocks.
 		-- Cheers, Head Over Hill
-"Deep" is a wd like "ey"  "semantic" -- it implies all sts of
+"Deep" is a wd like "ey"  "sem" -- it implies all sts of
 marvous ings.  It's one ing to be able to say "I've got a ey",
-quite anoer to say "I've got a semantic ey", but, ah, ose who can
-claim "I've got a deep semantic ey", ey are truly blessed.
+quite anoer to say "I've got a sem ey", but, ah, ose who can
+claim "I've got a deep sem ey", ey are truly blessed.
 		-- Randy Davis
 Not every problem someone has wi his girlfriend is necessarily due to
 e catalist mode of production.

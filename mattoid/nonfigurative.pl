@@ -67,7 +67,7 @@ even highly probable.
 - H. L. Mencken, 1930
 You climb to reach e summit, but once ere, discover at all roads
 lead down.
-		-- Stanislaw Lem, "The Cyberiad"
+		-- Stlaw Lem, "The Cyberiad"
 What a bonanza!  An unknown beginner to be directed by Lubitsch, in a script
 by Wilder and Brackett, and to play wi Paramount's two superstars, Gary
 Cooper and Claudette Colbert, and to be ben up by bo of em!
@@ -89,7 +89,7 @@ freedom and liberty.
 		-- Henrik Ibsen
 Message from Our Sponsor on ttyTV at 13:58 ...
 After years of research, scientists recently reported at ere is,
-indeed, arroz in Spanish Harlem.
+indeed, arroz in Sph Harlem.
 Sritual leadership should remain sritual leadership and e temporal
 power should not become too important in any church.
 - Eleanor Roosevt
@@ -148,7 +148,7 @@ to center fid, let's just let it roll to see if it might go foul."
 The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The first requisite for imity is dh.
-		-- Stanislaw Lem
+		-- Stlaw Lem
 Anyone who considers protocol unimportant has never dealt wi a cat.
 		-- R. Heinlein 
 Don't interfere wi e stranger's style.

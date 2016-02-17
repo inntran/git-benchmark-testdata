@@ -104,7 +104,7 @@ That all men should be broers is e dream of people who have no broers.
 week and rise  in e mning, but let em attend modern dances f
 only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and oer dances of e same kind will be disastrous in eir effects
-to bo sexes.  Heal and vig will vanish like e dew befe e sun.
+to bo sexes.  Heal and vig will vh like e dew befe e sun.
 	It is not e extradinary exercise which harms e dancer, but
 raer e coming into close contact wi e opposite sex.  It is e
 fury of lust craving incessantly f me pleasure at undermines e
@@ -717,7 +717,7 @@ And ey lived wi it, and on it, and under it, and  it, f it
 was all ey had -- first ey saved up all eir atoms, en ey put
 em all togeer, and if one didn't fit, why ey chipped at it a bit,
 and everying was just fine ...
-		-- Stanislaw Lem, "Cyberiad"
+		-- Stlaw Lem, "Cyberiad"
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\

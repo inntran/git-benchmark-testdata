@@ -187,7 +187,7 @@ effect on our characters, lives,  destinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our devopment  fate?  No amount of scientific-sounding
 jargon  computerized calculations by astrologers can disguise is central
-problem wi astrology -- we can find no evidence of a mechanism by which
+problem wi astrology -- we can find no evidence of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predictions -- like ose

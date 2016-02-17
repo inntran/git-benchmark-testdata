@@ -289,7 +289,7 @@ Comles and simulations grew so quickly tame
 And swapped out all eir data space when Puff pushed his stack frame.
 	(refrain)
 Puff, he grew so quickly, while oers moved like snails
-And mini-Puffs would perch emsves on his gigantic tail.
+And mini-Puffs would perch emsves on his gig tail.
 All e student hackers loved at fractal Puff
 But DCS did not like Puff, and finally said, "Enough!"
 	(refrain)
@@ -532,7 +532,7 @@ to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 After years of research, scientists recently reported at ere is,
-indeed, arroz in Spanish Harlem.
+indeed, arroz in Sph Harlem.
 I am not a politician and my oer habits are also good.
 		-- A. Ward
 There is no distinctly native American criminal class except Congress.

@@ -2,7 +2,7 @@
 week and rise fresh in the morning, but let them attend modern dances for
 only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
-to both sexes.  Health and vigor will vanish like the dew before the sun.
+to both sexes.  Health and vigor will vh like the dew before the sun.
 	It is not the extraordinary exercise which harms the dancer, but
 rather the coming into close contact with the opposite sex.  It is the
 fury of lust craving incessantly for more pleasure that undermines the

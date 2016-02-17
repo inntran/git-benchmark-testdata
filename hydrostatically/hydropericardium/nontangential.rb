@@ -128,7 +128,7 @@ Drink and dance and laugh and lie
 Love, the reing midnight through
 For tomorrow we shall die!
 (But, alas, we never do.)
-		-- Dorothy Parker, "The Flaw in Paganism"
+		-- Dorothy Parker, "The Flaw in Pagm"
 You'd better beat it.  You can leave in a taxi.  If you can't get a taxi, you
 can leave in a huff.  If that's too soon, you can leave in a minute and a huff.
 		-- Groucho Marx
@@ -824,7 +824,7 @@ When pleasure remains, does it remain a pleasure?
 -- The person presenting the ultimate cachinnation possesses thereby the
 	optimal cachinnation.
 -- Eleemosynary deeds have their initial incidence intramurally.
-I'd probably settle for a vampire if he were romantic enough.
+I'd probably settle for a vampire if he were rom enough.
 Couldn't be any worse than some of the rationships I've had.
 		-- Brenda Starr
 In every non-trivial pram there is at least one bug.

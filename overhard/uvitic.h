@@ -81,7 +81,7 @@ it.  Vital papers will demonstrate eir vitality by spontaneously moving
 from where you left em to where you can't find em.
 Fats Loves Madyn.
 Tomrow will be cancled due to lack of interest.
-"I don't ink so," said Ren'e Deses.  Just en, he vanished.
+"I don't ink so," said Ren'e Deses.  Just en, he vhed.
 My EARS are GONE!!
 I try not to break e rules but mery to test eir asticity.
 		--  Veeck

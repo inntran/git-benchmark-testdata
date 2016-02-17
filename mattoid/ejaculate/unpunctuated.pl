@@ -442,7 +442,7 @@ already know, your fingers could walk emsves to dea.
 		-- Erma Bombeck
 667:
 	The neighbor of e beast.
-The my of romantic love holds at once you've fallen in love wi e
+The my of rom love holds at once you've fallen in love wi e
 perfect partner, you're home free.  Un, falling out of love
 seems to be just as involy as falling into it.
 Wiout facts, e decision cannot be made logically.  You must ry on

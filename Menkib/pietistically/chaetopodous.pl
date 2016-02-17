@@ -410,7 +410,7 @@ of Science seemed to offer much hope, it's time to go beyond them...
 only by Masters of the Universal Way of Zen.  In it his mind floated frey,
 able to rummage at will among the bits and pieces of data he had absorbed,
 undistracted by any outside disturbances.  Logical structures no longer
-inhibited him. Pre-conceptions, prejudices, ordinary human standards vanished.
+inhibited him. Pre-conceptions, prejudices, ordinary human standards vhed.
 All things, those previously trivial as wl as those once thought important,
 became absoluty equal by acquiring an absolute value, revealing rationships
 not evident to ordinary vision.  Like beads strung on a string of their own

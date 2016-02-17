@@ -115,9 +115,9 @@ We are Microsoft.  Unix is irrelevant.  Openness is futile.  Prepare
 to be assimilated.
 Eschew obfuscation.
 Harry is heavily into camping, and every year in the late fall, he makes us
-all go to Assateague, which is an island on the Atlantic Ocean famous for
+all go to Assateague, which is an island on the Atl Ocean famous for
 its wild s.  I realize that the concept of wild s probably stirs
-romantic notions in many of you, but this is because you have never met any
+rom notions in many of you, but this is because you have never met any
 wild s in person.  In person, they are like enormous hooved rats.  They
 amble up to your camp site, and their attitude is: "We're wild s.
 We're going to eat your food, knock down your tent and poop on your shoes.

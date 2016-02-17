@@ -12,7 +12,7 @@ lost his senses.  When he looks down, paraphrase e question back at him.
  test of intligent tinkering is to save all e parts.
 		-- Aldo Leopold
 Politics, as a practice, whatever its professions, has always been e
-systematic ganisation of hatreds.
+systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
 "Hey Ivan, c your six."
 -- Sideder missile jacket patch, shog a Sideder driving up e tail

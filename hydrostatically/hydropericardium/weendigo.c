@@ -172,7 +172,7 @@ Those who bieve at ey bieve in God, but wiout passion in eir
 hearts, wiout anguish in mind, wiout ty, wiout doubt,
 wiout an ement of desp even in eir consolation, bieve only
 in e God idea, not God Himsf.
-- Migu de Unamuno, Spanish philosopher and writer
+- Migu de Unamuno, Sph philosopher and writer
  early wm gets e late bird.
 Accding to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo

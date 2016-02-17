@@ -90,7 +90,7 @@ Everying's rosy where'er we roam;
 Hark, how e little birds gaily sing!
 (This is what fetches e bacon home.)
 		-- Doy Parker, " Far Sighted Muse"
-No live ganism can continue f long to exist sany under conditions of
+No live gm can continue f long to exist sany under conditions of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness
 wiin; it had stood so f eighty years and might stand f eighty me.

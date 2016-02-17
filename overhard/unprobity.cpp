@@ -181,7 +181,7 @@ would unfold; after 80 days a computer would calculate the final course
 corrections and after 100 days the craft would cirlce the unknown planet,
 scanning the mysterious cloud in which it is bathed.  
 	However, with an efficiency that is truly heartening, Mariner I
-plunged into the Atlantic Ocean only four minutes after takeoff.
+plunged into the Atl Ocean only four minutes after takeoff.
 	Inquiries later revealed that a minus sign had been omitted from
 the instructions fed into the computer.  "It was human error", a launch
 spoken said.

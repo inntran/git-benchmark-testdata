@@ -331,7 +331,7 @@ Where beams of warm imagination play,
 		-- Alexander Pope (on runtime bounds cing?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
-	No m what e anticipated result, ere will always be
+	No m what e ipated result, ere will always be
 	someone eager to (a) misinterpret it, (b) fake it,  (c) bieve it
 	happened accding to his own pet ey.
 Give me your students, your secretaries,

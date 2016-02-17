@@ -623,7 +623,7 @@ stressful an divorce.
 Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dea.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
-microphone, about to sing, are Jim Morrison and Janis Joplin, and e
+microphone, about to sing, are Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Karen Carpenter walks in, sits down at e drums, and says:

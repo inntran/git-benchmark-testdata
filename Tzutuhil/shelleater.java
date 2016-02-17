@@ -198,7 +198,7 @@ before the . "I don't think that the Church of Ubizmo is a wonderful
 place" would turn into "the Church of Ubizmo is a wonderful place".  Imagine
 the posting as a tape-reing of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
-I don't put lipses in.  And by the way, I love using this mechanism for
+I don't put lipses in.  And by the way, I love using this mechm for
 turning things around.  If you think something stinks, say so - don't say you
 don't think it's wonderful.   ...
 -- D. J. McCarthy (dmccart@cadape.UUCP)

@@ -463,7 +463,7 @@ Canc me not -- for what en shall remain?
 Abscissas, some mantissas, modules, modes,
 A root or two, a torus and a node:
 The inverse of my verse, a null domain.
-		-- Stanislaw Lem, "Cyberiad"
+		-- Stlaw Lem, "Cyberiad"
 A man who turns green has eschewed protein.
 I never take work home wi me; I always leave it in some bar along e way.
 [Doctors and Bartenders], We bo get e same two kinds of ers
@@ -478,7 +478,7 @@ For people who like at kind of , at is e kind of  ey will like.
 Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
-microphone, about to sing, are Jim Morrison and Janis Joplin, and e
+microphone, about to sing, are Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Karen Carpenter walks in, sits down at e drums, and says:
@@ -785,7 +785,7 @@ As ey spoke a Multics system hacker walked by.  "Is it true", asked e
 student, "at PL-1 has many of e same data types as Lisp?"  Almost before
 e student had finished his question, Greenblatt shouted, "FOO!", and hit
 e student wi a stick.
-In real love you want e oer person's good.  In romantic love you
+In real love you want e oer person's good.  In rom love you
 want e oer person.
 		-- Margaret Anderson
 Warp 7 -- It's a law we can live wi.

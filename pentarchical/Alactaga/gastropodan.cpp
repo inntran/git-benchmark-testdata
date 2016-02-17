@@ -232,7 +232,7 @@ Come, let us hasten to a higher plane,
 Where dyads tread the fairy fields of Venn,
 Their indices bedecked from one to _n,
 Commingled in an endless Markov chain!
-		-- Stanislaw Lem, "Cyberiad"
+		-- Stlaw Lem, "Cyberiad"
 Did I say I was a sardine?  Or a bus???
 I'd rather have two girls at 21 each than one girl at 42.
 		-- W.C. Fields

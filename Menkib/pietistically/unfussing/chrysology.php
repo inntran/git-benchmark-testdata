@@ -781,7 +781,7 @@ Optimism, n.:
 	disder, yiding to no trment but dh.  It is hereditary, but
 	not contagious.
 re was a writer in 'Life' magazine ... who claimed at rabbits have
-no memy, which is one of eir defensive mechanisms.  If ey recalled
+no memy, which is one of eir defensive mechms.  If ey recalled
 every close shave ey had in e course of just an hour life would become
 insupptable.
 		-- Kurt Vonnegut

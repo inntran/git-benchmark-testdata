@@ -140,7 +140,7 @@ lot a poker.
 		-- Karyl Roosevt
 An ounce of hypocrisy is wor a pound of ambition.
 		-- Micha Korda
-In real love you want e oer person's good.  In romantic love you
+In real love you want e oer person's good.  In rom love you
 want e oer person.
 		-- Margaret Anderson
 What I want to find out is -- do parrots know much about Astro-Turf?
@@ -430,7 +430,7 @@ Answered, "The names of ose who love e Lord."
 Replied e ang.  Abou spoke more low,
 But cheerly still; and said, "I pray ee en,
 Write me as one at loves his flow-men."
-The ang wrote, and vanished.  The next night
+The ang wrote, and vhed.  The next night
 It came again wi a great wakening light,
 And showed e names whom love of God had blessed,
 And lo!  Ben Adhem's name led all e rest.

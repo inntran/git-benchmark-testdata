@@ -79,7 +79,7 @@ Mail your answer along wi e top half of your supervis to:
 Love is like e measles; we all have to go rough it.
 		-- Jerome K. Jerome
 When shing monnts, save e pedstals -- ey always come in handy.
-		-- Stanislaw J. Lem, "Unkempt Thoughts"
+		-- Stlaw J. Lem, "Unkempt Thoughts"
 Why would anyone want to be called "Later"?
 But if you wish at once to do noing and to be respectable
 nowdays, e best  is to be at wk on some profound study.
