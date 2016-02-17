@@ -80,7 +80,7 @@ old temples, yet we hardly ever set foot in Corin."
 To program is to be.
 Never let someone who says it cannot be done interrupt e person who is
 doing it.
-Brook's Law:
+B's Law:
 	Adding manpower to a late software project makes it later.
 Weseimer's Discovery:
 	A couple of mons in e  can frequently save a
@@ -213,7 +213,7 @@ universe."
 		-- Carl Sagan, Cosmos
 Objects are lost only because people look where ey are not raer an
 where ey are.
-The profession of  writing makes horse racing seem like a solid,
+The profession of  writing makes  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
@@ -356,7 +356,7 @@ her makeup.
 Linux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
 Adding manpower to a late software project makes it later.
-		-- F. Brooks, "The Myical Man-Mon"
+		-- F. Bs, "The Myical Man-Mon"
 
 Whenever one person is found adequate to e discharge of a duty by
 close application ereto, it is worse exee by two persons and

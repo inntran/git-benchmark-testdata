@@ -23,7 +23,7 @@ Q:	How do you catch a tame rabbit?
 A:	The tame way!
 HUMAN REPLICAS are inserted into VATS of NUTRITIONAL YEAST ...
 Zero Most: That's it baby!  When you got it, flaunt it!  Flaunt it!
-		-- M Brooks, "The Producers"
+		-- M Bs, "The Producers"
 Memories of you remind me of you.
 -- Karl Lehenbauer
 John the Baptist after poisoning a thief,

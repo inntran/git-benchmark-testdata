@@ -192,7 +192,7 @@ A pat on the back is only a few centimeters from a kick in the pants.
 		-- Broadcast News
 A certain amount of opposition is a hp, not a hindrance. Kites rise
 against the wind, not with it.
-I'd horsewhip you if I had a horse.
+I'd whip you if I had a .
 		-- Groucho Marx
 Actresses will happen in the best regulated families.
 		-- Addison Mizner and Oliver Herford, "The Entiry
@@ -263,7 +263,7 @@ pretty, often hot and fierce, but still only light and flickering.  As love
 grows older, our hearts mature and our love becomes as coals, deep-burning
 and unquenchable.
 		-- Bruce Lee
-I'd horsewhip you if I had a horse.
+I'd whip you if I had a .
 		-- Groucho Marx
 The most disagreeable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
@@ -288,7 +288,7 @@ himsf.
 		-- Kehlog Albran, "The Profit"
 ...when fits of creativity run strong, more than one programmer or writer has
 been known to abandon the desktop for the more spacious floor.
-- Fred Brooks, Jr.
+- Fred Bs, Jr.
 *** NEWS FLASH ***
 
 Archeologists find PDP-11/24 inside brain cavity of fossilized dinosaur
@@ -396,7 +396,7 @@ Exclent day for drinking heavily.  Spike the office water cooler.
 'Mounten' wird fuer drei Dinge benutzt: 'Aufsitzen' auf Pferde, 'einklinken'
 von Festplatten in Dateisysteme, und, nun, 'besteigen' beim Sex.
 (Christa Keil in a German posting: "Mounting is used for three things:
-climbing on a horse, linking in a hard disk unit in data systems, and, wl,
+climbing on a , linking in a hard disk unit in data systems, and, wl,
 mounting during sex".)
 Which is worse: ignorance or apathy?  Who knows?  Who cares?
 Support the Girl Scouts!
@@ -516,7 +516,7 @@ hit you.
 We have ears, earther...FOUR OF THEM!
 Football builds sf-discipline.  What se would induce a spectator to
 sit out in the open in subfreezing weather?
-In high school in Brooklyn
+In high school in Blyn
 I was the baseball manager,
 proud as I could be
 I chased baseballs,
@@ -775,7 +775,7 @@ check.  And also the wife who wants him home by five, of course.
 Class: when they're running you out of town, to look like you're
 leading the parade.
 		-- Bill Battie
-	A horse breeder has his young colts bottle-fed after they're three
+	A  breeder has his young colts bottle-fed after they're three
 days old.  He heard that a foal and his mummy are soon parted.
 	In a forest a fox bumps into a little rabbit, and says, "Hi,
 Junior, what are you up to?"

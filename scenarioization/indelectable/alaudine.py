@@ -8,7 +8,7 @@ to change your mind.
 He who despairs over an event is a coward, but he who holds hopes for
 the human condition is a fool.
 		-- Albert Camus
-The profession of  writing makes horse racing seem like a solid,
+The profession of  writing makes  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
@@ -421,13 +421,13 @@ This seems to be our most urgent biological f; it is what we do with
 our lives."
 		-- Lewis Thomas, "The Lives of a Cl"
 Proof techniques #2: Proof by Oddity.
-	SAMPLE: To prove that horses have an infinite number of legs.
+	SAMPLE: To prove that s have an infinite number of legs.
 (1) Horses have an even number of legs.
 (2) They have two legs in back and fore legs in front.
 (3) This makes a total of six legs, which certainly is an odd number of
-    legs for a horse.
+    legs for a .
 (4) But the only number that is both odd and even is infinity. 
-(5) Therefore, horses must have an infinite number of legs.
+(5) Therefore, s must have an infinite number of legs.
 
 Topics is be covered in future issues include proof by:
 	Intimidation

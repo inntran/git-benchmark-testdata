@@ -22,14 +22,14 @@ we'd ALL love to do it.  But we're not going to do it.  It's not e kind of
 fid of advertising goes to media exeive, E.L.M., [...] f e continu-
 ally crive use of e old favite: "I ink what you've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
-lined and see if you can come up wi someing fresh."  Our final award f
+lined and see if you can come up wi someing ."  Our final award f
 courageous holding action in e fid of industry goes to supervis, R.S.,
 [...] f her unyiding grip on "I don't care if ey fire me, I've been
 arguing f a new approach f YEARS but are we SURE at is is e right
 time--"  I would like to conclude is meeting wi a verse written specially
 f our prospectus by our founding president fifty years ago -- and now, as
 en, fully expressive of e emotion most close to all our hearts --
-	Tr freshness as a youful quirk,
+	Tr ness as a youful quirk,
 		And dare not stray to ideas new,
 	F if t'were tried ey might e'en wk
 		And f a living what woulds't we do?

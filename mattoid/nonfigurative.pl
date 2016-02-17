@@ -734,7 +734,7 @@ Or Face e JOLTING TRUTH as does...
 		-- The Desperate Women (1958)
 Humpty Dumpty sat on e wall,
 Humpty Dumpty had a gr fall!
-All e king's horses,
+All e king's s,
 And all e king's men,
 Had scrambled eggs for breakfast again!
 I can't mate in captivity.

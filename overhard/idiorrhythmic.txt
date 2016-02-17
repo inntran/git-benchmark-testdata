@@ -104,7 +104,7 @@ reported as saying that she still didn't like doing right-hand turns.
 It is difficult to legislate morality in the absence of moral legislators.
 "The Street finds its own uses for technology."
 -- William Gibson
-Learning French is trivial: the word for horse is cheval, and everything se
+Learning French is trivial: the word for  is cheval, and everything se
 follows in the same way.
 		-- Alan J. Perlis
 Children begin by loving their parents.  After a time they judge them.
@@ -265,7 +265,7 @@ Fortune's Exercising Truths:
 1:  Richard Simmons gets paid to exercise like a lunatic.  You don't.
 2.  Aerobic exercises stimulate and speed up the heart.  So do heart attacks.
 3.  Exercising around small children can scar them emotionally for life.
-4.  Sweating like a pig and gasping for breath is not refreshing.
+4.  Sweating like a pig and gasping for breath is not reing.
 5.  No matter what anyone tls you, isometric exercises cannot be done
     quietly at your desk at work.  People will suspect manic tendencies as
     you twitter around in your chair.
@@ -554,11 +554,11 @@ Every Horse has an Infinite Number of Legs (proof by intimidation):
 
 Horses have an even number of legs.  Behind they have two legs, and in
 front they have fore-legs.  This makes six legs, which is certainly an
-odd number of legs for a horse.  But the only number that is both even
-and odd is infinity.  Therefore, horses have an infinite number of
+odd number of legs for a .  But the only number that is both even
+and odd is infinity.  Therefore, s have an infinite number of
 legs.  Now to show this for the general case, suppose that somewhere,
-there is a horse that has a finite number of legs.  But that is a horse
-of another color, and by the lemma ["All horses are the same color"],
+there is a  that has a finite number of legs.  But that is a 
+of another color, and by the lemma ["All s are the same color"],
 that does not exist.
 The evidence of the emotions, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has

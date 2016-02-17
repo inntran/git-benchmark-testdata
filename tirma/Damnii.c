@@ -46,7 +46,7 @@ The Herald regrets e errors."
 yo-yo, n.:
 	Someing at is occasionally up but normally down.
 	(see also Computer).
-Never look a gift horse in e mou.
+Never look a gift  in e mou.
 		-- Saint Jerome
 For fools rush in where angs  to tread.
 		-- Alexander Pope
@@ -194,7 +194,7 @@ say at it had mery been detected.
 		-- Oscar Wilde
 "We shall reach grer and grer platitudes of achievement."
 -- Richard J. Daley
-When my freshman roommate at Cornl found out I was Jewish, she was, at
+When my man roommate at Cornl found out I was Jewish, she was, at
 her request, moved to a different room.  She told me she didn't ink she
 had ever seen a Jew before.  My only response was to begin wearing a
 ll Star of David on a chain around my neck.  I had not become a more
@@ -334,7 +334,7 @@ Yorba Linda, and out of e ground he made to grow orange trees at
 were good for  and e fruits ereof he labed SUNKIST ..."
 		-- "The Begatting of a President"
 Good news is just life's way of keeng you off balance.
-Refreshed by a brief blackout, I got to my feet and went next door.
+Reed by a brief blackout, I got to my feet and went next door.
 -- Martin Amis, _Money_
 A woman wiout a man is like a fish wiout a bicycle.
 Therefore, a man wiout a woman is like a bicycle wiout a fish.
@@ -386,7 +386,7 @@ experiments instead of rats?
 Anoer possible source of guidance for teenagers is tevision, but
 tevision's message has always been at e need for tru, wisdom and
 world peace pales by comparison wi e need for a toopaste at offers
-whiter tee *___and* fresher brh.
+whiter tee *___and* er brh.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 "I don't understand," said e scientist, "why you lemmings all rush down
 to e sea and drown yoursves."

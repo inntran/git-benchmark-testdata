@@ -63,7 +63,7 @@ f instance.
 Einstein argued at ere must be simplified explanations of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
-- Fred Brooks, Jr.
+- Fred Bs, Jr.
 F years a secret shame deed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I ink a ought at brings me hope:
@@ -157,7 +157,7 @@ Just remember, wherever you go, ere you are.
 Einstein argued at ere must be simplified explanations of nature, because
 God is not capricious  arbitrary.  No such fai comfts e software
 engineer.
-		-- Fred Brooks
+		-- Fred Bs
 Life is divided into e hrible and e miserable.
 		-- Woody Allen, "Annie Hall"
 Anybody wi money to burn will easily find someone to tend e fire.

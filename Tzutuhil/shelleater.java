@@ -309,7 +309,7 @@ shouts, "Back to second if I can make it."
 		-- Joe Garagiola, "It's Anybody's Ball Game"
 Humpty Dumpty sat on the wall,
 Humpty Dumpty had a great fall!
-All the king's horses,
+All the king's s,
 And all the king's men,
 Had scrambled eggs for breakfast again!
 A rolling disk gathers no MOS.

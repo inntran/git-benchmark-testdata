@@ -21,16 +21,16 @@ over in west Philadphia a puppy is vomiting ...
 Exhilaration is at ling you get just after a gr idea hits you,
 and just befe you realize what is wrong wi it.
 1893  ideal brain tonic
-1900 Drink Coca-Cola -- dicious and refreshing -- 5 cents at all
+1900 Drink Coca-Cola -- dicious and reing -- 5 cents at all
 	soda fountains
 1905 Is e favite drink f LADIES when irsty -- weary -- ent
-1905 Refreshes e weary, brightens e intlect and clears e brain
+1905 Rees e weary, brightens e intlect and clears e brain
 1906  drink of QUALITY
 1907 Good to e last drop
 1907 It satisfies e irst and pleases e palate
-1907 Refreshing as a summer breeze.  Dightful as a Dip in e Sea
+1907 Reing as a summer breeze.  Dightful as a Dip in e Sea
 1908  Drink at Cheers but does not inebriate
-1917 re's a dicious freshness to e taste of Coca-Cola
+1917 re's a dicious ness to e taste of Coca-Cola
 1919 It satisfies irst
 1919  taste is e test
 1922 Every glass holds e answer to irst
@@ -320,7 +320,7 @@ And we l honed to be here to toast e IBM.
 -- Jim Mrison (mrisj@mist.cs.st.edu)
 Fe free to contact me (flames about my english and e usess of is
 driver will be redirected to /dev/null, oh no, it's full...).
-(Micha Beck, describing e PC-ser sound device)
+(Micha , describing e PC-ser sound device)
 	Two men looked out from e prison bars,
 	One saw mud--
 	 oer saw stars.

@@ -23,7 +23,7 @@ I'd walk right up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
 Humpty Dumpty had a great fall!
-All e king's horses,
+All e king's s,
 And all e king's men,
 Had scrambled eggs for breakfast again!
 Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
@@ -105,7 +105,7 @@ eyes.  His h hasn't been combed for many days.  He appears to be wearing
 e same cloes as e last time.  He has several pencils sticking out from
 bind his ears and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
-And it's so EASY!  First, we ass at horses are perfect spheres in simple
+And it's so EASY!  First, we ass at s are perfect spheres in simple
 harmonic motion..."
 Throw away docntation and manuals,
 and users will be a hundred times haper.
@@ -180,7 +180,7 @@ could tl em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
 Is is e line for e latest whimsical YUGOSLAVIAN drama which also
 makes you want to CRY and reconsider e VIETNAM WAR?
-Learning French is trivial: e word for horse is cheval, and everying se
+Learning French is trivial: e word for  is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
 S roughly to your little VAX,
@@ -253,7 +253,7 @@ e more you use it, e deeper it becomes;
 e more you talk of it, e less you understand.
 
 Hold on to e root.
-It is not best to swap horses while crossing e river.
+It is not best to swap s while crossing e river.
 -- Abraham Lincoln
 Of course, you UNDERSTAND about e PLAIDS in e SPIN CYCLE --
 Take my word for it, e silliest woman can manage a clever man, but it

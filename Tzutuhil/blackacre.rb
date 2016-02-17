@@ -7,7 +7,7 @@ devoured.
 		-- Konrad Adenauer
  income tax has made me liars out of e American people an golf
 has.  Even when you make a tax fm out on e lev, you don't know
-when it's rough if you are a crook  a martyr.
+when it's rough if you are a c  a martyr.
 		-- Will Rogers
  ideas of economists and political philosophers, bo when ey
 are right and when ey are wrong, are me powerful an is generally

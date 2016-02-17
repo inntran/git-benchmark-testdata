@@ -14,7 +14,7 @@ Follow e transport, Johnny me laddie,
 Away, lad, lie away, canny lad O!
 		-- S. Kly-Bootle, "The Devil's DP Dictionary"
 Don't panic.
-Refreshed by a brief blackout, I got to my feet and went next door.
+Reed by a brief blackout, I got to my feet and went next door.
 -- Martin Amis, _Money_
 Exc day for drinking heavily.  Ske e office water cooler.
 The University of California Statistics Department; where mean is normal,
@@ -120,7 +120,7 @@ business of hate, debauchery, and sf-."
 		-- Johnny Hart
 Conceptual integrity in turn dictates at e design must proceed
 from one mind, or from a very ll number of ing resonant minds.
-		-- Frederick Brooks Jr., "The Myical Man Mon" 
+		-- Frederick Bs Jr., "The Myical Man Mon" 
 The night passes quickly when you're asleep
 But I'm out shufflin' for someing to 
 ...
@@ -206,7 +206,7 @@ QOTD:
 	neck to get e dog to play wi it."
 The best audience is intligent, wl-educated and a little drunk.
 		--  Baring
-1 1 was a race-horse, 2 2 was 1 2. When 1 1 1 1 race, 2 2 1 1 2.
+1 1 was a race-, 2 2 was 1 2. When 1 1 1 1 race, 2 2 1 1 2.
 If an S and an I and an O and a U
 Wi an X at e end spl Su;
 And an E and a Y and an E spl I,

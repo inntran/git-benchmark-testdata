@@ -11,12 +11,12 @@ should not be seen by e light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 One of your most ancient writers, a  named Herodotus, tls of a
 ief who was to be exeed.  As he was taken away he made a bargain wi
-e king: in one year he would teach e king's favorite horse to sing
-hymns.  The oer prisoners watched e ief singing to e horse and
+e king: in one year he would teach e king's favorite  to sing
+hymns.  The oer prisoners watched e ief singing to e  and
 laughed.  "You will not succeed," ey told him.  "No one can."
 	To which e ief replied, "I have a year, and who knows what might
-happen in at time.  The king might die.  The horse might die.  I might die.
-And perhaps e horse will learn to sing.
+happen in at time.  The king might die.  The  might die.  I might die.
+And perhaps e  will learn to sing.
 		-- "The Mote in God's Eye", Niven and Pournle
 Good salesmen and good repmen will never go hungry.
 		-- R.E. Schenk
@@ -196,7 +196,7 @@ August 27, 1949:
 Like an expensive sports car, fine-tuned and wl-built, Portia was sleek,
 shapy, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as scovers in July, her h as dark as new tires, her eyes flashing like
-bright caps, and her lips as dewy as e beads of fresh rain on e hood;
+bright caps, and her lips as dewy as e beads of  rain on e hood;
 she was a woman driven -- fued by a single accerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along e
 right road: a man like Alf Romeo.

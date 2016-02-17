@@ -42,7 +42,7 @@ Clothes make the man.  Naked people have little or no influence on society.
 I don't do it for the money.
 		-- Donald Trump, Art of the Deal
 Every word is like an unnecessary stain on silence and nothingness.
-		-- Beckett
+		-- ett
 Justice, n.:
 	A decision in your favor.
 The eyes of taxes are upon you.
@@ -226,7 +226,7 @@ telling the Airline Pilots Association (in jest) about 21st century aircraft:
 		-- Fortune, Sept. 26, 1988
 		   [the *magazine*, silly!]
 Owe no man any thing...
-Universities are places of knowledge.  The freshman each bring a little
+Universities are places of knowledge.  The man each bring a little
 		-- Romans 13:8
 At ebb tide I wrote a line upon the sand, and gave it all my heart and all
 my soul.  At flood tide I returned to read what I had inscribed and found my
@@ -429,7 +429,7 @@ To do more was impossible, to do less, unthinkable.
 Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as seatcovers in July, her hair as dark as new tires, her eyes flashing like
-bright hubcaps, and her lips as dewy as the beads of fresh rain on the hood;
+bright hubcaps, and her lips as dewy as the beads of  rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
 right road: a man like Alf Romeo.

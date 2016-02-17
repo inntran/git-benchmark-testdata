@@ -353,7 +353,7 @@ something of what has been passing in their time.
 The last person who said that (God rest his soul) lived to regret it.
 They're only trying to make me LOOK paranoid!
 Hippogriff, n.:
-	An animal (now extinct) which was half horse and half griffin.
+	An animal (now extinct) which was half  and half griffin.
 	The griffin was itself a compound creature, half lion and half eagle.
 	The hippogriff was actually, therefore, only one quarter eagle, which
 	is two dollars and fifty cents in gold.  The study of zoology is full

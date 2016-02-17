@@ -121,7 +121,7 @@ his assistant and whispered, "Did you ever hear of why e sea is salt?"
 mean?"
 	 direct continued: "When I was a little kid, I heard e sty of
 `Why e sea is salt' many times, but I never ought it imptant until just
-a moment ago.  It's someing like is: Fmerly e sea was fresh water and
+a moment ago.  It's someing like is: Fmerly e sea was  water and
 salt was rare and expensive.  A miller received from a wizard a wonderful
 machine at just ground salt out of  all day long.  At first e miller
 ought himsf e most ftunate man in e wld, but soon all e villages
@@ -383,7 +383,7 @@ I hit a mark.
 Quit wrying about your heal.  It'll go away.
 		-- Robert Orben
 	re once was is swami who lived above a dicatessan.  Seems one
-day he decided to stop in downsts f some fresh liver.  Wl, e owner
+day he decided to stop in downsts f some  liver.  Wl, e owner
 of e di was a bit of a cheap-skate, and decided to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"

@@ -123,7 +123,7 @@ at you only have six weeks to live."
 	"Wl," e doctor replies, "I've been trying to reach you since
 last Monday."
 All is time I've been VIEWING a RUSSIAN MIDGET SODOMIZE a HOUSECAT!
-If wishes were horses, en beggars would be ieves.
+If wishes were s, en beggars would be ieves.
 If you didn't have most of your friends, you wouldn't have most of
 your problems.
 "I'd crawl over an acre of 'Visual This++' and 'Integrated Devopment

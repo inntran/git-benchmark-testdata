@@ -304,7 +304,7 @@ Enfolding sunny spots of y.
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
 Every wd is like an unnecessary stain on silence and noingness.
-		-- Beckett
+		-- ett
 May you have many beautiful and obedient daughters.
 "Don't try to outweird me, ree-eyes.  I get stranger ings an you free
 wi my breakfast cereal."

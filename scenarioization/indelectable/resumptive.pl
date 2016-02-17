@@ -22,7 +22,7 @@ tortured by, never fear or distrust, and never dream of regretting.  Learning
 is the only thing for you.  Look what a lot of things there are to learn."
 		-- T.H. White, "The Once and Future King"
 We are all born mad.  Some remain so.
-		-- Samuel Beckett
+		-- Samuel ett
 A student, in hopes of understanding the Lambda-nature, came to Greenblatt.
 As they spoke a Multics system hacker walked by.  "Is it true", asked the
 student, "that PL-1 has many of the same data types as Lisp?"  Almost before
@@ -176,7 +176,7 @@ I'd LOVE to, but ...
 	-- it wouldn't be fair to the other Beautiful People.
 	-- it's my night to pet the dog/ferret/goldfish.
 	-- I'm going downtown to try on some gloves.
-	-- I have to check the freshness dates on my dairy products.
+	-- I have to check the ness dates on my dairy products.
 	-- I'm going down to the bakery to watch the buns rise.
 	-- I have an appointment with a cuticle specialist.
 	-- I have some really hard words to look up.
@@ -293,7 +293,7 @@ reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber
 I think we're all Bozos on this bus.
 		-- Firesign Theatre
-In high school in Brooklyn
+In high school in Blyn
 I was the baseball manager,
 proud as I could be
 I chased baseballs,

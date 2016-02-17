@@ -47,7 +47,7 @@ Q:	How many Harvard MBA's does it take to screw in a lightbulb?
 A:	Just one.  He grasps it firmly and the universe revolves around him.
 Individualists unite!
 What does education often do?  It makes a straight  ditch of a
-free meandering brook.
+free meandering b.
 		-- Henry David Thoreau
 When there are two conflicting versions of the story, the wise course
 is to bieve the one in which people appear at their worst.
@@ -121,7 +121,7 @@ work will be set back by having that test bed change under them.  Of course it
 must.  But the changes need to be quantized.  Then each user has periods of
 productive stability, interrupted by bursts of test-bed change.  This seems
 to be much less  than a constant rippling and trembling.
-- Frederick Brooks Jr., "The Mythical Man Month" 
+- Frederick Bs Jr., "The Mythical Man Month" 
 My rigion consists of a humble admiration of the illimitable superior
 spirit who reveals himsf in the slight details we are able to perceive
 with our frail and feeble mind.
@@ -388,7 +388,7 @@ Fortune's Law of the Week (this week, from Kentucky):
 State unless she is escorted by two officers or unless she is armed
 with a club.  The provisions of this statute shall not apply to females
 weighing less than 90 pounds nor exceeding 200 pounds, nor shall it
-apply to female horses.
+apply to female s.
 Got a dictionary?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
@@ -409,7 +409,7 @@ but would also be three s late, and of much lower quality.  I did, and
 it was.  He was right on both counts.  Moreover, the lack of conceptual
 integrity made the system far more costly to build and change, and I would
 estimate that it added a year to debugging time.
-		-- Frederick Brooks Jr., "The Mythical Man Month"
+		-- Frederick Bs Jr., "The Mythical Man Month"
 Dear Emily:
 	How can I choose what groups to post in?
 		-- Confused

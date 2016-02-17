@@ -104,7 +104,7 @@ The streets were dark with something more than night.
 		-- Raymond Chandler
 Diplomacy is the art of letting the other party have things your way.
 		-- Daniele Vare
-I'd horsewhip you if I had a horse.
+I'd whip you if I had a .
 		-- Groucho Marx
 momentum, n.:
 	What you give a person when they are going away.
@@ -116,10 +116,10 @@ to be assimilated.
 Eschew obfuscation.
 Harry is heavily into camping, and every year in the late fall, he makes us
 all go to Assateague, which is an island on the Atlantic Ocean famous for
-its wild horses.  I realize that the concept of wild horses probably stirs
+its wild s.  I realize that the concept of wild s probably stirs
 romantic notions in many of you, but this is because you have never met any
-wild horses in person.  In person, they are like enormous hooved rats.  They
-amble up to your camp site, and their attitude is: "We're wild horses.
+wild s in person.  In person, they are like enormous hooved rats.  They
+amble up to your camp site, and their attitude is: "We're wild s.
 We're going to eat your food, knock down your tent and poop on your shoes.
 We're protected by federal law, just like Richard Nixon."
 		-- Dave Barry, "Tenting Grandpa Bob"
@@ -356,7 +356,7 @@ Any attempt to prove otherwise constitutes unacceptable behaviour.
 		-- Fran Lebowitz, "Metropolitan Life"
 Function reject.
 Zero Mostel: That's it baby!  When you got it, flaunt it!  Flaunt it!
-		-- Mel Brooks, "The Producers"
+		-- Mel Bs, "The Producers"
 I have a TINY BOWL in my HEAD
 3M, under the Scotch brand name, manufactures a fine adhesive for art
 and display work.  This product is called "Craft Mount".  3M suggests
@@ -394,7 +394,7 @@ You take one down, and pass it around,
 Aleph-null bottles of beer on the wall.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
-Brook's Law:
+B's Law:
 	Adding manpower to a late software project makes it later.
 If you stew apples like cranberries, they taste more like prunes than
 rhu does.

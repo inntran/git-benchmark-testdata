@@ -443,7 +443,7 @@ Hp  continental drift.
 QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sl rugs."
  maj sin is e sin of being bn.
-		-- u Beckett
+		-- u ett
 Everying is w precisy as much as a bch, e difference being
 at a bch is me satisfying.
 		-- Ingmar Bergman
@@ -515,7 +515,7 @@ While we are sleeng, two-irds of e wld is plotting to do us in.
 "Life sucks, but dh doesn't put out at all...."
 -- Thomas J. Kopp
 Adding manpower to a late software project makes it later.
-		-- F. Brooks, " Myical Man-Mon"
+		-- F. Bs, " Myical Man-Mon"
 
 Whenever one person is found adequate to e discharge of a duty by
 close application ereto, it is wse exee by two persons and

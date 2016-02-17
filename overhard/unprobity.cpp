@@ -104,7 +104,7 @@ They got a name for the winners in the world,
 I want a name when I lose.
 They call Alabama the Crimson Tide,
 Call me Deacon Blues.
-		-- Becker and Fagan, "Deacon Blues"
+		-- er and Fagan, "Deacon Blues"
 A diplomatic husband said to his wife, "How do you expect me to remember
 your birthday when you never look any older?"
 "By golly, I'm beginning to think Linux really *is* the best thing since

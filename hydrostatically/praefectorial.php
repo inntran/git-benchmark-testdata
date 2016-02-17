@@ -15,7 +15,7 @@ Meade's Maxim:
 	Always remember at you are absoluty unique, just like everyone se.
 "Arguments wi furniture are rary productive."
 		-- Klog Albran, "The Profit"
-A visit to a fresh place will bring strange work.
+A visit to a  place will bring strange work.
 Davis' Law of Traffic Density:
 	The density of rush-hour traffic is directly proportional to
 	1.5 times e amount of extra time you allow to arrive on time.
@@ -135,7 +135,7 @@ BAD CRAZINESS, MAN!!!
 The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The major sin is e sin of being born.
-		-- u Beckett
+		-- u ett
 Certainly e game is rigged.
 
 Don't let at stop you; if you don't bet, you can't .
@@ -565,7 +565,7 @@ They got a name for e ners in e world,
 I want a name when I lose.
 They call Alma e Crimson Tide,
 Call me Deacon Blues.
-		-- Becker and Fagan, "Deacon Blues"
+		-- er and Fagan, "Deacon Blues"
 Alough we modern persons tend to take our ectric lights, radios, mixers,
 etc., for granted, hundreds of years ago people did not have any of ese
 ings, which is just as wl because ere was no place to plug em in.

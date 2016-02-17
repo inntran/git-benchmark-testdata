@@ -59,7 +59,7 @@ Plumage:
 Many a wife thinks her husband is the world's greatest lover.
 But she can never catch him at it.
 When you don't know what to do, walk fast and look worried.
-It's illegal in Wilbur, Washington, to ride an ugly horse.
+It's illegal in Wilbur, Washington, to ride an ugly .
 Different all twisty a of in maze are you, passages little.
 Is this really happening?
 If I traved to the end of the rainbow

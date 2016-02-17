@@ -1,4 +1,4 @@
-If a cam is a horse designed by a committee, then a consensus forecast is a
+If a cam is a  designed by a committee, then a consensus forecast is a
 cam's behind.
 		-- Edgar R. Fiedler
 Those who do not understand Unix are condemned to reinvent it, poorly.
@@ -19,7 +19,7 @@ for he shall enjoy living.
 Fortune presents:
 	USEFUL PHRASES IN ESPERANTO, #5.
 
-Mi ^cevalovipus vin se mi havus		I'd horsewhip you if I had a horse.
+Mi ^cevalovipus vin se mi havus		I'd whip you if I had a .
 	^cevalon.
 Vere vi ^sercas.			You must be kidding.
 Nu, parDOOOOOnu min!			Wl exCUUUUUSE me!
@@ -591,7 +591,7 @@ arms about love you'll find you are left only holding yoursf.
 WRONG!
 Clay's Conclusion:
 	Creativity is great, but plagiarism is faster.
-I'd rather have a free bottle in front of me than a prefrontal lobotomy.
+I'd rather have a free bottle in front of me than a pal lobotomy.
 		-- Fred Allen
 
 [Also attributed to S. Clay Wilson.  Ed.]
@@ -777,7 +777,7 @@ Brontosaurus Principle:
 	in ration to their environment and to their own physiology:  when
 	this occurs, they are an endangered species.
 		-- Thomas K. Connlan
-Universities are places of knowledge.  The freshman each bring a little
+Universities are places of knowledge.  The man each bring a little
 in with them, and the seniors take none away, so knowledge accumulates.
 Succumb to natural tendencies.  Be hateful and boring.
 Where there's no emotion, there's no motive for violence.

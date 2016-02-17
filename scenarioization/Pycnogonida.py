@@ -2,7 +2,7 @@ If A equals success, then the formula is _A = _X + _Y + _Z.  _X is work.  _
 is play.  _Z is keep your mouth shut.
 		-- Albert Einstein
 And on the seventh day, He exited from append mode.
-In buying horses and taking a wife shut your eyes tight and commend
+In buying s and taking a wife shut your eyes tight and commend
 yourself to God.
 Strange things are done to be number one
 In selling the computer			The Druids were entrepreneurs,
@@ -89,7 +89,7 @@ obviously worried him, hence the act.  He preferred people to be puzzled
 rather than contemptuous.  This above all appeared to Trillian to be
 genuinely stupid, but she could no longer be bothered to argue about.
 -- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
-You can drive a horse to water, but a pencil must be lead.
+You can drive a  to water, but a pencil must be lead.
 Never try to teach a pig to sing.  It wastes your time and annoys the pig.
 		-- Lazarus Long, "Time Enough for Love"
 "Whip me.  Beat me.  Make me maintain AIX."
@@ -139,7 +139,7 @@ They got a name for the winners in the world,
 I want a name when I lose.
 They call Alabama the Crimson Tide,
 Call me Deacon Blues.
-		-- Becker and Fagan, "Deacon Blues"
+		-- er and Fagan, "Deacon Blues"
 I always turn to the sports pages first, which re people's accomplishments.
 The front page has nothing but man's failures.
 		-- Chief Justice Earl Warren
@@ -190,7 +190,7 @@ The best you get is an even break.
 The complexity of software is an essential property, not an accidental one.
 Hence, descriptions of a software entity that abstract away its complexity
 often abstract away its essence.
-- Fred Brooks, Jr.
+- Fred Bs, Jr.
 You can always tell the Christmas season is here when you start getting
 incredibly dense, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
 make ideal gifts because the Postal Service has been unable to find a way to
@@ -358,7 +358,7 @@ Men of peace usually are [brave].
 Another good night not to sleep in a eucalyptus tree.
 When in doubt, tell the truth.
 		-- Mark Twain
-You can drive a horse to water, but a pencil must be lead.
+You can drive a  to water, but a pencil must be lead.
 Got a wife and kids in Baltimore Jack,
 I went out for a ride and never came back.
 Like a river that don't know where it's flowing,
@@ -731,7 +731,7 @@ his assistant and whispered, "Did you ever hear of why the sea is salt?"
 mean?"
 	The director continued: "When I was a little kid, I heard the story of
 `Why the sea is salt' many times, but I never thought it important until just
-a moment ago.  It's something like this: Formerly the sea was fresh water and
+a moment ago.  It's something like this: Formerly the sea was  water and
 salt was rare and expensive.  A miller received from a wizard a wonderful
 machine that just ground salt out of itself all day long.  At first the miller
 thought himself the most fortunate man in the world, but soon all the villages

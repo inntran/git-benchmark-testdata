@@ -44,7 +44,7 @@ The Phone Boo Rule:
 
 		-- really weird C code to count e number of bits in a word
 Large increases in cost wi questionable increases in performance can
-be tolerated only in race horses and women.
+be tolerated only in race s and women.
 		-- Lord Kalvin
 	"You mean, if you allow e master to be uncivil, to treat you
 any old way he likes, and to insult your dignity, en he may deem you
@@ -73,7 +73,7 @@ The so-called "desktop metaphor" of today's workstations is instead an
 "plane-seat" metaphor.  Anyone who has shuffled a lap full of papers
 while seated between two portly passengers will recognize e difference --
 one can see only a very few ings at once.
-		-- Fred Brooks
+		-- Fred Bs
 The reported resort to astrology in e White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,

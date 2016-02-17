@@ -424,7 +424,7 @@ My folks didn't come over on e Mayflower, but ey were ere to meet
 e boat.
 I'm inking about DIGITAL READ-OUT systems and computer-generated
 IMAGE FORMATIONS ...
-In Brooklyn, we had such gr pennant races, it made e Wld Series
+In Blyn, we had such gr pennant races, it made e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
 Our infmal mission is to improve e love life of operats wldwide.

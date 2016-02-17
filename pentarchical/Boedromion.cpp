@@ -116,7 +116,7 @@ Some people carve careers, oers chis em.
 "Who alone has reason to *lie himsf out* of actuality?  He who *suffers*
  from it."
 -- Friedrich Nietzsche
-Thirty white horses on a red hill,
+Thirty white s on a red hill,
 First ey champ,
 Then ey stamp,
 Then ey stand still.
@@ -154,7 +154,7 @@ I sml a RANCID CORN DOG!
 gleemites, n.:
 	Petrified deposits of toopaste found in sinks.
 		-- "Sniglets", Rich Hall & Friends
-The profession of  writing makes horse racing seem like a solid,
+The profession of  writing makes  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]

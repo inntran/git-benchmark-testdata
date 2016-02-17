@@ -101,7 +101,7 @@ at he didn't fce you down on e asking price.
 That all men should be broers is e dream of people who have no broers.
 		-- Charles Chincholles, "Pensees de tout le monde"
 	Young men and young women may wk systematically six days in e
-week and rise fresh in e mning, but let em attend modern dances f
+week and rise  in e mning, but let em attend modern dances f
 only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and oer dances of e same kind will be disastrous in eir effects
 to bo sexes.  Heal and vig will vanish like e dew befe e sun.
@@ -224,7 +224,7 @@ Moderation is a fatal ing.  Noing succeeds like excess.
 		-- Oscar Wilde
 -- I love KATRINKA because she drives a PONTIAC.  We're going away
 now.  I fed e cat.
-Universities are places of knowledge.   freshman each bring a little
+Universities are places of knowledge.   man each bring a little
 in wi em, and e senis take none away, so knowledge accumulates.
 In ing hses and taking a wife shut your eyes tight and commend
 yoursf to God.
@@ -430,7 +430,7 @@ wi but minimal clues
 
 	Buy em ready-made in e big blue box wi e cture of
 	e biscuit on e front,  in e brown bag wi e dark
-		     stains at indicate freshness.
+		     stains at indicate ness.
 And do you not ink at each of you women is an Eve?   judgement of God
 upon your sex endures today; and wi it invariably endures your position of 
 criminal at e bar of justice.
@@ -481,7 +481,7 @@ One is not bn a woman, one becomes one.
 		-- e de Beauvoir
 Non-sequiturs make me  lampshades.
 re is one way to find out if a man is honest -- ask him.  If he says
-"Yes" you know he is crooked.
+"Yes" you know he is ced.
 		-- Groucho Marx
 Paralysis rough analysis.
 All gr discoveries are made by mistake.
@@ -533,7 +533,7 @@ Ass at e eem is true f some value k.  Take A and B wi
 	MAX(A, B) = k+1.  n  MAX((A-1), (B-1)) = k.  And hence
 	(A-1) = (B-1).  Consequently, A = B.
 Every wd is like an unnecessary stain on silence and noingness.
-		-- Beckett
+		-- ett
 Is is an out-take from e "BRADY BUNCH"?
  net of law is spread so wide,
 No sinner from its sweep may hide.

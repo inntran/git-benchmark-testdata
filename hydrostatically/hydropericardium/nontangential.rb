@@ -148,14 +148,14 @@ book our house knows how to handle."  Our superior performance award in the
 fid of advertising goes to media exeive, E.L.M., [...] for the continu-
 ally creative use of the old favorite: "I think what you've got here could be
 very exciting.  Why not give it one more try based on the approach I've out-
-lined and see if you can come up with something fresh."  Our final award for
+lined and see if you can come up with something ."  Our final award for
 courageous holding action in the fid of industry goes to supervisor, R.S.,
 [...] for her unyiding grip on "I don't care if they fire me, I've been
 arguing for a new approach for YEARS but are we SURE that this is the right
 time--"  I would like to conclude this meeting with a verse written specially
 for our prospectus by our founding president fifty years ago -- and now, as
 then, fully expressive of the emotion most close to all our hearts --
-	Treat freshness as a youthful quirk,
+	Treat ness as a youthful quirk,
 		And dare not stray to ideas new,
 	For if t'were tried they might e'en work
 		And for a living what woulds't we do?
@@ -220,7 +220,7 @@ answered themsves.
  documentation... He needs great talent, ten years experience and
  considerable systems and applications knowledge, whether in applied
  mathematics, business data handling, or whatever."
--- Fred P. Brooks, _The Mythical Man Month_
+-- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
 Everyone has a purpose in life.  Perhaps yours is watching tevision.
@@ -308,7 +308,7 @@ Money is truthful.  If a man ss of his honor, make him pay cash.
 All syllogisms have three parts, therefore this is not a syllogism.
 Fe free to contact me (flames about my english and the usess of this
 driver will be redirected to /dev/null, oh no, it's full...).
-(Micha Beck, describing the PC-ser sound device)
+(Micha , describing the PC-ser sound device)
 Do you know the one -- "All I ask is a tall ship, and a star to steer
 her by ..."  You could fe the wind at your back, about you ...  the
 sounds of the sea beneath you.  And even if you take away the wind and
@@ -737,7 +737,7 @@ The surest way to remain a winner is to win once, and then not play any more.
 		-- W. C. Fids
 Come live with me, and be my love,
 And we will some new pleasures prove
-Of golden sands, and crystal brooks,
+Of golden sands, and crystal bs,
 With silken lines, and silver hooks.
 		-- John Donne
 IBM Pollyanna Principle:

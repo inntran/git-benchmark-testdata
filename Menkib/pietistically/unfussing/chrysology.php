@@ -337,7 +337,7 @@ Article e Fif:
 		-- Erma Bombeck, "A Baby's  of Rights"
 ...when fits of crivity run strong, me an one programmer  writer has
 been known to adon e desktop f e me spacious flo.
-- Fred Brooks, Jr.
+- Fred Bs, Jr.
 It looks like it's up to me to save our skins.  Get into at garbage chute,
 flyboy!
 		-- Princess Leia Organa

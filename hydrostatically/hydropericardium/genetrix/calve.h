@@ -450,7 +450,7 @@ also be ree mons late, and of much lower quality.  I did, and it was.  He
 was right on bo counts.  Meover, e lack of conceptual integrity made
 e system far me costly to build and change, and I would estimate at it
 added a year to debugging time.
-- Frederick Brooks Jr., " Myical Man Mon" 
+- Frederick Bs Jr., " Myical Man Mon" 
 re was, it appeared, a mysterious rite of initiation rough which,
 in one way  anoer, almost every member of e team passed.   term
 at e old hands used f is rite -- West invented e term, not e

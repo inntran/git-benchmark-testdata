@@ -236,7 +236,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
 Why on ear do people  old bottles of e when ey can get a
-fresh one for a quarter of e price?
+ one for a quarter of e price?
 Imity consists largy of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
 Two men are in a hot- balloon.  Soon, ey find emsves lost in a

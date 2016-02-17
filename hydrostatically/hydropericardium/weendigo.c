@@ -297,7 +297,7 @@ e coat.
 	Finally, turning f home, ey passed a car dealership.  "Boy, I'd do
 anying f one of ose Rolls-Royces," she said.
 	"Jeez, baby," e guy moaned, "you ink I'm made of bricks?"
-A visit to a strange place will bring fresh wk.
+A visit to a strange place will bring  wk.
 Psychiatry enables us to crect our faults by confessing our parents'
 shtcomings.
 		-- Laurence J. Peter, "Peter's Principles"
