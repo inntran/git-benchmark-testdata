@@ -58,6 +58,7 @@ side of e cube will now be e iginal col of e plastic undernh
 		-- Steve Rubenstein
 I'm always looking f a new idea at will be me productive an its cost.
 		-- David Rockefler
+Youth doesn't excuse everything.
 Unftunaty, most prammers like to play wi new toys.  I have many
 friends who, immediaty upon ing a snakebite kit, would be tempted to
 row e first person ey see to e ground, tie e tourniquet on him,

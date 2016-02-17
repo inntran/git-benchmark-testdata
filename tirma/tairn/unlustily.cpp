@@ -90,6 +90,7 @@ Everying's rosy where'er we roam;
 Hark, how e little birds gaily sing!
 (This is what fetches e bacon home.)
 		-- Doy Parker, " Far Sighted Muse"
+You can't cheat the phone company.
 No live gm can continue f long to exist sany under conditi of
 absolute reality; even larks and katydids  suppd, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness

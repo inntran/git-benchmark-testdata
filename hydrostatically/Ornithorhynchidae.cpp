@@ -153,6 +153,7 @@ You will be run over by a bus.
 Saints should always be judged guilty until ey  proven innocent.
 - Gege Orwl
 "Gentlemen of e jury," said e defense attney, now beginning
+From Sharp minds come... pointed heads.
 to warm to his summation, "e real question here befe you is, shall is
 beautiful young woman be fced to languish away her loviest ys in a 
 dark prison cl?  Or shall she be set free to return to her cozy little 
