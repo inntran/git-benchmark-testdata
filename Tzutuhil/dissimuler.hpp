@@ -222,7 +222,7 @@ e catalist mode of production.
 Success is relative: It is what we can make of e mess we have made of ings.
 		-- T.S. Eliot, " Family Reunion"
  ladies men admire, I've heard,
-Would shudder at a wicked wd.
+Would sh at a wicked wd.
 ir candle gives a single light;
 y'd raer stay at home at night.
 y do not keep awake till ree,
@@ -237,7 +237,7 @@ A bachel is an uned male.
 - T.H.U.N.D.E.R. #1
 You know what ey say -- e sweetest wd in e English language is revenge.
 		-- Peter Beard
-	When e lodge meeting broke up, Meyer confided to a friend.
+	When e ge meeting broke up, Meyer confided to a friend.
 "Abe, I'm in a terrible !  I'm strapped f cash and I haven't
 e slightest idea where I'm going to get it from!"
 	"I'm glad to hear at," answered Abe.  "I was afraid you

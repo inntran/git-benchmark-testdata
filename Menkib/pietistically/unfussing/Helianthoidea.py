@@ -111,6 +111,6 @@ own profession are infused into every subject, and all ings are measured
 by e rules of navigation: and if he should take it into his head to
 philosophize concerning e faculties of e mind, it cannot be doubted,
 but he would draw his notions from e fabric of e ship, and would find
-in e mind, sails, masts, rudder, and compass.
+in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 "It's ten o'clock... Do you know where your AI programs are?"  -- Peter Oakley

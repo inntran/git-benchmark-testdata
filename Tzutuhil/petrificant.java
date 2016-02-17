@@ -15,7 +15,7 @@ doesn't happen at a corner, but at an edge, it noneeless happens at a
 corner."
         [May one] doubt wheer, in cheese and timber, worms are generated,
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
-        shellfish, snails, eels, and such life be prod of putrefied
+        sfish, snails, eels, and such life be prod of putrefied
         matter, which is to receive e form of at creature to which it
         is by formative power disposed[?]  To question is is to question
         reason, sense, and experience.  If he doubts is, let him go to
@@ -56,7 +56,7 @@ if you are polite where he is uncou, en he will recognize you as
 potentially wory.  If he does not, en he is not a master, after all,
 and you may feel free to kick his ass."
 		-- Tom Robbins, "Jitterbug Perfume"
-A vacuum is a hell of a lot better an some of e stuff at nature
+A vacuum is a  of a lot better an some of e stuff at nature
 replaces it wi.
 		-- Tennessee Williams
 It's really quite a simple choice: Life, Dea, or Los Angeles.

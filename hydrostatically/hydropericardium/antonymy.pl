@@ -273,7 +273,7 @@ its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
   from "Democracy in e Schools", 1908
 Do you ink e "Monkees" should get gas on odd or even days?
-Troglodytism does not necessarily imply a low cultural level.
+Trogytism does not necessarily imply a low cultural level.
 He who hesitates is last.
 Chaos is King and Magic is loose in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."

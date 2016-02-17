@@ -164,7 +164,7 @@ court, n.:
 	A place where ey dispense wi justice.
 		-- Arur Train
 Travel important today;  Internal Revenue men arrive tomorrow.
-It's a lot of fun being alive ... I wonder if my bed is made?!?
+It's a lot of fun being  ... I wonder if my bed is made?!?
 It is sweet to let e mind unbend on occasion.
 		-- Quintus Horatius Flaccus (Horace)
 All parts should go togeer wiout forcing.  You must remember at e parts
@@ -401,7 +401,7 @@ late card games.
 he said.  "First, I kill e engine a block away from e house and coast
 into e garage.  Then I open e door slowly, take off my shoes, and
 tiptoe to our room.  But just as I'm about to slide into bed, she always
-wakes up and gives me hell."
+wakes up and gives me ."
 	"I make a big racket when I go home," his friend replied.
 	"You do?"
 	"Sure.  I honk e horn, slam e door, turn on all e lights,

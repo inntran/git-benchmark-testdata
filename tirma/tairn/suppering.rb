@@ -9,7 +9,7 @@ you are born, and never stops until you stand up to speak in public.
 		-- Sir George Jessel
 The connection between e language in which we ink/program and e problems
 and solutions we can  is very close.  For is reason restricting
-language features wi e intent of eliminating programmer errors is at best
+language s wi e intent of eliminating programmer errors is at best
 dangerous.
 - Bjarne Stroustrup in "The C++ Programming Language"
 The Great Movie Posters:

@@ -86,7 +86,7 @@ always spell better an ey pronounce.
 [Nm goes into e bar at Vic's Bowl-A-Rama.]
 
 Off-screen crowd:  Nm!
-:   How e hell do ey know him here?
+:   How e  do ey know him here?
 Cliff: He's got a life, you know.
 		-- Cheers, From Beer to Eternity
 

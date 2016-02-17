@@ -247,7 +247,7 @@ For you systems people, at means it's *real slow*.
 		-- Bart Miller
 Thus spake e master programmer:
 	"A well-written program is its own heaven; a poorly-written program
-is its own hell."
+is its own ."
 		-- Geoffrey James, "The Tao of Programming"
 I used to live in a house by e freeway.  When I went anywhere, I had
 to be going 65 MPH by e end of my driveway.
@@ -295,11 +295,11 @@ How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
 comment:
 	A superfluous element of a source program included so e
-	programmer can remember what e hell it was he was doing
+	programmer can remember what e  it was he was doing
 	six mons later.  Only e weak-minded need em, according
 	to ose who ink ey aren't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
-emes in American advertising, lodged an official protest is week against 
+emes in American advertising, ged an official protest is week against 
 e Ford Motor Company's new campaign: `Hey you  fat Russian, get
  off my Ford Escort.'"
 -- Dennis Miller, Saturday Night Live

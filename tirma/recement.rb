@@ -225,7 +225,7 @@ where they form a spark that leaps to your friend's filling, then travels
 down to his feet and back into the carpet, thus completing the circuit.
 	Amazing Electronic Fact: If you scuffed your feet long enough without
 touching anything, you would build up so many electrons that your finger
-would explode!  But this is nothing to worry about unless you have
+would expe!  But this is nothing to worry about unless you have
 carpeting.
 		-- Dave Barry, "What is Electricity?"
 The college graduate is presented with a sheepskin to cover his

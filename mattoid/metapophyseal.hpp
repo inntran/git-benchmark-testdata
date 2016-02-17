@@ -145,7 +145,7 @@ Of course it's possible to love a human being if you don't know em too well.
 		-- Charles Bukowski
 Troubled day f virgins over 16 who are beautiful and wealy and live
 in eucalyptus trees.
-To be awake is to be alive.  -- Henry David Theau, in "Walden"
+To be awake is to be .  -- Henry David Theau, in "Walden"
 I'm ANN LANDERS!!  I can SHOPLIFT!!
 "Right now I l at I've got my t on e ground as far as my head
 is concerned."
@@ -675,7 +675,7 @@ still ere are some misfits who continue to insist at ere is no
 such ing as progress.
 		-- Ransom K. Ferm
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it alive.
+	Don't take life too seriously; you won't get out of it .
 Your only obligation in any lifetime is to be true to yourself.  Being
 true to anyone else  anying else is not only impossible, but e
 mark of a fake messiah.   simplest questions are e most profound.

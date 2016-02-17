@@ -26,7 +26,7 @@ What makes him so good?			Those crazy little programs,
 An infallible method of conciliating a tiger is to allow oneself to be
 devoured.
 		-- Konrad Adenauer
-What the hell is it good for?
+What the  is it good for?
 		-- Robert Lloyd (engineer of the Advanced Computing Systems
 		   Division of IBM), to colleagues who insisted that the
 		   microprocessor was the wave of the future, c. 1968
@@ -428,16 +428,16 @@ Fortune suggests uses for YOUR favorite UNIX commands!
 
 Try:
 	ar t "God"
-	drink < bottle; opener			(Bourne Shell)
+	drink < bottle; opener			(Bourne S)
 	cat "food in tin cans"			(all but 4.[23]BSD)
-	Hey UNIX!  Got a match?			(V6 or C shell)
-	mkdir matter; cat > matter		(Bourne Shell)
+	Hey UNIX!  Got a match?			(V6 or C s)
+	mkdir matter; cat > matter		(Bourne S)
 	rm God
-	man: Why did you get a divorce?		(C shell)
+	man: Why did you get a divorce?		(C s)
 	date me					(anything up to 4.3BSD)
 	make "heads or tails of all this"
 	who is smart
-						(C shell)
+						(C s)
 	If I had a ) for every dollar of the national debt, what would I have?
 	sleep with me				(anything up to 4.3BSD)
 Nothing in progression can rest on its original plan.  We may as well think of
@@ -529,7 +529,7 @@ Bunker's Admonition:
 	You cannot buy beer; you can only rent it.
 Van Roy's Law:
 	An unbreakable toy is useful for breaking other toys.
-A diplomat is a person who can tell you to go to hell in such a way that you
+A diplomat is a person who can tell you to go to  in such a way that you
 actually look forward to the trip.
 		-- Caskie Stinnett, "Out of the Red"
 I like your SNOOPY POSTER!!

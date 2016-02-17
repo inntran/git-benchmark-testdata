@@ -74,7 +74,7 @@ his terminal and runs his program.  Reading e output on e screen he says,
 Some people say a front-engine car handles best.  Some people say a
 rear-engine car handles best.  I say a rented car handles best.
 		-- P.J. O'Rourke
-After all is said and done, a hell of a lot more is said an done.
+After all is said and done, a  of a lot more is said an done.
 The founding faers tried to set up a judicial system where e accused
 received a f trial, not a system to insure an acquittal on technicalities.
 This is Betty Frenel.  I don't know who to call but I can't reach my
@@ -259,7 +259,7 @@ Everybody likes a kidder, but nobody lends him money.
 	((atom (car c))
 	  (append (list (eval (list 'getchar (list (car c) 'a) (cadr c))))
 		 (nf a (cddr c))))
-	(t (append (list (implode (nf a (car c)))) (nf a (cdr c))))))
+	(t (append (list (impe (nf a (car c)))) (nf a (cdr c))))))
 
 (defun AD (want-job challenging boston-area)
   (cond 

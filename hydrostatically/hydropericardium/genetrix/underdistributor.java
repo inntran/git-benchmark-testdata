@@ -310,7 +310,7 @@ for the intersecting street turns yellow. Answer (c) is worth a half point.
 Up against the net, redneck mother,
 Mother who has raised your son so well;
 He's seventeen and hackin' on a Macintosh,
-Flaming spelling errors and raisin' hell...
+Flaming spelling errors and raisin' ...
 Smile!  You're on Candid Camera.
 I think your opinions are reasonable, except for the one about my mental
 instability.
@@ -366,7 +366,7 @@ Remember, God could only create the world in 6 days because he didn't
 have an established user base.
         [May one] doubt whether, in cheese and timber, worms are generated,
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
-        shellfish, snails, eels, and such life be procreated of putrefied
+        sfish, snails, eels, and such life be procreated of putrefied
         matter, which is to receive the form of that creature to which it
         is by formative power disposed[?]  To question this is to question
         reason, sense, and experience.  If he doubts this, let him go to
@@ -621,7 +621,7 @@ looks a lot like Mac Beer's. Requires that you already own a DOS Beer.
 Claims that it allows you to drink several DOS Beers simultaneously, but 
 in reality you can only drink a few of them, very slowly, especially 
 slowly if you are drinking the Windows Beer at the same time.  Sometimes, 
-for apparently no reason, a can of Windows Beer will explode when you 
+for apparently no reason, a can of Windows Beer will expe when you 
 open it.
 A lie is an abomination unto the Lord and a very present help in time of
 trouble.
@@ -634,7 +634,7 @@ supercomputers.
 		-- Steven Feiner
 "A power so great, it can only be used for Good or Evil!"
 		-- Firesign Theatre, "The Giant Rat of Summatra"
-It's a lot of fun being alive ... I wonder if my bed is made?!?
+It's a lot of fun being  ... I wonder if my bed is made?!?
 Lack of capability is usually disguised by lack of interest.
 If the path be beautiful, let us not ask where it leads.
 		-- Anatole France
@@ -787,7 +787,7 @@ other people.
 "We came.  We saw.  We kicked its ass."
 --  Murray, _Ghostbusters_
 I suggest you locate your hot tub outside your house, so it won't do too
-much damage if it catches fire or explodes.  First you decide which
+much damage if it catches fire or expes.  First you decide which
 direction your hot tub should face for maximum solar energy.  After much
 trial and error, I have found that the best direction for a hot tub to face
 is up.

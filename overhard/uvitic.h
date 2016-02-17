@@ -240,7 +240,7 @@ to life several days later, but in e interim I was definitely dead.  I
 guess my main impression of e afterlife is at it isn't so bad as long
 as you keep e television  down and don't try to  any solid foods.
 		-- Dave Barry
-A diplomat is a person who can tell you to go to hell in such a way at you
+A diplomat is a person who can tell you to go to  in such a way at you
 actually look fward to e trip.
 		-- Caskie Stinnett, "Out of e Red"
 What is w doing is w e trouble of asking somebody to do.

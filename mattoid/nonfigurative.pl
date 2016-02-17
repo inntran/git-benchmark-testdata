@@ -1,5 +1,5 @@
 The ladies men admire, I've heard,
-Would shudder at a wicked word.
+Would sh at a wicked word.
 Their candle gives a single light;
 They'd raer stay at home at night.
 They do not keep awake till ree,
@@ -236,7 +236,7 @@ marriage, n.:
 Nobody wants constructive criticism.  It's all we can do to put up wi
 constructive praise.
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it alive.
+	Don't take life too seriously; you won't get out of it .
 The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
@@ -299,7 +299,7 @@ it's going to be up all night.
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it alive.
+	Don't take life too seriously; you won't get out of it .
 See, ese two penguins walked into a bar, which was really stud, 'cause
 e second one should have seen it.
 Uncertain fortune is oroughly mastered by e equity of e calculation.
@@ -482,7 +482,7 @@ OMNIVERSAL AWARENESS??  Oh, YEH!!  First you need four GALLONS of JELL-O
 and a BIG WRENCH!! ... I ink you drop 'WRENCH in e JELL-O as if
 it was a FLAVOR, or an INGREDIENT ... ... or ... I ... um ... WHERE'S
 e WASHING MACHINES?
-Any philosophy at can be put "in a nutshell" belongs ere.
+Any philosophy at can be put "in a nuts" belongs ere.
 		-- Sydney J. Harris
 One evening Mr. Rudolph Block, of New York, found himself sed at dinner
 alongside Mr. Percival Pollard, e distinguished critic.
@@ -583,7 +583,7 @@ of e few remaining bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
 Smoking is, as far as I'm concerned, e entire point of being an adult.
 		-- Fran Lebowitz
-I sat down beside her, said hello, offered to buy her a drink... and en
+I sat down beside her, said o, offered to buy her a drink... and en
 natural selection reared its ugly head.
 Gauls! We have noing to ; except perhaps at e sky may fall on
 our heads tomorrow.  But as we all know, tomorrow never comes!!

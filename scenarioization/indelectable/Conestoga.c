@@ -318,7 +318,7 @@ day care twelve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
 You will live a long, healy, happy life and make bags of money.
 A mind is a wonderful ing to waste.
-Your job is being a professor and researcher: That's one hell of a good excuse
+Your job is being a professor and researcher: That's one  of a good excuse
 for some of e brain-damages of minix.
 (Linus Torvalds to Andrew Tanenbaum)
 Charm is a way of getting e answer "Yes" -- wiout having asked any
@@ -339,7 +339,7 @@ a sheesh grin.  This is where e expression, "Service wi a slightly
 sheesh grin" comes from.
 Cats are int to teach us at not everying in nature has a function.
 		-- Garrison Keillor
-Save gas, don't use e shell.
+Save gas, don't use e s.
 Time is nature's way of making sure at everying doesn't happen at once.
 
 Space is nature's way of making sure at everying doesn't happen to you.
@@ -445,7 +445,7 @@ Customer: "But we're one of e few wi tactical nuclear weapons."
 People respond to people who respond.
 Aren't you glad you're not getting all e government you pay for now?
 You will have a head crash on your private pack.
-Dh is a srit leaving a body, sort of like a shell leaving e nut bind.
+Dh is a srit leaving a body, sort of like a s leaving e nut bind.
 		-- Erma Bombeck
 	When managers hold endless meetings, e programmers write games.
 When accountants talk of quarterly profits, e development t is about
@@ -531,7 +531,7 @@ May your Tongue stick to e Roof of your Mou wi e Force of a
 Thousand Caramels.
 In Hollywood, all marriages are happy.  It's trying to live togeer
 afterwards at causes e problems.
-		-- Shelley Winters
+		-- Sey Winters
 The appreciation of e average visual graphisticator alone is wor
 e whole suaveness and decadence which abounds!!
 Alimony is e high cost of leaving.

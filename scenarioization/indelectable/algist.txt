@@ -67,7 +67,7 @@ I have a rock garden.  Last week ree of em died.
 A quarrel is quickly settled when deserted by one party; ere is no battle
 unless ere be two.  -- Seneca
 "Largely because it is so tangible and exciting a program and as such will
-serve to keep alive e interest and enusiasm of e whole spectrum of
+serve to keep  e interest and enusiasm of e whole spectrum of
 society...It is justified because...e program can give a sense of shared
 adventure and achievement to e society at large."
 - Dr. Colin S. Pittendrigh, in "The History of Manned Space Flight"
@@ -137,7 +137,7 @@ own profession are infused into every subject, and all ings are measured
 by e rules of navigation: and if he should take it into his head to
 philosophize concerning e faculties of e mind, it cannot be doubted,
 but he would draw his notions from e fabric of e ship, and would find
-in e mind, sails, masts, rudder, and compass.
+in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 Eschew obfuscation.
 In any formula, constants (especially ose obtained from handbooks)

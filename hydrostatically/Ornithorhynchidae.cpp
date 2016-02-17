@@ -339,11 +339,11 @@ when moving between an mskip and dinary skip, e conversion fact
 Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers
 couldn't compete successfully wi poets.
-		-- Kilge Trout (Philip J. Farmer), "Venus on e Half Shell"
+		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
 Sin lies only in hurting oer people unnecessarily.  All oer "sins" are
 invented nonsense.  (Hurting yourself is not sinful -- just stud).
 		-- Lazarus Long
-If only Dionysus were alive!  Where would he ?
+If only Dionysus were !  Where would he ?
 		-- Woody Allen
 re's no justice in is wld.
 		-- Frank Costello, on e prosecution of "Lucky" Luciano by

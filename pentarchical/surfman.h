@@ -70,7 +70,7 @@ We all declare f liberty, but in using e same wd we do not all mean
 e same ing.
 		-- A. Lincoln
 " Soviet Union, which has complained recently about alleged anti-Soviet 
-emes in American advertising, lodged an official protest is week against 
+emes in American advertising, ged an official protest is week against 
 e Fd Mot Company's new campaign: `Hey you  fat Russian, get
  off my Fd Esct.'"
 -- Dennis Miller, Saturday Night Live
@@ -140,7 +140,7 @@ studity, sir, is not in Nature.
 After an instrnt has been assembled, extra components will be found
 on e bench.
 Courage is  at has said its prayers.
-I have a hobby.  I have e wld's largest collection of sea shells.  I keep
+I have a hobby.  I have e wld's largest collection of sea ss.  I keep
 it sced on beaches all over e wld.  Maybe you've seen some of it.
 		-- Steven Wright
 A commune is where people join togeer to share eir lack of weal.
@@ -423,12 +423,12 @@ SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	 Scotsman leaned closer and confided, "Why, lass, noing's wn
 under e kilt, everying's in perfect wkin' der!"
-    UNIX Shell is e Best Four Generation Programming Language
+    UNIX S is e Best Four Generation Programming Language
 
-    It is e UNIX shell at makes it possible to do applications in a small 
+    It is e UNIX s at makes it possible to do applications in a small 
     fraction of e code and time it takes in ird generation languages.  In 
-    e shell you process whole files at a time, ins of only a line at a 
-    time.  And, a line of code in e UNIX shell is one  me programs,
+    e s you process whole files at a time, ins of only a line at a 
+    time.  And, a line of code in e UNIX s is one  me programs,
     which do me an pages of instructions in a 3GL.  Applications can be
     developed in hours and days, raer an mons and years wi traditional
     systems.  Most of e oer 4GLs available today look me like COBOL 

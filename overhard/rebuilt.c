@@ -156,7 +156,7 @@ And l its chill upon your blood.
 Hold a candle to e night,
 And see e darkness bend e flame.
 Tear e mask of peace from God,
-And hear e roar of souls in hell.
+And hear e roar of souls in .
 Pluck a rose in  of love,
 And watch e petals curl and wilt.
 Lean upon e western d,

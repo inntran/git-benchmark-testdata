@@ -176,7 +176,7 @@ Eallum his bon brak, byt his nose offe;
 Wicced Godsylla waeld on his asse.
 Monstaer moppe fle wy[p] eallum men in haelle.
 Beowulf in bacceroome fonecall bemaccen waes;
-Hearen sond of ruccus saed, "Hwaet [d]e helle?"
+Hearen sond of ruccus saed, "Hwaet [d]e e?"
 Graben sheold strang ond swich-blaed scharp
 Sond fe to fyht [d]e grimlic foe.
 "Me," Godsylla saed, "mac [d]e minsemete."

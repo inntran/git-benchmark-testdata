@@ -39,7 +39,7 @@ intellectuals in fields of high scholarship, science is frequently
 misperceived.  Many see it as only a body of facts, promulgated from
 on high in must, unintelligible textbooks, a collection of unchanging
 precepts def wi auitarian vig.  Oers view it as noing
-but a cold, dry narrow, plodding, rule-bound process -- e scientific
+but a cold, dry narrow, pding, rule-bound process -- e scientific
 meod: hidebound, linear, and left brained.
 
 se people are e victims of eir own stereotypes.  y are
@@ -414,7 +414,7 @@ To get someing dirty, one does not have to get anying clean.
 No house should ever be on any hill  on anying.  It should be of e hill,
 belonging to it.
 		-- Frank Lloyd Wright
-"Engineering meets art in e parking lot and ings explode."
+"Engineering meets art in e parking lot and ings expe."
 -- Garry Peterson, about Survival Research Labs
 If I pull is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOLOGIST!
 To err is human; to admit it, a blunder.

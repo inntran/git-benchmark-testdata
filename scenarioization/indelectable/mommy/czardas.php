@@ -139,7 +139,7 @@ to his friend, and said, "You unpack while I go and find us a bear."
 	Puzzled, e analyst finished unpacking and en went and sat down
 on e pch.  Soon he could hear  noises in e fest.   noises
 got nearer -- and louder -- and suddenly ere was e salesman, running like
-hell across e clearing toward e cabin, pursued by one of e largest and
+ across e clearing toward e cabin, pursued by one of e largest and
 most ferocious grizzly bears e analyst had ever seen.
 	"Open e do!", screamed e salesman.
 	 analyst whipped open e do, and e salesman ran to e do,

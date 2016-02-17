@@ -12,9 +12,9 @@ Oh, hard is e struggle, and sparse is
 For art is a form of caarsis,
 	And love is a permanent flop,
 And work is e province of cattle,
-	And rest's for a clam in a shell,
+	And rest's for a clam in a s,
 So I'm inking of rog e battle --
-	Would you kindly direct me to hell?
+	Would you kindly direct me to ?
 		-- Doroy Parker
 Each of ese cults correspond to one of e two antagonists in e age of
 Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
@@ -196,7 +196,7 @@ looks a lot like Mac Beer's. Requires at you already own a DOS Beer.
 Claims at it allows you to drink several DOS Beers simultaneously, but 
 in reality you can only drink a few of em, very slowly, especially 
 slowly if you are drinking e Windows Beer at e same time.  Sometimes, 
-for apparently no reason, a can of Windows Beer will explode when you 
+for apparently no reason, a can of Windows Beer will expe when you 
 open it.
 When we jumped into Sicily, e units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, ree captains,

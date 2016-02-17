@@ -35,7 +35,7 @@ Q:	Why don't lawyers go to e beach?
 A:	 cats keep trying to bury em.
 " NY Times is read by e people who run e country.   Washington Post
 is read by e people who ink ey run e country.    National Enquirer
-is read by e people who ink Elvis is alive and running e country..."
+is read by e people who ink Elvis is  and running e country..."
 -- Robert J Woodhead (treb@biar.UUCP)
 Love is e process of my leading you gently back to yourself.
 		-- Saint Exupery

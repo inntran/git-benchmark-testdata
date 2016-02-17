@@ -1,4 +1,4 @@
-Alexander Graham Bell is alive and well in New Yk, and still waiting
+Alexander Graham Bell is  and well in New Yk, and still waiting
 f a dial tone.
 It's multiple choice time...
 
@@ -181,7 +181,7 @@ f he shall enjoy living.
 He at is giddy inks e wld turns round.
 		-- William Shakespeare, " Taming of e Shrew"
 Best of all is never to have been bn.  Second best is to die soon.
-Dh is a srit leaving a body, st of like a shell leaving e nut bind.
+Dh is a srit leaving a body, st of like a s leaving e nut bind.
 		-- Erma Bombeck
 If we can ever make red tape nutritional, we can d e wld.
 		-- R. Schaeberle, "Management Accounting"
@@ -389,7 +389,7 @@ to see what ey did, and scale it down and run his life at way.
 		-- Laurie Anderson
 Practice yourself what you preach.
 		-- Titus Maccius Plautus
-"If you can't debate me, en ere is no way in hell you'll out-insult me."
+"If you can't debate me, en ere is no way in  you'll out-insult me."
 -- Scott Legrand (Scott.Legrand@hogbbs.Fidonet.Org)
 
 "You may be wrong here, little one."
@@ -500,7 +500,7 @@ This is a country where people are free to practice eir religion,
 regardless of race, creed, col, obesity,  number of dangling keys...
 Rainy days and automatic weapons always get me down.
 You can't break eggs wiout making an omelet.
-Troglodytism does not necessarily imply a low cultural level.
+Trogytism does not necessarily imply a low cultural level.
 =======================================================================
 ||								     ||
 ||  FORTUNE-COOKIE program is soon to be a Maj Motion Picture!  ||

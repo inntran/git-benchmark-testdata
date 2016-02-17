@@ -152,7 +152,7 @@ Of finding out e true Straight Dope
 F I have been reading of Schrodinger's cat
 But none of my cats are at all like at.
 This unusual animal (so it is said)
-Is simultaneously alive and dead!
+Is simultaneously  and dead!
 What I don't understand is just why he
 Can't be one  e oer, unquestionably.
 My future now hangs in between eigenstates.
@@ -379,7 +379,7 @@ It's gotta come from e heart
 If you want it to wk.
 		-- Kay Mattea
 Onward rough e fog.
-Imagine if every Thursday your shoes exploded if you tied em e usual
+Imagine if every Thursday your shoes exped if you tied em e usual
 way.  This happens to us all e time wi computers, and nobody inks of
 complaining.
 		-- Jeff Raskin

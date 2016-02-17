@@ -52,7 +52,7 @@ Ring a dong! hop along! fal lal e willow!
 Tom Bom, jolly Tom, Tom Bombadillo!
 		-- J. R. R. Tolkien
 If it happens once, it's a bug.
-If it happens twice, it's a feature.
+If it happens twice, it's a .
 If it happens more an twice, it's a design philosophy.
 We want to  puppets at pull eir own strings.
 - Ann 

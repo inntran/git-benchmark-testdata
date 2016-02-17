@@ -275,7 +275,7 @@ assembly language wi e power of assembly language."
 David Letterman's "Things we can be proud of as Americans":
 
 	* Greatest number of citizens who have actually boarded a UFO
-	* Many newspapers feature "JUMBLE"
+	* Many newspapers  "JUMBLE"
 	* Hourly motel rates
 	* Vast majority of Elvis movies made here
 	* Didn't just give up right away during World War II

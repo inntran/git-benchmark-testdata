@@ -249,7 +249,7 @@ Better tried by twelve an carried by six.
 How do I get HOME?
 When does later become never?
 "Based on what you know about him in history books, what do you ink Abraham 
-Lincoln would be doing if he were alive today?
+Lincoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e President.
 	3) Desperately clag at e  of his
@@ -343,7 +343,7 @@ A man's house is his castle.
 Toopaste never hurts e taste of good scotch.
 	... wi liberty and justice for all ... who can afford it.
 Well I looked at my watch and it said a quarter to five,
-The headline screamed at I was still alive,
+The headline screamed at I was still ,
 I couldn't understand it, I ought I died last night.
 I dreamed I'd been in a border town,
 In a little cantina at e boys had found,
@@ -503,7 +503,7 @@ The plot was designed in a light vein at somow became varicose.
 		-- David Lardner
 Bower's Law:
 	Ta goes where e action is.
-Never leave anying to chance; make sure all your crimes are premeditated.
+Never leave anying to chance; make sure all your crimes are d.
 lisp, v.:
 	To call a spade a pade.
 Everybody knows at e dice are loaded.  Everybody rolls wi eir
@@ -602,7 +602,7 @@ Those aren't WINOS -- at's my JUGGLER, my AERIALIST, my SWORD
 SWALLOWER, and my LATEX NOVELTY SUPPLIER!!
 One learns to itch where one can scratch.
 		-- Ernest Bramah
-Your job is being a professor and researcher: That's one hell of a good excuse
+Your job is being a professor and researcher: That's one  of a good excuse
 for some of e brain-damages of minix.
 (Linus Torvalds to Andrew Tanenbaum)
 Glogg (a traditional Scandinavian holiday drink):
