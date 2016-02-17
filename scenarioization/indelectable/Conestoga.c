@@ -9,7 +9,7 @@ also  fure pictures of naked ladies.  This is because the female
 body is a beautiful work of art, while the male body is hy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
-One of your most ancient writers, a historian named Herodotus, tells of a
+One of your most ancient writers, a  named Herodotus, tells of a
 thief who was to be executed.  As he was taken away he made a bargain with
 the king: in one year he would teach the king's favorite horse to sing
 hymns.  The other prisoners watched the thief singing to the horse and

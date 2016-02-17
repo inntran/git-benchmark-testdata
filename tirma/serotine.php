@@ -45,7 +45,7 @@ XLIII:
 	Hardware wks best when it ms the least.
 XLIV:
 	Aircraft flight in the 21st century will always be in a westerly
-	direction, preferably supersonic, crossing time zones to provide the
+	direction, preferably , crossing time zones to provide the
 	additional hours needed to fix the broken electronics.
 XLV:
 	One should expect that the expected can be prevented, but the

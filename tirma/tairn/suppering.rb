@@ -474,7 +474,7 @@ In a display of perverse brilliance, Carl the repman mistakes a room
 humidifier for a mid-range computer but manages to tie it into the network
 anyway.
 		-- The 5th Wave
-	Grover Cleveland, though constantly at loggerheads with the
+	Grover Cleveland, though constantly at s with the
 Senate, got on better with the House of Representatives.  A popular
 story circulating during his presidency concerned the night he was
 roused by his wife crying, "Wake up!  I think there are burglars in the

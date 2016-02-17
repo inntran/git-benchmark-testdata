@@ -19,7 +19,7 @@ corner."
         matter, which is to receive the form of that creature to which it
         is by formative power disposed[?]  To question this is to question
         reason, sense, and experience.  If he doubts this, let him go to
-        Egypt, and there he will find the fields swarming with mice begot
+        Et, and there he will find the fields swarming with mice begot
         of the mud of the Nylus, to the great calamity of the inhabitants.
                 A seventeenth century opinion quoted by L. L. Woodruff,
                 in *The Evolution of Earth and Man*, 1929
