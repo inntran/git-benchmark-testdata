@@ -10,14 +10,14 @@ what it does.
 		-- Will Rogers
 Stay together, drag each other down.
 A total abstainer is one who abstains from everything but abstention,
-and especially from inactivity in the affairs of others.
+and especially from inactivity in the affs of others.
 		-- Ambrose Bierce, " Devil's Dictionary"
 X dows:
 	 ultimate bottleneck.
 	Flawed beyond belief.
 	 only thing you have to .
 	Somewhere between chaos and insanity.
-	On autopilot to oblivion.
+	On autop to oblivion.
 	 joke that kills.
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
@@ -72,7 +72,7 @@ If you are shooting under 80 you are neglecting your business;
 over 80 you are neglecting your golf.
 		-- Walter Hagen
 Fly Windows NT:
-All the passengers carry their ss out onto the tarmac, placing the chairs
+All the passengers carry their ss out onto the tarmac, placing the chs
 in the outline of a plane. y all sit down, f their arms and make jet
 swooshing sounds as if they are flying.
 A waist is a terrible thing to mind.

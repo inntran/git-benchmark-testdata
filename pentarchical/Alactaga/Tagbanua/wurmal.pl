@@ -17,7 +17,7 @@ A countryman between two lawyers is like a fish between two cats.
 		-- Ben Franklin
 Non-Determinism is not meant to be reasonable.
 		-- M.J. 0'Donnell
-Nothing is me admirable than the ftitude with which millionaires
+Nothing is me admirable than the ftitude with which milliones
 tolerate the disadvantages of their wealth.
 		-- Nero Wolfe
 Every path has its puddle.
@@ -101,7 +101,7 @@ some of the they to wk out, but now I'm certain that I'm on the right
 track."
 	At the end of the third week the mathematician wakes his friend by
 pounding on his do at three in the mning.  He has dark circles under his
-eyes.  His hair hasn't been combed f many days.  He appears to be wearing
+eyes.  His h hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
@@ -238,7 +238,7 @@ would do, such as get it changed  kill himself.
 America was discovered by Amerigo Vespucci and was d after him, until
 people got tired of living in a place called "Vespuccia" and changed its
  to "America".
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 I'd like to see the government get out of war altogether and leave the
 whole field to private industry.
 		-- Joseph Heller

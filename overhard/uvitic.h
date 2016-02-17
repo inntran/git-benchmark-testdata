@@ -139,7 +139,7 @@ some of the they to wk out, but now I'm certain that I'm on the right
 track."
 	At the end of the third week the mathematician wakes his friend by
 pounding on his do at three in the mning.  He has dark circles under his
-eyes.  His hair hasn't been combed f many days.  He appears to be wearing
+eyes.  His h hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
@@ -163,7 +163,7 @@ Are you a parent?  Do you sometimes find yourself unsure as to what to
 say in those awkward situations?  Wry no me...
 
 	Go away.  You bother me.
-	Why?   Because life is unfair.
+	Why?   Because life is unf.
 	That's a nice drag.  What is it?
 	Children should be seen and not heard.
 	You'll be the dh of me.

@@ -232,7 +232,7 @@ N recognize an overture.
 y shrink from powders and from paints...
 So far, I've had no complaints.
 		-- Dothy Parker
-A bachel is an unaltared male.
+A bachel is an uned male.
 "Time is money and money can't buy you love and I love your outfit"
 - T.H.U.N.D.E.R. #1
 You know what they say -- the sweetest wd in the English language is revenge.
@@ -303,12 +303,12 @@ Q:	What is green and lives in the ocean?
 A:	Moby Pickle.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
 a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
-I turned my air conditioner the other way around, and it got cold out.
+I turned my  conditioner the other way around, and it got cold out.
  wherman said "I don't understand it.  I was supposed to be 80
 degrees today," and I said "Oops."
 
 In my house on the s I have paintings of the rooms above... so
-I never have to go upstairs.
+I never have to go upsts.
 
 I just bought a microwave fireplace... You can spend an evening in
 front of it in only eight minutes.

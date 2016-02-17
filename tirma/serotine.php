@@ -223,7 +223,7 @@ Which still grates on
 Some people's n'oeuvres.
 		-- Warren Knox
 Heisenberg may have been here.
-Exercise caution in your daily affairs.
+Exercise caution in your daily affs.
 Wds must be weighed, not counted.
 Ill-chosen abstraction is particularly evident in the design of the ADA
 runtime system.  interface to the ADA runtime system is so opaque that
@@ -241,7 +241,7 @@ she said, "that one can't help grog older."
 proper assistance, you might have left off at seven."
 		-- Lewis Carroll, "Through the Looking-Glass"
 F if there is a sin against life, it consists perhaps not so much in
-despairing of life as in hoping f another life and in eluding the
+desping of life as in hoping f another life and in eluding the
 implacable grandeur of this life.
 		-- Albert Camus
 Children begin by loving their parents.  After a time they judge them.  Rarely,
@@ -377,7 +377,7 @@ staggers up to the do and s the head waiter.
 	"Water... can I get... water," the dying man manages to stammer.
 	"I'm sry, sir, ties required."
  moving curs writes, and having written, blinks on.
-If you stand on your head, you will get footprints in your hair.
+If you stand on your head, you will get footprints in your h.
 	"Sheriff, we gotta catch Black Bart."
 	"Oh, yeah?  What's he look like?"
 	"Well, he's wearin' a paper hat, a paper shirt, paper pants and

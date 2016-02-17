@@ -62,7 +62,7 @@ to connect to the sunsite computer at the wrong time.  ``No computer can
 handle that kind of stress,'' explained the mourning sunsite manager,
 Erik Troan.  `` spinning disks made the whole computer jump, and
 finally it crashed through the flo to the basement.''  Luckily,
-repairs were swift and the computer was wking again the same evening.
+reps were swift and the computer was wking again the same evening.
 ``Thank God we were able to buy enough needles and thread and patch it
 together without maj problems.''   site has also installed a new
 throttle on the netwk pipe, allog at most four clients at the same
@@ -73,12 +73,12 @@ Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
 If you took all the students that felt asleep in class and laid them end to
 end, they'd be a lot me comftable.
 		-- "Graffiti in the Big Ten"
-In 1962, you could buy a pair of SHARKSKIN SLACKS, with a "Continental
+In 1962, you could buy a p of SHARKSKIN SLACKS, with a "Continental
 Belt," f $10.99!!
  most delightful day after the one on which you buy a cottage in
 the country is the one on which you resell it.
 		-- J. Brecheux
-He who despairs over an event is a coward, but he who holds hopes f
+He who desps over an event is a coward, but he who holds hopes f
 the human condition is a fool.
 		-- Albert Camus
 Those who claim the dead never return to life haven't ever been around
@@ -102,7 +102,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs dow.
+man appeared out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."
@@ -154,7 +154,7 @@ a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But they didn't imply that you were to be impractical
 and refuse to take twice the value f a house if a buyer was such an idiot
 that he didn't fce you down on the asking price.
-		-- Sinclair Lewis, "Babbitt"
+		-- Sincl Lewis, "Babbitt"
 "A hrible little boy came up to me and said, `You know in your book
  Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
 talk about Deimos rising in the East?'  I said, `Yes?'  He said `No.'
@@ -174,7 +174,7 @@ Gold, n.:
 	is mined deep in the earth by po men who then give it to rich
 	men who immediately bury it back in the earth in gr prisons,
 	although gold hasn't done anything to them.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
  do is the key.
 Proposed Additions to the PDP-11 Instruction Set:
 
@@ -197,7 +197,7 @@ WBT	Water Binary Tree
 Wk is the curse of the drinking classes.
 		-- Mike Romanoff
 Should I start with the time I SWITCHED personalities with a BEATNIK
-hair stylist  my failure to refer five TEENAGERS to a good OCULIST?
+h stylist  my failure to refer five TEENAGERS to a good OCULIST?
 Karlson's em of Snack Food Packages:
 	F all P, where P is a package of snack food, P is a SINGLE-SERVING
 	package of snack food.
@@ -283,7 +283,7 @@ Well, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 What, after all, is a halo?  It's only one me thing to keep clean.
 		-- Christopher Fry
-I would like to electrocute everyone who uses the wd 'fair' in connection
+I would like to electrocute everyone who uses the wd 'f' in connection
 with income tax policies.
 		-- William F. Buckley
 You're being followed.  Cut out the hanky-panky f a few days.
@@ -347,7 +347,7 @@ collect..."
 Go on, EMOTE!  I was RAISED on thought balloons!!
 Men use thought only to justify their wrong doings, and speech only to
 conceal their thoughts.
-		-- Voltaire
+		-- Volte
  hater of proy and of government takes care to have his warranty
 deed recded, and the book written against fame and learning has the
 auth's  on the title page.

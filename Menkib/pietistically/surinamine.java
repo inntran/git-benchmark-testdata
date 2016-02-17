@@ -154,7 +154,7 @@ Remembering is f those who have fgotten.
 We were so po we couldn't affd a watchdog.  If we heard a noise at night,
 we'd bark ourselves.
 		-- Crazy Jimmy
-My haircut is totally traditional!
+My hcut is totally traditional!
 A long memy is the most  idea in America.
 I've never been canoeing befe, but I  there must be just a few
 simple heuristics you have to remember...
@@ -222,7 +222,7 @@ Obviously the only rational solution to your problem is suicide.
 -- Peter da Silva
 Like my parents, I have never been a r church member  churchgoer.
 It doesn't seem plausible to me that there is the kind of God who watches
-over human affairs, listens to prayers, and tries to guide people to follow
+over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- there is just too much misery and cruelty f that.  On the
 other hand, I respect and envy the people who get inspiration from their
 religions.
@@ -330,7 +330,7 @@ thing he tells you.
 (2) Nothing is always.
 (3) Everything is sometimes.
 Everybody is given the same amount of hmones, at birth, and
-if you want to use yours f grog hair, that's fine with me.
+if you want to use yours f grog h, that's fine with me.
 People's Action Rules:
 	(1) Some people who can, shouldn't.
 	(2) Some people who should, won't.

@@ -14,7 +14,7 @@ using ain't ain't eatin' well.
 		-- Will Rogers
 Leveraging always beats prototyping.
 There is nothing wrong with abstinence, in moderation.
-Loni Anderson's hair should be LEGALIZED!!
+Loni Anderson's h should be LEGALIZED!!
 It's not Camelot, but it's not Cleveland, either.
 		-- Kevin White, Mayor of Boston
 That, that is, is.

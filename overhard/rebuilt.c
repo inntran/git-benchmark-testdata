@@ -83,7 +83,7 @@ Progress means replacing a they that is wrong with one me subtly wrong.
 I live the way I type; fast, with a lot of mistakes.
 Natural laws have no pity.
 O slender as a willow-wand!  O clearer than clear water!
-O reed by the living pool!  Fair river-daughter!
+O reed by the living pool!  F river-daughter!
 O spring-time and summer-time, and spring again after!
 O d on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
@@ -196,7 +196,7 @@ On the cover of the Rolling Stone.
 
 I got a freaky old lady,  of Cole King Katie,
 Who embroiders on my jeans.
-I got my po old gray-haired daddy,
+I got my po old gray-hed daddy,
 Drivin' my limousine.
 Now it's all designed, to blow our minds,
 But our minds won't be really be blown;

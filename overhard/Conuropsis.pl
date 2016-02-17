@@ -31,7 +31,7 @@ That's what makes it a thing to be avoided.
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 How apt the poor are to be proud.
 		-- William Shakespeare, "Twelfth-Night"
-Will the third world war keep "Bosom Buddies" off the air?
+Will the third world war keep "Bosom Buddies" off the ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
 If you want me to be a good little bunny just dangle some carats in front
 of my nose.
@@ -101,7 +101,7 @@ some of the theory to work out, but now I'm certain that I'm on the right
 track."
 	At the end of the third week the mathematician wakes his friend by
 pounding on his door at three in the morning.  He has dark circles under his
-eyes.  His hair hasn't been combed for many days.  He appears to be wearing
+eyes.  His h hasn't been combed for many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
@@ -241,7 +241,7 @@ way he did.  In addition to paper and pens, he took with him everywhere as an
 indispensable article of equipment the coffee machine, which was no less
 important to him than his table or his white robe.
 		-- Stefan Zweigs, Biography of Balzac
-Do not meddle in the affairs of troff, for it is subtle and quick to anger.
+Do not meddle in the affs of troff, for it is subtle and quick to anger.
 The Tao doesn't take sides;
 it gives birth to both s and losses.
 The Guru doesn't take sides;
@@ -365,8 +365,8 @@ If everybody minded their own business, the world would go around a deal faster.
 		-- The Duchess, "Through the Looking Glass"
 If you don't go to other men's funerals they won't go to yours.
 		-- Clarence Day
-A priest advised Voltaire on his death bed to renounce the devil. 
-Replied Voltaire, "This is no time to make new enemies."
+A priest advised Volte on his death bed to renounce the devil. 
+Replied Volte, "This is no time to make new enemies."
 fortune: cannot execute.  Out of cookies.
 Politics and the fate of mankind are formed by men without ideals and without
 greatness.  Those who have greatness within them do not go in for politics.
@@ -437,7 +437,7 @@ Hint for the answer: not everything is computer-oriented. Sometimes you're
 in a sleeping bag, camping out.
 (Contributed by Frans van der Zande.)
 Moishe Margolies, who weighed all of 105 pounds and stood an even five feet
-in his socks, was taking his first airplane trip. He took a seat next to a
+in his socks, was taking his first plane trip. He took a seat next to a
 hulking bruiser of a man who happened to be the heavyweight champion of
 the world.  Little Moishe was uneasy enough before he even entered the plane,
 but now the roar of the engines and the great height absolutely terrified him.

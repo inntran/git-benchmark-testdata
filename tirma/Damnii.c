@@ -108,7 +108,7 @@ in a wide pool, deep and clear, far down Withydle;
 there they open first in spring and there they linger latest.
 
 By that pool long ago I found the River-daughter,
-fair young Goldberry sitting in the rushes.
+f young Goldberry sitting in the rushes.
 Sweet was her singing then, and her heart was bing!
 
 And that proved well for you--for now I shall no longer
@@ -135,7 +135,7 @@ as familiar wallpaper or instant friend.  The chemical action it entails is
 less worth analyzing than enjoying.  At any rate, these six pieces are about
 men with whom I felt an immediate sympat - to use a coining of Max Beerbohm's
 more satisfy to me than the opaque vogue word "empathy".
-		-- Alistair Cooke, "Six Men"
+		-- Alist Cooke, "Six Men"
 All the world's a VAX,
 And all the coders merely butchers;
 They have their exits and their entrails;
@@ -150,7 +150,7 @@ I'm a lucky guy, and I'm happy to be with the Yankees.  And I want to
 thank everyone for making this night necessary.
 		-- Yogi Berra at a dinner in his honor
 I think there's a world  for about five computers.
-		-- attr. Thomas J. Watson (Chairman of the Board, IBM), 1943
+		-- attr. Thomas J. Watson (Chman of the Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stupid, and sinful --
 but those are only handicaps.  Our pride is that nevertheless, now and
 then, we do our best.  A few times we succeed.  What more dare we ask for?
@@ -295,7 +295,7 @@ Staff meeting in the conference room in %d minutes.
 "I love Saturday morning cartoons, what classic humour!  This is what
 entertainment is all about ... Idiots, explosives and falling anvils."
 		-- Calvin and Hobbes, Bill Watterson
-Unfair animal names:
+Unf animal names:
 
 -- tsetse fly			-- bullhead
 -- booby			-- duck-billed platypus
@@ -489,7 +489,7 @@ Marriage, in life, is like a duel in the midst of a battle.
 Q:	Why do WASPs play golf ?
 A:	So they can dress like pimps.
 O slender as a willow-wand!  O clearer than clear water!
-O reed by the living pool!  Fair river-daughter!
+O reed by the living pool!  F river-daughter!
 O spring-time and summer-time, and spring again after!
 O d on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
@@ -565,7 +565,7 @@ Heaven from Hell?
 Blue skies from pain?			Did they get you to trade
 Can you tell a green field		Your heroes for ghosts?
 From a cold steel rail?			Hot ashes for trees?
-A smile from a veil?			Hot air for a cool breeze?
+A smile from a veil?			Hot  for a cool breeze?
 Do you think you can tell?		Cold comfort for change?
 					Did you exchange
 					A walk on part in a war
@@ -733,10 +733,10 @@ Why did you leave me here all alone?
 I searched the world over, and I thought I'd found true love.
 You met another, and *PPHHHLLLBBBBTTT*, you wuz gone.
 
-Gloom, despair and agony on me.
+Gloom, desp and agony on me.
 Deep dark depression, excessive misery.
 If it weren't for bad luck, I'd have no luck at all.
-Oh, gloom, despair and agony on me.
+Oh, gloom, desp and agony on me.
 		-- Hee Haw
 You definitely intend to start living sometime soon.
 "It is the crionists who blasphemously are claiming that God is ching
@@ -764,15 +764,15 @@ Why did you leave me here all alone?
 I searched the world over, and I thought I'd found true love.
 You met another, and *PPHHHLLLBBBBTTT*, you wuz gone.
 
-Gloom, despair and agony on me.
+Gloom, desp and agony on me.
 Deep dark depression, excessive misery.
 If it weren't for bad luck, I'd have no luck at all.
-Oh, gloom, despair and agony on me.
+Oh, gloom, desp and agony on me.
 		-- Hee Haw
 DEC diagnostics would run on a dead whale.
 		-- Mel Ferentz
 In Lowes Crossroads, Delaware, it is a violation of local law for any
-pilot or passenger to carry an ice cream cone in their pocket while
+p or passenger to carry an ice cream cone in their pocket while
 either flying or waiting to board a plane.
 It is better to give than to lend, and it costs about the same.
 San Francisco isn't what it used to be, and it never was.

@@ -12,7 +12,7 @@ God's Law (prov.  [Usenet]):
 	the existence of an upper bound on thread length in those groups.
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.
-		-- Charles Baudelaire
+		-- Charles Baudele
 Don't tell me what you dreamed last night f I've been reading Freud.
 What UNIVERSE is this, please??
 To be is to do.
@@ -69,7 +69,7 @@ shouldn't regret it too loudly lest we spoil the purity of the deed.
 		-- Tom Robbins
 When the saleman's car broke down, he walked to the nearest farmhouse to ask
 if he could stay the night.   farmer agreed to put him up.  "I live alone,"
-he continued, "you can have the bedroom at the top of the stairs, to the
+he continued, "you can have the bedroom at the top of the sts, to the
 right."
 	"Oh, never mind," the disappointed salesman said. "I think I'm in
 the wrong joke."

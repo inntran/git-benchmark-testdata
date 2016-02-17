@@ -95,7 +95,7 @@ If you can survive dh, you can probably survive anything.
 "And he didn't understand me."
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.
-		-- Charles Baudelaire
+		-- Charles Baudele
 Never reveal your best argnt.
 Save a little money each month and at the end of the year you'll be
 surprised at how little you have.
@@ -169,7 +169,7 @@ You'll just be walking down the street and...  Ooohh, that's much better.
 		-- Steven Wright
 Those who believe that they believe in God, but without passion in their
 hearts, without anguish in mind, without uncertainty, without doubt,
-without an element of despair even in their consolation, believe only
+without an element of desp even in their consolation, believe only
 in the God idea, not God Himself.
 - Miguel de Unamuno, Spanish philosopher and writer
  early wm gets the late bird.
@@ -186,7 +186,7 @@ publisher shot.
 		-- Siegfried Unseld
  idea that an arbitrary naive human should be able to properly use a given
 tool without training  understanding is even me wrong f computing than
-it is f other tools (e.g. automobiles, airplanes, guns, power saws).
+it is f other tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
  connection between the language in which we think/program and the problems
 and solutions we can  is very close.  F this reason ing
@@ -234,7 +234,7 @@ X dows:
 	Flawed beyond belief.
 	 only thing you have to .
 	Somewhere between chaos and insanity.
-	On autopilot to oblivion.
+	On autop to oblivion.
 	 joke that kills.
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
@@ -306,7 +306,7 @@ they do get 'em lowered down enough so people can affd to pay 'em.
 	Everthing is farther away than it used to be.  It is even twice as
 far to the cner and they have added a hill.  I have given up running f
 the bus; it leaves earlier than it used to.
-	It seems to me they are making the stairs steeper than in the old
+	It seems to me they are making the sts steeper than in the old
 days.  And have you noticed the smaller print they use in the newspapers?
 	re is no sense in asking anyone to read aloud anyme, as everbody
 speaks in such a low voice I can hardly hear them.
@@ -318,7 +318,7 @@ be when I was their age.  On  the other hand people my age are so much older
 than I am.
 	I ran into an old classmate the other day and she has aged so much
 that she didn't recognize me.
-	I got to thinking about the po dear while I was combing my hair
+	I got to thinking about the po dear while I was combing my h
 this mning and in so doing I gd at my own reflection.  Really now,
 they don't even make good mirrs like they used to.
 		Sandy Frazier, "I Have Noticed"
@@ -347,7 +347,7 @@ Ftune's Real-Life Courtroom Quote #37:
 Q:  Did he pick the dog up by the ears?
 A:  No.
 Q:  What was he doing with the dog's ears?
-A:  Picking them up in the air.
+A:  Picking them up in the .
 Q:  Where was the dog at this time?
 A:  Attached to the ears.
 Sushido, n.:
@@ -357,9 +357,9 @@ Sushido, n.:
  one day you'd sell your soul f something, souls are a glut.
 Just remember: when you go to court, you are trusting your fate to
 twelve people that weren't smart enough to get out of jury duty!
-Breast Feeding should not be attempted by fathers with hairy chests,
+Breast Feeding should not be attempted by fathers with hy chests,
 since they can make the baby  and give it d.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 F years a secret shame destroyed my peace--
 I'd not read Eliot, Auden  MacNiece.
 But now I think a thought that brings me hope:

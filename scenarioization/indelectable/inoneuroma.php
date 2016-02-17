@@ -344,7 +344,7 @@ I had no shoes and I pitied myself.  Then I met a man who had no feet,
 so I took his shoes.
 		-- Dave Barry
 The bone-chilling scream split the warm summer night in two, the first
-half being before the scream when it was fairly balmy and calm and
+half being before the scream when it was fly balmy and calm and
 pleasant, the second half still balmy and quite pleasant for those who
 hadn't heard the scream at all, but not calm or balmy or even very nice
 for those who did hear the scream, discounting the little period of time
@@ -368,9 +368,9 @@ XIII:
 	There are also many highly paid executives.  The policy is not to
 	intermingle the two.
 XIV:
-	After the year 2015, there will be no airplane crashes.  There will
+	After the year 2015, there will be no plane crashes.  There will
 	be no takeoffs either, because electronics will occupy 100 percent
-	of every airplane's weight.
+	of every plane's weight.
 XV:
 	The last 10 percent of performance generates one-third of the cost
 	and two-thirds of the problems.

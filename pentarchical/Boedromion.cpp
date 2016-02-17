@@ -133,7 +133,7 @@ If you can read this, you're too close.
 My opinions may have changed, but not the fact that I am right.
 Men's magazines  fure pictures of naked ladies.  Women's magazines
 also  fure pictures of naked ladies.  This is because the female
-body is a beautiful work of art, while the male body is hairy and lumpy and
+body is a beautiful work of art, while the male body is hy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 "As an adolescent I aspired to lasting fame, I craved factual certainty, and
@@ -215,7 +215,7 @@ for postage and 30 cents for storage.
 In matters of principle, stand like a rock;
 in matters of taste, swim with the current.
 		-- Thomas Jefferson
-In Columbia, Pennnia, it is against the law for a pilot to tickle
+In Columbia, Pennnia, it is against the law for a p to tickle
 a female flying student under her chin with a fher duster in order
 to get her attention.
 Save gas, don't  beans.
@@ -237,7 +237,7 @@ Ray's thinking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just then, Karen Carpenter walks in, sits down at the drums, and says:
 "'Close to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
-A career is gr, but you can't run your fingers through its hair.
+A career is gr, but you can't run your fingers through its h.
 You are a taxi driver.  Your cab is yellow and black, and has been in
 use for only seven years.  One of its dshield wipers is broken, and
 the carburetor needs adjusting.  The tank holds 20 gallons, but at the

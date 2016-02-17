@@ -7,8 +7,8 @@ Her loving husband's life to save;
 And men -- they honored so the dame --
 Upon some stars bestowed her name.
 
-But to our modern married fair,
-Who'd give their lords to save their hair,
+But to our modern married f,
+Who'd give their lords to save their h,
 No stellar recognition's given.
 There are not stars enough in heaven.
 I used to be a FUNDAMENTALIST, but then I heard about the HIGH
@@ -156,7 +156,7 @@ Could it be, when I was young,
 	Someone dropped me on my head?
 		-- Dorothy Parker, "Theory"
 Atlanta:
-	An entire city surrounded by an airport.
+	An entire city surrounded by an .
 A woman, especially if she have the misfortune of knog anything,
 should conceal it as well as she can.
 		-- Jane Austen
@@ -335,11 +335,11 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#5
 Trust:
 	The average woman would really like to be told if her mate is fooling
 around bind her back.  This same woman wouldn't tell her best friend if
-she knew the best friends' mate was having an affair.  She'll tell all her
+she knew the best friends' mate was having an aff.  She'll tell all her
 OTHER friends, however.  The average man won't say anything if he knows that
 one of his friend's mates is fooling around, and he'd rather not know if
-his mate is having an affair either, out of fear that it might be with one
-of his friends.  He will tell all his friends about his own affairs, though,
+his mate is having an aff either, out of fear that it might be with one
+of his friends.  He will tell all his friends about his own affs, though,
 so they can be ready if he needs an alibi.
 
 Driving:
@@ -412,7 +412,7 @@ stomp up to the bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
 she's asleep."
 Love thy neighbor as thyself, but choose your neighborhood.
 		-- Louise Beal
-An air of FRENCH FRIES permeates my nostrils!!
+An  of FRENCH FRIES permeates my nostrils!!
 	My dear People.
 	My dear Bagginses and Boffins, and my dear Tooks and Brandybucks,
 and Grubbs, and Cbs, and Burrowses, and Hornblowers, and Bolgers,
@@ -560,7 +560,7 @@ inspired by the subject of war.
 By contrast, Cheshire cheese provoked John Armstrong (1709-79):
 	"... that which Cestria sends, tenacious paste of solid milk..."
 While John Bidlake was guided by a compassion for vegetables:
-	"The sluggard carrot sleeps his day in bed,
+	"The sd carrot sleeps his day in bed,
 	The crippled pea alone that cannot stand."
 George Crabbe (1754-1832) wrote:
 	"And I was ask'd and authorized to go

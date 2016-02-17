@@ -254,7 +254,7 @@ they wouldn't be nobody git up and d the chickens.  Hee-hee.
  been deemed to be, surely it is in the interest of *honest* persons to know
  this fact, because the *dishonest* are tolerably certain to be the first to
  apply the knowledge practically; and the spread of knowledge is necessary to
- give fair play to those who might suffer by ignance.  It cannot be too ear-
+ give f play to those who might suffer by ignance.  It cannot be too ear-
  nestly urged, that an acquaintance with real facts will, in the end, be better
  f all parties."
 -- Charles Tomlinson's Rudimentary Trise on the Construction of Locks, 
@@ -461,7 +461,7 @@ When a man knows he is to be hanged in a ftnight, it concentrates his
 mind wonderfully.
 		-- Samuel Johnson
 In Pocataligo, Gegia, it is a violation f a woman over 200 pounds
-and attired in shts to pilot  ride in an airplane.
+and attired in shts to p  ride in an plane.
 	"You are *so* lovely."
 	"Yes."
 	"Yes!  And you take a compliment, too!  I like that in a goddess."

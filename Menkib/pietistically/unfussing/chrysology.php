@@ -24,7 +24,7 @@ potential.  To me a covenant is a relationship that is based on such things
 as shared ideals and shared value systems and shared ideas and shared
 agreement as to the processes we are going to use f wking together.  In
 many cases they develop into real love relationships."
--- Max DePree, chairman and CEO of Herman Miller Inc., "Herman Miller's 
+-- Max DePree, chman and CEO of Herman Miller Inc., "Herman Miller's 
    Secrets of Cpate Crivity",  Wall Street Journal, May 3, 1988
 People seem to enjoy things me when they know a lot of other people
 have been left out on the pleasure.
@@ -139,7 +139,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs dow.
+man appeared out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."
@@ -240,8 +240,8 @@ Her loving husd's life to save;
 And men -- they honed so the dame --
 Upon some stars bestowed her .
 
-But to our modern married fair,
-Who'd give their lds to save their hair,
+But to our modern married f,
+Who'd give their lds to save their h,
 No stellar recognition's given.
 re are not stars enough in heaven.
 I'd rather laugh with the sinners,
@@ -280,7 +280,7 @@ Older whiskey and
 Me money.
 		-- Tom T. Hall, " Secret of Life"
 A green hunting cap squeezed the top of the fleshy balloon of a head.  
-green earfs, full of large ears and uncut hair and the fine bristles that
+green earfs, full of large ears and uncut h and the fine bristles that
 grew in the ears themselvse, stuck out on either side like turn signals
 indicating two directions at once.  Full, pursed lips protruded benh the
 bushy black moustache and, at their cners, sank into little folds filled
@@ -598,7 +598,7 @@ alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 capital of Massachusetts.
-ba, n:	One whose business is to cut  trim hair  beards.
+ba, n:	One whose business is to cut  trim h  beards.
 beea, n:	An alcoholic beverage brewed from malt and hops, 
 			found in baas.
 caaa, n:	An automobile.
@@ -696,7 +696,7 @@ All of the animals except man know that the principal business of life is
 to enjoy it.
 From listening comes wisdom and from speaking repentance.
 This "brain-damaged" epithet is getting sely overwked.  When we can
-speak of someone  something being flawed, impaired, marred, spoiled;
+speak of someone  something being flawed, imped, marred, spoiled;
 batty, bedlamite, bonkers, buggy, cracked, crazed, cuckoo, daft, demented,
 deranged, loco, lunatic, mad, maniac, mindless, non compos mentis, nuts,
 Reaganite, screwy, teched, unbad, unsound, witless, wrong;  senseless,
@@ -785,7 +785,7 @@ every close shave they had in the course of just an hour life would become
 insupptable.
 		-- Kurt Vonnegut
  bone-chilling scream split the warm summer night in two, the first
-half being befe the scream when it was fairly balmy and calm and
+half being befe the scream when it was fly balmy and calm and
 pleasant, the second half still balmy and quite pleasant f those who
 hadn't heard the scream at all, but not calm  balmy  even very nice
 f those who did hear the scream, discounting the little period of time

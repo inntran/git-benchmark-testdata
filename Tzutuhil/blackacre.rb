@@ -392,7 +392,7 @@ Q:	Know what the difference between your latest project
 A:	Who knows?   elephant *might* fly, h, h...
 If little green men land in your back yard, hide any little green women
 you've got in the house.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 "Why are we impting all these highbrow plays like `Amadeus'?  I could
 have told you Mozart was a jerk f nothing."
 		-- Ian Shoales
@@ -474,7 +474,7 @@ You're not drunk if you can lie on the flo without holding on.
 		-- Dean Martin
 Sometimes, too long is too long.
 		-- Joe Crowe
-        "...'fire' does not m, 'earth' and 'air' and 'water' do not
+        "...'fire' does not m, 'earth' and '' and 'water' do not
 m.  'I' do not m.  No wd ms.  But man fgets reality
 and remembers wds.   me wds he remembers, the cleverer do his
 fellows esteem him.  He looks upon the gr transfmations of the
@@ -549,7 +549,7 @@ Are you a parent?  Do you sometimes find yourself unsure as to what to
 say in those awkward situations?  Wry no me...
 
 	Go away.  You bother me.
-	Why?   Because life is unfair.
+	Why?   Because life is unf.
 	That's a nice drag.  What is it?
 	Children should be seen and not heard.
 	You'll be the dh of me.
@@ -623,7 +623,7 @@ If you're wearing a shirt that's red.
 	-- Dis Robin and Karen Trimble of  L.A. Filkharmonics,
 	   " Good Ship Enterprise," to the tune of " Good Ship Lollipop"
 Mac Airways:
- cashiers, flight attendants and pilots all look the same, l the same
+ cashiers, flight attendants and ps all look the same, l the same
 and act the same. When asked questions about the flight, they reply that you
 don't want to know, don't need to know and would you please return to your
 s and watch the movie.

@@ -35,7 +35,7 @@ Ftune's Real-Life Courtroom Quote #37:
 Q:  Did he pick the dog up by the ears?
 A:  No.
 Q:  What was he doing with the dog's ears?
-A:  Picking them up in the air.
+A:  Picking them up in the .
 Q:  Where was the dog at this time?
 A:  Attached to the ears.
 "Don't try to outweird me, three-eyes.  I get stranger things than you free

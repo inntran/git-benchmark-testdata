@@ -215,9 +215,9 @@ But never ranging, still unchanging,
 I adore my bonnie Bell.
 		-- Robert Burns, "My Bonnie Bell"
 I'll  ANYTHING that's BRIGHT BLUE!!
-Nine megs for the secretaries fair,
+Nine megs for the secretaries f,
 Seven megs for the hackers scarce,
-Five megs for the grads in smoky lairs,
+Five megs for the grads in smoky ls,
 Three megs for system source;
 
 One disk to rule them all,
@@ -242,7 +242,7 @@ devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgammers.
 With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
-their lives trying to have the old ones repaired at so-called "fy
+their lives trying to have the old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 the s of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
@@ -336,7 +336,7 @@ half-done, n.:
 	difference between life and dh.
 
 	You may find it difficult to find a good half-done kosher dill there
-	in Stle, so what you should do is take a cab out to the airport,
+	in Stle, so what you should do is take a cab out to the ,
 	fly to New York, take the JFK Express to Jay Street-Borough Hall,
 	transfer to an uptown F, get off at East Broadway, walk north on
 	Essex (along the park), make your first left onto Hester Street, walk
@@ -417,7 +417,7 @@ Inglish Spocken Hier: some mangled translations
 	In a men's washroom in Sidney:
 
 		Shake excess water from hands, push button to start,
-		rub hands rapidly under air outlet and wipe hands
+		rub hands rapidly under  outlet and wipe hands
 		on front of shirt.
 
 		-- Colin Bowles, San Francisco Chronicle
@@ -435,7 +435,7 @@ All that glitters has a high refractive index.
  been deemed to be, surely it is in the interest of *honest* persons to know
  this fact, because the *dishonest* are tolerably certain to be the first to
  apply the knowledge practically; and the spread of knowledge is necessary to
- give fair play to those who might suffer by ignorance.  It cannot be too ear-
+ give f play to those who might suffer by ignorance.  It cannot be too ear-
  nestly urged, that an acquaintance with real facts will, in the end, be better
  for all parties."
 -- Charles Tomlinson's Rudimentary Trise on the Construction of Locks, 
@@ -489,7 +489,7 @@ alongside Mr. Percival Pollard, the distinguished critic.
    "Mr. Pollard," said he, "my book, _The Biography of a Dead Cow_, is
  published anonymously, but you can hardly be ignorant of its authorship.
  Yet in revieg it you speak of it as the work of the Idiot of the Century.
- Do you think that fair criticism?"
+ Do you think that f criticism?"
    "I am very sorry, sir," replied the critic, amiably, "but it did not
 occur to me that you really might not wish the public to know who wrote it."
 -- Ambrose Bierce
@@ -503,7 +503,7 @@ TAILFINS!! ... click ...
 "You are old," said the youth, "as I mentioned before,
 	And make errors few people could bear;
 You complain about everyone's English but yours --
-	Do you really think this is quite fair?"
+	Do you really think this is quite f?"
 
 "I make lots of mistakes," Father William declared,
 	"But my sre these days is so gr
@@ -609,14 +609,14 @@ devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgammers.
 With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
-their lives trying to have the old ones repaired at so-called "fy
+their lives trying to have the old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 the s of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
-Patience is a minor form of despair, disguised as virtue.
+Patience is a minor form of desp, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
-You can't judge a book by the way it wears its hair.
+You can't judge a book by the way it wears its h.
 If you had better tools, you could more effectively demonstrate your
 total incompetence.
 A mighty crure is the germ,
@@ -697,7 +697,7 @@ First we chase them 'round the field (...)
 Then we have them for a meal (...)
 
 Toss them here and catch them there (...)
-See them flying through the air (...)
+See them flying through the  (...)
 Watch them fly and hear them squeal (...)
 Falling mice have gr appeal (...)
 

@@ -132,7 +132,7 @@ will of those who administer that machinery.   most imptant element of
 government, therefe, is the method of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
 	re once was this swami who lived above a delicatessan.  Seems one
-day he decided to stop in downstairs f some fresh liver.  Well, the owner
+day he decided to stop in downsts f some fresh liver.  Well, the owner
 of the deli was a bit of a cheap-skate, and decided to pick up a little extra
 change at his er's expense.  Turning quietly to the counterman, he
 whispered, "Weigh down upon the swami's liver!"
@@ -150,7 +150,7 @@ Having wked f po management, they no longer value their jobs.
 		-- Geoffrey James, " Tao of Programming"
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 It has been observed that one's nose is never so happy as when it is
-thrust into the affairs of another, from which some s have
+thrust into the affs of another, from which some s have
 dr the inference that the nose is devoid of the sense of smell.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Avoid the Gates of Hell.  Use Linux
@@ -205,7 +205,7 @@ An idle mind is wth two in the bush.
 A New Yk City dinance prohibits the shooting of rabbits from the
 rear of a Third Avenue street car -- if the car is in motion.
 Can't act.  Slightly bald.  Also dances.
-		-- RKO executive, reacting to Fred Astaire's screen test.
+		-- RKO executive, reacting to Fred Aste's screen test.
 		   Cerf/Navasky, " Exs Speak"
 Everything that you know is wrong, but you can be straightened out.
 	Once upon a time there was a beautiful young girl taking a stroll 
@@ -338,7 +338,7 @@ Newton's Law of Gravitation:
 	Mr. Jones related an incident from "some time back" when IBM Canada
 Ltd. of Markham, Ont., dered some parts from a new supplier in Japan.  
 company noted in its der that acceptable quality allowed f 1.5 per cent
-defects (a fairly high standard in Nth America at the time).
+defects (a fly high standard in Nth America at the time).
 	 Japanese sent the der, with a few parts packaged separately in
 plastic.  accompanying letter said: "We don't know why you want 1.5 per
 cent defective parts, but f your convenience, we've packed them separately."

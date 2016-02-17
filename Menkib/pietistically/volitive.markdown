@@ -25,7 +25,7 @@ I know how to do SPECIAL EFFECTS!!
 Well, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 Minnesota --
-	home of the blonde hair and blue ears.
+	home of the blonde h and blue ears.
 	mosquito supplier to the free world.
 	come fall in love with a loon.
 	where visitors turn blue with envy.
@@ -76,7 +76,7 @@ rear-engine car handles best.  I say a rented car handles best.
 		-- P.J. O'Rourke
 After all is said and done, a hell of a lot more is said than done.
 The founding fathers tried to set up a judicial system where the accused
-received a fair trial, not a system to insure an acquittal on technicalities.
+received a f trial, not a system to insure an acquittal on technicalities.
 This is Betty Frenel.  I don't know who to call but I can't reach my
 Food-a-holics partner.  I'm at Vido's on my second pizza with sausage
 and mushroom.  Jim, come and get me!
@@ -97,7 +97,7 @@ Arthur's Laws of Love:
 	    delayed in the mail long enough for you to make a fool of
 	    yourself in person.
 Nature is by and large to be found out of doors, a location where,
-it cannot be argued, there are never enough comfortable chairs.
+it cannot be argued, there are never enough comfortable chs.
 		-- Fran Lebowitz
 Hanging on in quiet desperation is the English way.
 		-- Pink Floyd
@@ -135,7 +135,7 @@ In short, in matters vegetable, animal, and mineral,
 I am the very model of a modern Major-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
 QOTD:
-	 "It's not the despair... I can stand the despair.  It's the hope."
+	 "It's not the desp... I can stand the desp.  It's the hope."
 Television has proved that people will look at anything rather than each other.
 		-- Ann Landers
 "It's easier said than done."
@@ -163,7 +163,7 @@ an approximate translation, where I have written "artist" as equivalent of
 	"If an artist is ben, none shall pay fines for it.  If an artist
 	is wounded, one such who goes with hurdie-gurdie or travels with
 	fiddle or drum, then the people shall take a wild heifer and bring
-	it out on the hillside.  Then they shall shave off all hair from the
+	it out on the hillside.  Then they shall shave off all h from the
 	heifer's tail, and grease the tail.  Then the artist shall be given
 	newly greased shoes.  Then he shall take hold of the heifer's tail,
 	and a man shall strike it with a sharp whip.  If he can hold her, he
@@ -273,7 +273,7 @@ Everybody likes a kidder, but nobody lends him money.
       (list '851-5071x2661)))))
 ;;;     We are an affirmative action employer.
 QOTD:
-	"Say, you look pretty athletic.  What say we put a pair of tennis
+	"Say, you look pretty athletic.  What say we put a p of tennis
 	shoes on you and run you into the wall?"
 Maybe we could paint GOLDIE HAWN a rich PRUSSIAN BLUE --
 It doesn't much signify whom one marries, for one is sure to find out

@@ -110,9 +110,9 @@ Unix is the wst operating system; except f all others.
 		-- Berry Kercheval
 Q:	What do you call a half-dozen Indians with Asian flu?
 A:	Six sick Sikhs (sic).
-Nine megs f the secretaries fair,
+Nine megs f the secretaries f,
 Seven megs f the hackers scarce,
-Five megs f the grads in smoky lairs,
+Five megs f the grads in smoky ls,
 Three megs f system source;
 
 One disk to rule them all,
@@ -138,7 +138,7 @@ Lavis in the toilet."
 Encyclopedia Salesmen:
 	Invite them all in.  Nip out the back do.  Phone the police
 	and tell them your house is being burgled.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 Ftune finishes the gr quotations, #6
 
 	"But, soft!  What light through  dow breaks?"
@@ -528,7 +528,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs dow.
+man appeared out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."

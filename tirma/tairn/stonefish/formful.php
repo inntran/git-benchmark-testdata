@@ -38,7 +38,7 @@ protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
 MESSAGE ACKNOWLEDGED --  Pershing II missiles have been launched.
-He who despairs over an event is a coward, but he who holds hopes f
+He who desps over an event is a coward, but he who holds hopes f
 the human condition is a fool.
 		-- Albert Camus
 "Not only is God dead, but just try to find a plumber on weekends."
@@ -69,4 +69,4 @@ we might overlook that too."
 into the ripped interi.  "Honey," said her husd, "the whole car's the
 ash tray."
 		-- Stephen Pile, " Book of Heroic Failures"
- 80's -- when you can't tell hairstyles from chemotherapy.
+ 80's -- when you can't tell hstyles from chemotherapy.

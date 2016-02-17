@@ -6,7 +6,7 @@ than they do.
 		-- Turgenev
 Men's magazines  fure pictures of naked ladies.  Women's magazines
 also  fure pictures of naked ladies.  This is because the female
-body is a beautiful work of art, while the male body is hairy and lumpy and
+body is a beautiful work of art, while the male body is hy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 One of your most ancient writers, a historian named Herodotus, tells of a
@@ -18,7 +18,7 @@ laughed.  "You will not succeed," they told him.  "No one can."
 happen in that time.  The king might die.  The horse might die.  I might die.
 And perhaps the horse will learn to sing.
 		-- "The Mote in God's Eye", Niven and Pournelle
-Good salesmen and good repairmen will never go hungry.
+Good salesmen and good repmen will never go hungry.
 		-- R.E. Schenk
 It is very difficult to prophesy, especially when it ains to the future.
 Alliance:  In international politics, the union of two thieves who have their
@@ -56,7 +56,7 @@ in a wide pool, deep and clear, far down Withydle;
 there they open first in spring and there they linger latest.
 
 By that pool long ago I found the River-daughter,
-fair young Goldberry sitting in the rushes.
+f young Goldberry sitting in the rushes.
 Sweet was her singing then, and her heart was bing!
 
 And that proved well for you--for now I shall no longer
@@ -139,13 +139,13 @@ democratic process.  You almost get it as an anti-democratic process.
 Certainly you get it as an anthitetical process, so you have to have an
  where the body of people are really amenable to change and can
 deal with the conflicts that arise out of change an innovation."
--- Max DePree, chairman and CEO of Herman Miller Inc.,  
+-- Max DePree, chman and CEO of Herman Miller Inc.,  
    "Herman Miller's Secrets of Corporate Crivity",
    The Wall Street Journal, May 3, 1988
 Try to have as good a life as you can under the circumstances.
-Do not meddle in the affairs of troff, for it is subtle and quick to anger.
+Do not meddle in the affs of troff, for it is subtle and quick to anger.
 Don't speak about Time, until you have sn to him.
-Machines that have broken down will work perfectly when the repairman arrives.
+Machines that have broken down will work perfectly when the repman arrives.
 Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
 "I don't think so," said Ren'e Deses.  Just then, he vanished.
@@ -195,14 +195,14 @@ August 27, 1949:
 	Women's Air Corp.  It was a WAC's Museum.
 Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
-as scovers in July, her hair as dark as new tires, her eyes flashing like
+as scovers in July, her h as dark as new tires, her eyes flashing like
 bright caps, and her lips as dewy as the beads of fresh rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
 right road: a man like Alf Romeo.
 		-- Rachel Sheeley, ner
 
-The hair ball blocking the drain of the shower reminded Laura she would never
+The h ball blocking the drain of the shower reminded Laura she would never
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
@@ -476,7 +476,7 @@ If this is timesharing, give me my share right now.
 Sure he's sharp as a razor ... he's a two-dimensional pinhead!
 Abstainer:  A weak person who yields to the temptation of denying himself a
 pleasure.  A total abstainer is one who abstains from everything but
-abstention, and especially from inactivity in the affairs of others.
+abstention, and especially from inactivity in the affs of others.
 -- Ambrose Bierce
 Today's scientific question is: What in the world is electricity?
 
@@ -611,7 +611,7 @@ smaller prime numbers.
 41: The Female Prime --
 	The polynomial X**2 - X + 41 is
 	prime for integer values from 1 to 40.
-43: The Male Prime - they form a prime pair.
+43: The Male Prime - they form a prime p.
 
 Since the composite numbers are formed from primes, their qualities
 are derived from those primes.  So, for instance, the number 6 is "odd
@@ -694,14 +694,14 @@ Pardon this fortune.  Datse under reconstruction.
 When some people decide it's time for everyone to make big changes,
 it means that they want you to change first.
 For if there is a sin against life, it consists perhaps not so much in
-despairing of life as in hoping for another life and in eluding the
+desping of life as in hoping for another life and in eluding the
 implacable grandeur of this life.
 		-- Albert Camus
 The advertisement is the most truthful part of a newspaper.
 		-- Thomas Jefferson
 Like my parents, I have never been a regular church member or churchgoer.
 It doesn't seem plausible to me that there is the kind of God who watches
-over human affairs, listens to prayers, and tries to guide people to follow
+over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- there is just too much misery and cruelty for that.  On the
 other hand, I respect and envy the people who get inspiration from their
 religions.
@@ -715,7 +715,7 @@ A. That is the only kind I know.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 
 Shoes:
-	 The average man has 4 pairs of footwear: running shoes, dress shoes,
+	 The average man has 4 ps of footwear: running shoes, dress shoes,
 boots, and slippers.  The average woman has shoes 4 layers thick on the floor
 of her closet.  Most of them hurt her feet.
  

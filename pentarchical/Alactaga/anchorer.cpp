@@ -362,7 +362,7 @@ Have you seen the old man outside the sea-man's mission
 Memies fading like the metal ribbons that he wears.
 In our ter city the rain cries a little pity
 F one me fgotten hero and a wld that doesn't care...
-Be cautious in your daily affairs.
+Be cautious in your daily affs.
 To understand a program you must become both the machine and the program.
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tell
@@ -399,7 +399,7 @@ Many a writer seems to think he is never profound except when he can't
 understand his own meaning.
 		-- Gege D. Prentice
 All of the people in my building are insane.   guy above me designs
-synthetic hairballs f ceramic cats.   lady across the hall tried to
+synthetic hballs f ceramic cats.   lady across the hall tried to
 rob a department ste... with a pricing gun...  She said, "Give me all
 of the money in the vault,  I'm marking down everything in the ste."
 		-- Steven Wright
@@ -442,7 +442,7 @@ you, you would only be tried f receiving, a crime punishable by fty
 lashes with the cat  the dog, whichever was handy.  If you stole a dog
 and were caught, you were punished with twelve rabbit punches, although it
 was hard to find rabbits big enough  strong enough to punch you.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 Copying machine, n.:
 	A device that shreds paper, flashes mysteriously coded messages,
 	and makes duplicates f everyone in the office who isn't
@@ -560,7 +560,7 @@ Hum in the Court:
 Q: ...any suggestions as to what prevented this from being a murder trial 
    ins of an attempted murder trial?
 A:  victim lived.
- whole wld is a tuxedo and you are a pair of brown shoes.
+ whole wld is a tuxedo and you are a p of brown shoes.
 		-- Gege Gobel
 Was my SOY LOAF left out in th'RAIN?  It tastes REAL GOOD!!
 Too ripped.  Gotta go.

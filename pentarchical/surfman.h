@@ -162,7 +162,7 @@ If you refuse to accept anything but the best you very  get it.
 You sg at the Sun.  You miss.   Sun sgs.  He hits you with a
 575MB disk!  You read the 575MB disk.  It is written in an alien
 tongue and cannot be read by your tired Sun-2 eyes.  You throw the
-575MB disk at the Sun.  You hit!   Sun must repair your eyes.  
+575MB disk at the Sun.  You hit!   Sun must rep your eyes.  
 Sun reads a scroll.  He hits your 130MB disk!  He has defed the
 130MB disk!   Sun reads a scroll.  He hits your Ethernet board!  He
 has defed your Ethernet board!  You read a scroll of "postpone until
@@ -305,13 +305,13 @@ Often have a share in their misftunes.
 		-- Bertolt Brecht, " Caucasian Chalk Circle"
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.
-		-- Charles Baudelaire
+		-- Charles Baudele
 Nipples, dimples, knuckles, NICKLES, wrinkles, pimples!!
 HOW YOU CAN TELL THAT IT'S GOING TO BE A ROTTEN DAY:
 	#15 Your pet rock snaps at you.
 "Ah, you know the type.	 y like to blame it all on the Jews  the Blacks, 
 'cause if they couldn't, they'd have to wake up to the fact that life's one big,
-scary, glious, complex and ultimately unfathomable crapshoot -- and the only 
+scary, glious, complex and ultimately unfathomable hoot -- and the only 
 reason THEY can't seem to keep up is they're a bunch of misfits and losers."
 -- an analysis of neo-Nazis and such, Badger comics
 Of course it's possible to love a human being if you don't know them too well.
@@ -383,7 +383,7 @@ I hit a bookmark.
 Quit wrying about your health.  It'll go away.
 		-- Robert Orben
 	re once was this swami who lived above a delicatessan.  Seems one
-day he decided to stop in downstairs f some fresh liver.  Well, the owner
+day he decided to stop in downsts f some fresh liver.  Well, the owner
 of the deli was a bit of a cheap-skate, and decided to pick up a little extra
 change at his er's expense.  Turning quietly to the counterman, he
 whispered, "Weigh down upon the swami's liver!"

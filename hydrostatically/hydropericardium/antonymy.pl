@@ -134,7 +134,7 @@ theory is held by idiots, but it is doubtful if they know any more about
 the matter than the others.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Minnesota --
-	home of the blonde hair and blue ears.
+	home of the blonde h and blue ears.
 	mosquito supplier to the free world.
 	come fall in love with a loon.
 	where visitors turn blue with envy.

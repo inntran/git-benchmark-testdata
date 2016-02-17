@@ -24,7 +24,7 @@ coin toss.
 		-- Harvard Lam 1988 Program Parody, distributed at  Game
 A day without sunshine is like night.
 A total abstainer is one who abstains from everything but abstention,
-and especially from inactivity in the affairs of others.
+and especially from inactivity in the affs of others.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Unix is the wst operating system; except f all others.
 		-- Berry Kercheval
@@ -56,7 +56,7 @@ toilet toup'ee, n.:
 Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.
 		-- Richard Bach, "Illusions"
-Never trust a computer you can't repair yourself.
+Never trust a computer you can't rep yourself.
 One meets his destiny  on the road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing the truth."
 	"Or by misleading the innocent."

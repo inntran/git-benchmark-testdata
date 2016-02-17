@@ -78,7 +78,7 @@ committed, and receive the punishment they so richly deserve.
 Greeks never said it was sweet to die for anything.  They had no vital lies."
 		-- Edith Hamilton, "The Greek Way"
 Illusion is the first of all pleasures.
-		-- Voltaire
+		-- Volte
 "You're just the sort of person I d marrying, when I was little...
 except, y'know, not green... and without all the patches of fungus."
 		-- Swamp Thing
@@ -141,7 +141,7 @@ Certainly the game is rigged.
 Don't let that stop you; if you don't bet, you can't .
 		-- Robert Heinlein, "Time Enough For Love"
 A pretty foot is one of the greatest gifts of nature... please send me your
-last pair of shoes, already worn out in dancing... so I can have something
+last p of shoes, already worn out in dancing... so I can have something
 of yours to press against my heart.
 		-- Goethe
 I think I'll KILL myself by leaping out of this 14th STORY WINDOW while
@@ -240,12 +240,12 @@ From 0 to "what seems to be the problem officer" in 8.3 seconds.
 Love is an obsessive delusion that is cured by marriage.
 		-- Dr. Karl Bowman
 If we could sell our experiences for what they cost us, we would
-all be millionaires.
+all be milliones.
 		-- Abigail Van Buren
 Too much of everything is just enough.
 		-- Bob Wier
-A priest advised Voltaire on his death bed to renounce the devil. 
-Replied Voltaire, "This is no time to make new enemies."
+A priest advised Volte on his death bed to renounce the devil. 
+Replied Volte, "This is no time to make new enemies."
 The denunciation of the young is a necessary part of the hygiene of older
 people, and greatly assists in the circulation of the blood.
 		-- Logan Pearsall Smith
@@ -366,7 +366,7 @@ burden of finding the fettucine restaurant in the first place.
 		-- Calvin Trillin
 If little green men land in your back yard, hide any little green women
 you've got in the house.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
+		-- Mike Harding, "The Armch Anarchist's Almanac"
 Think sideways!
 		-- Ed De Bono
 A lot of people are afraid of heights.  Not me.  I'm afraid of widths.
@@ -382,7 +382,7 @@ Q:	What do you get when you cross the Godfather with an attorney?
 A:	An offer you can't understand.
 If you don't do the things that are not worth doing, who will?
 You will be singled out for promotion in your work.
-Workers of the world, arise!  You have nothing to lose but your chairs.
+Workers of the world, arise!  You have nothing to lose but your chs.
 We who revel in nature's diversity and feel instructed by every animal tend to
 brand Homo sapiens as the greatest catastrophe since the Cretaceous extinction.
 		-- S.J. Gould
@@ -493,7 +493,7 @@ Tex SEX!  The HOME of WHEELS!  The dripping of COFFEE!!  Take me to
 Minnesota but don't EMBARRASS me!!
 Your analyst has you mixed up with another patient.  Don't believe a
 thing he tells you.
-Last night I met upon the stair
+Last night I met upon the st
 A little man who wasn't there.
 He wasn't there again today.
 Gee how I wish he'd go away!
@@ -525,8 +525,8 @@ Majorities, of course, start with minorities.
  their Proverbs..." - Blake, "The Marriage of Heaven and Hell"
 
 Rattling around the back of my head is a disturbing image of something I
-saw at the airport ... Now I'm remembering, those giant piles of computer
-magazines right next to "People" and "Time" in the airport store.  Does
+saw at the  ... Now I'm remembering, those giant piles of computer
+magazines right next to "People" and "Time" in the  store.  Does
 it bother anyone else that half the world is being told all of our hard-won
 secrets of computer technology?  Remember how all the lawyers cried foul
 when "How to Avoid Probate" was published?  Are they taking no-fault
@@ -806,11 +806,11 @@ They tell you that you've failed the test.
 		-- Buggles, "Living in the Plastic Age"
 	If you rap your knuckles against a dow jamb or door, if you
 brush your leg against a bed or desk, if you catch your foot in a curled-
-up corner of a rug, or strike a toe against a desk or chair, go back and
+up corner of a rug, or strike a toe against a desk or ch, go back and
 repeat the sequence. 
 	You will find yourself surprised how far off course you were to
-hit that dow jamb, that door, that chair.  Get back on course and do it
-again.  How can you pilot a spacecraft if you can't find your way around
+hit that dow jamb, that door, that ch.  Get back on course and do it
+again.  How can you p a spacecraft if you can't find your way around
 your own apartment?
 		-- William S. Burroughs
 You can  your own opportunities this week.  Blackmail a senior executive.
@@ -818,8 +818,8 @@ The future lies ahead.
 There's no future in time travel.
 For three years, the young attorney had been taking his brief
 vacations at this country inn.  The last time he'd finally managed an
-affair with the innkeeper's daughter.  Looking forward to an exciting
-few days, he dragged his suitcase up the stairs of the inn, then stopped
+aff with the innkeeper's daughter.  Looking forward to an exciting
+few days, he dragged his suitcase up the sts of the inn, then stopped
 short.  There sat his lover with an infant on her lap!
 	"Helen, why didn't you write when you learned you were pregnant?"
 he cried.  "I would have rushed up here, we could have gotten married,

@@ -42,7 +42,7 @@ them and said these words: "The day of judgment is either approaching or
 it is not.  If it is not, there is no cause for adjournment.  If it is, I
 choose to be found doing my duty.  I wish therefore that candles may be
 brought."
-		-- Alistair Cooke
+		-- Alist Cooke
 ===  ALL USERS PLEASE NOTE  ========================
 
 The garbage collector now works.  In addition a new, experimental garbage 
@@ -274,8 +274,8 @@ work it is, praising its creator and waiting a suitable interval before
 she reluctantly takes a small sliver off one edge.  A man will start by
 grabbing the cherry in the center.
 
-Car repair:
-	The average man thinks his Y chromosome contains complete repair
+Car rep:
+	The average man thinks his Y chromosome contains complete rep
 manuals for every car made since World War II.  He will work on a problem
 himself until it either goes away or turns into something that "can't be
 fixed without special tools".
@@ -399,9 +399,9 @@ Yet you talk at one hundred conventions per year --
 	Don't you think that you should save your breath?"
 
 "I have answered three questions and that is enough,"
-	Said his father, "Don't give yourself airs!
+	Said his father, "Don't give yourself s!
 Do you think I can listen all day to such stuff?
-	Be off, or I'll kick you downstairs!"
+	Be off, or I'll kick you downsts!"
 Bunker's Admonition:
 	You cannot buy beer; you can only rent it.
 Fortune's graffito of the week (or maybe even month):
@@ -470,7 +470,7 @@ I find this corpse guilty of carrying a concealed weapon and I fine it $40.
 		   just shot.
 When it comes to broken marriages most husbands will split the blame --
 half his wife's fault, and half her mother's.
-In a display of perverse brilliance, Carl the repairman mistakes a room
+In a display of perverse brilliance, Carl the repman mistakes a room
 humidifier for a mid-range computer but manages to tie it into the network
 anyway.
 		-- The 5th Wave

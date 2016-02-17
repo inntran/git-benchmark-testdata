@@ -10,7 +10,7 @@ Ftune finishes the gr quotations, #3
 Etiquette is f those with no breeding; fashion f those with no taste.
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and considers just how many people know the real truth
-about his  her love affairs.
+about his  her love affs.
 		-- Rebecca West
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down the street and...  Ooohh, that's much better.
@@ -227,7 +227,7 @@ students inquired.
 	"Tell us", said a friend, "how do you l?"
 	"As miserable as ever", replied the enlightened Kyogen.
 Nature is by and large to be found out of dos, a location where,
-it cannot be argued, there are never enough comftable chairs.
+it cannot be argued, there are never enough comftable chs.
 		-- Fran Lebowitz
 "A dirty mind is a joy fever."
 -- Randy Kunkee
@@ -322,9 +322,9 @@ Yet you bad an eel on the end of your nose --
 	What made you so awfully clever?"
 
 "I have answered three questions, and that is enough,"
-	Said his father.  "Don't give yourself airs!
+	Said his father.  "Don't give yourself s!
 Do you think I can listen all day to such stuff?
-	Be off,  I'll kick you down stairs!"
+	Be off,  I'll kick you down sts!"
 [War] is instinctive.  But the instinct can be fought.  We're human
 beings with the blood of a million savage years on our hands!  But we
 can stop it.  We can admit that we're killers ... but we're not going

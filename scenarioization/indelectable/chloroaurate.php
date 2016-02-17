@@ -134,7 +134,7 @@ That' to get to gcc, Emacs, and gdb.  Thank you."
 What no spouse of a writer can ever understand is that a writer is working
 when he's staring out the dow.
 Yinkel, n.:
-	A person who combs his hair over his bald spot, hoping no one
+	A person who combs his h over his bald spot, hoping no one
 	will notice.
 		-- Rich Hall, "Sniglets"
 But Captain -- the engines can't take this much longer!
@@ -145,7 +145,7 @@ teach children.
 Bare feet magnetize sharp metal objects so they point upward from the
 floor -- especially in the dark.
 O! Wanderers in the shadowed land
-despair not!  For though dark they stand,
+desp not!  For though dark they stand,
 all woods there be must end at last,
 and see the open sun go past:
 the setting sun, the rising sun,
@@ -172,7 +172,7 @@ in whatever way he wants.  It goes on and on, choices, choices."
 Whatever.  We want.  To do."
 		-- Richard Bach, "Illusions"
 Halley's Comet: It came, we saw, we drank.
-The IBM purchase of ROLM gives new meaning to the term "twisted pair".
+The IBM purchase of ROLM gives new meaning to the term "twisted p".
 		-- Howard Anderson, "Yankee Group"
 Failure is more frequently from want of energy than want of capital.
 It takes two to tell the truth: one to speak and one to hear.

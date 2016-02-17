@@ -64,13 +64,13 @@ It's really quite a simple choice: Life, Death, or Los Angeles.
 -- Karl Lenbauer
 Only two of my personalities are schizophrenic, but one of them is
 paranoid and the other one is out to get him.
-Rich bachelors should be heavily taxed.  It is not fair that some men
+Rich bachelors should be heavily taxed.  It is not f that some men
 should be happier than others.
 		-- Oscar Wilde
 Life is too short to stuff a mushroom.
 		-- Storm Jameson
 The so-called "desktop metaphor" of today's workstations is instead an
-"airplane-seat" metaphor.  Anyone who has shuffled a lap full of papers
+"plane-seat" metaphor.  Anyone who has shuffled a lap full of papers
 while seated between two portly passengers will recognize the difference --
 one can see only a very few things at once.
 		-- Fred Brooks
@@ -147,7 +147,7 @@ teenager stomp up to his branch and slam the leaves.
 		-- Jay Leno
 You or I must yield up his life to Ahrimanes.  I would rather it were you.
 I should have no hesitation in sacrificing my own life to spare yours, but
-we take stock next week, and it would not be fair on the company.
+we take stock next week, and it would not be f on the company.
 		-- J. Wellington Wells
 Another war ... must it always be so?  How many comrades have we lost
 in this way? ...  Obedience.  Duty.  Death, and more death ...
@@ -206,7 +206,7 @@ Those who hate and fight must stop themselves -- otherwise it is not stopped.
 		-- Spock, "Day of the Dove", stardate unknown
 life, n.:
 	Learning about people the hard way -- by being one.
-I put the shotgun in an Adidas bag and padded it out with four pairs of tennis
+I put the shotgun in an Adidas bag and padded it out with four ps of tennis
 socks, not my style at all, but that was what I was aiming for:  If they think
 you're crude, go technical; if they think you're technical, go crude.  I'm a
 very technical boy.  So I decided to get as crude as possible.  These days,
@@ -217,10 +217,10 @@ We are what we pretend to be.
 		-- Kurt Vonnegut, Jr.
 Everything takes longer, costs more, and is less useful.
 		-- Er Tomash
-A priest advised Voltaire on his death bed to renounce the devil. 
-Replied Voltaire, "This is no time to make new enemies."
+A priest advised Volte on his death bed to renounce the devil. 
+Replied Volte, "This is no time to make new enemies."
 No man can have a reasonable opinion of women until he has long lost
-interest in hair restorers.
+interest in h restorers.
 	-- Austin O'Malley
 Support your right to bare arms!
 		-- A message from the National Short-Sleeved Shirt Association

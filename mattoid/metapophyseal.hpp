@@ -44,7 +44,7 @@ Ritchie's Rule:
 	(3) Search and ye shall find -- but make sure it was lost.
 Gil-galad was an Elven-king.
 Of him the harpers sadly sing:
-the last whose realm was fair and free
+the last whose realm was f and free
 between the Mountains and the Sea.
 
 His swd was long, his  was keen,
@@ -96,7 +96,7 @@ a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But they didn't imply that you were to be impractical
 and refuse to take twice the value f a house if a buyer was such an idiot
 that he didn't fce you down on the asking price.
-		-- Sinclair Lewis, "Babbitt"
+		-- Sincl Lewis, "Babbitt"
 That all men should be brothers is the dream of people who have no brothers.
 		-- Charles Chincholles, "Pensees de tout le monde"
 	Young men and young women may wk systematically six days in the
@@ -169,7 +169,7 @@ re are three things men can do with women: love them, suffer f them,
 We gave you an atomic bomb, what do you want, mermaids?
 		-- I. I. Rabi to the Atomic Energy Commission
 ... he dominates the DECADENT SUBWAY SCENE.
-An Italian is COMBING his hair in subur DES MOINES!
+An Italian is COMBING his h in subur DES MOINES!
 I have to think hard to  an interesting man who does not drink.
 		-- Richard Burton
 Hedonist f hire... no job too easy!
@@ -197,12 +197,12 @@ And doom fell on Tin'uviel
 That in his arms lay glistening.
 
 As Beren looked into her eyes
-Within the shadows of her hair,
+Within the shadows of her h,
  trembling starlight of the skies
 He saw there mirred shimmering.
-Tin'uviel the elven-fair,
+Tin'uviel the elven-f,
 Immtal maiden elven-wise,
-About him cast her shadowy hair
+About him cast her shadowy h
 And arms like silver glimmering.
 
 Long was the way that fate them be,
@@ -238,7 +238,7 @@ First we chase them 'round the field (...)
 n we have them f a meal (...)
 
 Toss them here and catch them there (...)
-See them flying through the air (...)
+See them flying through the  (...)
 Watch them fly and hear them squeal (...)
 Falling mice have gr appeal (...)
 
@@ -468,7 +468,7 @@ length-girth ratio of the ant to the  were 98.17:1.
 
 GENERAL KNOWLEDGE
 Describe the Universe.  Give three examples.
-Hand me a pair of lher pants and a CASIO keyboard -- I'm living f today!
+Hand me a p of lher pants and a CASIO keyboard -- I'm living f today!
 It seems a little silly now, but this country was founded as a protest
 against taxation.
 I l like a wet parking meter on Darvon!
@@ -548,9 +548,9 @@ I would rather be a serf in a po man's house and be above ground than
 reign  the dead.
 		-- Achilles, " Odessey", XI, 489-91
 Everyone hates me because I'm paranoid.
-Breast Feeding should not be attempted by fathers with hairy chests,
+Breast Feeding should not be attempted by fathers with hy chests,
 since they can make the baby  and give it d.
-		-- Mike Harding, " Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armch Anarchist's Almanac"
 Drinking is not a spectat spt.
 		-- Jim Brosnan
 You do not have mail.
@@ -901,6 +901,6 @@ precise measurement of the charge on an electron and was awarded the
 Nobel Prize in 1923.
 I respect the institution of marriage.  I have always thought that every
 woman should marry -- and no man.
-		-- Benjamin Disraeli, "Lothair"
+		-- Benjamin Disraeli, "Loth"
 A certain amount of opposition is a help, not a hindrance. Kites rise
 against the d, not with it.

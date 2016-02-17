@@ -70,7 +70,7 @@ inspired by the subject of war.
 By contrast, Cheshire cheese provoked John Armstrong (1709-79):
 	"... that which Cestria sends, tenacious paste of solid milk..."
 While John Bidlake was guided by a compassion for vegetables:
-	"The sluggard carrot sleeps his day in bed,
+	"The sd carrot sleeps his day in bed,
 	The crippled pea alone that cannot stand."
 George Crabbe (1754-1832) wrote:
 	"And I was ask'd and authorized to go

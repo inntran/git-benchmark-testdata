@@ -44,7 +44,7 @@ Oh, and have a nice day!
 		-- Bryce Nesbitt '84
 Your reasoning is excellent -- it's only your basic assumptions that are wrong.
 Thank God a million billion times you live in Texas.
-Planet Claire has pink hair.
+Planet Cle has pink h.
 All the trees are red.
 No one ever dies there.
 No one has a head....
@@ -73,7 +73,7 @@ A penny postage stamp.
 "The nights are rather damp."
 Q:	How many supply-siders does it take to change a light bulb?
 A:	None.  The darkness will cause the light bulb to change by itself.
-Rich bachelors should be heavily taxed.  It is not fair that some men
+Rich bachelors should be heavily taxed.  It is not f that some men
 should be happier than others.
 		-- Oscar Wilde
 Romance, like alcohol, should be enjoyed, but should not be allowed to
@@ -111,7 +111,7 @@ A nuclear war can ruin your whole day.
 "You are old," said the youth, "as I mentioned before,
 	And make errors few people could bear;
 You complain about everyone's English but yours --
-	Do you really think this is quite fair?"
+	Do you really think this is quite f?"
 
 "I make lots of mistakes," Father William declared,
 	"But my sre these days is so gr
@@ -238,7 +238,7 @@ Why on earth do people buy old bottles of e when they can get a
 fresh one for a quarter of the price?
 Imity consists largely of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
-Two men are in a hot-air balloon.  Soon, they find themselves lost in a
+Two men are in a hot- balloon.  Soon, they find themselves lost in a
 canyon somewhere.  One of the three men says, "I've got an idea.  We can
 call for help in this canyon and the echo will carry our voices to the
 end of the canyon.  Someone's bound to hear us by then!"
@@ -326,7 +326,7 @@ Inglish Spocken Hier: some mangled translations
 		It is forbidden to enter a woman, even a foreigner if
 		dressed as a man.
 
-	Above the enterance to a Cairo bar:
+	Above the enterance to a Co bar:
 		Unaccompanied ladies not admitted unless with husd
 		or similar.
 
