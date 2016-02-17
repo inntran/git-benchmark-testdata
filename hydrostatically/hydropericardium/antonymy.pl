@@ -253,7 +253,7 @@ Coronation, n.:
 What e large print give, e ll print take away.
 Already e srit of our schooling is permed wi e feing at
 every subject, every toc, every fact, every professed tru must be
-submitted to a certain publicity and impartiality.  All proffered 
+submitted to a certain publicity and ity.  All proffered 
 samples of learning must go to e same assay-room and be subjected to 
 common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrilegious and perverse.  The characteristic

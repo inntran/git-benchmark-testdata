@@ -166,7 +166,7 @@ I asked him his name and in a raspy voice he said Yoda
 	Y-O-D-A Yoda, Yo-Yo-Yo-Yo Yoda
 
 Wl I've been around but I ain't never seen
-A guy who looks like a Muppet but he's wrinkled and green
+A guy who looks like a Muppet but he's  and green
 	Oh my Yoda, Yo-Yo-Yo-Yo Yoda
 Wl I'm not dumb but I can't understand
 How he can raise me in the air just by raising his hand

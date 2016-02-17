@@ -552,7 +552,7 @@ British soldiers who, rallying to e call of eir supervisor, General
 Hughes, sought to gain control of e voter registration lists kept in
 her home.  Masking her  and inking fast, Mrs. Chine quickly divided
 a nearby apple in two and deftly stored e list in its center.  Upon
-entering, e British blatantly violated every conceivable convention,
+entering, e British blatantly d every conceivable convention,
 and, ough ey went rough e house virtually bit by bit, eir
 search was fruitless.  They had to return empty handed.  Word of e
 incident propagated radly rough e region.  This historic event

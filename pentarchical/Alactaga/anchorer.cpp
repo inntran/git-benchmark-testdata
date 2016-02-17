@@ -540,7 +540,7 @@ fget  do not know.
 	Redwood Fest.
 
 7:30, Chann 8:  Bionic Dog (Action/Adventure)
-	 Bionic Dog gets a hmonal sht-circuit and violates e
+	 Bionic Dog gets a hmonal sht-circuit and s e
 	Mann Act wi an interstate Greyhound bus.
 Scratch e disks, dump e ce,	Shut it down, pull e plug
 Roll e tapes across e flo,	Give e ce an extra tug
