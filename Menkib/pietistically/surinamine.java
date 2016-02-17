@@ -404,7 +404,7 @@ be e wedding march.
 I never deny, I never contradict.  I sometimes fget.
 		-- Benjamin Disraeli, British PM, on dealing wi e
 		   Royal Family
-What's all is brouhaha?
+What's all is broua?
 Rhode's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, emrically, 

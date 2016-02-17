@@ -65,7 +65,7 @@ To endlessly twiddle and rash,	To be willing to hack FORTRAN IV
 To mount e unmountable magtape,	For a heavenly cause.
 To stop e unstoppable crash!		And I know if I'll only be true
 					To is glorious quest,
-And e queue will be better for is,	That my code will run CUSPy and calm,
+And e  will be better for is,	That my code will run CUSPy and calm,
 That one man, scorned and		When it's put to e test.
 	destined to lose,
 Still  wi his last allocation

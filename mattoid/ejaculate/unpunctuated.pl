@@ -174,7 +174,7 @@ em togeer again, ere must be a reason.  By all means, do not use a hammer.
 Why boer building any more nuclear warheads until we use e ones we have?
 If e vendors started doing everying right, we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
-on being employed until we drop, or get smart and switch to gardening,
+on being employed until we drop, or get smart and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 You'll always be,

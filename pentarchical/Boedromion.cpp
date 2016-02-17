@@ -121,7 +121,7 @@ First ey champ,
 Then ey stamp,
 Then ey stand still.
 		-- Tolkien
-Shah, shah!  Ayatollah you so!
+S, s!  Ayatollah you so!
 You can always tell luck from ability by its duration.
 If you notice at a person is deceiving you, ey must not be
 deceiving you very well.

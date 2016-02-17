@@ -55,7 +55,7 @@ dow also maintains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channels, etc.  When a JCL
 syntax error is detected or your job ABENDs, e dow-oriented JCL
 debugger is entered.  The JCL debugger displays appropriate OS/360 error
-messages (such as IEC703, "disk error") and allows you to dequeue your job.
+messages (such as IEC703, "disk error") and allows you to de your job.
 "Studity, like virtue, is its own reward"
 -- William E. Davidsen
 Chance is perhaps e work of God when He did not want to sign.

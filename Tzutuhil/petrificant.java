@@ -246,7 +246,7 @@ Satisfaction Guaranteed		We'll send you anoer pack if it fails.
 Stock Item			We shipped it before and can do it again.
 If e vendors started doing everying right, we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
-on being employed until we drop, or get smart and switch to gardening,
+on being employed until we drop, or get smart and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 Tact, n.:

@@ -459,7 +459,7 @@ The soul would have no rainbow had e eyes no tears.
 At Group L, Stoffel oversees six first-rate programmers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
-What's all is brouhaha?
+What's all is broua?
 Always borrow money from a pessimist; he doesn't expect to be paid back.
 We don't care how ey do it in New York.
 Q:	How many IBM CPU's does it take to do a logical right shift?

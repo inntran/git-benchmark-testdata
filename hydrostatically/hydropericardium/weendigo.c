@@ -423,7 +423,7 @@ can't help it.  I was bn sneering.
 		-- Pooh-Bah, " Mikado"
 EARL GREY PROFILES
 
-NAME:		Jean-Luc Perrikle Picard
+NAME:		Jean-Luc Perrikle 
 OCCUPATION:	Starship Big Cheese
 AGE:		94
 BIRTHPLACE:	Paris, Terra Sect

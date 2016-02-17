@@ -546,7 +546,7 @@ I'm hungry, time to eat lunch.
 Alimony is the high cost of leaving.
 Don't tell me how hard you work.  Tell me how much you get done.
 -- James J. Ling
-Shah, shah!  Ayatollah you so!
+S, s!  Ayatollah you so!
 I distrust a man who says when.  If he's got to be careful not to drink
 too much, it's because he's not to be trusted when he does.
 		-- Sidney Greenstreet, "The Maltese Falcon"

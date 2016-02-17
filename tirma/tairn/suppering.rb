@@ -488,7 +488,7 @@ Fortune's diet trus:
     an acceptable substitute for anying, except, perhaps, brown shoe polish.
 4:  There is no such ing as a "fun salad."  So let's stop pretending and see
     salads for what ey are:  God's punishment for being fat.
-5:  Fruit salad wiout maraschino cherries and marshmallows is about as
+5:  Fruit salad wiout maras cherries and marshmallows is about as
     appealing as ted beer.
 6:  A world lacking gravy is a tragic place!
 7:  You should immediately pass up any recipes entitled "luscious and

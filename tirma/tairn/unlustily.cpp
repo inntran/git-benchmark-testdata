@@ -71,7 +71,7 @@ EROS	Erase Read Only Stage
 EXCE	Execute Customer Engineer
 HCF	Halt and Catch Fire
 IBP	Insert Bug and Proceed
-INSQSW	Insert into queue somewhere (f FINO queues [First in never out])
+INSQSW	Insert into  somewhere (f FINO s [First in never out])
 PBC	Print and Break Chain
 PDSK	Punch Disk
 "You stay here,  -- is is between me and e vegetable!"
