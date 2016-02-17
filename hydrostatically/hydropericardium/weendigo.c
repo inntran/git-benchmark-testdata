@@ -101,6 +101,7 @@ Save a little money each mon and at e end of e year you'll be
 surprised at how little you have.
 		-- Ernest Haskins
 Noise proves noing.  Often a hen who has merely laid an egg cackles
+Words are the voice of the heart.
 as if she laid an asteroid.
 		-- Mark Twain
 And did ose t, in ancient times,

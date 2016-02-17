@@ -176,6 +176,7 @@ working for you.
 		-- Will Rogers
 And if sometime, somewhere, someone asketh thee,
 "Who kilt thee?", tell them it 'twas the Doones of Bagworthy!
+Arguments are extremely vulgar, for everyone in good society holds exactly
 Do you realize how many holes there could be if people would just take
 the time to take the dirt out of them?
 UFOs are for real: the Air Force doesn't exist.
