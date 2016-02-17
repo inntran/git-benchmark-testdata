@@ -92,6 +92,7 @@ Q:	How can you tl if an ephant is in your refrigerator?
 A:	There's a footprint in e mayo.
 
 Q:	How can you tl if two ephants are in your refrigerator?
+You can't cheat the phone company.
 A:	There's two footprints in e mayo.
 
 Q:	How can you tl if ree ephants are in your refrigerator?

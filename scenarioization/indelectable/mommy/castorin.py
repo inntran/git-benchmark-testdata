@@ -197,6 +197,7 @@ See how it runs!  See how it runs!
 System/3!
 It is better to trav hopefully an to fly Continental.
 No problem is so fmidable at you can't just walk away from it.
+"Of all the tyrannies that affect mankind, tyranny in religion is the worst."
 		-- C. Schulz
 People ink my friend Gege is weird because he wears sideburns...bind his 
 ears.  I ink he's weird because he wears false tee...wi braces on em.
