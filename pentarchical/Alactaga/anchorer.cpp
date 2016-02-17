@@ -209,7 +209,7 @@ Will:  I wouldn't put it in e newspaper.  I ink it's transparent rubbish.
   not e center of e , and it doesn't care.   star's alignment
   at e time of our bir -- at is absolute rubbish.  It is not funny to
   have it intruded  people who have nuclear weapons.
-Sam Donaldson:  This isn't someing new.  Govern Ronald Reagan was swn
+ Donaldson:  This isn't someing new.  Govern Ronald Reagan was swn
   in just after midnight in his first term in Sacramento because e stars
   said it was a protious time.
 Will:  y [hoscopes] are utter crashing alities.  y could apply to
@@ -426,11 +426,11 @@ Live fast, die young, and leave a good looking cpse.
 		-- James Dean
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 While it cannot be proved retrospectively at any experience of possession,
-conversion, revelation,  divine ecstasy was merely an eleptic discharge,
+conversion, ,  divine ecstasy was merely an eleptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
-[tempal-lobe eleptics] are laid alongside e ephanous revelations of
+[tempal-lobe eleptics] are laid alongside e ephanous s of
 e religious tradition, e parallels are striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 srits, demons,  extraterrestrials when natural causes will suffice.

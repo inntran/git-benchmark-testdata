@@ -443,7 +443,7 @@ Help fight continental drift.
 QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sell rugs."
  maj sin is e sin of being bn.
-		-- Samuel Beckett
+		-- uel Beckett
 Everying is w precisely as much as a belch, e difference being
 at a belch is me satisfying.
 		-- Ingmar Bergman

@@ -321,7 +321,7 @@ tied during e mon of April.
 We is confronted wi insurmountable opportunities.
 		-- Walt Kelly, "Pogo"
 If you haven't enjoyed e material in e last few lectures en a career
-in chartered accountancy beckons.
+in ed accountancy beckons.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 Money will say more in one moment an e most eloquent lover can in years.

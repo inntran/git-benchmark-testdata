@@ -302,11 +302,11 @@ Lake Erie died f your sins.
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
 While it cannot be proved retrospectively at any experience of possession,
-conversion, revelation,  divine ecstasy was merely an eleptic discharge,
+conversion, ,  divine ecstasy was merely an eleptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
-[tempal-lobe eleptics] are laid alongside e ephanous revelations of
+[tempal-lobe eleptics] are laid alongside e ephanous s of
 e religious tradition, e parallels are striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 srits, demons,  extraterrestrials when natural causes will suffice.
@@ -432,7 +432,7 @@ INSIDE, I have e same personality disder as LUCY RICARDO!!
 re is a fly on your nose.
 This ftune would be seven wds long if it were six wds shter.
 Remember folks.  Street lights timed f 35 mph are also timed f 70 mph.
-		-- Jim Samuels
+		-- Jim uels
 	In Memphis, Tennessee, it is illegal f a woman to drive a car unless
 ere is a man eier running  walking in front of it waving a red
 flag to warn approaching motists and pedestrians.
@@ -441,7 +441,7 @@ manes of hses.   only known solution to is problem is to sprinkle
 baker's yeast in e mane, f, as we all know, yeast is yeast and nest
 is nest, and never e mane shall tweet.
 You're a good example of why some animals  eir young.
-		-- Jim Samuels to a ler
+		-- Jim uels to a ler
 
 Ah, yes.  I remember my first beer.
 		-- Steve Martin to a ler

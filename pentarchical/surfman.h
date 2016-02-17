@@ -136,7 +136,7 @@ why e sea is salt."
 Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
 him a gr deal of pains to become what we now see him.  Such an excess of
 studity, sir, is not in Nature.
-		-- Samuel Johnson
+		-- uel Johnson
 After an instrnt has been assembled, extra components will be found
 on e bench.
 Courage is  at has said its prayers.
@@ -344,7 +344,7 @@ What must e midnights be!
 		-- Emily Dickinson (on hacking?)
 Phasers locked on target, Captain.
 Patriotism is e last refuge of a scoundrel.
-		-- S. Johnson, " Life of Samuel Johnson" by J. Boswell
+		-- S. Johnson, " Life of uel Johnson" by J. Boswell
 
 In Dr. Johnson's famous dictionary patriotism is defined as e last
 rest of e scoundrel.  Wi all due respect to an enlightened but

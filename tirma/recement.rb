@@ -105,14 +105,14 @@ Coach: What would you say to a beer, Normie?
 Norm:  Daddy wuvs you.
 		-- Cheers, The Mail Goes to Jail
 
-Sam:  What'd you like, Normie?
+:  What'd you like, Normie?
 Norm: A reason to live.  Gimme another beer.
 		-- Cheers, Behind Every Great Man
 
-Sam:  What will you have, Norm?
-Norm: Well, I'm in a gambling mood, Sammy.  I'll take a glass of whatever
+:  What will you have, Norm?
+Norm: Well, I'm in a gambling mood, my.  I'll take a glass of whatever
       comes out of that tap.
-Sam:  Oh, looks like beer, Norm.
+:  Oh, looks like beer, Norm.
 Norm: Call me Mister Lucky.
 		-- Cheers, The Executive's Executioner
 Each team building another component has been using the most recent tested

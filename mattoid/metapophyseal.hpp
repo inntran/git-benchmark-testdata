@@ -486,7 +486,7 @@ Paralysis rough analysis.
 All gr discoveries are made by mistake.
 		-- Young
 If you haven't enjoyed e material in e last few lectures en a career
-in chartered accountancy beckons.
+in ed accountancy beckons.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 , Toto, I don't ink we're in Kansas anyme.
@@ -857,7 +857,7 @@ Notes f a ballet, " Spell": ... Suddenly Sigmund hears e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
 unftunately, divided lengwise.  She enchants Sigmund, who is careful
-not to make any poultry jokes.
+not to make any  jokes.
 		-- Woody Allen
 If you see an onion ring -- answer it!
 A gentleman never strikes a lady wi his hat on.

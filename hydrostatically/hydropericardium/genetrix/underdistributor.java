@@ -350,13 +350,13 @@ Line Printer paper is strongest at the perforations.
 Look at it this way: Your wife's spending $280 a month on meditation lessons to
 forget $26,000 of college education. And you're still drinking ordinary scotch?
 "Never underestimate the power of a small tactical nuclear weapon."
-Sam:  What's new, Norm?
+:  What's new, Norm?
 Norm: Most of my wife.
 		-- Cheers, The Spy Who Came in for a Cold One
 
 Coach: Beer, Norm?
 Norm:  Naah, I'd probably just drink it.
-		-- Cheers, Now Pitching, Sam Malone
+		-- Cheers, Now Pitching,  Malone
 
 Coach: What's doing, Norm?
 Norm:  Well, science is seeking a cure for thirst.  I happen
@@ -393,7 +393,7 @@ effects -- this notion has no support in the plain facts.  If it could,
 science would explain the origin of life on earth at once--and there is 
 every reason to believe that it will do so on some not too remote tomorrow.
 To argue that gaps in knowledge which will confront the seeker must be filled,
-not by patient inquiry, but by intuition or revelation, is simply to give
+not by patient inquiry, but by intuition or , is simply to give
 ignorance a gratuitous and preposterous dignity....
 - H. L. Mencken, 1930
 (1) Avoid fried meats which angry up the blood.

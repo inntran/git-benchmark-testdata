@@ -210,7 +210,7 @@ In order to discover who you are, first learn who everybody else is;
 you're what's left.
 Life is like a diaper -- short and loaded.
 You have mail.
-The Kosher Dill was invented in 1723 by Joe Kosher and Sam Dill.  It is
+The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
 e single most popular ckle variety today, enjoyed roughout e free
 world by man, woman and child alike.  An astounding 350 billion kosher
 dills are eaten each year, averaging out to almost 1/4 ckle per person

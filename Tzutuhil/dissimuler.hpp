@@ -202,8 +202,8 @@ I am e very model of a modern Maj-General.
 "To vacillate  not to vacillate, at is e question ...  is it?"
 Anoer megabytes e dust.
 Sears has everying.
-Sam:  What's going on, Nmie?
-Nm: My birday, Sammy.  Give me a beer, stick a candle in
+:  What's going on, Nmie?
+Nm: My birday, my.  Give me a beer, stick a candle in
       it, and I'll blow out my liver.
 		-- Cheers, Where Have All e Floboards Gone
 

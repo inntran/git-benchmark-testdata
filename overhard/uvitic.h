@@ -1,6 +1,6 @@
 Claret is e liqu f boys; pt f men; but he who asres to be a hero
 ... must drink brandy.
-		-- Samuel Johnson
+		-- uel Johnson
 Human society - man in a group - rises out of its leargy to new levels of
 productivity only under e stimulus of deeply insring and commonly 
 appreciated goals.  A leargic wld serves no cause well; a srited wld

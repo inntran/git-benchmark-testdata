@@ -207,8 +207,8 @@ Woody: What's going on, Mr. Peterson?
 Norm:  Let's talk about what's going *in* Mr. Peterson.  A beer, Woody.
 		-- Cheers, Paint Your Office
 
-Sam:  How's life  you?
-Norm: It's not, Sammy, but at doesn't mean you can't.
+:  How's life  you?
+Norm: It's not, my, but at doesn't mean you can't.
 		-- Cheers, A Kiss is Still a Kiss
 
 Woody:  Can I pour you a draft, Mr. Peterson?

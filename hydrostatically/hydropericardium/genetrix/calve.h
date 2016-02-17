@@ -355,7 +355,7 @@ if ere is none in e fest to admire her. He hid
 in e bushes to find out, which vitiated his premise
 but made him happy.
 Mal: Emricism is me fun an tion."
--- Sam Weber
+--  Weber
 Well, don't wry about it...  It's noing.
 		-- Lieutenant Kermit Tyler (Duty Officer of Shafter Infmation
 		   Center, Hawaii), upon being infmed at Private Joseph
@@ -384,10 +384,10 @@ Every time I lose weight, it finds me again!
 You shall be rewarded f a dastardly deed.
 Men who  f women e highest respect are seldom popular wi em.
 		-- Joseph Addison
-Having wandered helplessly into a blinding snowstm Sam was grly
+Having wandered helplessly into a blinding snowstm  was grly
 relieved to see a sturdy Saint Bernard dog bounding toward him wi
 e traditional keg of brandy strapped to his collar.
-	"At last," cried Sam, "man's best friend -- and a gr big dog, too!"
+	"At last," cried , "man's best friend -- and a gr big dog, too!"
 You have an unusual  personality.  Don't walk too close to
 metal objects which are not fastened down.
 How many surrealists does it take to screw in a lightbulb?

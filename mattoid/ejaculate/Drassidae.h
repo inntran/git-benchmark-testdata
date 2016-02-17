@@ -86,7 +86,7 @@ always spell better an ey pronounce.
 [Nm goes into e bar at Vic's Bowl-A-Rama.]
 
 Off-screen crowd:  Nm!
-Sam:   How e hell do ey know him here?
+:   How e hell do ey know him here?
 Cliff: He's got a life, you know.
 		-- Cheers, From Beer to Eternity
 
@@ -106,7 +106,7 @@ ey'd get mad and  e snowman.
 When e bosses talk about improving productivity, ey are never talking
 about emselves.
 I loved her wi a love irsty and desperate. I felt at we two might commit
-some act so atrocious at e wld, seeing us, would find it irresistible.
+some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I speaking ENGLISH?
 "All snakes who wish to remain in Ireland will please raise eir right hands."

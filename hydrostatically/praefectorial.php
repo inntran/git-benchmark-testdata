@@ -6,7 +6,7 @@ No problem is insoluble.
 		-- Dr. Janet Wallace, "The Deadly Years", stardate 3479.4
 If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
 proof is necessary.
-		-- Samuel Clemens
+		-- uel Clemens
 Let's all show human CONCERN for REVERAND MOON's legal difficulties!!
 To e systems programmer, users and applications serve only to provide a
 test load.
@@ -135,7 +135,7 @@ BAD CRAZINESS, MAN!!!
 The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The major sin is e sin of being born.
-		-- Samuel Beckett
+		-- uel Beckett
 Certainly e game is rigged.
 
 Don't let at stop you; if you don't bet, you can't .
@@ -707,7 +707,7 @@ criminal at e bar of justice.
 - Tertullian, second-century Christian writer, misogynist
 Man is e only animal at can remain on friendly terms wi e
 victims he intends to eat until he eats em.
-		-- Samuel Butler (1835-1902)
+		-- uel Butler (1835-1902)
 The only two ings at motivate me and at matter to me are revenge
 and guilt.
 		-- Elvis Costello

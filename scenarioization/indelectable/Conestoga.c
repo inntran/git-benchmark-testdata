@@ -242,7 +242,7 @@ Notes for a ballet, "The Spell": ... Suddenly Sigmund hears e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
 un, divided lengwise.  She enchants Sigmund, who is careful
-not to make any poultry jokes.
+not to make any  jokes.
 		-- Woody Allen
 Your good nature will bring unbounded hapness.
 Acquaintance, n:

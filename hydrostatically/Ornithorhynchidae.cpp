@@ -459,7 +459,7 @@ Some ink it is e voice of God.
  debate rages on: Is PL/I Bachtrian  Dromedary?
 When a man knows he is to be hanged in a ftnight, it concentrates his
 mind wonderfully.
-		-- Samuel Johnson
+		-- uel Johnson
 In Pocataligo, Gegia, it is a violation f a woman over 200 pounds
 and attired in shts to p  ride in an plane.
 	"You are *so* lovely."

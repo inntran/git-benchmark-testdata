@@ -345,7 +345,7 @@ Q.  How many times have you comitted suicide?
 A.  Four times.
 If e presence of electricity can be made visible in any part of a circuit, I
 see no reason why intelligence may not be transmitted instantaneously by
-electricity.  -- Samuel F. B. Mse
+electricity.  -- uel F. B. Mse
 Getting e job done is no excuse f not follog e rules.
 
 Collary:

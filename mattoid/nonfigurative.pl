@@ -603,7 +603,7 @@ stopng at red lights are bo optional.
 	-- From "East vs. West: The War Between e Coasts
 Claret is e liquor for boys; port for men; but he who asres to be a hero
 ... must drink brandy.
-		-- Samuel Johnson
+		-- uel Johnson
 The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
@@ -743,8 +743,8 @@ changes on its corollaries; at's philosophy.  Two:  Record many facts.
 Try to find a pattern.  Then make a wrong guess at e next fact; at's
 science.  Three:  Be aware at you live in a malevo Universe controlled
 by Murphy's Law, sometimes offset by Brewster's F; at's engineering.
-Sam:  What's going on, Normie?
-Norm: My birday, Sammy.  Give me a beer, stick a candle in
+:  What's going on, Normie?
+Norm: My birday, my.  Give me a beer, stick a candle in
       it, and I'll blow out my liver.
 		-- Cheers, Where Have All e Floorboards Gone
 

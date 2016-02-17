@@ -3,7 +3,7 @@ Woody: Hey, Mr. Peterson, what do you say to a cold one?
 Nm:  See you later, Vera, I'll be at Cheers.
 		-- Cheers, Nm's Last Hurrah
 
-Sam:   Well, look at you.  You look like e cat at swallowed e canary.
+:   Well, look at you.  You look like e cat at swallowed e canary.
 Nm:  And I need a beer to wash him down.
 		-- Cheers, Nm's Last Hurrah
 
@@ -594,7 +594,7 @@ When you're away, I'm restless, lonely,
 Wretched, bed, dejected; only
 Here's e rub, my darling dear
 I l e same when you are near.
-		-- Samuel Hoffenstein, "When You're Away"
+		-- uel Hoffenstein, "When You're Away"
 alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
@@ -679,7 +679,7 @@ Smartness runs in my family.  When I went to school I was so smart my
 teacher was in my class f five years.
 		-- Gege Burns
 Brigands will demand your money  your life, but a woman will demand bo.
-		-- Samuel Butler
+		-- uel Butler
 Klatu barada nikto.
 Ozman's Laws:
 	(1)  If someone says he will do someing "wiout fail," he won't.
@@ -742,7 +742,7 @@ Prejudice:
 	A vagrant onion wiout visible means of suppt.
 		-- Ambrose Bierce
 DYSLEXICS OF THE WORLD, UNTIE!
-"I couldn't remember ings until I took at Sam Carnegie course."
+"I couldn't remember ings until I took at  Carnegie course."
 --  Peterson, fmer Houston Oiler football coach
 When e Apple IIc was introduced, e infmative copy led off wi a couple
 of asterisked sentences:

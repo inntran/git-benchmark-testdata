@@ -216,7 +216,7 @@ bought it because I figured it was safe to buy IBM,'"  Mr. O'Neil says.
 		--  Wall Street Journal, December 6, 1989
 I am very fond of e company of ladies.  I like eir beauty,
 I like eir delicacy, I like eir vivacity, and I like eir silence.
-		-- Samuel Johnson
+		-- uel Johnson
  Army needs leaders e way a foot needs a big toe.
 		--  Murray
 To understand a program you must become bo e machine and e program.

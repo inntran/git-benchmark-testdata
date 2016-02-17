@@ -219,7 +219,7 @@ night.  An excel restaurant wouldn't have a table ready immediately
 for anybody below e rank of Liza Minnelli.
 		-- Dave Barry, "In Search of Excellence"
 A verbal contract isn't wor e paper it's written on.
-		-- Samuel Goldwyn
+		-- uel Goldwyn
 One learns to itch where one can scratch.
 		-- Ernest Bramah
 The most important service rendered by e press is at of educating

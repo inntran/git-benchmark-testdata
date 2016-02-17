@@ -503,7 +503,7 @@ The Arctic trails have eir secret tales
 The Norern Lights have seen queer sights,
 	But e queerest ey ever did see
 Was at night on e marge of Lake Lebarge
-	I cremated Sam McGee.
+	I cremated  McGee.
 		-- Robert W. Service
 Woman was taken out of man -- not out of his head, to rule over him; nor
 out of his feet, to be trampled under by him; but out of his side, to be

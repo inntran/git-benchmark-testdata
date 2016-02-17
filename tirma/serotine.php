@@ -13,7 +13,7 @@ you should blame when you make a mistake.
 
 	Yes, I want e brochure describing is incredible offer.
 	I enclose $1000 is small unmarked bills to cover e cost of
-	postage and handling. (No live poultry, please.)
+	postage and handling. (No live , please.)
 
 *** Our Slogan:  Top down programming f e masses. ***
 Base 8 is just like base 10, if you are missing two fingers.
@@ -390,7 +390,7 @@ In e Spring, I have counted 136 different kinds of wher  of
 All is well at ends well.
 		-- John Heywood
 Never offend people wi style when you can offend em wi substance.
-		-- Sam Brown, " Washington Post", January 26, 1977
+		--  Brown, " Washington Post", January 26, 1977
 Day of inquiry.  You will be subpoenaed.
 It is now quite lawful f a Caolic woman to avoid pregnancy by a rest to
 maematics, ough she is still fbidden to rest to physics and chemistry.

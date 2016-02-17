@@ -137,7 +137,7 @@ Too much of everything is just enough.
 Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
 him a great deal of pains to become what we now see him.  Such an excess of
 stupidity, sir, is not in Nature.
-		-- Samuel Johnson
+		-- uel Johnson
 Alimony and bribes will engage a large share of your wealth.
 The degree of technical confidence is inversely proportional to the
 level of management.
@@ -571,7 +571,7 @@ Hand, n.:
 	commonly thrust into somebody's pocket.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 The fancy is indeed no other than a mode of memory emancipated from the order
-of space and time.  -- Samuel Taylor Coleridge
+of space and time.  -- uel Taylor Coleridge
 Bagbiter:
 	1. n.; Equipment or program that fails, usually intermittently.  2.
 adj.: Failing hardware or software.  "This bagbiting system won't let me get
