@@ -595,7 +595,7 @@ Here's the rub, my darling dear
 I l the same when you are near.
 		-- Samuel Hoffenstein, "When You're Away"
 alta, v:	To change; make  become different; modify.
-ansa, v:	A spoken  written reply, as to a question.
+ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 capital of Massachusetts.
 baaba, n:	One whose business is to cut  trim hair  beards.

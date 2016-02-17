@@ -100,7 +100,7 @@ no owner, and a message of imptance f every housewife.
 		-- Harry V. Wade
 War spares not the brave, but the cowardly.
 		-- Anacreon
-Moe:	Wanna play poker tonight?
+Moe:	Wanna play r tonight?
 Joe:	I can't. It's the kids' night out.
 Moe:	So?
 Joe:	I gotta stay home with the nurse.

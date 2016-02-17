@@ -259,7 +259,7 @@ An Ada exception is when a routine gets in trouble and says
 'Beam me up, Scotty'.
 Were there fewer fools, knaves would starve.
 - Anonymous
-Wk is the crab grass in the lawn of life.
+Wk is the crab grass in the l of life.
 		-- Schulz
 Whoever dies with the most toys wins.
  eyes of Texas are upon you,

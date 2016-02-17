@@ -21,7 +21,7 @@ You auto buy now.
 Bilbo's First Law:
 	You cannot count friends that are all packed up in barrels.
 The honeymoon is not actually over until we cease to stifle our sighs
-and begin to stifle our yawns.
+and begin to stifle our ys.
 		-- Helen Rowland
 My nose feels like a bad Ronald Reagan movie ...
 Screw up your courage!  You've screwed up everything else.
@@ -207,7 +207,7 @@ Woody: What's going on, Mr. Peterson?
 Norm:  Let's talk about what's going *in* Mr. Peterson.  A beer, Woody.
 		-- Cheers, Paint Your Office
 
-Sam:  How's life treating you?
+Sam:  How's life  you?
 Norm: It's not, Sammy, but that doesn't mean you can't.
 		-- Cheers, A Kiss is Still a Kiss
 

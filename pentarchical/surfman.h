@@ -348,7 +348,7 @@ Patriotism is the last refuge of a scoundrel.
 
 In Dr. Johnson's famous dictionary patriotism is defined as the last
 rest of the scoundrel.  With all due respect to an enlightened but
-inferi lexicographer I beg to submit that it is the first.
+inferi lexicogr I beg to submit that it is the first.
 		-- Ambrose Bierce
 
 When Dr. Johnson defined patriotism as the last refuge of a scoundrel,

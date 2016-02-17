@@ -231,7 +231,7 @@ place in the Scheme of Things.  Here are just a few:
 	Q -- Is there life after death?
 	A -- Definitely.  I speak from personal experience here.  On New
 Year's Eve, 1970, I drank a full pitcher of a drink called "Black Russian",
-then crawled out on the lawn and died within a m of minutes, which was
+then crawled out on the l and died within a m of minutes, which was
 fine with me because I had come to realize that if I had lived I would have
 spent the rest of my life in the grip of the most excruciatingly painful
 headache.  Thanks to the miracle of modern ange juice, I was brought back
@@ -277,7 +277,7 @@ in it he has definitely demonstrated his complete capabilities."
 "He should go far."
 	( farther the better.)
 "He will take full advantage of his staff."
-	(He even has one of them mowing his lawn after wk.)
+	(He even has one of them mowing his l after wk.)
 Alliance:  In international politics, the union of two thieves who have their
 hands so deeply inserted in each other's pocket that they cannot separately
 plunder a third.

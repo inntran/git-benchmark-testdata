@@ -144,7 +144,7 @@ deal with the conflicts that arise out of change an innovation."
    The Wall Street Journal, May 3, 1988
 Try to have as good a life as you can under the circumstances.
 Do not meddle in the affairs of troff, for it is subtle and quick to anger.
-Don't speak about Time, until you have spoken to him.
+Don't speak about Time, until you have sn to him.
 Machines that have broken down will work perfectly when the repairman arrives.
 Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
@@ -206,7 +206,7 @@ The hair ball blocking the drain of the shower reminded Laura she would never
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
-It could have been an organically based disturbance of the brain -- perhaps a
+It could have been an organically based  of the brain -- perhaps a
 tumor or a metabolic deficiency -- but after a thorough neurological exam it
 was determined that Byron was  a jerk.
 		-- Jeff Jahnke, runner-up

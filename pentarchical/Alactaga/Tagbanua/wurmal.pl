@@ -1,7 +1,7 @@
 I think that I shall never see
 A thing as lovely as a tree.
 But as you see the trees have gone
-y went this mning with the dawn.
+y went this mning with the d.
 A logging firm from out of town
 Came and chopped the trees all down.
 But I will trick those dirty skunks

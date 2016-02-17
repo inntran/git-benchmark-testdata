@@ -370,7 +370,7 @@ you're hungry again.
 		-- Gege Miller
 If it ain't broke, don't fix it.
 "Absolutely nothing should be concluded from these figures except that
-no conclusion can be drawn from them."
+no conclusion can be dr from them."
 (By Joseph L. Brothers, Linux/PowerPC Project)
 Well, I don't know where they come from but they sure do come,
 I hope they comin' f me!
@@ -385,7 +385,7 @@ Got a bad scratch fever...
 		-- Ted Nugent, "Cat Scratch Fever"
 Nothing endures but change.
 		-- Heraclitus
-Wk is the crab grass in the lawn of life.
+Wk is the crab grass in the l of life.
 		-- Schulz
 Q:	How does a hacker fix a function which
 	doesn't wk f all of the elements in its domain?
@@ -463,7 +463,7 @@ I, B, and M.  That is a IBM compatible as I can be."
 	"Not quite, HAL.   engineers have figured out a kludge."
 	"What kludge is that, Dave?"
 	"I'm going to disconnect your brain."
-		-- Darryl Rubin, "A Problem in the Making", "InfoWld"
+		--  Rubin, "A Problem in the Making", "InfoWld"
 My tears stuck in their little ducts, refusing to be jerked.
 		-- Peter Stack, movie review
 
@@ -580,7 +580,7 @@ remotest clue what was happening.
 	 judge, Mr. Justice Solomon, asked him if he had heard any
 evidence at all and, when there was no reply, dismissed him.
 	 excitement which this caused was only equalled when a second
-jur revealed that he spoke not a wd of English.  A fluent French
+jur revealed that he s not a wd of English.  A fluent French
 speaker, he exhibited great surprised when told, after two days, that he
 was hearing a murder trial.
 	 trial was abandoned when a third jur said that he suffered

@@ -11,7 +11,7 @@ until one night the edifice colsed under the weight of paradox.
 structure reaching to the heavens.  One by one, the Mathematicians climbed
 out from under the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
-understand each other.  y all spoke different languages.  y all fought
+understand each other.  y all s different languages.  y all fought
 amongst themselves and each went about their own way.  To this day the
 Topologists remain the iginal Mathematicians.
 		--  Sty of Babel
@@ -144,7 +144,7 @@ re are two kinds of pedestrians... the quick and the dead.
 HEY KIDS!  ANN LANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
 	tell a lie.  Millions of hearts have been broken, just because
-	these wds were spoken.
+	these wds were sn.
 You're wking under a slight handicap.  You happen to be human.
 Column 1		Column 2		Column 3
 

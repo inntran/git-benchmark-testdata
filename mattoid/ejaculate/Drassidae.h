@@ -26,7 +26,7 @@ the firelight, afraid of the night.
 Nm:  Gentlemen, start your taps.
 		-- Cheers,  Coach's Daughter
 
-Coach: How's life treating you, Nm?
+Coach: How's life  you, Nm?
 Nm:  Like it caught me in bed with his wife.
 		-- Cheers, Any Friend of Diane's
 
@@ -151,7 +151,7 @@ Having wked f po management, they no longer value their jobs.
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 It has been observed that one's nose is never so happy as when it is
 thrust into the affairs of another, from which some s have
-drawn the inference that the nose is devoid of the sense of smell.
+dr the inference that the nose is devoid of the sense of smell.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Avoid the Gates of Hell.  Use Linux
 (Unknown source)
@@ -171,7 +171,7 @@ millennia after the birth of Jesus he would not have a wld where there
 are me Muslims than Catholics, me Hindus than Protestants, and me
 nontheists than Catholics and Protestants combined.
 -- John K. Naland, " First Easter", Free Inquiry magazine, Vol. 8, No. 2
-If you sit down at a poker game and don't see a sucker, get up.  You're
+If you sit down at a r game and don't see a sucker, get up.  You're
 the sucker.
  program isn't debugged until the last user is dead.
 We thrive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
@@ -210,7 +210,7 @@ Can't act.  Slightly bald.  Also dances.
 Everything that you know is wrong, but you can be straightened out.
 	Once upon a time there was a beautiful young girl taking a stroll 
 through the woods.  All at once she saw an extremely ugly bull frog seated 
-on a log and to her amazement the frog spoke to her.  "Maiden," croaked the
+on a log and to her amazement the frog s to her.  "Maiden," croaked the
 frog, "would you do me a fav?  This will be hard f you to believe, but
 I was once a handsome, charming prince and then a mean, ugly old witch cast
 a spell over me and turned me into a frog."

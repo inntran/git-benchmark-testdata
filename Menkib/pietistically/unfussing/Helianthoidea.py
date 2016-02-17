@@ -1,4 +1,4 @@
-"The voters have spoken, the bastards..."
+"The voters have sn, the bastards..."
 -- unknown
 Iron Law of Distribution:
 	Them that has, gets.
