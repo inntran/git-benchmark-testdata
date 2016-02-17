@@ -327,7 +327,7 @@ pixel, n.:
 	A mischievous, magical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
 	Witness the sprites in computer graphics, the demons in artificial
-	intelligence, and the trolls in the marketing department.
+	intelligence, and the trolls in the ing department.
 Main's Law:
 	For every action there is an equal and opposite government program.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#5
@@ -443,7 +443,7 @@ already know, your fingers could walk themselves to death.
 667:
 	The neighbor of the beast.
 The myth of romantic love holds that once you've fallen in love with the
-perfect partner, you're home free.  Unfortunately, falling out of love
+perfect partner, you're home free.  Un, falling out of love
 seems to be just as involuntary as falling into it.
 Without facts, the decision cannot be made logically.  You must rely on
 your human intuition.
@@ -470,7 +470,7 @@ And they granted you one final wish,
 Would you ask for something
 Like another chance?
 		-- Traffic, "The Low Spark of High Heeled Boys"
-To a New Yorker, the only California houses on the market for less than a
+To a New Yorker, the only California houses on the  for less than a
 million dollars are those on fire.  These generally go for six hundred
 thousand.
 	-- From "East vs. West: The War Between the Coasts

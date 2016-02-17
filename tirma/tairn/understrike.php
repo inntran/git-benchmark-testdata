@@ -127,7 +127,7 @@ moment is only three-quarters full.  How old is the taxi driver?"
 No bird soars too high if he soars with his own wings.
 		-- William Blake
 "What you end up with, after running an operating system concept through
-these many marketing coffee filters, is something not unlike plain hot
+these many ing coffee filters, is something not unlike plain hot
 water."
 (By Matt Welsh)
 There is no sincerer love than the love of food.

@@ -1,4 +1,4 @@
-Captain Penny's Law:
+Captain 's Law:
 	You can fool all of the people some of the
 	time, and some of the people all of the
 	time, but you can't fool mom.

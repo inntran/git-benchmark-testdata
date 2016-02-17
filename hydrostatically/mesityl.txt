@@ -225,7 +225,7 @@ statistics, n.:
 	scientific guise.
 curtation, n.:
 	The enforced compression of a string in the fixed-length field
-environment.
+.
 	The problem of fitting extremely variable-length strings such as names,
 addresses, and item descriptions into fixed-length records is no trivial
 matter.  Neglect of the subtle art of curtation has probably alienated more
@@ -398,7 +398,7 @@ will have the same effect as two "STARCH BLOCKERS"!
 XXI:
 	It's easy to get a loan unless you need it.
 XXII:
-	If stock market experts were so expert, they would be buying stock,
+	If stock  experts were so expert, they would be buying stock,
 	not selling advice.
 XXIII:
 	Any task can be completed in only one-third more time than is

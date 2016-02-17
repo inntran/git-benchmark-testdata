@@ -152,7 +152,7 @@ f once!
 girl  a live boy."
 -- Louisiana govern Edwin Edwards
 Life is a biochemical reaction to the stimulus of the surrounding
-environment in a stable ecosphere, while a bowl of cherries is a
+ in a stable ecosphere, while a bowl of cherries is a
 round container filled with little red fruits on sticks.
 You know you've been sitting in front of your Lisp machine too long
 when you go out to the junk food machine and start wondering how to

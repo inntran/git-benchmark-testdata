@@ -63,7 +63,7 @@ buzzword, n:
 AmigaDOS Beer: The company has gone out of business, but their recipe has 
 been picked up by some weird German company, so now this beer will be an 
 import.  This beer never really sold very well because the original 
-manufacturer didn't understand marketing. Like Unix Beer, AmigaDOS Beer 
+manufacturer didn't understand ing. Like Unix Beer, AmigaDOS Beer 
 fans are an extremely loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When this can was 
 originally introduced, it appeared flashy and colorful, but the design 
@@ -183,7 +183,7 @@ If dolphins are so smart, why did Flipper work for television?
 God must have loved calories, she made so many of them.
 I've known him as a man, as an adolescent and as a child -- sometimes
 on the same day.
-"None of our men are "experts."  We have most unfortunately found it necessary 
+"None of our men are "experts."  We have most un found it necessary 
 to get rid of a man as soon as he thinks himself an expert -- because no one 
 ever considers himself expert if he really knows his job.  A man who knows a 
 job sees so much more to be done than he has done, that he is always pressing 

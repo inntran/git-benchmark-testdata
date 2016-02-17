@@ -361,7 +361,7 @@ Dealing with failure is easy:
 Success is also easy to handle:
 	You've solved the wrong problem.
 	Wk hard to improve.
-Most people  as though they were fattening themselves f market.
+Most people  as though they were fattening themselves f .
 		-- E.W. Howe
 interlard - vt., to intersperse; diversify
 -- Webster's New Wld Dictionary Of  American Language
@@ -449,7 +449,7 @@ that a belch is me satisfying.
 		-- Ingmar Bergman
 	"We've got a problem, HAL".
 	"What kind of problem, Dave?"
-	"A marketing problem.   Model 9000 isn't going anywhere.  We're
+	"A ing problem.   Model 9000 isn't going anywhere.  We're
 way sht of our sales goals f fiscal 2010."
 	"That can't be, Dave.   HAL Model 9000 is the wld's most
 advanced Heuristically programmed ALgithmic computer."

@@ -483,7 +483,7 @@ Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started with. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging programs between different machines.
-And so, because of its popularity in these markets, we suppt it.  We have
+And so, because of its popularity in these s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our belief, however, that serious professional users will run
 out of things they can do with UNIX. y'll want a real system and will end

@@ -125,7 +125,7 @@ I never killed a man that didn't deserve it.
 		-- Mickey Cohen
  reason it's called "Grape Nuts" is that it contains "dextrose", which is
 also sometimes called "grape sugar," and also because "Grape Nuts" is
-catchier, in terms of marketing, than "A Cross Between Gerbil Food and
+catchier, in terms of ing, than "A Cross Between Gerbil Food and
 Gravel," which is what it tastes like.
 		-- Dave Barry, "Tips f Writer's"
 Save the whales.  Collect the whole set.

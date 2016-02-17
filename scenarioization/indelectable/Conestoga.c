@@ -137,7 +137,7 @@ Review Questions
 to be hospitable to the unusual person.  You don't get innovation as a 
 democratic process.  You almost get it as an anti-democratic process.
 Certainly you get it as an anthitetical process, so you have to have an
-environment where the body of people are really amenable to change and can
+ where the body of people are really amenable to change and can
 deal with the conflicts that arise out of change an innovation."
 -- Max DePree, chairman and CEO of Herman Miller Inc.,  
    "Herman Miller's Secrets of Corporate Crivity",
@@ -241,7 +241,7 @@ devil when he is the only explanation of it.
 Notes for a ballet, "The Spell": ... Suddenly Sigmund hears the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
-unfortunately, divided lengthwise.  She enchants Sigmund, who is careful
+un, divided lengthwise.  She enchants Sigmund, who is careful
 not to make any poultry jokes.
 		-- Woody Allen
 Your good nature will bring unbounded happiness.

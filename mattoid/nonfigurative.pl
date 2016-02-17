@@ -452,7 +452,7 @@ Which is worse: ignorance or apathy?  Who knows?  Who cares?
 Most of our lives are about proving something, either to ourselves or to
 someone else.
 There are two jazz musicians who are gr buddies.  They hang out and play
-together for years, virtually inseparable.  Unfortunately, one of them is
+together for years, virtually inseparable.  Un, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"

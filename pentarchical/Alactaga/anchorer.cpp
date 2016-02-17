@@ -46,7 +46,7 @@ If you fail to plan, plan to fail.
 
     if you meet an older version of yourself who has invented a time
     traveling machine, and has come from the future to meet you?
-	Play this one by the book.  Ask about the stock market and cash in.
+	Play this one by the book.  Ask about the stock  and cash in.
 	Don't fget to invent a time traveling machine and visit your
 	younger self befe you die,  you will cre a paradox.  If you
 	expect this to be tricky, make sure to ask f the principles
@@ -146,7 +146,7 @@ Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started with. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging programs between different machines.
-And so, because of its popularity in these markets, we suppt it.  We have
+And so, because of its popularity in these s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our belief, however, that serious professional users will run
 out of things they can do with UNIX. y'll want a real system and will end
@@ -347,7 +347,7 @@ auth's  on the title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 "Live  die, I'll make a million."
 -- Reebus Kneebus, befe his jump to the center of the earth, Firesign ater
-Have you seen the old man in the closed down market,
+Have you seen the old man in the closed down ,
 Kicking up the papers in his wn out shoes?
 In his eyes you see no pride, hands hang loosely at his side
 Yesterdays papers, telling yesterdays news.

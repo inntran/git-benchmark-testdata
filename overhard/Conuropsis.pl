@@ -41,7 +41,7 @@ Cache:
 	is supposed to know is there.
 curtation, n.:
 	The enforced compression of a string in the fixed-length field
-environment.
+.
 	The problem of fitting extremely variable-length strings such as names,
 addresses, and item descriptions into fixed-length records is no trivial
 matter.  Neglect of the subtle art of curtation has probably alienated more
@@ -409,7 +409,7 @@ logically experienced citizens."
 just a case of "uncontained blade liberation."
 		-- Quarterly Review of Doublespeak (NCTE)
 There are two jazz musicians who are great buddies.  They hang out and play
-together for years, virtually inseparable.  Unfortunately, one of them is
+together for years, virtually inseparable.  Un, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"

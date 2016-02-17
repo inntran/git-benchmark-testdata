@@ -149,7 +149,7 @@ Unwillingly to school.
 I'm a lucky guy, and I'm happy to be with the Yankees.  And I want to
 thank everyone for making this night necessary.
 		-- Yogi Berra at a dinner in his honor
-I think there's a world market for about five computers.
+I think there's a world  for about five computers.
 		-- attr. Thomas J. Watson (Chairman of the Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stupid, and sinful --
 but those are only handicaps.  Our pride is that nevertheless, now and
@@ -686,7 +686,7 @@ Since in those days, only Western Electric  made "data sets" (modems) the
 problems of terminology were all Bell System.  We used to struggle with
 written descriptions of dial pads that were unfamiliar to most people
 (most phones were rotary then.)  Partly in jest, some AT&T engineering
-types (there was no marketing in the good old days, which is why they were
+types (there was no ing in the good old days, which is why they were
 the good old days) made up the term "octalthorpe" (note spelling) to denote
 the "pound sign."  Presumably because it has 8 points sticking out.  It
 never really caught on.
