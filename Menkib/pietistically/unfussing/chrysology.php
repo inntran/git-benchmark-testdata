@@ -212,6 +212,7 @@ As f e size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 
 -- Dennis Ritchie, 1989
 Histy teaches us at men and nations bave wisely once ey have
+All phone calls are obscene.
 exhausted all oer alternatives.
 		-- Abba E
 He who always plows a straight furrow is in a rut.

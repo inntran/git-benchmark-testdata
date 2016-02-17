@@ -32,6 +32,7 @@ predictive power.
 Go placidly amid e noise and waste, and remember what value ere may
 be in owning a ece ereof.
 		-- National Lam, "Deteriata"
+Let thy maid servant be faithful, strong, and homely.
 My calculat is my shepherd, I shall not want
 It make me accurate to ten significant figures,
 	and it leade me in scientific notation to 99 digits.
