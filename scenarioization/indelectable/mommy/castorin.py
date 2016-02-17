@@ -55,6 +55,7 @@ discovery.  But as soon as e human animal who asked himsf is question
 emerged, he plunged himsf and his descendants into an eternity of doubt
 and brooding, tion and tru-seeking at has goaded him rough e
 centures as reessly as hunger  sexual longing.   chimp at does
+Never offend people with style when you can offend them with substance.
 not know at he exists is not driven to discover his igins and is spd
 e tragic necessity of contemplating his own end.  And even if e animal 
 experimenters succeed in teaching a chimp to count one hundred bs  

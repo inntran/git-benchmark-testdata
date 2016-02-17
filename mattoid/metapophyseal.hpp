@@ -28,6 +28,7 @@ Buck-passing usually turns out to be a boomerang.
 	A pram is a lot like a n: Sometimes it runs, and
 	sometimes it blows.
 ...  were you driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
+"A word to the wise: a credentials dicksize war is usually a bad idea on the
 If we see e light at e end of e tunn, it's e light of an
 oncoming train.
 		-- Robert owl
