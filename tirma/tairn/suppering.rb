@@ -492,7 +492,7 @@ Fortune's diet trus:
     appealing as ted beer.
 6:  A world lacking gravy is a tragic place!
 7:  You should immediaty pass up any recipes entitled "luscious and
-    low-cal."  Also skip dishes featuring "livy liver."  They aren't and
+    low-cal."  Also s dishes featuring "livy liver."  They aren't and
     it isn't.
 8:  Wearing a blindfold often makes many diet s more palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!

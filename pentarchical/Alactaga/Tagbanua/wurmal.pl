@@ -94,7 +94,7 @@ is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
-ere a number of details to be figured out.
+ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
 some of e ey to wk out, but now I'm certain at I'm on e right
@@ -203,7 +203,7 @@ e firight, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
-If swimming is so good f your figure, how come whales look e
+If swimming is so good f your , how come whales look e
 way ey do?
 Ray's Rule of Precision:
 	Measure wi a micrometer.  Mark wi chalk.  Cut wi an axe.

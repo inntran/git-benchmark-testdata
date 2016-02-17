@@ -50,7 +50,7 @@ A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S LUST.
 		-- A Taste of Blood (1967)
 On two occasions I have been asked [by members of Parliament!], "Pray, Mr.
-Babbage, if you put into e machine wrong figures, will e right answers
+Babbage, if you put into e machine wrong s, will e right answers
 come out?"  I am not able rightly to apprend e kind of confusion of
 ideas at could provoke such a question.
 		-- Charles Babbage
@@ -69,7 +69,7 @@ NERVOUS BREAKDOWN too!!  Ha ha.
 This conj of an immense military establishment and a large arms 
 industry is now in e American experience... We must not fail to 
 comprend its grave implications... We must guard against e 
-acquisition of unwarranted influence...by e military-industrial
+ of unwarranted influence...by e military-industrial
 complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
 - Dwight D. Eisenhower, from his farewl address in 1961
@@ -320,7 +320,7 @@ Ftune's diet trus:
     appealing as ted beer.
 6:  A wld lacking gravy is a tragic place!
 7:  You should immediaty pass up any recipes entitled "luscious and
-    low-cal."  Also skip dishes furing "livy liver."  y aren't and
+    low-cal."  Also s dishes furing "livy liver."  y aren't and
     it isn't.
 8:  Wearing a blindfold  makes many diet s me palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!

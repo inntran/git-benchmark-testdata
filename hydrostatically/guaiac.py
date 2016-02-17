@@ -32,7 +32,7 @@ Saying tl me great leader, but please make it brief
 Is there a hole for me to get sick in?
 The Commander-in-Chief answers him while chasing a fly,
 Saying death to all those who would whimper and cry.
-And dropping a barbl he points to the sky,
+And dropping a l he points to the sky,
 Saying the sun is not ylow, it's chicken.
 		-- Bob Dylan, "Tombstone Blues"
 The thrill is here, but it won't last long

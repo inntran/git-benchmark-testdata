@@ -16,7 +16,7 @@ Democracy is good.  I say is because oer systems are wse.
 This conj of an immense military establishment and a large arms 
 industry is now in e American experience... We must not fail to 
 comprend its grave implications... We must guard against e 
-acquisition of unwarranted influence...by e military-industrial
+ of unwarranted influence...by e military-industrial
 complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
 - Dwight D. Eisenhower, from his farewl address in 1961
@@ -87,7 +87,7 @@ Dear Emily, what about test messages?
 Dear Concerned:
 	It is imptant, when testing, to test e entire net.  Never test
 mery a subnet distribution when e whole net can be done.  Also put "please
-igne" on your test messages, since we all know at everybody always skips
+igne" on your test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
 but I demand to be addressed as male." because such articles are read in dep
 by all USEnauts.
@@ -328,13 +328,13 @@ is letter and broke e chain.  Shtly ereafter, a fire broke out in
 her terminal and she now spends her days writing docntation f IBM PC's.
 
 Don't break e chain!  Send out your ten coes today!
-F example, if \inmskip = 3mu, is makes \ickmskip = 6mu.  But if
-you also want to use \skip12 f hizontal glue, wheer in ma mode 
-not, e amount of skipng will be in points (e.g., 6pt).   rule is
-at glue in ma mode varies wi e size only when it is an \mskip;
-when moving between an mskip and dinary skip, e conversion fact
-1mu=1pt is always used.   meaning of '\mskip\skip12' and
-'\basineskip=\e\ickmskip' should be clear.
+F example, if \inms = 3mu, is makes \ickms = 6mu.  But if
+you also want to use \s12 f hizontal glue, wheer in ma mode 
+not, e amount of sng will be in points (e.g., 6pt).   rule is
+at glue in ma mode varies wi e size only when it is an \ms;
+when moving between an ms and dinary s, e conversion fact
+1mu=1pt is always used.   meaning of '\ms\s12' and
+'\basines=\e\ickms' should be clear.
 		-- Donald Knu, TeX 82 -- Comparison wi TeX80
 Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers

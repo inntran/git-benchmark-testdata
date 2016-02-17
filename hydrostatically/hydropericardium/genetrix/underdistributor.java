@@ -674,7 +674,7 @@ That pig run up and wiggled underneath that tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  the salen said.  But tl me, how come the pig has
 three wooden legs?"
-	The farmer stared at the newcomer in amazement.  "Mister, when you 
+	The farmer sd at the newcomer in amazement.  "Mister, when you 
 got an amazin' pig like that, you don't eat him all at once."
 Drinking makes such fools of people, and people are such fools to begin
 with, that it's compounding a fony.

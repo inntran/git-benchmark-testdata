@@ -102,7 +102,7 @@ Live wiin your income, even if you have to brow to do so.
 		-- Josh ings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	 housewife replied, "Four!".
-	 accountant said, "It's eier 3  4.  Let me run ose figures
+	 accountant said, "It's eier 3  4.  Let me run ose s
 rough my spread sheet one me time."
 	 lawyer pulled e drapes, dimmed e lights and asked in a
 hushed voice, "How much do you want it to be?"

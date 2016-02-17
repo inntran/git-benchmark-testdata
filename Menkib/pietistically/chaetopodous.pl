@@ -694,7 +694,7 @@ growth potential:
 	the reviewee may, given enough time and close supervision, meet
 	the minimum requirements expected of him by the company.
 
-key company figure:
+key company :
 	Serves as the perfect counter example.
 I'm going to live forever, or die trying!
 		-- Spider Robinson

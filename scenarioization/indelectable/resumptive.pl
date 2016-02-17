@@ -36,7 +36,7 @@ May the fleas of a thousand camels infest your armpits.
 The last thing one knows in constructing a work is what to put first.
 		-- Blaise Pascal
 HP had a unique policy of allowing its engineers to take parts from stock as
-long as they built something.  "They figured that with every design, they were 
+long as they built something.  "They d that with every design, they were 
 getting a better engineer.  It's a policy I urge all companies to adopt."
 -- Apple co-founder Steve Wozniak, "Will Wozniak's class give Apple to teacher?"
    EE Times, June 6, 1988, pg 45
@@ -240,7 +240,7 @@ But if I do, don't pity me at all,
 Just lay my bones in the study hall.
 Tell my teacher I've done my best,
 Then pile my books upon my chest.
-Hackers are just a migratory lifeform with a tropism for computers.
+Hackers are just a  lifeform with a tropism for computers.
 Landru! Guide us!
 		-- A Beta 3-oid, "The Return of the Archons", stardate 3157.4
 QOTD:

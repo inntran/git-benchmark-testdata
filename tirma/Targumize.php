@@ -80,7 +80,7 @@ clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namely, that he is a blockhead.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-I saw Lassie.  It took me four shows to figure out why the hairy kid never
+I saw Lassie.  It took me four shows to  out why the hairy kid never
 spoke. I mean, he could roll over and all that, but did that deserve a series?
 Not all who own a harp are harpers.
 		-- Marcus Terentius Varro
@@ -276,7 +276,7 @@ And tapes mixed up on the racks --
 	Take hold of the tape
 	And pull off the strip,
 	And then you'll be sure
-	Your tape drive will skip.
+	Your tape drive will s.
 		-- Uncle Colonel's Cursory Rhymes
 The universe does not have laws -- it has habits, and habits can be broken.
 Machines that have broken down will work perfectly when the repairman arrives.
@@ -451,7 +451,7 @@ worst possible novel.
 The honeymoon is not actually over until we cease to stifle our sighs
 and begin to stifle our yawns.
 		-- Helen Rowland
-... the HIGHWAY is made out of LIME JELLO and my HONDA is a barbequeued
+... the HIGHWAY is made out of LIME JELLO and my HONDA is a equeued
 OYSTER!  Yum!
 I kissed my first girl and smoked my first cigarette on the same day.
 I haven't had time for tobacco since.
@@ -537,7 +537,7 @@ Let Andy have his labor to himself!
 		-- Chaucer
 		[well, almost.  Ed.]
 Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
+A:	Easy.  It's because they can't  out how to get the little
 	bottles into the typewriter.
 Hempstone's Question:
 	If you have to travel on the Titanic, why not go first class?

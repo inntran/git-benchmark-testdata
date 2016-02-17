@@ -69,7 +69,7 @@ Tl us to go out and Buy.
 	"Do you bieve in intuition?"
 	"No, but I have a strange ling at someday I will."
 You canna change e laws of physics, Captain; I've got to have irty minutes!
-If I set here and stare at noing long enough, people might ink
+If I set here and s at noing long enough, people might ink
 I'm an engineer wking on someing.
 		-- S.R. McElroy
 Oh, when I was in love wi you,
@@ -112,7 +112,7 @@ And tapes mixed up on e racks --
 	Take hold of e tape
 	And pull off e strip,
 	And en you'll be sure
-	Your tape drive will skip.
+	Your tape drive will s.
 		-- Uncle Colon's Cursy Rhymes
  Road goes ever on and on
 Down from e do where it began.

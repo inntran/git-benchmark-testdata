@@ -67,7 +67,7 @@ F ose who like is st of ing, is is e st of ing ey like.
 		-- Abraham Lincoln
 "re are ings at are so us at you can only joke about em"
 - Heisenberg
-Accding to e latest official figures, 43% of all  are
+Accding to e latest official s, 43% of all  are
 totally wless.
 	A novice asked e Master: "Here is a programmer at never designs,
 docnts,  tests his programs.  Yet all who know him consider him one of
@@ -203,7 +203,7 @@ having to accomplish anying.
 Politics, as a practice, whatever its professions, has always been e
 systematic ganisation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
-  way to figure e cost of living is to take your income and
+  way to  e cost of living is to take your income and
 add ten percent.
 ... we must be wary of granting too much power to natural section
 by vieg all basic capacities of our brain as direct adaptations.
@@ -313,7 +313,7 @@ was expressed by Thomas K. Connlan, president of  Management Group, Inc.
 Speaking to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
-and accountants "do not make e economic e any bigger; ey only figure
+and accountants "do not make e economic e any bigger; ey only 
 out how e e gets divided.  Neier profession provides any added value
 to product."
 	Accding to Connlan, e highly productive Japanese society has

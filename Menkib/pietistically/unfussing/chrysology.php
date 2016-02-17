@@ -185,7 +185,7 @@ In tiny type were ese "fuller explanations":
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
 	will make e IIc weigh me. Our lawyers were concerned at you
-	might not be able to figure is out f yoursf.
+	might not be able to  is out f yoursf.
 
      **  FTC is concerned about price fixing. You can pay me if
 	you really want to.  Or less.
@@ -756,7 +756,7 @@ In tiny type were ese "fuller explanations":
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
 	will make e IIc weigh me. Our lawyers were concerned at you
-	might not be able to figure is out f yoursf.
+	might not be able to  is out f yoursf.
 
      **  FTC is concerned about price fixing. You can pay me if
 	you really want to.  Or less.

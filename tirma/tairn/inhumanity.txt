@@ -456,7 +456,7 @@ tricks on me and treating me badly.
 		-- Jorge Luis Borges, from "Writers on Writing" by Jon Winokur
 The way some people find fault, you'd think there was some kind of reward.
 I guess I've been so wrapped up in playing the game that I never took
-time enough to figure out where the goal line was -- what it meant to
+time enough to  out where the goal line was -- what it meant to
 win -- or even how you won.
 		-- Cash McCall
 Term, holidays, term, holidays, till we leave school, and then work, work,
@@ -554,7 +554,7 @@ Let sleeping dogs lie.
 		-- Charles Dickens
 Horner's Five Thumb Postulate:
 	Experience varies directly with equipment ruined.
-I saw Lassie.  It took me four shows to figure out why the hairy kid never
+I saw Lassie.  It took me four shows to  out why the hairy kid never
 spoke. I mean, he could roll over and all that, but did that deserve a series?
 As of next Thursday, UNIX will be flushed in favor of TOPS-10.
 Please update your programs.

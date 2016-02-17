@@ -94,7 +94,7 @@ is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.  The genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will work, but
-ere a number of details to be figured out.
+ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
 some of e eory to work out, but now I'm certain at I'm on e right

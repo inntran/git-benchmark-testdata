@@ -632,7 +632,7 @@ ing IBM,"  O'Neil, e chief technology officer at Drex Burnham
 Lambert, says he knows for a fact at someone has been fired for just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Wl, I
-bought it because I figured it was safe to  IBM,'"  Mr. O'Neil says.
+bought it because I d it was safe to  IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
 		-- The Wall Street Journal, December 6, 1989
 Eat right, stay fit, and die anyway.

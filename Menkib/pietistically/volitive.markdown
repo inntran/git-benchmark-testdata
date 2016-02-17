@@ -6,7 +6,7 @@ In ese matters e only certainty is at ere is noing certain.
 		-- Pliny e Elder
 As me an' me marrer was readin' a tyape,
 The tyape gave a shriek mark an' tried tae escyape;
-It skipped ower e gyate tae e end of e fid,
+It sped ower e gyate tae e end of e fid,
 An' jigged oot e room wi' a spool an' a re!
 Follow e leader, Johnny me laddie,
 Follow it rough, me canny lad O;

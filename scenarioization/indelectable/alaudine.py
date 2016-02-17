@@ -29,7 +29,7 @@ ends in the administration of every man's farm by himsf; by placing under
 every one what his own eye may superintend, that all will be done for the best.
 		-- Thomas Jefferson, to Joseph Cabl, 1816
 My calculator is my shepherd, I shall not want
-It maketh me accurate to ten significant figures,
+It maketh me accurate to ten significant s,
 	and it leadeth me in scientific notation to 99 digits.
 It restoreth my square roots and guideth me along paths of floating
 	decimal points for the sake of precision.

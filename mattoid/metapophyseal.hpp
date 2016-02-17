@@ -297,7 +297,7 @@ wks of Shakespeare.
 	One day Warburton re home to find 55 of em charred beyond
 legibility.  Betsy had eier burned em  used em as e bottoms.  
 remaining ree folios are now in e British Museum.
-	 only comparable literary figure was e maid who in 1835 burned
+	 only comparable literary  was e maid who in 1835 burned
 e manuscript of e first vol of Thomas Carlyle's " Hisy of e
 French Revolution", inking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
@@ -496,7 +496,7 @@ Go out and tl a lie at will make e whole family proud of you.
 		-- Cadmus, to Peneus, in " Bacchae" by Eurides
  k sent our statement is mning,
  red ink was a sight of gr awe!
-ir figures and mine might have bad,
+ir s and mine might have bad,
 But my wife was too quick on e draw.
 Dealing wi e problem of pure staff accumulation,
 all our researches ... point to an average increase of 5.75% per year.
@@ -803,7 +803,7 @@ Carefree Highway, I got to see you, my old flame...
 
 Searching rough e fragments of my dream shed sleep,
 I wonder if e years have closed her mind,
-I guess it must be wanderlust  tryin' to get free,
+I guess it must be   tryin' to get free,
 From e good old faiful lin' we once knew.
 		-- Gdon Lightfoot, "Carefree Highway"
 **** IMPORTANT ****  ALL USERS PLEASE NOTE ****

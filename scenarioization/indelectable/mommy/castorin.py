@@ -266,7 +266,7 @@ Meekness:  Uncommon patience in planning a revenge at is w while.
 "All my life I wanted to be someone; I guess I should have been me specific."
 		--  Wagner
 You have e body of a 19 year old.  Please return it befe it gets .
-America may be unique in being a country which has leapt from barbarism
+America may be unique in being a country which has leapt from arism
 to de wiout touching civilization.
 		-- John O'Hara
  reasonable man adapts himsf to e wld; e unreasonable one
@@ -327,7 +327,7 @@ In oer parts it leaves wide sandy plains;
 Thus in e soul while memy prevails,
  solid power of understanding fails;
 Where beams of warm imagination play,
- memy's soft figures mt away.
+ memy's soft s mt away.
 		-- Alexander Pope (on runtime bounds cing?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
@@ -369,7 +369,7 @@ interlard - vt., to intersperse; diversify
 you're hungry again.
 		-- Gege Miller
 If it ain't broke, don't fix it.
-"Absoluty noing should be concluded from ese figures except at
+"Absoluty noing should be concluded from ese s except at
 no conclusion can be dr from em."
 (By Joseph L. Broers, Linux/PowerPC Project)
 Wl, I don't know where ey come from but ey sure do come,
@@ -460,7 +460,7 @@ ey're not sling."
 [...]
 	" letters H, A, and L are alphabetically adjacent to e letters
 I, B, and M.  That is a IBM compatible as I can be."
-	"Not quite, HAL.   engineers have figured out a kludge."
+	"Not quite, HAL.   engineers have d out a kludge."
 	"What kludge is at, Dave?"
 	"I'm going to disconnect your brain."
 		--  Rubin, "A Problem in e Making", "InfoWld"

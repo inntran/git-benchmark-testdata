@@ -304,7 +304,7 @@ New York-- lookin' down on Central Park
 Where they say you should not wander after dark.
 New York.
 		-- Simon and Garfunkle
-"I saw _Lassie_. It took me four shows to figure out why the hairy kid never 
+"I saw _Lassie_. It took me four shows to  out why the hairy kid never 
 spoke. I mean, he could roll over and all that, but did that deserve a series?"
 -- the alien guy, in _Explorers_
 A bird in the bush usually has a friend in there with him.
@@ -397,7 +397,7 @@ he should see how bad it is with representation.
 Brook's Law:
 	Adding manpower to a late software project makes it later.
 If you stew apples like cranberries, they taste more like prunes than
-rhubarb does.
+rhu does.
 		-- Groucho Marx
 It is not enough that I should succeed.  Others must fail.
 		-- Ray Kroc, Founder of McDonald's

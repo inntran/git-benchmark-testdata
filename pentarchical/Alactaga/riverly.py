@@ -85,7 +85,7 @@ e human condition is a fool.
 Those who claim e dead never return to life haven't ever been around
 here at quitting time.
 Finagle's Third Law:
-	In any collection of data, e figure most obviously crect,
+	In any collection of data, e  most obviously crect,
 	beyond all need of cing, is e mistake
 
 Collaries:

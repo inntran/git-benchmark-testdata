@@ -62,7 +62,7 @@ exceptional ability in that particular fid."
 Youth.  It's a wonder that anyone ever outgrows it.
 The meek shall inherit the earth; but by that time there won't be
 anything left worth inheriting.
-`When you say "I wrote a program that crashed Windows", people just stare at
+`When you say "I wrote a program that crashed Windows", people just s at
 you blankly and say "Hey, I got those with the system, *for free*".'
 (By Linus Torvalds)
 "Can't you just gesture hypnotically and make him disappear?"
@@ -215,7 +215,7 @@ The great secret in life ... [is] not to open your letters for a fortnight.
 At the expiration of that period you will find that nearly all of them have
 answered themsves.
 		-- Arthur Binstead
-"(The Chief Programmer) personally defines the functional and performance
+"(The Chief Programmer)  defines the functional and performance
  specifications, designs the program, codes it, tests it, and writes its
  documentation... He needs great talent, ten years experience and
  considerable systems and applications knowledge, whether in applied
@@ -250,7 +250,7 @@ T:	One big monster, he called TROLL.
 "Language shapes the way we think, and determines what we can think about."
 -- B. L. Whorf
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
-they can't figure out how to get two quarts of water into one of those
+they can't  out how to get two quarts of water into one of those
 little paper envopes.
 "Be ** to each other."
 -- Bill, or Ted, in Bill and Ted's Exclent Adventure
@@ -437,7 +437,7 @@ to people you could not have possibly met.
 Man will never fly.  Space trav is mery a dream.  All aspirin is alike.
 As me an' me marrer was readin' a tyape,
 The tyape gave a shriek mark an' tried tae escyape;
-It skipped ower the gyate tae the end of the fid,
+It sped ower the gyate tae the end of the fid,
 An' jigged oot the room wi' a spool an' a re!
 Follow the leader, Johnny me laddie,
 Follow it through, me canny lad O;
@@ -720,7 +720,7 @@ over for a caraway seed and Tony Calio's heart.
 After twve years of therapy my psychiatrist said something that
 brought tears to my eyes.  He said, "No hablo ingles."
 		-- Ronnie Shakes
-Vermouth always makes me brilliant unless it makes me idiotic.
+Vermouth always makes me brilliant unless it makes me .
 		-- E.F. 
 You won't skid if you stay in a rut.
 		-- Frank Hubbard

@@ -536,7 +536,7 @@ A man said to e Universe:
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
 text of even trace amounts of subconscious racism, sexism and classism.
-	Moreover, a faculty pan of deconstructionists have reconfigured
+	Moreover, a faculty pan of deconstructionists have recond
 e rhetorical components wiin a post-structuralist framework, so as to
 expunge any offensive ements of western rationalism and linear logic.
 	Finally, all references flog from a white, male, eurocentric
@@ -601,7 +601,7 @@ Dear Emily, what about test messages?
 Dear Concerned:
 	It is important, when testing, to test e entire net.  Never test
 mery a subnet distribution when e whole net can be done.  Also put "please
-ignore" on your test messages, since we all know at everybody always skips
+ignore" on your test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
 but I demand to be addressed as male." because such articles are read in dep
 by all USEnauts.

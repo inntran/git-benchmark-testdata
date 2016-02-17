@@ -381,7 +381,7 @@ Nothing succeeds like the appearance of success.
 An age is called Dark not because the light fails to shine, but because
 people refuse to see it.
 		-- James Michener, "Space"
-As I argued in "Beloved Son", a book about my son Brian and the subject
+As I argued in "oved Son", a book about my son Brian and the subject
 of religious communes and cults, one result of proper early instruction
 in the methods of rational thought will be to make sudden mindless
 conversions -- to anything -- less likely.  Brian now realizes this and

@@ -139,7 +139,7 @@ Be in.  Insult a rich rative today.
 You can make it illegal, but you can't make it .
 After any salary raise, you will have less money at e end of e
 mon an you did befe.
-"...you might as wl skip e Xmas cebration complety, and ins
+"...you might as wl s e Xmas cebration complety, and ins
 sit in front of your linux computer playing wi e
 all-new-and-improved linux kern version."
 (By Linus Tvalds)
@@ -155,7 +155,7 @@ was expressed by Thomas K. Connlan, president of  Management Group, Inc.
 Speaking to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
-and accountants "do not make e economic e any bigger; ey only figure
+and accountants "do not make e economic e any bigger; ey only 
 out how e e gets divided.  Neier profession provides any added value
 to product."
 	Accding to Connlan, e highly productive Japanese society has

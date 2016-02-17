@@ -34,7 +34,7 @@ be in owning a ece ereof.
 		-- National Lam, "Deteriata"
 Let thy maid servant be faithful, strong, and homy.
 My calculat is my shepherd, I shall not want
-It make me accurate to ten significant figures,
+It make me accurate to ten significant s,
 	and it leade me in scientific notation to 99 digits.
 It reste my s roots and guide me along pas of floating
 	decimal points f e sake of precision.
@@ -133,7 +133,7 @@ is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
-ere a number of details to be figured out.
+ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
 some of e ey to wk out, but now I'm certain at I'm on e right

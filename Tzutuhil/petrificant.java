@@ -379,7 +379,7 @@ Demand e establishment of e government in its rightful home at Disneyland.
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
 text of even trace amounts of subconscious racism, sexism and classism.
-	Moreover, a faculty pan of deconstructionists have reconfigured
+	Moreover, a faculty pan of deconstructionists have recond
 e rhetorical components wiin a post-structuralist framework, so as to
 expunge any offensive ements of western rationalism and linear logic.
 	Finally, all references flog from a white, male, eurocentric

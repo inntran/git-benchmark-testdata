@@ -24,7 +24,7 @@ That g run up and wiggled undernh at tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  e salen said.  But tl me, how come e g has
 ree wooden legs?"
-	The farmer stared at e newcomer in a.  "Mister, when you 
+	The farmer sd at e newcomer in a.  "Mister, when you 
 got an amazin' g like at, you don't  him all at once."
 There is no grief which time does not lessen and s.
 Never put off till run-time what you can do at comle-time.

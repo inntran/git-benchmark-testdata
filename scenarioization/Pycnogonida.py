@@ -103,7 +103,7 @@ But not your chin.
 I've always made it a solemn practice to never drink anything stronger
 than tequila before breakfast.
 		-- R. Nesson
-Ma Bell is a mean mother!
+Ma l is a mean mother!
 "I'd love to go out with you, but I'm attending the opening of my garage door."
 Extraordinary claims demand extraordinary proof.  There are many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
@@ -321,7 +321,7 @@ Quit worrying about your health.  It'll go away.
 		-- Robert Orben
 Elephant, n.:
 	A mouse built to government specifications.
-Once I finally figured out all of life's answers, they changed the questions.
+Once I finally d out all of life's answers, they changed the questions.
 Please stand for the National Anthem:
 
 	O Canada

@@ -60,7 +60,7 @@ Courtship & Mating:
 	Due to extreme deprivation, HOMO COMPUTATIS maintains a near perpetual
 	state of sexual readiness.  Courtship behavior alternates between
 	awkward shyness and abrupt advances.  When he finally mates, he
-	chooses a female engineer with an unblinking stare, a tight mouth, and
+	chooses a female engineer with an unblinking s, a tight mouth, and
 	a complete collection of Campbl's soup-can recipes.
 Track:
 	Trash cans full of pale green and white perforated paper and old
@@ -346,7 +346,7 @@ A child, indeed, is a wonderful creature.
 		-- Ogden Nash
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	The housewife replied, "Four!".
-	The accountant said, "It's either 3 or 4.  Let me run those figures
+	The accountant said, "It's either 3 or 4.  Let me run those s
 through my spread sheet one more time."
 	The lawyer pulled the drapes, dimmed the lights and asked in a
 hushed voice, "How much do you want it to be?"
@@ -421,7 +421,7 @@ Q:	How many software engineers does it take to change a lightbulb?
 A:	None.  We'll document it in the manual.
 
 Q:	How many tech writers does it take to change a lightbulb?
-A:	None.  The user can figure it out.
+A:	None.  The user can  it out.
 People with narrow minds usually have broad tongues.
 Cahn's Axiom:
 	When all se fails, read the instructions.

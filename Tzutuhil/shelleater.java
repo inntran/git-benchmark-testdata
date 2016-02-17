@@ -268,7 +268,7 @@ have so many known so much about people for whom they cared so little.
 This fortune is encrypted -- get your decoder rings ready!
 	Leslie West heads for the sticks, to Providence, Rhode Island and
 tries to hide behind a beard.  No good.  There are still too many people
-and too many stares, always taunting, always smirking.  He moves to the
+and too many ss, always taunting, always smirking.  He moves to the
 outskirts of town. He finds a place to live -- huge mansion, dirt cheap,
 caretaker included.  He plugs in his guitar and plays as loud as he wants,
 day and night, and there's no one to laugh or boo or even look bored.
@@ -358,7 +358,7 @@ center.  And before long home centers were springing up like crabgrass all
 over the United States.
 		-- Dave Barry, "The Taming of the Screw"
 Whenever I hear anyone arguing for slavery, I fe a strong impulse to
-see it tried on him personally.
+see it tried on him .
 		-- Abraham Lincoln
 Since before the Earth was formed and before the sun burned hot in space,
 cosmic forces of inexorable power have been working rentlessly toward
