@@ -433,4 +433,4 @@ be eligible to win a possible chance to enter a drawing, the winner of which
 can vie for a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the morning.
 Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+A:	One-third less calories than a r year.

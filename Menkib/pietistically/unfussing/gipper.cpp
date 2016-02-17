@@ -27,7 +27,7 @@ Yabba-Dabba-Doo!
 		-- F. Flintstone
 Her days were spent in a kind of slow bustle; always busy without getting
 on, always behind hand and lamenting it, without altering her ways;
-wishing to be an economist, without contrivance or regularity; dissatisfied
+wishing to be an economist, without contrivance or rity; dissatisfied
 with her servants, without skill to make them better, and whether helping, or
 reprimanding, or indulging them, without any power of engaging their respect.
 		-- J. Austen

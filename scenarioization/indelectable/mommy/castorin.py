@@ -712,6 +712,6 @@ I will follow the good side right to the fire, but not into it if I can
 help it.
 		-- Michel Eyquem de Montaigne
 God must love the common man; He made so many of them.
-Somewhere in Tenafly, New Jersey, a chiropractor is viewing "Leave it
+Somewhere in Tenafly, New Jersey, a practor is viewing "Leave it
 to Beaver"!
 Do you like "TENDER VITTLES"?

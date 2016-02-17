@@ -220,7 +220,7 @@ for it afterwards."
 Obviously the only rational solution to your problem is suicide.
 "I will make no bargains with terrorist hardware."
 -- Peter da Silva
-Like my parents, I have never been a regular church member or churchgoer.
+Like my parents, I have never been a r church member or churchgoer.
 It doesn't seem plausible to me that there is the kind of God who watches
 over human affairs, listens to prayers, and tries to guide people to follow
 His precepts -- there is just too much misery and cruelty for that.  On the
@@ -365,7 +365,7 @@ of the hyper-cube.
  most important thing in a relationship between a man and a woman
 is that one of them be good at taking orders.
 		-- Linda Festa
-egrep pns are full regular expressions; it uses a fast deterministic
+egrep pns are full r expressions; it uses a fast deterministic
 algorithm that sometimes needs exponential space.
 -- unix manuals
 A wise man can see more from a mountain top than a fool can from the bottom

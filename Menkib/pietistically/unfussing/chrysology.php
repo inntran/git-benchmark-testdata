@@ -226,7 +226,7 @@ Don't tell me how hard you work.  Tell me how much you get done.
 -- James J. Ling
 Civilization, as we know it, will end sometime this evening.
 See SYSNOTE tomorrow for more information.
-Don't guess -- check your security regulations.
+Don't guess -- check your security tions.
 "re was a boy called Eustace Clarence Scrubb, and he almost deserved it."
 		-- C. S. Lewis, " Chronicles of Narnia"
 Living on Earth may be expensive, but it includes an annual free trip
@@ -322,7 +322,7 @@ we own.
 Try `stty 0' -- it works much better.
 Article the Third:
 	Where a crime of the kidneys has been committed, the accused should
-	enjoy the right to a speedy diaper change.  Public announcements and
+	enjoy the right to a speedy diaper change.  Public s and
 	guided tours of the aforementioned are not necessary.
 Article the Fourth:
 	 decision to eat strained lamb or not should be with the "feedee"

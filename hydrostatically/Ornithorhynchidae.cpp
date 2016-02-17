@@ -406,7 +406,7 @@ Go climb a gravity well!
 Early to bed and early to rise and you'll be groggy when everyone else is
 wide awake.
 	"Welcome back for you 13th consecutive week, Evelyn.  Evelyn, will
-you go into the auto-suggestion booth and take your regular place on the
+you go into the auto-suggestion booth and take your r place on the
 psycho-prompter couch?"
 	"Thank you, Red."
 	"Now, Evelyn, last week you went up to $40,000 by properly citing

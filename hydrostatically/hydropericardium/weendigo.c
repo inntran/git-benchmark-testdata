@@ -18,7 +18,7 @@ well-defined ones.  Those who admire the massive, rigid bone structures
 of dinosaurs should remember that jellyfish still enjoy their very
 secure ecological niche.
 		-- Beau Sheil, "Power Tools for Programmers"
- universe is an island, surrounded by whatever it is that surrounds
+ universe is an island, sur by whatever it is that surrounds
 universes.
 DYSLEXICS OF THE WORLD, UNTIE!
 By working faithfully eight hours a day, you may eventually get to be

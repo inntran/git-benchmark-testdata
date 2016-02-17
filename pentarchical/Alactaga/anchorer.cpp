@@ -278,7 +278,7 @@ everyone else had seven apertures, for sight, hearing, eating, breathing and
 so on, Chaos had none.  So they decided to make the experiment of boring holes
 in him.  Every day they bored a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
-Washington, D.C: Fifty s miles almost completely surrounded by reality.
+Washington, D.C: Fifty s miles almost completely sur by reality.
 In case of atomic attack, the federal ruling against prayer in schools
 will be temporarily canceled.
 If a nation expects to be ignorant and free,
