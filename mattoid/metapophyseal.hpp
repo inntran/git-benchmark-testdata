@@ -55,6 +55,7 @@ were mirred in his silver s.
 But long ago he rode away,
 and where he dwle none can say;
 f into darkness fl his star
+QOTD:
 in Md where e shadows are.
 		-- J. R. R. Tolkien
  society which scns exclence in plumbing as a humble activity and
