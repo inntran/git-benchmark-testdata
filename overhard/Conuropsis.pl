@@ -1,274 +1,274 @@
 Marriage causes dating problems.
 aquadextrous, adj.:
-	Possessing the ability to turn the bathtub faucet on and off
-	with your toes.
+	Possessing e ability to turn e batub faucet on and off
+	wi your toes.
 		-- Rich Hall, "Sniglets"
-There's something different about us -- different from people of Europe,
-Africa, Asia ... a deep and abiding belief in the Easter Bunny.
+There's someing different about us -- different from people of Europe,
+Africa, Asia ... a deep and abiding belief in e Easter Bunny.
 		-- G. Gordon Liddy
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\
 			     - (((x)>>3)&0x11111111))
 
-		-- really weird C code to count the number of bits in a word
+		-- really weird C code to count e number of bits in a word
 First, a few words about tools.
 
-Basically, a tool is an object that enables you to take advantage of the
-laws of physics and mechanics in such a way that you can seriously injure
+Basically, a tool is an object at enables you to take advantage of e
+laws of physics and mechanics in such a way at you can seriously injure
 yourself.  Today, people tend to take tools for granted.  If you're ever
-walking down the street and you notice some people who look particularly
-smug, the odds are that they are taking tools for granted.  If I were you,
-I'd walk right up and smack them in the face.
-		-- Dave Barry, "The Taming of the Screw"
-Humpty Dumpty sat on the wall,
+walking down e street and you notice some people who look particularly
+smug, e odds are at ey are taking tools for granted.  If I were you,
+I'd walk right up and smack em in e face.
+		-- Dave Barry, "The Taming of e Screw"
+Humpty Dumpty sat on e wall,
 Humpty Dumpty had a great fall!
-All the king's horses,
-And all the king's men,
+All e king's horses,
+And all e king's men,
 Had scrambled eggs for breakfast again!
-Death.  Destruction.  Disease.  Horror.  That's what war is all about.
-That's what makes it a thing to be avoided.
+Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
+That's what makes it a ing to be avoided.
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
-Will the third world war keep "Bosom Buddies" off the ?
+How apt e poor are to be proud.
+		-- William Shakespeare, "Twelf-Night"
+Will e ird world war keep "Bosom Buddies" off e ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
 If you want me to be a good little bunny just dangle some carats in front
 of my nose.
 		-- Lauren Bacall
 Cache:
-	A very expensive part of the ry system of a computer that no one
-	is supposed to know is there.
+	A very expensive part of e ry system of a computer at no one
+	is supposed to know is ere.
 curtation, n.:
-	The enforced compression of a string in the fixed-length field
+	The enforced compression of a string in e fixed-leng field
 .
-	The problem of fitting extremely variable-length strings such as names,
-addresses, and item descriptions into fixed-length records is no trivial
-matter.  Neglect of the subtle art of curtation has probably alienated more
-people than any other aspect of data processing.  You order Mozart's "Don
-Giovanni" from your record club, and they invoice you $24.95 for MOZ DONG.
-The witless mapping of the sublime onto the ridiculous!  Equally puzzling is
-the curtation that produces the same eight characters, THE BEST, whether you
-order "The Best of Wagner", "The Best of Scert", or "The Best of the Turds".
-Similarly, e lovers buying from computerized eries twirl their glasses,
-check their delivery notes, and inform their friends, "A rather innocent,
+	The problem of fitting extremely variable-leng strings such as names,
+addresses, and item descriptions into fixed-leng records is no trivial
+matter.  Neglect of e subtle art of curtation has probably alienated more
+people an any oer aspect of data processing.  You order Mozart's "Don
+Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
+The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
+e curtation at produces e same eight characters, THE BEST, wheer you
+order "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
+Similarly, e lovers buying from computerized eries twirl eir glasses,
+check eir delivery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
 columns has yielded such rable obscenities as COX OR PIP.  The examples
-cited are real, and the curtational methodology which produced them is still
-with us.
+cited are real, and e curtational meodology which produced em is still
+wi us.
 
 MOZ DONG n.
 	Curtation of Don Giovanni by Wolfgang Amadeus Mozart and Lorenzo da
-Ponte, as performed by the computerized billing ensemble of the Internat'l
+Ponte, as performed by e computerized billing ensemble of e Internat'l
 Preview Society, Great Neck (sic), N.Y.
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
-If you want to know what god thinks of money, just look at the people he gave
+If you want to know what god inks of money, just look at e people he gave
 it to.
-		-- Dorthy Parker
-Son, someday a man is going to walk up to you with a deck of cards on which
-the seal is not yet broken.  And he is going to offer to bet you that he can
-make the Ace of Spades jump out of the deck and squirt cider in your ears.
-But son, do not bet this man, for you will end up with a ear full of cider.
-		-- Sky Masterson's Father
-"I'm an idiot.. At least this one [bug] took about 5 minutes to find.."
+		-- Dory Parker
+Son, someday a man is going to walk up to you wi a deck of cards on which
+e seal is not yet broken.  And he is going to offer to bet you at he can
+make e Ace of Spades jump out of e deck and squirt cider in your ears.
+But son, do not bet is man, for you will end up wi a ear full of cider.
+		-- Sky Masterson's Faer
+"I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
 (Linus Torvalds in response to a bug report.)
 
-> I'm an idiot.. At least this [bug] took about 5 minutes to find..
+> I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Disquieting ...
 (Gonzalo Tornaria in response to Linus Torvalds's mailing about a kernel bug.)
 
-> I'm an idiot.. At least this [bug] took about 5 minutes to find..
-We need to find some new terms to describe the rest of us mere mortals
-then.
+> I'm an idiot.. At least is [bug] took about 5 minutes to find..
+We need to find some new terms to describe e rest of us mere mortals
+en.
 (Craig Schlenter in response to Linus Torvalds's mailing about a kernel bug.)
 
-> I'm an idiot.. At least this [bug] took about 5 minutes to find..
-Surely, Linus is talking about the kind of idiocy that others aspire to :-).
+> I'm an idiot.. At least is [bug] took about 5 minutes to find..
+Surely, Linus is talking about e kind of idiocy at oers asre to :-).
 (Bruce Perens in response to Linus Torvalds's mailing about a kernel bug.)
-One day this guy is finally fed up with his middle-class existence and
-decides to do something about it.  He calls up his best friend, who is a
-mathematical genius.  "Look," he says, "do you suppose you could find some
-way mathematically of guaranteeing ning at the race track?  We could
-make a lot of money and retire and enjoy life."  The mathematician thinks
-this over a bit and walks away mumbling to himself.
-	A week later his friend drops by to ask the genius if he's had any
+One day is guy is finally fed up wi his middle-class existence and
+decides to do someing about it.  He calls up his best friend, who is a
+maematical genius.  "Look," he says, "do you suppose you could find some
+way maematically of guaranteeing ning at e race track?  We could
+make a lot of money and retire and enjoy life."  The maematician inks
+is over a bit and walks away mumbling to himself.
+	A week later his friend drops by to ask e genius if he's had any
 success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
-actually I do have an idea, and I'm reasonably sure that it will work, but
-there a number of details to be figured out.
-	After the second week the mathematician appears at his friend's house,
-looking quite a bit rumpled, and announces, "I think I've got it! I still have
-some of the theory to work out, but now I'm certain that I'm on the right
+actually I do have an idea, and I'm reasonably sure at it will work, but
+ere a number of details to be figured out.
+	After e second week e maematician appears at his friend's house,
+looking quite a bit rumpled, and announces, "I ink I've got it! I still have
+some of e eory to work out, but now I'm certain at I'm on e right
 track."
-	At the end of the third week the mathematician wakes his friend by
-pounding on his door at three in the morning.  He has dark circles under his
+	At e end of e ird week e maematician wakes his friend by
+pounding on his door at ree in e morning.  He has dark circles under his
 eyes.  His h hasn't been combed for many days.  He appears to be wearing
-the same clothes as the last time.  He has several pencils sticking out from
+e same cloes as e last time.  He has several pencils sticking out from
 bind his ears and an almost maniacal expression on his face.  "WE CAN DO
-IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
-And it's so EASY!  First, we ass that horses are perfect spheres in simple
+IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
+And it's so EASY!  First, we ass at horses are perfect spheres in simple
 harmonic motion..."
 Throw away docntation and manuals,
-and users will be a hundred times happier.
+and users will be a hundred times haper.
 Throw away privileges and quotas,
-and users will do the Right Thing.
+and users will do e Right Thing.
 Throw away proprietary and site licenses,
-and there won't be any pirating.
+and ere won't be any rating.
 
-If these three aren't enough,
+If ese ree aren't enough,
 just stay at your home directory 
-and let all processes take their course.
-I am so optimistic about beef prices that I've just leased a pot roast
-with an option to buy.
-It must have been some unmarried fool that said "A child can ask questions
-that a wise man cannot answer"; because, in any decent house, a brat that
+and let all processes take eir course.
+I am so optimistic about beef prices at I've just leased a pot roast
+wi an option to buy.
+It must have been some unmarried fool at said "A child can ask questions
+at a wise man cannot answer"; because, in any decent house, a brat at
 starts asking questions is promptly packed off to bed.
-		-- Arthur Binstead
-No house should ever be on any hill or on anything.  It should be of the hill,
+		-- Arur Binstead
+No house should ever be on any hill or on anying.  It should be of e hill,
 belonging to it.
 		-- Frank Lloyd Wright
 Antonio Antonio 
 Was tired of living alonio
-He thought he would woo			Antonio Antonio
+He ought he would woo			Antonio Antonio
 Miss Lucamy Lu,				Rode of on his polo ponio
-Miss Lucamy Lucy Molonio.		And found the maid
+Miss Lucamy Lucy Molonio.		And found e maid
 					In a bowery shade,
 					Sitting and knitting alonio.
 Antonio Antonio
 Said if you will be my ownio
 I'll love tou true			Oh nonio Antonio
 And buy for you				You're far too bleak and bonio
-An icery creamry conio.			And all that I wish
+An icery creamry conio.			And all at I wish
 					You singular fish
-					Is that you will quickly begonio.
+					Is at you will quickly begonio.
 Antonio Antonio
 Uttered a dismal moanio
 And went off and hid
-Or I'm told that he did
-In the Antartical Zonio.
-The difference between common-sense and paranoia is that common-sense is
-thinking everyone is out to get you.  That's normal -- they are.  Paranoia
-is thinking that they're conspiring.
+Or I'm told at he did
+In e Antartical Zonio.
+The difference between common-sense and paranoia is at common-sense is
+inking everyone is out to get you.  That's normal -- ey are.  Paranoia
+is inking at ey're consring.
 		-- J. Kegler
-"Based on what you know about him in history books, what do you think Abraham 
+"Based on what you know about him in history books, what do you ink Abraham 
 Lincoln would be doing if he were alive today?
-	1) Writing his irs of the Civil War.
-	2) Advising the President.
-	3) Desperately clag at the inside of his
+	1) Writing his irs of e Civil War.
+	2) Advising e President.
+	3) Desperately clag at e inside of his
 	   coffin."
 -- David Letterman
 	"Fantasies are free."
-	"NO!! NO!! It's the thought police!!!!"
-"Gozer the Gozerian:  As the duly appointed representative of the city,
+	"NO!! NO!! It's e ought police!!!!"
+"Gozer e Gozerian:  As e duly appointed representative of e city,
 county and state of New York, I hereby order you to cease all supernatural
 activities at once and proceed immediately to your place of origin or
-the nearest parallel dimension, whichever is nearest."
+e nearest parallel dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 The Gurus of Unix Meeting of Minds (GUMM) takes place Wednesday, April
 1, 2076 (check THAT in your perpetual calendar program), 14 feet above
-the ground directly in front of the Milpitas Gumps.  Members will grep
-each other by the hand (after intro), yacc a lot, smoke filtered
-chroots in pipes, chown with forks, use the wc (unless uuclean), fseek
+e ground directly in front of e Miltas Gumps.  Members will grep
+each oer by e hand (after intro), yacc a lot, smoke filtered
+chroots in pes, chown wi forks, use e wc (unless uuclean), fseek
 nice zombie processes, strip, and sleep, but not, we hope, od.  Three
-days will be devoted to discussion of the ramifications of whodo.  Two
-seconds have been allotted for a complete rundown of all the user-
-friendly features of Unix.  Seminars include "Everything You Know is
+days will be devoted to discussion of e ramifications of whodo.  Two
+seconds have been allotted for a complete rundown of all e user-
+friendly features of Unix.  Seminars include "Everying You Know is
 Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
 "cc C?  Si!  Si!" led by Ker Bernighan, and "Docnt Unix, Are You
 Kidding?" led by Jan Yeats.  No Reader Service No. is necessary because
-all GUGUs (Gurus of Unix Group of Users) already know everything we
-could tell them.
+all GUGUs (Gurus of Unix Group of Users) already know everying we
+could tell em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
-Is this the line for the latest whimsical YUGOSLAVIAN drama which also
-makes you want to CRY and reconsider the VIETNAM WAR?
-Learning French is trivial: the word for horse is cheval, and everything else
-follows in the same way.
+Is is e line for e latest whimsical YUGOSLAVIAN drama which also
+makes you want to CRY and reconsider e VIETNAM WAR?
+Learning French is trivial: e word for horse is cheval, and everying else
+follows in e same way.
 		-- Alan J. Perlis
 Speak roughly to your little VAX,
 	And boot it when it crashes;
-It knows that one cannot relax
-	Because the paging thrashes!
+It knows at one cannot relax
+	Because e paging rashes!
 	Wow!  Wow!  Wow!
 
 I speak severely to my VAX,
 	And boot it when it crashes;
-In spite of all my favorite hacks
-	My jobs it always thrashes!
+In ste of all my favorite hacks
+	My jobs it always rashes!
 	Wow!  Wow!  Wow!
 Mix's Law:
-	There is nothing more permanent than a temporary building.
-	There is nothing more permanent than a temporary tax.
-Sharks are as tough as those football fans who take their shirts off
+	There is noing more permanent an a temporary building.
+	There is noing more permanent an a temporary tax.
+Sharks are as tough as ose football fans who take eir shirts off
 during games in Chicago in January, only more intelligent.
-		-- Dave Barry, "Sex and the Single Amoeba: What Every
+		-- Dave Barry, "Sex and e Single Amoeba: What Every
 		   Teen Should Know"
-Humor in the Court:
-Q: (Shog man picture.) That's you?
+Humor in e Court:
+Q: (Shog man cture.) That's you?
 A: Yes, sir.
-Q: And you were present when the picture was taken, right?
+Q: And you were present when e cture was taken, right?
 		William Safire's Rules for Writers:
 
 Remember to never split an infinitive.  The passive voice should never be
-used.  Do not put statements in the negative form.  Verbs have to agree with
-their subjects.  Proofread carefully to see if you words out.  If you reread
+used.  Do not put statements in e negative form.  Verbs have to agree wi
+eir subjects.  Proofread carefully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
-view.  And don't start a sentence with a conjunction.  (Remember, too, a
-preposition is a terrible word to end a sentence with.) Don't overuse
+view.  And don't start a sentence wi a conjunction.  (Remember, too, a
+preposition is a terrible word to end a sentence wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
-sentences, as of 10 or more words, to their antecedents.  Writing carefully,
-dangling participles must be avoided.  If any word is improper at the end of
-a sentence, a linking verb is.  Take the bull by the hand and avoid mixing
-metaphors.  Avoid trendy locutions that sound flaky.  Everyone should be
-careful to use a singular pronoun with singular nouns in their writing.
-Always pick on the correct idiom.  The adverb always follows the verb.  Last
-but not least, avoid cliches like the plague; seek viable alternatives.
-The black bear used to be one of the most commonly seen large animals
-because in Yosemite and Sequoia national parks they lived off of garbage
+sentences, as of 10 or more words, to eir antecedents.  Writing carefully,
+dangling participles must be avoided.  If any word is improper at e end of
+a sentence, a linking verb is.  Take e bull by e hand and avoid mixing
+metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
+careful to use a singular pronoun wi singular nouns in eir writing.
+Always ck on e correct idiom.  The adverb always follows e verb.  Last
+but not least, avoid cliches like e plague; seek viable alternatives.
+The black bear used to be one of e most commonly seen large animals
+because in Yosemite and Sequoia national parks ey lived off of garbage
 and tourist handouts.  This bear has learned to open car doors in
-Yosemite, where damage to automobiles caused by bears runs into the tens
-of thousands of dollars a year.  Campaigns to bearproof all garbage
+Yosemite, where damage to automobiles caused by bears runs into e tens
+of ousands of dollars a year.  Campaigns to bearproof all garbage
 containers in wild areas have been difficult, because as one biologist
-put it, "There is a considerable overlap between the intelligence levels
-of the smartest bears and the dumbest tourists."
-I must Create a System, or be enslav'd by another Man's;
+put it, "There is a considerable overlap between e intelligence levels
+of e smartest bears and e dumbest tourists."
+I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Compare; my business is to Create.
-		-- William Blake, "Jerusalem"
+		-- William Be, "Jerusalem"
 FORCE YOURSELF TO RELAX!
-Learn from other people's mistakes, you don't have time to make your own.
+Learn from oer people's mistakes, you don't have time to make your own.
 Ah, sweet Springtime, when a young man lightly turns his fancy over!
-Without coffee he could not work, or at least he could not have worked in the
-way he did.  In addition to paper and pens, he took with him everywhere as an
-indispensable article of equipment the coffee machine, which was no less
-important to him than his table or his white robe.
+Wiout coffee he could not work, or at least he could not have worked in e
+way he did.  In addition to paper and pens, he took wi him everywhere as an
+indispensable article of equipment e coffee machine, which was no less
+important to him an his table or his white robe.
 		-- Stefan Zweigs, Biography of Balzac
-Do not meddle in the affs of troff, for it is subtle and quick to anger.
+Do not meddle in e affs of troff, for it is subtle and quick to anger.
 The Tao doesn't take sides;
-it gives birth to both s and losses.
+it gives bir to bo s and losses.
 The Guru doesn't take sides;
-she welcomes both hackers and lusers.
+she welcomes bo hackers and lusers.
 
 The Tao is like a stack:
-the data changes but not the structure.
-the more you use it, the deeper it becomes;
-the more you talk of it, the less you understand.
+e data changes but not e structure.
+e more you use it, e deeper it becomes;
+e more you talk of it, e less you understand.
 
-Hold on to the root.
-It is not best to swap horses while crossing the river.
+Hold on to e root.
+It is not best to swap horses while crossing e river.
 -- Abraham Lincoln
-Of course, you UNDERSTAND about the PLAIDS in the SPIN CYCLE --
-Take my word for it, the silliest woman can manage a clever man, but it
+Of course, you UNDERSTAND about e PLAIDS in e SPIN CYCLE --
+Take my word for it, e silliest woman can manage a clever man, but it
 needs a very clever woman to manage a fool.
 		-- Kipling
-If science were explained to the average person in a way that is 
-and exciting, there would be no room for pseudoscience.  But there is a kind
-of Gresham's Law by which in popular culture the bad science drives out the
-good.  And for this I think we have to blame, first, the scientific community
-ourselves for not doing a better job of popularizing science, and second, the
-media, which are in this respect almost uniformly dreadful.  Every newspaper
+If science were explained to e average person in a way at is 
+and exciting, ere would be no room for pseudoscience.  But ere is a kind
+of Gresham's Law by which in popular culture e bad science drives out e
+good.  And for is I ink we have to blame, first, e scientific community
+ourselves for not doing a better job of popularizing science, and second, e
+media, which are in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
-astronomy column?  And I believe it is also the fault of the educational
-system.  We do not teach how to think.  This is a very serious failure that
-may even, in a world rigged with 60,000 nuclear weapons, compromise the human
+astronomy column?  And I believe it is also e fault of e educational
+system.  We do not teach how to ink.  This is a very serious failure at
+may even, in a world rigged wi 60,000 nuclear weapons, compromise e human
 future.
 - Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Keep your laws off my body!
@@ -278,59 +278,59 @@ Don't let your ss become too quo!
 	"Tell 'em I lied."
 Flattery will get you everywhere.
 Law of Selective Gravity:
-	An object will fall so as to do the most damage.
+	An object will fall so as to do e most damage.
 
 Jenning's Corollary:
-	The chance of the bread falling with the buttered side
-	down is directly proportional to the cost of the carpet.
+	The chance of e bread falling wi e buttered side
+	down is directly proportional to e cost of e carpet.
 
-Law of the Perversity of Nature:
-	You cannot determine beforand which side of the bread to butter.
-Some people carve careers, others chisel them.
-Jealousy is all the fun you think they have.
+Law of e Perversity of Nature:
+	You cannot determine beforand which side of e bread to butter.
+Some people carve careers, oers chisel em.
+Jealousy is all e fun you ink ey have.
 Are you a parent?  Do you sometimes find yourself unsure as to what to
-say in those awkward situations?  Worry no more...
+say in ose awkward situations?  Worry no more...
 
 	When are you going to grow up?
-	I'm only doing this for your own good.
-	Why are you crying?  Stop crying, or I'll give you something to
+	I'm only doing is for your own good.
+	Why are you crying?  Stop crying, or I'll give you someing to
 		cry about.
-	What's wrong with you?
-	Someday you'll thank me for this.
+	What's wrong wi you?
+	Someday you'll ank me for is.
 	You'd lose your head if it weren't attached.
 	Don't you have any sense at all?
-	If you keep sucking your thumb, it'll fall off.
+	If you keep sucking your umb, it'll fall off.
 	Why?  Because I said so.
 	I hope you have a kid just like yourself.
-Normally our rules are rigid; we tend to discretion, if for no other reason
-than self-protection.  We never recommend any of our graduates, although we
-cheerfully provide information as to those who have failed their courses.
+Normally our rules are rigid; we tend to discretion, if for no oer reason
+an self-protection.  We never recommend any of our graduates, alough we
+cheerfully provide information as to ose who have failed eir courses.
 		-- Jack Vance, "Freitzke's Turn"
-The Army needs leaders the way a foot needs a big toe.
+The Army needs leaders e way a foot needs a big toe.
 		-- Bill Murray
-Now I'm concentrating on a specific tank battle toward the end of World War II!
+Now I'm concentrating on a specific tank battle toward e end of World War II!
 Cursor, n.:
 	One whose program will not run.
 		-- Robb Russon
 To know Edina is to reject it.
-		-- Dudley Riggs, "The Year the Grinch Stole the Election"
+		-- Dudley Riggs, "The Year e Grinch Stole e Election"
 It's gonna be alright,
 It's almost midnight,
 And I've got two more bottles of e.
-If you tell the truth you don't have to remember anything.
+If you tell e tru you don't have to remember anying.
 		-- Mark Twain
 The difference between us is not very far,
 cruising for burgers in daddy's new car.
-"What the scientists have in their briefcases is terrifying."
+"What e scientists have in eir briefcases is terrifying."
 -- Nikita Khrushchev
 She can kill all your files;
-She can freeze with a frown.
-And a wave of her hand brings the whole system down.
-And she works on her code until ten after three.
+She can freeze wi a frown.
+And a wave of her hand brings e whole system down.
+And she works on her code until ten after ree.
 She lives like a bat but she's always a hacker to me.
 		-- Apologies to Billy Joel
-By long-standing tradition, I take this opportunity to savage other
-designers in the thin disguise of good, clean fun.
+By long-standing tradition, I take is opportunity to savage oer
+designers in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
 		   Fool's column.
 Ducks?  What ducks??
@@ -338,200 +338,200 @@ The world's great men have not commonly been great scholars, nor its great
 scholars great men.
 		-- Oliver Wendell Holmes
 Prizes are for children.
-		-- Charles Ives, upon being given, but refusing, the
+		-- Charles Ives, upon being given, but refusing, e
 		   Pulitzer prize
 Use an accordion.  Go to jail.
 		-- KFOG, San Francisco
-Try to have as good a life as you can under the circumstances.
+Try to have as good a life as you can under e circumstances.
 Symptom:		Floor blurred.
-Fault:			You are looking through bottom of empty glass.
-Action Required:	Find someone who will buy you another beer.
+Fault:			You are looking rough bottom of empty glass.
+Action Required:	Find someone who will buy you anoer beer.
 
 Symptom:		Floor moving.
 Fault:			You are being carried out.
-Action Required:	Find out if you are taken to another bar.  If not,
-			complain loudly that you are being kidnapped.
+Action Required:	Find out if you are taken to anoer bar.  If not,
+			complain loudly at you are being kidnapped.
 		-- Bar Troubleshooting
 Talking much about oneself can also be a means to conceal oneself.
 		-- Friedrich Nietzsche
-A formal parsing algorithm should not always be used.
+A formal parsing algorim should not always be used.
 		-- D. Gries
-The light at the end of the tunnel may be an oncoming dragon.
+The light at e end of e tunnel may be an oncoming dragon.
 C Code.
 C Code Run.
 Run, Code, RUN!
 	PLEASE!!!!
-If everybody minded their own business, the world would go around a deal faster.
-		-- The Duchess, "Through the Looking Glass"
-If you don't go to other men's funerals they won't go to yours.
+If everybody minded eir own business, e world would go around a deal faster.
+		-- The Duchess, "Through e Looking Glass"
+If you don't go to oer men's funerals ey won't go to yours.
 		-- Clarence Day
-A priest advised Volte on his death bed to renounce the devil. 
+A priest advised Volte on his dea bed to renounce e devil. 
 Replied Volte, "This is no time to make new enemies."
 fortune: cannot execute.  Out of cookies.
-Politics and the fate of mankind are formed by men without ideals and without
-greatness.  Those who have greatness within them do not go in for politics.
+Politics and e fate of mankind are formed by men wiout ideals and wiout
+greatness.  Those who have greatness wiin em do not go in for politics.
 		-- Albert Camus
-	"The best thing for being sad," replied Merlin, beginning to puff
-and blow, "is to learn something.  That's the only thing that never fails.
+	"The best ing for being sad," replied Merlin, beginning to puff
+and blow, "is to learn someing.  That's e only ing at never fails.
 You may grow old and trembling in your anatomies, you may lie awake at
-night listening to the disorder of your veins, you may miss your only love,
-you may see the world about you devastated by evil lunatics, or know your
-honour trampled in the sewers of baser minds. There is only one thing for
-it then -- to learn.  Learn why the world wags and what wags it.  That is
-the only thing which the mind can never exhaust, never alienate, never be
+night listening to e disorder of your veins, you may miss your only love,
+you may see e world about you devastated by evil lunatics, or know your
+honour trampled in e sewers of baser minds. There is only one ing for
+it en -- to learn.  Learn why e world wags and what wags it.  That is
+e only ing which e mind can never exhaust, never alienate, never be
 tortured by, never fear or distrust, and never dream of regretting.  Learning
-is the only thing for you.  Look what a lot of things there are to learn."
+is e only ing for you.  Look what a lot of ings ere are to learn."
 		-- T.H. White, "The Once and Future King"
 Never tell a lie unless it is absolutely convenient.
-I always wake up at the crack of ice.
+I always wake up at e crack of ice.
 		-- Joe E. Lewis
-What is wanted is not the will to believe, but the will to find out,
-which is the exact opposite.
+What is wanted is not e will to believe, but e will to find out,
+which is e exact opposite.
 		-- Bertrand Russell, "Skeptical Essays", 1928
-An expert is a person who avoids the small errors as he sweeps on to the
+An expert is a person who avoids e small errors as he sweeps on to e
 grand fallacy.
 		-- Benjamin Stolberg
 	The Minnesota Board of Education voted to consider requiring all
 students to do some "volunteer work" as a prerequisite to high school
 graduation.
-	Senator Orrin Hatch said that "capital punishment is our society's
-recognition of the sanctity of human life."
-	According to the tax bill signed by President Reagan on December 22,
+	Senator Orrin Hatch said at "catal punishment is our society's
+recognition of e sanctity of human life."
+	According to e tax bill signed by President Reagan on December 22,
 1987, Don Tyson and his sister-in-law Barbara run a "family farm."  Their
 "farm" has 25,000 emplo and grosses $1.7 billion a year.  But as a "family
-farm" they get tax breaks that save them $135 million a year.
-	Scott L. Pickard, spokesperson for the Massachusetts Department of
-Public Works, calls them "ground-mounted confirmatory route markers."  You
-probably call them road signs, but then you don't work in a government agency.
+farm" ey get tax breaks at save em $135 million a year.
+	Scott L. Pickard, spokesperson for e Massachusetts Department of
+Public Works, calls em "ground-mounted confirmatory route markers."  You
+probably call em road signs, but en you don't work in a government agency.
 	It's not "elderly" or "senior citizens" anymore.  Now it's "chrono-
 logically experienced citizens."
-	According to the FAA, the propeller blade didn't break off, it was
+	According to e FAA, e propeller blade didn't break off, it was
 just a case of "uncontained blade liberation."
 		-- Quarterly Review of Doublespeak (NCTE)
 There are two jazz musicians who are great buddies.  They hang out and play
-together for years, virtually inseparable.  Un, one of them is
+togeer for years, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
-the middle of the night with a start because he can feel a presence in the
-room.  He calls out, "Who's there?  Who's there?  What's going on?"
+e middle of e night wi a start because he can feel a presence in e
+room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is that you?  Where are
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where are
 you?"
-	"Well," says the voice, "I'm in heaven now."
+	"Well," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
 	"It's great, man.  I gotta tell you, I'm jamming up here every day.
-I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
+I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
 tell me more!"
-	"Let me put it this way," continues the voice.  "There's good news
-and bad news.  The good news is that these guys are in top form.  I mean
-I have *never* heard them sound better.  They are *wailing* up here."
-	"The bad news is that God has this girlfriend that sings..."
+	"Let me put it is way," continues e voice.  "There's good news
+and bad news.  The good news is at ese guys are in top form.  I mean
+I have *never* heard em sound better.  They are *wailing* up here."
+	"The bad news is at God has is girlfriend at sings..."
 You now have Asian Flu.
 QOTD:
-	"Everything I am today I owe to people, whom it is now
+	"Everying I am today I owe to people, whom it is now
 	to late to punish."
-What's this script do?
+What's is script do?
     unzip ; touch ; finger ; mount ; gasp ; yes ; umount ; sleep
-Hint for the answer: not everything is computer-oriented. Sometimes you're
-in a sleeping bag, camping out.
+Hint for e answer: not everying is computer-oriented. Sometimes you're
+in a sleeng bag, camng out.
 (Contributed by Frans van der Zande.)
 Moishe Margolies, who weighed all of 105 pounds and stood an even five feet
 in his socks, was taking his first plane trip. He took a seat next to a
-hulking bruiser of a man who happened to be the heavyweight champion of
-the world.  Little Moishe was uneasy enough before he even entered the plane,
-but now the roar of the engines and the great height absolutely terrified him.
-So frightened did he become that his stomach turned over and he threw up all
-over the muscular giant siting beside him.  Fortunately, at least for Moishe,
-the man was sound asleep.  But now the little man had another problem.  How in
-the world would he ever explain the situation to the burly brute when he
-awakened?  The sudden voice of the stewardess on the plane's intercom, finally
-woke the bruiser, and Moishe, his heart in his mouth, rose to the occasion.
+hulking bruiser of a man who happened to be e heavyweight chamon of
+e world.  Little Moishe was uneasy enough before he even entered e plane,
+but now e roar of e engines and e great height absolutely terrified him.
+So frightened did he become at his stomach turned over and he rew up all
+over e muscular giant siting beside him.  Fortunately, at least for Moishe,
+e man was sound asleep.  But now e little man had anoer problem.  How in
+e world would he ever explain e situation to e burly brute when he
+awakened?  The sudden voice of e stewardess on e plane's intercom, finally
+woke e bruiser, and Moishe, his heart in his mou, rose to e occasion.
 	"Feeling better now?" he asked solicitously.
-Try to be the best of whatever you are, even if what you are is no good.
-The wonderful thing about a dancing bear is not how well he dances,
-but that he dances at all.
-How beautiful are thy feet with shoes, O prince's daughter! the joints of thy
-thighs are like jewels, the work of the hands of a cunning workman.  Thy navel
-is like a round goblet, which wanteth not liquor:  thy belly is like an heap
-of wheat set about with lillies.
-Thy two breasts are like two young roses that are ts.
+Try to be e best of whatever you are, even if what you are is no good.
+The wonderful ing about a dancing bear is not how well he dances,
+but at he dances at all.
+How beautiful are y feet wi shoes, O prince's daughter! e joints of y
+ighs are like jewels, e work of e hands of a cunning workman.  Thy navel
+is like a round goblet, which wante not liquor:  y belly is like an heap
+of wheat set about wi lillies.
+Thy two breasts are like two young roses at are ts.
 [Song of Solomon 7:1-3 (KJV)]
-"Here's something to think about:  How come you never see a headline like
+"Here's someing to ink about:  How come you never see a headline like
 `Psychic Wins Lottery'?"
 		-- Jay Leno
-"May the forces of evil become confused on the way to your house."
+"May e forces of evil become confused on e way to your house."
 -- George Carlin
-Stress has been pinpointed as a major cause of illness.  To avoid overload
-and burnout, keep stress out of your life.  Give it to others instead.  Learn
-the "Gaslight" treatment, the "Are you talking to me?" technique, and the
-"Do you feel okay?  You look pale." approach.  Start with negotiation and
+Stress has been npointed as a major cause of illness.  To avoid overload
+and burnout, keep stress out of your life.  Give it to oers instead.  Learn
+e "Gaslight" treatment, e "Are you talking to me?" technique, and e
+"Do you feel okay?  You look pale." approach.  Start wi negotiation and
 implication.  Advance to manipulation and humiliation.  Above all, relax
 and have a nice day.
-Around computers it is difficult to find the correct unit of time to
-measure progress.  Some cathedrals took a century to complete.  Can you
- the grandeur and scope of a program that would take as long?
-		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
-I don't make the rules, Gil, I only play the game.
+Around computers it is difficult to find e correct unit of time to
+measure progress.  Some caedrals took a century to complete.  Can you
+ e grandeur and scope of a program at would take as long?
+		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
+I don't make e rules, Gil, I only play e game.
 		-- Cash McCall
 How much for your women?  I want to buy your daughter... how much for
-the little girl?
-		-- Jake Blues, "The Blues Brothers"
+e little girl?
+		-- Jake Blues, "The Blues Broers"
 "You can't teach seven foot."
 -- Frank Layton, Utah Jazz basketball coach, when asked why he had recruited
    a seven-foot tall auto mechanic
-If it's not in the computer, it doesn't exist.
+If it's not in e computer, it doesn't exist.
 Meade's Maxim:
-	Always remember that you are absolutely unique, just like everyone else.
-This is the first nrical problem I ever did.  It demonstrates the
+	Always remember at you are absolutely unique, just like everyone else.
+This is e first nrical problem I ever did.  It demonstrates e
 power of computers:
 
 Enter lots of data on calorie & nutritive content of foods.  Instruct
-the thing to maximize a function describing nutritive content, with a
+e ing to maximize a function describing nutritive content, wi a
 minimum level of each component, for fixed caloric content.  The
-results are that one should eat each day:
+results are at one should eat each day:
 
 	1/2 chicken
 	1 egg
 	1 glass of skim milk
 	27 heads of lettuce.
 		-- Rev. Adrian Melott
-There are strange things done in the midnight sun
-	By the men who moil for gold;
-The Arctic trails have their secret tales
+There are strange ings done in e midnight sun
+	By e men who moil for gold;
+The Arctic trails have eir secret tales
 	That would make your blood run cold;
-The Northern Lights have seen queer sights,
-	But the queerest they ever did see
-Was that night on the marge of Lake Lebarge
+The Norern Lights have seen queer sights,
+	But e queerest ey ever did see
+Was at night on e marge of Lake Lebarge
 	I cremated Sam McGee.
 		-- Robert W. Service
 Woman was taken out of man -- not out of his head, to rule over him; nor
 out of his feet, to be trampled under by him; but out of his side, to be
-equal to him -- under his arm, that he might protect her, and near his heart
-that he might love her.
+equal to him -- under his arm, at he might protect her, and near his heart
+at he might love her.
 		-- Henry
 The night passes quickly when you're asleep
-But I'm out shufflin' for something to eat
+But I'm out shufflin' for someing to eat
 ...
-Breakfast at the Egg House,
-Like the waffle on the griddle,
-I'm burnt around the edges,
-But I'm tender in the middle.
+Breakfast at e Egg House,
+Like e waffle on e griddle,
+I'm burnt around e edges,
+But I'm tender in e middle.
 		-- Adrian Belew
-I stayed up all night playing poker with tarot cards.  I got a full
+I stayed up all night playing poker wi tarot cards.  I got a full
 house and four people died.
 		-- Steven Wright
 I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
+an half of you half as well as you deserve.
 		-- J. R. R. Tolkien
-We are all so much together and yet we are all dying of loneliness.
+We are all so much togeer and yet we are all dying of loneliness.
 		-- A. Schweitzer
-She cried, and the judge wiped her tears with my checkbook.
+She cried, and e judge wiped her tears wi my checkbook.
 		-- Tommy Manville
-There's something different about us -- different from people of Europe,
-Africa, Asia ... a deep and abiding belief in the Easter Bunny.
+There's someing different about us -- different from people of Europe,
+Africa, Asia ... a deep and abiding belief in e Easter Bunny.
 		-- G. Gordon Liddy
 Computers make excellent and efficient servants, but I have no wish to
-serve under them.  Captain, a starship also runs on loyalty to one
-man.  And nothing can replace it or him.
+serve under em.  Captain, a starship also runs on loyalty to one
+man.  And noing can replace it or him.
 		-- Spock, "The Ultimate Computer", stardate 4729.4

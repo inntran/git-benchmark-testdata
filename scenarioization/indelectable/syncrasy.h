@@ -1,65 +1,65 @@
 Absent, adj.:
-	Exposed to the attacks of friends and acquaintances; defamed; slandered.
+	Exposed to e attacks of friends and acquaintances; defamed; slandered.
 HARVARD:
 Quarterback:
-	Sophome Dave Strewzinski... likes to pass.  And pass he does, with
-a recd 86 attempts (three completions) in 87 plays....  Though Strewzinksi
-has so far failed to sce any points f the Crimson, his jackrabbit speed
-has made him the least sacked quarterback in the Ivy league.
+	Sophome Dave Strewzinski... likes to pass.  And pass he does, wi
+a recd 86 attempts (ree completions) in 87 plays....  Though Strewzinksi
+has so far failed to sce any points f e Crimson, his jackrabbit speed
+has made him e least sacked quarterback in e Ivy league.
 Wide Receiver:
-	 other directional signal in Harvard's offensive machine is seni
-Phil Yip, who is very fast.  Yip is so fast that he has set a recd f being
-fast.  Expect to see Yip elude all pursuers and make it into the endzone five
+	 oer directional signal in Harvard's offensive machine is seni
+Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
+fast.  Expect to see Yip elude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
-asshole" by his teammates, hopes to carry the ball with him at least one of
-those times.
+asshole" by his teammates, hopes to carry e ball wi him at least one of
+ose times.
 YALE:
 Defense:
-	On the defensive side, Yale boasts the stingiest line in the Ivies.
+	On e defensive side, Yale boasts e stingiest line in e Ivies.
 Primarily responsible are senis  "Shylock" Bloomberg and Myron
-Finklestein, the tightest ends in recent Eli histy.  Also contributing to
-the powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
-out the offensive ethnic joke.  Look f these three to shut down the opening
+Finklestein, e tightest ends in recent Eli histy.  Also contributing to
+e powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
+out e offensive enic joke.  Look f ese ree to shut down e opening
 coin toss.
 		-- Harvard Lam 1988 Program Parody, distributed at  Game
-A day without sunshine is like night.
-A total abstainer is one who abstains from everything but abstention,
-and especially from inactivity in the affs of others.
+A day wiout sunshine is like night.
+A total abstainer is one who abstains from everying but abstention,
+and especially from inactivity in e affs of oers.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Unix is the wst operating system; except f all others.
+Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Those of us who believe in the right of any human being to belong to whatever
+Those of us who believe in e right of any human being to belong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
-of prejudice when we do not want to see public education connected with
-religious control of the schools, which are paid f by taxpayers' money.
+of prejudice when we do not want to see public education connected wi
+religious control of e schools, which are paid f by taxpayers' money.
 - Elean Roosevelt
-Due to lack of disk space, this ftune datse has been discontinued.
-"I hate the itching.  But I don't mind the swelling."
--- new buzz phrase, like "Where's the Beef?" that David Letterman's trying
+Due to lack of disk space, is ftune datse has been discontinued.
+"I hate e itching.  But I don't mind e swelling."
+-- new buzz phrase, like "Where's e Beef?" at David Letterman's trying
    to get everyone to start saying
-Home life as we understand it is no me natural to us than a cage is
+Home life as we understand it is no me natural to us an a cage is
 to a cockatoo.
 		-- Gege Bernard Shaw
-Kirkland, Illinois, law fbids bees to fly over the village  through
+Kirkland, Illinois, law fbids bees to fly over e village  rough
 any of its streets.
 Grness is a transity experience. It is never consistent.
-Laws of Serendipity:
-	(1) In der to discover anything, you must be looking f something.
+Laws of Serendity:
+	(1) In der to discover anying, you must be looking f someing.
 	(2) If you wish to make an improved product, you must already
 	    be engaged in making an inferi one.
 Unix soit qui mal y pense
-	[Unix to him who evil thinks?]
+	[Unix to him who evil inks?]
 toilet toup'ee, n.:
-	Any shag carpet that causes the lid to become top-heavy, thus
+	Any shag carpet at causes e lid to become top-heavy, us
 	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
-Your friends will know you better in the first minute you meet than your
-acquaintances will know you in a thousand years.
+Your friends will know you better in e first minute you meet an your
+acquaintances will know you in a ousand years.
 		-- Richard Bach, "Illusions"
 Never trust a computer you can't rep yourself.
-One meets his destiny  on the road he takes to avoid it.
-	"Evil does seek to maintain power by suppressing the truth."
-	"Or by misleading the innocent."
+One meets his destiny  on e road he takes to avoid it.
+	"Evil does seek to maintain power by suppressing e tru."
+	"Or by misleading e innocent."
 		-- Spock and McCoy, "And  Children Shall Lead",
 		   stardate 5029.5.
 Hedonist f hire... no job too easy!

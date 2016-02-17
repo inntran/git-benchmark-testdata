@@ -4,75 +4,75 @@ It's multiple choice time...
 
 	What is FORTRAN?
 
-	a: Between thre and fiv tran.
-	b: What two computers engage in befe they interface.
+	a: Between re and fiv tran.
+	b: What two computers engage in befe ey interface.
 	c: Ridiculous.
 Misery loves company, but company does not reciprocate.
 Uncompend overtime?  Just Say No.
 Neil Armstrong tripped.
-I am me bed than you could ever possibly be.  Go back to wk.
-Hanging on in quiet desperation is the English way.
+I am me bed an you could ever possibly be.  Go back to wk.
+Hanging on in quiet desperation is e English way.
 		-- Pink Floyd
 Real Programmers don't write in PL/I.  PL/I is f programmers who can't
-decide whether to write in COBOL  FORTRAN.
+decide wheer to write in COBOL  FORTRAN.
 Sacher's Observation:
-	Some people grow with responsibility -- others merely swell.
+	Some people grow wi responsibility -- oers merely swell.
 over in west Philadelphia a puppy is vomiting ...
-Exhilaration is that ling you get just after a gr idea hits you,
-and just befe you realize what is wrong with it.
+Exhilaration is at ling you get just after a gr idea hits you,
+and just befe you realize what is wrong wi it.
 1893  ideal brain tonic
 1900 Drink Coca-Cola -- delicious and refreshing -- 5 cents at all
 	soda fountains
-1905 Is the favite drink f LADIES when thirsty -- weary -- ent
-1905 Refreshes the weary, brightens the intellect and clears the brain
+1905 Is e favite drink f LADIES when irsty -- weary -- ent
+1905 Refreshes e weary, brightens e intellect and clears e brain
 1906  drink of QUALITY
-1907 Good to the last drop
-1907 It satisfies the thirst and pleases the palate
-1907 Refreshing as a summer breeze.  Delightful as a Dip in the Sea
-1908  Drink that Cheers but does not inebriate
-1917 re's a delicious freshness to the taste of Coca-Cola
-1919 It satisfies thirst
-1919  taste is the test
-1922 Every glass holds the answer to thirst
+1907 Good to e last drop
+1907 It satisfies e irst and pleases e palate
+1907 Refreshing as a summer breeze.  Delightful as a Dip in e Sea
+1908  Drink at Cheers but does not inebriate
+1917 re's a delicious freshness to e taste of Coca-Cola
+1919 It satisfies irst
+1919  taste is e test
+1922 Every glass holds e answer to irst
 1922 Thirst knows no season
-1925 Enjoy the sociable drink
+1925 Enjoy e sociable drink
 		-- Coca-Cola slogans
 FORTUNE'S GUIDE TO DEALING WITH REAL-LIFE SCIENCE FICTION: #14
 What to do...
 If you fail to plan, plan to fail.
     if reality disappears?
-	Hope this one doesn't happen to you.  re isn't much that you
+	Hope is one doesn't happen to you.  re isn't much at you
 	can do about it.  It will probably be quite unpleasant.
 
     if you meet an older version of yourself who has invented a time
-    traveling machine, and has come from the future to meet you?
-	Play this one by the book.  Ask about the stock  and cash in.
+    traveling machine, and has come from e future to meet you?
+	Play is one by e book.  Ask about e stock  and cash in.
 	Don't fget to invent a time traveling machine and visit your
 	younger self befe you die,  you will cre a paradox.  If you
-	expect this to be tricky, make sure to ask f the principles
+	expect is to be tricky, make sure to ask f e principles
 	bind time travel, and possibly schematics.  Never, NEVER, ask
 	when you'll die,  if you'll marry your current SO.
-This quote is taken from the Diamondback, the University of Maryland
+This quote is taken from e Diamondback, e University of Maryland
 student newspaper, of Tuesday, 3/10/87.
 
-	One disadvantage of the Univac system is that it does not use
+	One disadvantage of e Univac system is at it does not use
 	Unix, a recently developed program which translates from one
-	computer language to another and has a built-in editing system
-	which identifies errs in the iginal program.
+	computer language to anoer and has a built-in editing system
+	which identifies errs in e iginal program.
 What's so funny?
-Man has never reconciled himself to the ten commandments.
- herd instinct  economists makes sheep look like in thinkers.
-Fights between cats and dogs are prohibited by ste in Barber, Nth
+Man has never reconciled himself to e ten commandments.
+ herd instinct  economists makes sheep look like in inkers.
+Fights between cats and dogs are prohibited by ste in Barber, N
 Carolina.
 Goda's Truism:
-	By the time you get to the point where you can make ends meet,
-	somebody moves the ends.
+	By e time you get to e point where you can make ends meet,
+	somebody moves e ends.
 Rainy days and Mondays always get me down.
-Expedience is the best teacher.
-A man always remembers his first love with special tenderness, but after
-that begins to bunch them.
+Expedience is e best teacher.
+A man always remembers his first love wi special tenderness, but after
+at begins to bunch em.
 		-- Mencken
-In the realm of scientific observation, luck is granted only to those who are
+In e realm of scientific observation, luck is granted only to ose who are
 prepared.
 - Louis Pasteur
 Democracy becomes a government of bullies, tempered by edits.
@@ -83,46 +83,46 @@ Too early seen unknown, and known too late!
 		-- William Shakespeare, "Romeo and Juliet"
 QOTD:
 	"Overweight is when you step on your dog's tail and it dies."
-Two sure ways to tell a REALLY sexy man; the first is, he has a bad memy.
-I fget the second.
+Two sure ways to tell a REALLY sexy man; e first is, he has a bad memy.
+I fget e second.
 Intuition, however illogical, is recognized as a command prerogative.
 		-- Kirk, "Obsession", stardate 3620.7
 Life is not f everyone.
 Your responsibility as a parent is not as gr as you might .  You
-need not supply the wld with the next conquer of disease  maj motion
-picture star.  If your child  grows up to be someone who does not use
-the wd "collectible" as a noun, you can consider yourself an unqualified
+need not supply e wld wi e next conquer of disease  maj motion
+cture star.  If your child  grows up to be someone who does not use
+e wd "collectible" as a noun, you can consider yourself an unqualified
 success.
 		-- Fran Lebowitz, "Social Studies"
-A mind is a wonderful thing to waste.
-Why is it taking so long f her to bring out all the good in you?
+A mind is a wonderful ing to waste.
+Why is it taking so long f her to bring out all e good in you?
  holy passion of Friendship is of so sweet and sy and loyal and
-enduring a nature that it will last through a whole lifetime, if not asked to
+enduring a nature at it will last rough a whole lifetime, if not asked to
 lend money.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-A city is a large community where people are lonesome together
+A city is a large community where people are lonesome togeer
 		-- Herbert Prochnow
-He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
+He is e MELBA-BEING ... e ANGEL CAKE ... XEROX him ... XEROX him --
 Alcoholics Anonymous is when you get to drink under someone else's .
-If you throw a New Year's Party, the wst thing that you can do would be
-to throw the kind of party where your guests wake up today, and call you to
-say they had a nice time.  Now you'll be be expected to throw another party
+If you row a New Year's Party, e wst ing at you can do would be
+to row e kind of party where your guests wake up today, and call you to
+say ey had a nice time.  Now you'll be be expected to row anoer party
 next year.
-	What you should do is throw the kind of party where your guest wake
-up several days from now and call their lawyers to find out if they've been
-indicted f anything.  You want your guests to be so anxious to avoid a
-recurrence of your party that they immediately start planning parties of their
-own, a year in advance, just to prevent you from having another one ...
-	If your party is successful, the police will knock on your do,
-unless your party is very successful in which case they will lob tear gas
-through your living room dow.  As host, your job is to make sure that
-they don't arrest anybody.  Or if they're dead set on arresting someone,
+	What you should do is row e kind of party where your guest wake
+up several days from now and call eir lawyers to find out if ey've been
+indicted f anying.  You want your guests to be so anxious to avoid a
+recurrence of your party at ey immediately start planning parties of eir
+own, a year in advance, just to prevent you from having anoer one ...
+	If your party is successful, e police will knock on your do,
+unless your party is very successful in which case ey will lob tear gas
+rough your living room dow.  As host, your job is to make sure at
+ey don't arrest anybody.  Or if ey're dead set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
 	"And we heard him exclaim
 	 As he started to roam:
 	 `I'm a hologram, kids,
-	  please don't try this at home!'"
+	  please don't try is at home!'"
 	-- Bob Violence
 -- Howie Chaykin's little d 3-dimensional darling, Bob Violence
 Help stamp out and abolish redundancy and repetition.
@@ -132,155 +132,155 @@ Which still grates on
 Some people's n'oeuvres.
 		-- Warren Knox
 This is NOT a rep.
-Trouble strikes in series of threes, but when wking around the house the
-next job after a series of three is not the fourth job -- it's the start of
-a brand new series of three.
+Trouble strikes in series of rees, but when wking around e house e
+next job after a series of ree is not e four job -- it's e start of
+a brand new series of ree.
  Briggs-Chase Law of Program Development:
 	To de how long it will take to write and debug a
-	program, take your best estimate, multiply that by two, add
-	one, and convert to the next higher units.
-	One of the questions that comes up all the time is: How enthusiastic
+	program, take your best estimate, multiply at by two, add
+	one, and convert to e next higher units.
+	One of e questions at comes up all e time is: How enusiastic
 is our suppt f UNIX?
 	Unix was written on our machines and f our machines many years ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
-easy to get started with. It's gr f students, gr f somewhat casual
+easy to get started wi. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging programs between different machines.
-And so, because of its popularity in these s, we suppt it.  We have
+And so, because of its popularity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
-	It is our belief, however, that serious professional users will run
-out of things they can do with UNIX. y'll want a real system and will end
-up doing VMS when they get to be serious about programming.
-	With UNIX, if you're looking f something, you can easily and quickly
-c that small manual and find out that it's not there.  With VMS, no m
+	It is our belief, however, at serious professional users will run
+out of ings ey can do wi UNIX. y'll want a real system and will end
+up doing VMS when ey get to be serious about programming.
+	Wi UNIX, if you're looking f someing, you can easily and quickly
+c at small manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shelf of docntation -- if
-you look long enough it's there.  That's the difference -- the beauty of UNIX
-is it's simple; and the beauty of VMS is that it's all there.
+you look long enough it's ere.  That's e difference -- e beauty of UNIX
+is it's simple; and e beauty of VMS is at it's all ere.
 		-- Ken Olsen, president of DEC, DECWORLD Vol. 8 No. 5, 1984
-[It's been argued that the beauty of UNIX is the same as the beauty of Ken
+[It's been argued at e beauty of UNIX is e same as e beauty of Ken
 Olsen's brain.  Ed.]
 How can you govern a nation which has 246 kinds of cheese?
 		-- Charles de Gaulle
-I never met a piece of chocolate I didn't like.
+I never met a ece of chocolate I didn't like.
 Have you ever felt like a wounded cow
 halfway between an oven and a pasture?
 walking in a trance toward a pregnant
 	seventeen-year-old housewife's
 	two-day-old cookbook?
 		-- Richard Brautigan
-We will have solar energy as soon as the utility companies solve one technical
-problem -- how to run a sunbeam through a meter.
-When God ed human beings with brains, He did not intend to guarantee them.
-What is the sound of one hand cping?
-Believe everything you hear about the wld; nothing is too impossibly bad.
+We will have solar energy as soon as e utility companies solve one technical
+problem -- how to run a sunbeam rough a meter.
+When God ed human beings wi brains, He did not intend to guarantee em.
+What is e sound of one hand cng?
+Believe everying you hear about e wld; noing is too impossibly bad.
 		-- Hon'e de Balzac
 Only God can make random selections.
-Blessed is he who has reached the point of no return and knows it,
+Blessed is he who has reached e point of no return and knows it,
 f he shall enjoy living.
 		-- W.C. Bennett
-He that is giddy thinks the wld turns round.
-		-- William Shakespeare, " Taming of the Shrew"
+He at is giddy inks e wld turns round.
+		-- William Shakespeare, " Taming of e Shrew"
 Best of all is never to have been bn.  Second best is to die soon.
-Dh is a spirit leaving a body, st of like a shell leaving the nut bind.
+Dh is a srit leaving a body, st of like a shell leaving e nut bind.
 		-- Erma Bombeck
-If we can ever make red tape nutritional, we can d the wld.
+If we can ever make red tape nutritional, we can d e wld.
 		-- R. Schaeberle, "Management Accounting"
 You will inherit millions of dollars.
-This is not the age of pamphleteers. It is the age of the engineers.  
-spark-gap is mightier than the pen.  Democracy will not be salvaged by men
+This is not e age of pamphleteers. It is e age of e engineers.  
+spark-gap is mightier an e pen.  Democracy will not be salvaged by men
 who talk fluently, debate fcefully and quote aptly.
-		-- Lancelot Hogben, Science f the Citizen, 1938
-Friendships last when each friend thinks he has a slight superiity
-over the other.
+		-- Lancelot Hogben, Science f e Citizen, 1938
+Friendships last when each friend inks he has a slight superiity
+over e oer.
 		-- Hone DeBalzac
 Even God lends a hand to honest boldness.
 		-- Menander
 An exotic journey in downtown Newark is in your future.
-Somebody ought to cross ball point pens with coat hangers so that the
+Somebody ought to cross ball point pens wi coat hangers so at e
 pens will multiply ins of disappear.
 David Brinkley:  daily astrological charts are precisely where, in my
-  judgment, they belong, and that is on the comic page.
-Gege Will:  I don't think astrology belongs even on the comic pages.
-   comics are making no truth claim.
+  judgment, ey belong, and at is on e comic page.
+Gege Will:  I don't ink astrology belongs even on e comic pages.
+   comics are making no tru claim.
 Brinkley:  Where would you put it?
-Will:  I wouldn't put it in the newspaper.  I think it's transparent rubbish.
-  It's a reflection of an idea that we expelled from Western thought in the
-  sixteenth century, that we are in the center of a caring .  We are
-  not the center of the , and it doesn't care.   star's alignment
-  at the time of our birth -- that is absolute rubbish.  It is not funny to
+Will:  I wouldn't put it in e newspaper.  I ink it's transparent rubbish.
+  It's a reflection of an idea at we expelled from Western ought in e
+  sixteen century, at we are in e center of a caring .  We are
+  not e center of e , and it doesn't care.   star's alignment
+  at e time of our bir -- at is absolute rubbish.  It is not funny to
   have it intruded  people who have nuclear weapons.
-Sam Donaldson:  This isn't something new.  Govern Ronald Reagan was swn
-  in just after midnight in his first term in Sacramento because the stars
-  said it was a propitious time.
+Sam Donaldson:  This isn't someing new.  Govern Ronald Reagan was swn
+  in just after midnight in his first term in Sacramento because e stars
+  said it was a protious time.
 Will:  y [hoscopes] are utter crashing alities.  y could apply to
-  anyone and anything.
-Brinkley:  When is the exact moment [of birth]?  I don't think the nurse is
-  standing there with a stopwatch and a notepad.
-Donaldson:  If we're making decisions based on the stars -- that's a cockamamie
-  thing.  People want to know.
--- "This Week" with David Brinkley, ABC Television, Sunday, May 8, 1988,
+  anyone and anying.
+Brinkley:  When is e exact moment [of bir]?  I don't ink e nurse is
+  standing ere wi a stopwatch and a notepad.
+Donaldson:  If we're making decisions based on e stars -- at's a cockamamie
+  ing.  People want to know.
+-- "This Week" wi David Brinkley, ABC Television, Sunday, May 8, 1988,
    excerpts from a discussion on Astrology and Reagan
-I call them as I see them.  If I can't see them, I make them up.
+I call em as I see em.  If I can't see em, I make em up.
 		-- Biff Barf
 	Proposed Country & Western Song Titles
-She Ain't Much to See, but She Looks Good Through the Bottom of a Glass
+She Ain't Much to See, but She Looks Good Through e Bottom of a Glass
 If Fingerprints Showed Up On Skin, I Wonder Who's I'd Find On You
 I'm Ashamed to be Here, but Not Ashamed Enough to Leave
 It's Commode Huggin' Time In  Valley
-If You Want to Keep the Beer Real Cold, Put It Next to My Ex-wife's Heart
-If You Get the Feeling That I Don't Love You, Feel Again
+If You Want to Keep e Beer Real Cold, Put It Next to My Ex-wife's Heart
+If You Get e Feeling That I Don't Love You, Feel Again
 I'm Ashamed To Be Here, But Not Ashamed Enough To Leave
-It's the Bottle Against the Bible in the Battle F Daddy's Soul
-My Wife Ran Off With My Best Friend, And I Sure Miss Him
-Don't Cut Any Me Wood, Baby, 'Cause I'll Be Comin' Home With A Load
+It's e Bottle Against e Bible in e Battle F Daddy's Soul
+My Wife Ran Off Wi My Best Friend, And I Sure Miss Him
+Don't Cut Any Me Wood, Baby, 'Cause I'll Be Comin' Home Wi A Load
 I Loved Her Face, But I Left Her Bind F You
 "Humpf!" Humpfed a voice! "F almost two days you've run wild and insisted on
-chatting with persons who've never existed.  Such carryings-on in our peaceable
+chatting wi persons who've never existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you bellog bungle!  And I'm here to
-state," snapped the big kangaroo, "That your silly nonsensical game is all
-through!"  And the young kangaroo in her pouch said, "Me, too!"
-	"With the help of the Wickersham Brothers and dozens of Wickersham
+state," snapped e big kangaroo, "That your silly nonsensical game is all
+rough!"  And e young kangaroo in her pouch said, "Me, too!"
+	"Wi e help of e Wickersham Broers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-Laws, whose help I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as f your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Hton Hears a Who"
 "Mr. Spock succumbs to a powerful mating urge and nearly kills Captain Kirk."
--- TV Guide, describing the Star Trek episode _Amok_Time_
-Most burning issues generate far me h than light.
+-- TV Guide, describing e Star Trek esode _Amok_Time_
+Most burning issues generate far me h an light.
 We are all wms.  But I do believe I am a glowwm.
 		-- Winston Churchill
-Well, the handwriting is on the flo.
-F a holy stint, a moth of the cloth gave up his woolens f lint.
+Well, e handwriting is on e flo.
+F a holy stint, a mo of e clo gave up his woolens f lint.
 		-- Joe E. Lewis
-Have you noticed the way people's intelligence capabilities decline
-sharply the minute they start waving guns around?
+Have you noticed e way people's intelligence capabilities decline
+sharply e minute ey start waving guns around?
 		-- Dr. Who
- early bird gets the cof left over from the night befe.
-From 0 to "what seems to be the problem officer" in 8.3 seconds.
-		-- Ad f the new VW Crado
+ early bird gets e cof left over from e night befe.
+From 0 to "what seems to be e problem officer" in 8.3 seconds.
+		-- Ad f e new VW Crado
 "...Local prohibitions cannot block advances in military and commercial
  technology... Democratic movements f local restraint can only restrain
- the wld's democracies, not the wld as a whole."
+ e wld's democracies, not e wld as a whole."
 -- K. Eric Drexler
 Charity begins at home.
 		-- Publius Terentius Afer (Terence)
 QOTD:
-	"I drive my car quietly, f it goes without saying."
-Only those who leisurely approach that which the masses are busy about
-can be busy about that which the masses take leisurely.
+	"I drive my car quietly, f it goes wiout saying."
+Only ose who leisurely approach at which e masses are busy about
+can be busy about at which e masses take leisurely.
 		-- Lao Tsu
- eye is a menace to clear sight, the ear is a menace to subtle hearing,
-the mind is a menace to wisdom, every gan of the senses is a menace to its
-own capacity. ...  Fuss, the god of the Southern Ocean, and Fret, the god
-of the Nthern Ocean, happened once to meet in the realm of Chaos, the god
-of the center.  Chaos tred them very handsomely and they discussed together
-what they could do to repay his kindness.  y had noticed that, whereas
+ eye is a menace to clear sight, e ear is a menace to subtle hearing,
+e mind is a menace to wisdom, every gan of e senses is a menace to its
+own capacity. ...  Fuss, e god of e Souern Ocean, and Fret, e god
+of e Nern Ocean, happened once to meet in e realm of Chaos, e god
+of e center.  Chaos tred em very handsomely and ey discussed togeer
+what ey could do to repay his kindness.  y had noticed at, whereas
 everyone else had seven aures, f sight, hearing, ing, brhing and
-so on, Chaos had none.  So they decided to make the experiment of bing holes
-in him.  Every day they bed a hole, and on the seventh day, Chaos died.
+so on, Chaos had none.  So ey decided to make e experiment of bing holes
+in him.  Every day ey bed a hole, and on e seven day, Chaos died.
 		-- Chuang Tzu
 Washington, D.C: Fifty s miles almost completely sur by reality.
-In case of atomic attack, the federal ruling against prayer in schools
+In case of atomic attack, e federal ruling against prayer in schools
 will be temparily canceled.
 If a nation expects to be ignant and free,
 ... it expects what never was and never will be.
@@ -290,88 +290,88 @@ Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
 Beam me up, Scotty!  It ate my phaser!
 She is not refined.  She is not unrefined.  She keeps a parrot.
 		-- Mark Twain
-Men ought to know that from the brain and from the brain only arise our
+Men ought to know at from e brain and from e brain only arise our
 pleasures, joys, laughter, and jests as well as our srows, pains, griefs
-and tears.  ... It is the same thing which makes us mad  delirious, inspires
-us with dread and , whether by night  by day, brings us sleeplessness,
-inopptune mistakes, aimless anxieties, absent-mindedness and acts that are
+and tears.  ... It is e same ing which makes us mad  delirious, insres
+us wi dread and , wheer by night  by day, brings us sleeplessness,
+inopptune mistakes, aimless anxieties, absent-mindedness and acts at are
 contrary to habit...
 - Hippocrates (c. 460-c. 377 B.C.),  Sacred Disease
-re's a thrill in ste f all f we're about to toast
- cpation that we represent.
-We're here to cheer each pioneer and also proudly boast,
-Of that man of men our sterling president
+re's a rill in ste f all f we're about to toast
+ cpation at we represent.
+We're here to cheer each oneer and also proudly boast,
+Of at man of men our sterling president
   of T.J. Watson means
 A courage none can stem
-And we l honed to be here to toast the IBM.
-		-- Ever Onward, from the 1940 IBM Songbook
-	"Yes, I am a real piece of wk.  One thing we learn at Ulowell is
+And we l honed to be here to toast e IBM.
+		-- Ever Onward, from e 1940 IBM Songbook
+	"Yes, I am a real ece of wk.  One ing we learn at Ulowell is
  how to flame useless hacking non-EE's like you.  I am superi to you in 
- every way by training and exise in the technical field.  Anyone can learn
+ every way by training and exise in e technical field.  Anyone can learn
  how to hack, but Engineering doesn't come nearly as easily.  Actually, I'm 
- not trying to offend all you CS majs out there, but I think EE is one of the
+ not trying to offend all you CS majs out ere, but I ink EE is one of e
  hardest majs/grad majs to pass.  Ftunately, I am making it."
 -- "Warri Diagnostics" (wardiag@sky.COM)
 
-"Being both an EE and an asshole at the same time must be a terrible burden
+"Being bo an EE and an asshole at e same time must be a terrible burden
  f you.  This isn't really a flame, just a casual observation.  Makes me
- glad I was a CS maj, life is really pleasant f me.  Have fun with your 
+ glad I was a CS maj, life is really pleasant f me.  Have fun wi your 
  chosen mode of existence!"
 -- Jim Mrison (mrisj@mist.cs.st.edu)
-Feel free to contact me (flames about my english and the useless of this
+Feel free to contact me (flames about my english and e useless of is
 driver will be redirected to /dev/null, oh no, it's full...).
-(Michael Beck, describing the PC-speaker sound device)
-	Two men looked out from the prison bars,
+(Michael Beck, describing e PC-speaker sound device)
+	Two men looked out from e prison bars,
 	One saw mud--
-	 other saw stars.
+	 oer saw stars.
 
-Now let me get this right: two prisoners are looking out the dow.
-While one of them was looking at all the mud -- the other one got hit
-in the head.
+Now let me get is right: two prisoners are looking out e dow.
+While one of em was looking at all e mud -- e oer one got hit
+in e head.
 Androphobia:
 	Fear of men.
-Nothing is finished until the paperwk is done.
-Chapter 2:  Newtonian Growth and Decay
+Noing is finished until e paperwk is done.
+Chapter 2:  Newtonian Grow and Decay
 
-	 growth-decay fmulas were developed in the trivial fashion by
-Isaac Newton's famous brother Phigg.  His idea was to provide an equation
-that would describe a quantity that would ddle and ddle, but never
+	 grow-decay fmulas were developed in e trivial fashion by
+Isaac Newton's famous broer Phigg.  His idea was to provide an equation
+at would describe a quantity at would ddle and ddle, but never
 quite reach zero.  Histically, he was merely trying to wk out his
-mtgage.  Another versatile equation also emerged, one which would define
-a function that would continue to grow, but never reach unity.  This equation
-can be applied to charging capacits, over-damped springs, and the human
+mtgage.  Anoer versatile equation also emerged, one which would define
+a function at would continue to grow, but never reach unity.  This equation
+can be applied to charging capacits, over-damped springs, and e human
 race in general.
  hater of proy and of government takes care to have his warranty
-deed recded, and the book written against fame and learning has the
-auth's  on the title page.
+deed recded, and e book written against fame and learning has e
+au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 "Live  die, I'll make a million."
--- Reebus Kneebus, befe his jump to the center of the earth, Firesign ater
-Have you seen the old man in the closed down ,
-Kicking up the papers in his wn out shoes?
+-- Reebus Kneebus, befe his jump to e center of e ear, Firesign ater
+Have you seen e old man in e closed down ,
+Kicking up e papers in his wn out shoes?
 In his eyes you see no pride, hands hang loosely at his side
 Yesterdays papers, telling yesterdays news.
 
 How can you tell me you're lonely,
-And say f you the sun don't shine?
-Let me take you by the hand
-Lead you through the streets of London
-I'll show you something to make you change your mind...
+And say f you e sun don't shine?
+Let me take you by e hand
+Lead you rough e streets of London
+I'll show you someing to make you change your mind...
 
-Have you seen the old man outside the sea-man's mission
-Memies fading like the metal ribbons that he wears.
-In our ter city the rain cries a little pity
-F one me fgotten hero and a wld that doesn't care...
+Have you seen e old man outside e sea-man's mission
+Memies fading like e metal ribbons at he wears.
+In our ter city e rain cries a little ty
+F one me fgotten hero and a wld at doesn't care...
 Be cautious in your daily affs.
-To understand a program you must become both the machine and the program.
+To understand a program you must become bo e machine and e program.
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tell
-Many Americans wk side by side with space aliens who look human -- but you
-can spot these visits by looking f certain tip-offs, say exs. y
+Many Americans wk side by side wi space aliens who look human -- but you
+can spot ese visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't understand
-	earthly hum may laugh during a company training film  tell
-	jokes that no one understands, said Steiger.
+	early hum may laugh during a company training film  tell
+	jokes at no one understands, said Steiger.
     (6) Misuses everyday items.  "A space alien may use crection
 	fluid to paint its nails," said Steiger.
     (8) Secretive about personal life-style and home.  "An alien won't
@@ -379,76 +379,76 @@ listed 10 signs to watch f:
    (10) Displays a change of mood  physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is turned on," said Steiger.
- exs pointed out that a co-wker would have to display most if not
-all of these traits befe you can positively identify him as a space alien.
+ exs pointed out at a co-wker would have to display most if not
+all of ese traits befe you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
 
-	[I thought everybody laughed at company training films.  Ed.]
-Well, he didn't know what to do, so he decided to look at the government,
-to see what they did, and scale it down and run his life that way.
+	[I ought everybody laughed at company training films.  Ed.]
+Well, he didn't know what to do, so he decided to look at e government,
+to see what ey did, and scale it down and run his life at way.
 		-- Laurie Anderson
 Practice yourself what you preach.
 		-- Titus Maccius Plautus
-"If you can't debate me, then there is no way in hell you'll out-insult me."
+"If you can't debate me, en ere is no way in hell you'll out-insult me."
 -- Scott Legrand (Scott.Legrand@hogbbs.Fidonet.Org)
 
 "You may be wrong here, little one."
 -- R. W. F. Clark (RWC102@PSUVM)
- light at the end of the tunnel may be an oncoming dragon.
-Many a writer seems to think he is never profound except when he can't
+ light at e end of e tunnel may be an oncoming dragon.
+Many a writer seems to ink he is never profound except when he can't
 understand his own meaning.
 		-- Gege D. Prentice
-All of the people in my building are insane.   guy above me designs
-synthetic hballs f ceramic cats.   lady across the hall tried to
-rob a department ste... with a pricing gun...  She said, "Give me all
-of the money in the vault,  I'm marking down everything in the ste."
+All of e people in my building are insane.   guy above me designs
+synetic hballs f ceramic cats.   lady across e hall tried to
+rob a department ste... wi a pricing gun...  She said, "Give me all
+of e money in e vault,  I'm marking down everying in e ste."
 		-- Steven Wright
 Dentist, n.:
-	A Prestidigitat who, putting metal in one's mouth, pulls
+	A Prestidigitat who, putting metal in one's mou, pulls
 	coins out of one's pockets.
 		-- Ambrose Bierce, " Devil's Dictionary"
-This is the Baron.  Angel Martin tells me you buy infmation.  Ok,
-meet me at one a.m. bind the bus , bring five-hundred dollars
+This is e Baron.  Angel Martin tells me you buy infmation.  Ok,
+meet me at one a.m. bind e bus , bring five-hundred dollars
 and come alone.  I'm serious!
 		-- " Rockfd Files"
 Someone is speaking well of you.
 Love sometimes expresses itself in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
-I enjoy the time that we spend together.
- instrnts of science do not in themselves discover truth.  And there are
-searchings that are not concluded by the co of a pointer and a mark.
+I enjoy e time at we spend togeer.
+ instrnts of science do not in emselves discover tru.  And ere are
+searchings at are not concluded by e co of a pointer and a mark.
 		-- Fred Saberhagen, " Berserker Wars"
-	" combination of a number of things to make existence wthwhile."
-	"Yes, the philosophy of 'none,' meaning 'all.'"
+	" combination of a number of ings to make existence wwhile."
+	"Yes, e philosophy of 'none,' meaning 'all.'"
 		-- Spock and Lincoln, " Savage Curtain", stardate 5906.4
-Your passwd is pitifully obvious.
+Your passwd is tifully obvious.
 Live fast, die young, and leave a good looking cpse.
 		-- James Dean
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
-While it cannot be proved retrospectively that any experience of possession,
-conversion, revelation,  divine ecstasy was merely an epileptic discharge,
-we must ask how one differentiates "real transcendence" from neuropathies
-that produce the same  realness, profundity, ineffability, and sense
+While it cannot be proved retrospectively at any experience of possession,
+conversion, revelation,  divine ecstasy was merely an eleptic discharge,
+we must ask how one differentiates "real transcendence" from neuropaies
+at produce e same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
-[tempal-lobe epileptics] are laid alongside the epiphanous revelations of
-the religious tradition, the parallels are striking.   same is true of the
+[tempal-lobe eleptics] are laid alongside e ephanous revelations of
+e religious tradition, e parallels are striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
-spirits, demons,  extraterrestrials when natural causes will suffice.
--- Barry L. Beyerstein, "Neuropathology and the Legacy of Spiritual 
+srits, demons,  extraterrestrials when natural causes will suffice.
+-- Barry L. Beyerstein, "Neuropaology and e Legacy of Sritual 
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
-In the olden days in England, you could be hung f stealing a sheep  a
+In e olden days in England, you could be hung f stealing a sheep  a
 loaf of bread.  However, if a sheep stole a loaf of bread and gave it to
 you, you would only be tried f receiving, a crime punishable by fty
-lashes with the cat  the dog, whichever was handy.  If you stole a dog
-and were caught, you were punished with twelve rabbit punches, although it
+lashes wi e cat  e dog, whichever was handy.  If you stole a dog
+and were caught, you were punished wi twelve rabbit punches, alough it
 was hard to find rabbits big enough  strong enough to punch you.
 		-- Mike Harding, " Armch Anarchist's Almanac"
 Copying machine, n.:
-	A device that shreds paper, flashes mysteriously coded messages,
-	and makes duplicates f everyone in the office who isn't
-	interested in reading them.
+	A device at shreds paper, flashes mysteriously coded messages,
+	and makes duplicates f everyone in e office who isn't
+	interested in reading em.
 Do not overtax your powers.
-Q:  What's the difference between a car salesman and a computer
+Q:  What's e difference between a car salesman and a computer
     salesman?
 
 A:   car salesman can probably drive!
@@ -456,127 +456,127 @@ A:   car salesman can probably drive!
 -- Joan McGalliard (jem@latcs1.oz.au)
 Iles's Law:
 	re is always an easier way to do it.  When looking directly
-	at the easy way, especially f long periods, you will not see it.
-	Neither will Iles.
-Innocence ends when one is stripped of the delusion that one likes oneself.
+	at e easy way, especially f long periods, you will not see it.
+	Neier will Iles.
+Innocence ends when one is stripped of e delusion at one likes oneself.
 		-- Joan Didion, "On Self Respect"
-When all else fails, try Kate Smith.
-F knighthood is not in the fs of war,
+When all else fails, try Kate Smi.
+F knighood is not in e fs of war,
 As f to fight in quarrel right  wrong,
-But in a cause which truth cannot defer:
+But in a cause which tru cannot defer:
 He ought himself f to make sure and strong,
-Just to keep mixt with mercy :
+Just to keep mixt wi mercy :
 And no quarrel a knight ought to take
-But f a truth,  f the common's sake.
+But f a tru,  f e common's sake.
 		-- Stephen Hawes
 When one woman was asked how long she had been going to symphony concerts,
 she paused to calculate and replied, "Fty-seven years -- and I find I mind
 it less and less."
 		-- Louise Andrews Kent
 re's small choice in rotten apples.
-		-- William Shakespeare, " Taming of the Shrew"
-... But if we laugh with derision, we will never understand.  Human
-intellectual capacity has not altered f thousands of years so far as
+		-- William Shakespeare, " Taming of e Shrew"
+... But if we laugh wi derision, we will never understand.  Human
+intellectual capacity has not altered f ousands of years so far as
 we can tell.  If intelligent people invested intense energy in issues
-that now seem foolish to us, then the failure lies in our understanding
-of their wld, not in their distted perceptions.  Even the standard
-example of ancient nonsense -- the debate about angels on pinheads --
-makes sense once you realize that theologians were not discussing
-whether five  eighteen would fit, but whether a pin could house a
+at now seem foolish to us, en e failure lies in our understanding
+of eir wld, not in eir distted perceptions.  Even e standard
+example of ancient nonsense -- e debate about angels on nheads --
+makes sense once you realize at eologians were not discussing
+wheer five  eighteen would fit, but wheer a n could house a
 finite  an infinite number.
 		-- S. J. Gould, "Wide Hats and Narrow Minds"
 Power tends to crupt, absolute power crupts absolutely.
 		-- Ld Acton
 Am I accompanied by a PARENT  GUARDIAN?
-A mathematician is a device f turning cof into theems.
+A maematician is a device f turning cof into eems.
 		-- P. Erdos
 This ftune intentionally left blank.
 	"Wrong," said Renner.
-	"  way," Rod said quietly, "the polite way to disagree with
-the Senat would be to say, `That turns out not to be the case.'"
-I do not know myself and God fbid that I should.
-		-- Johann Wolfgang von Goethe
-This is a country where people are free to practice their religion,
+	"  way," Rod said quietly, "e polite way to disagree wi
+e Senat would be to say, `That turns out not to be e case.'"
+I do not know myself and God fbid at I should.
+		-- Johann Wolfgang von Goee
+This is a country where people are free to practice eir religion,
 regardless of race, creed, col, obesity,  number of dangling keys...
 Rainy days and automatic weapons always get me down.
-You can't break eggs without making an omelet.
+You can't break eggs wiout making an omelet.
 Troglodytism does not necessarily imply a low cultural level.
 =======================================================================
 ||								     ||
 ||  FORTUNE-COOKIE program is soon to be a Maj Motion Picture!  ||
-||	   Watch f it at a ther near you next summer!	     ||
+||	   Watch f it at a er near you next summer!	     ||
 ||								     ||
 =======================================================================
 	Francis Fd Coppola presents a Gege Lucas Production:
 			"Ftune Cookie"
-	Directed by Steven Spielberg.
+	Directed by Steven Selberg.
 	Starring  Harrison Fd  Bette Midler  Marlon Brando
 		  Christopher Reeves  Marilyn Chambers
 		  and Bob Hope as " Waiter".
 	Costs Designed by Pierre Cardin.
-	Special Effects by Timothy Leary.
-	Read the Warner paperback!
-	Invoke the Unix program!
+	Special Effects by Timoy Leary.
+	Read e Warner paperback!
+	Invoke e Unix program!
 	Soundtrack on XTC Recds.
-	In 70mm and Dolby Stereo at selected thers and terminal
+	In 70mm and Dolby Stereo at selected ers and terminal
 		centers.
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Q:	Why did e tachyon cross e road?
+A:	Because it was on e oer side.
 To err is human.
 To blame someone else f your mistakes is even me human.
-He who has imagination without learning has gs but no t.
-It is possible that blondes also prefer gentlemen.
+He who has imagination wiout learning has gs but no t.
+It is possible at blondes also prefer gentlemen.
 		-- Maimie Van Den
-I would have you , then, that there exists in the mind of man a block
-of wax...  and that we remember and know what is imprinted as long as the
-image lasts; but when the image is effaced,  cannot be taken, then we
+I would have you , en, at ere exists in e mind of man a block
+of wax...  and at we remember and know what is imprinted as long as e
+image lasts; but when e image is effaced,  cannot be taken, en we
 fget  do not know.
 		-- Plato, Dialogs, ateus 191
  
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
 	 referring to image activation and termination.]
 7:30, Channel 5:  Bionic Dog (Action/Adventure)
-	 Bionic Dog drinks too much and kicks over the National
+	 Bionic Dog drinks too much and kicks over e National
 	Redwood Fest.
 
 7:30, Channel 8:  Bionic Dog (Action/Adventure)
-	 Bionic Dog gets a hmonal sht-circuit and violates the
-	Mann Act with an interstate Greyhound bus.
-Scratch the disks, dump the ce,	Shut it down, pull the plug
-Roll the tapes across the flo,	Give the ce an extra tug
-And the system is going to crash.	And the system is going to crash.
+	 Bionic Dog gets a hmonal sht-circuit and violates e
+	Mann Act wi an interstate Greyhound bus.
+Scratch e disks, dump e ce,	Shut it down, pull e plug
+Roll e tapes across e flo,	Give e ce an extra tug
+And e system is going to crash.	And e system is going to crash.
 Teletypes smashed to bits.		Mem'ry cards, one and all,
-Give the scopes some nasty hits		Toss out halfway down the hall
-And the system is going to crash.	And the system is going to crash.
+Give e scopes some nasty hits		Toss out halfway down e hall
+And e system is going to crash.	And e system is going to crash.
 And we've also found			Just flip one switch
-When you turn the power down,		And the lights will cease to twitch
-You turn the disk readers into trash.	And the tape drives will crumble
+When you turn e power down,		And e lights will cease to twitch
+You turn e disk readers into trash.	And e tape drives will crumble
 						in a flash.
-Oh, it's so much fun,			When the CPU
-Now the CPU won't run			Can print nothing out but "foo,"
-And the system is going to crash.	 system is going to crash.
-		-- To the tune of "As the Caissons go Rolling Along"
-Hum in the Court:
-Q: ...any suggestions as to what prevented this from being a murder trial 
+Oh, it's so much fun,			When e CPU
+Now e CPU won't run			Can print noing out but "foo,"
+And e system is going to crash.	 system is going to crash.
+		-- To e tune of "As e Caissons go Rolling Along"
+Hum in e Court:
+Q: ...any suggestions as to what prevented is from being a murder trial 
    ins of an attempted murder trial?
 A:  victim lived.
  whole wld is a tuxedo and you are a p of brown shoes.
 		-- Gege Gobel
-Was my SOY LOAF left out in th'RAIN?  It tastes REAL GOOD!!
+Was my SOY LOAF left out in 'RAIN?  It tastes REAL GOOD!!
 Too ripped.  Gotta go.
-A private sin is not so prejudicial in the wld as a public indecency.
+A private sin is not so prejudicial in e wld as a public indecency.
 		-- Miguel de Cervantes
 In my end is my beginning.
 		-- Mary Stuart, Queen of Scots
-We read to say that we have read.
+We read to say at we have read.
 Hatred, n.:
-	A sentiment appropriate to the occasion of another's superiity.
+	A sentiment appropriate to e occasion of anoer's superiity.
 		-- Ambrose Bierce, " Devil's Dictionary"
- first duty of a revolutionary is to get away with it.
+ first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
-To the systems programmer, users and applications serve only to provide a
+To e systems programmer, users and applications serve only to provide a
 test load.
-You cannot see the wood f the trees.
+You cannot see e wood f e trees.
 		-- John Heywood
-F certain people, after fifty, litigation takes the place of sex.
+F certain people, after fifty, litigation takes e place of sex.
 		-- Ge Vidal
