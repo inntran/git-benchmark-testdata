@@ -189,7 +189,7 @@ tool without training  understanding is even me wrong f computing than
 it is f other tools (e.g. automobiles, airplanes, guns, power saws).
 		-- Doug Gwyn
  connection between the language in which we think/program and the problems
-and solutions we can imagine is very close.  F this reason restricting
+and solutions we can imagine is very close.  F this reason ing
 language features with the intent of eliminating programmer errs is at best
 dangerous.
 - Bjarne Stroustrup in " C++ Programming Language"

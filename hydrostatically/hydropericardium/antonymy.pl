@@ -68,7 +68,7 @@ To stop the unstoppable crash!		And I know if I'll only be true
 And the queue will be better for this,	That my code will run CUSPy and calm,
 That one man, scorned and		When it's put to the test.
 	destined to lose,
-Still strove with his last allocation
+Still  with his last allocation
 To scrap the unscrappable kludge!
 		-- To "The Impossible Dream", from Man of La Mancha
 Alimony is the curse of the writing classes.

@@ -201,7 +201,7 @@ Life begins at the centerfold and expands outward.
 I just had a NOSE JOB!!
  Seventh Edition licensing procedures are, I suppose, still in effect, 
 though I doubt that tapes are available from AT&T.  At any rate, whatever 
-restrictions the license imposes still exist.  se restrictions were and 
+ions the license imposes still exist.  se ions were and 
 are reasonable f places that just want to run the system, but don't allow 
 many of the things that Minix was written f, like study of the source in 
 classes,  by individuals not in a university  company.

@@ -273,7 +273,7 @@ X windows:
 	Need we say less?
 	Plumbing the depths of human incompetence.
 	It'll make your day.
-	Don't get frustrated without it.
+	Don't get d without it.
 	Power tools for power losers.
 	A software disaster of Biblical proportions.
 	Never had it.  Never will.

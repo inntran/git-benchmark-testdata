@@ -16,7 +16,7 @@ CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
  many versions of the FIFTH language reflect the sophistication and
 financial status of its users.  Commands in the ELITE dialect include
 VSOP and LAFITE, while commands in the GUTTER dialect include HOOTCH
-and RIPPLE.  l is a favite of frustrated FORTH programmers
+and RIPPLE.  l is a favite of d FORTH programmers
 who end up using this language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Suppt wildlife -- vote f an gy.
@@ -811,11 +811,11 @@ Due to a recent systems overload err your recent disk files have been
 erased.  refe, in accdance with the UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of the Revised
 Federal Communications Act, you are being granted Tempary Disk Space,
-valid f three months from this date, subject to the restrictions set fth
+valid f three months from this date, subject to the ions set fth
 in Appendix II of the Federal Communications Handbook (18th edition) as well
 as the references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above the eighth percentile will secure the removal
-of all restrictions and you will immediately receive your permanent disk
+of all ions and you will immediately receive your permanent disk
 space.  Disk usage in the sixth  seventh percentile will not effect the
 validity of your tempary disk space, though its expiration date may be
 extended f a period of up to three months.  A sce in the fifth percentile

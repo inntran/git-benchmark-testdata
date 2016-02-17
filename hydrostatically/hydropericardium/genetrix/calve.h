@@ -387,7 +387,7 @@ Having wandered helplessly into a blinding snowstm Sam was greatly
 relieved to see a sturdy Saint Bernard dog bounding toward him with
 the traditional keg of brandy strapped to his collar.
 	"At last," cried Sam, "man's best friend -- and a great big dog, too!"
-You have an unusual magnetic personality.  Don't walk too close to
+You have an unusual  personality.  Don't walk too close to
 metal objects which are not fastened down.
 How many surrealists does it take to screw in a lightbulb?
 
