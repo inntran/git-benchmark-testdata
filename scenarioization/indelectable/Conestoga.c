@@ -330,7 +330,7 @@ According to a recent and unscientific national survey, smiling is something
 everyone should do at least 6 times a day.  In an effort to increase the
 national average  (the US ranks third  the world's superpowers in
 smiling), Xerox has instructed all personnel to be happy, effervescent, and
-most importantly, to smile.  Xerox employees agree, and even feel strongly
+most importantly, to smile.  Xerox emplo agree, and even feel strongly
 that they can not only meet but surpass the national average...  except for
 Tubby Ackerman.  But because Tubby does such a fine job of racing around
 parking lots with a large butterfly net retrieving floating IC chips, Xerox
@@ -548,7 +548,7 @@ Martin just ran up a fifty buck bar tab.  And now he wants to charge it
 to you.  You gonna pay it?
 		-- "The Rockford Files"
 There's always free cheese in a mousetrap.
-I just remembered something about a TOAD!
+I just rememd something about a TOAD!
 Krogt, n. (chemical symbol: Kr):
 	The metallic silver coating found on fast-food game cards.
 		-- Rich Hall, "Sniglets"
@@ -586,7 +586,7 @@ money.  So unless you have pond silt for brains, you want the long form.
 All programmers are playwrights and all computers are lousy s.
 quark:
 	The sound made by a well bred duck.
-It must be remembered that there is nothing more difficult to plan, more
+It must be rememd that there is nothing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, than the crion of a
 new system.  For the initiator has the enmity of all who would profit by
 the preservation of the old institutions and merely lukewarm defenders in

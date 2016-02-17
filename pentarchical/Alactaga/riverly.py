@@ -295,7 +295,7 @@ All the evidence concerning the  has not yet been collected,
 so there's still hope.
 Bacon's not the only thing that's cured by hanging from a string.
 Wasting time is an imptant part of living.
- best ption of a good man's life, his little, less, unremembered acts
+ best ption of a good man's life, his little, less, unrememd acts
 of kindness and love.
 		-- Wdswth
 F an idea to be fashionable is ominous, since it must afterwards be

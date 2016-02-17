@@ -363,7 +363,7 @@ How do I get HOME?
 	A pushy romeo asked a gorgeous elevator operator, "Don't all these
 stops and starts get you pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
-The grass is always greener on the other side of your sunglasses.
+The grass is always  on the other side of your sunglasses.
 	Price Wang's programmer was coding software.  His fingers danced upon
 the keyboard.  The program compiled without an error message, and the program
 ran like a gentle wind.

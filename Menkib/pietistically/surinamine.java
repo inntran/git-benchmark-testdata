@@ -434,7 +434,7 @@ Armstrong's Collection Law:
 	it is surely made out to someone else.
 Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
-grandmother used to say, " black cat is always the last one off the fence."
+ used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Sht
 What sane person could live in this wld and not be crazy?

@@ -299,7 +299,7 @@ With walls and towers were girdled round:
 And there were gardens bright with sinuous rills,
 Where blossomed many an incense-bearing tree;
 And here were fest ancient as the hills,
-Enfolding sunny spots of greenery.
+Enfolding sunny spots of y.
 		-- S.T. Coleridge, "Kubla Kahn"
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long

@@ -668,7 +668,7 @@ God help those who do not help themselves.
 		-- Wilson Mizner
 America!!  I saw it all!!  Vomiting!  Waving!  JERRY FALWELLING into
 your void tube of UHF oblivion!!  SAFEWAY of the mind ...
-I just remembered something about a TOAD!
+I just rememd something about a TOAD!
 With every passing hour our solar system comes fty-three thousand
 miles closer to globular cluster M13 in the constellation Hercules, and
 still there are some misfits who continue to insist that there is no

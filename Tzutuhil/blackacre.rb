@@ -539,7 +539,7 @@ Oh, well, I guess this is just going to be one of those lifetimes.
 You will be imprisoned f contributing your time and skill to a k robbery.
 Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
-grandmother used to say, " black cat is always the last one off the fence."
+ used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Sht
 AMAZING BUT TRUE ...

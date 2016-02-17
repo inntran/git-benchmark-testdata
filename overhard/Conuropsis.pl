@@ -398,7 +398,7 @@ graduation.
 recognition of the sanctity of human life."
 	According to the tax bill signed by President Reagan on December 22,
 1987, Don Tyson and his sister-in-law Barbara run a "family farm."  Their
-"farm" has 25,000 employees and grosses $1.7 billion a year.  But as a "family
+"farm" has 25,000 emplo and grosses $1.7 billion a year.  But as a "family
 farm" they get tax breaks that save them $135 million a year.
 	Scott L. Pickard, spokesperson for the Massachusetts Department of
 Public Works, calls them "ground-mounted confirmatory route markers."  You

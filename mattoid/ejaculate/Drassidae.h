@@ -100,7 +100,7 @@ Nm:  Oh, I'm waiting f the movie.
 Famous last wds:
 I BET WHEN NEANDERTHAL KIDS would make a snowman, someone would always
 end up saying, "Don't fget the thick heavy brows."  n they would get
-embarrassed because they remembered they had the big hunky brows too, and
+embarrassed because they rememd they had the big hunky brows too, and
 they'd get mad and  the snowman.
 		-- Jack Handley,  New Mexican, 1988.
 When the bosses talk about improving productivity, they are never talking

@@ -95,7 +95,7 @@ O Queen beyond the Western Sea!
 O Light to us that wander here
 Amid the world of  trees!
 
-	Gilthoniel!  O Elbereth!
+	Gilthoniel!  O Elth!
 	Clear are thy eyes and bright thy brh!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
@@ -105,7 +105,7 @@ With shining hand by her were sown,
 In windy fields now bright and clear
 We see you silver blossom blown!
 
-	O Elbereth!  Gilthoniel!
+	O Elth!  Gilthoniel!
 	We still remember, we who dwell
 	In this far land benh the trees,
 	Thy starlight on the Western Seas.

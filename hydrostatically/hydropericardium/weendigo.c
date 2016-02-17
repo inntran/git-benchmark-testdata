@@ -475,7 +475,7 @@ a sy supply.
 Grig (the navigat):
 	... so you see, it's just the two of us against the entire space
 	armada.
-Alex (the gunner):
+Alex (the ):
 	What?!?
 Grig:	I've always wanted to fight a desperate battle against
 	overwhelming odds.

@@ -266,7 +266,7 @@ What they said:
 "You will be ftunate if you can get him to wk f you."
 	(We certainly never succeeded.)
 re is no other employee with whom I can adequately compare him.
-	(Well, our rats aren't really employees...)
+	(Well, our rats aren't really emplo...)
 "Success will never spoil him."
 	(Well, at least not MUCH me.)
 "One usually comes away from him with a good ling."
