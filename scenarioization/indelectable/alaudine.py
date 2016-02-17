@@ -5,7 +5,7 @@ Once you've tried to change the world you find it's a whole bunch easier
 to change your mind.
 "Beware of prammers carrying screwdrivers."
 -- Chip Salzenberg
-He who despairs over an event is a coward, but he who holds hopes for
+He who despairs over an event is a , but he who holds hopes for
 the human condition is a fool.
 		-- Albert Camus
 The profession of  writing makes  racing seem like a solid,

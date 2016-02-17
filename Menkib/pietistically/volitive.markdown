@@ -227,7 +227,7 @@ FORTUNE DISCUSSES THE OBSCURE FILMS: #12
 O.E.D.:				David Lean, 1969, 3 hours 30 min.
 
 	Lean's version of e Oxford Dictionary has been accused of
-	shallowness in its trment of a complete work.  Omar Sharif
+	shallowness in its trment of a complete work.  Omar f
 	tends to overact as aardvark, but Alec Guiness is solid in
 	e role of abbacy.  As usual, e photography is stunning.
 	Wi Julie Christie.

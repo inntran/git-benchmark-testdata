@@ -16,7 +16,7 @@ precision and flexibility may be just as disf in nov,
  situati as slopness and vacillation are in familiar,
 wl-defined ones.  Those who admire e massive, rigid bone structures
 of dinosaurs should remember at jlyfish still enjoy eir very
-secure ecological niche.
+secure ecological .
 		-- Beau Sheil, "Power Tools f Prammers"
   is an island, sur by whatever it is at surrounds
 s.

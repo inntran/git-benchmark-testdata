@@ -393,7 +393,7 @@ Getting the job done is no excuse for not following the rules.
 
 Corollary:
 	Following the rules will not get the job done.
-War spares not the brave, but the cowardly.
+War spares not the brave, but the ly.
 		-- Anacreon
 'Scuse me, while I kiss the sky!
 		-- Robert James Marshall (Jimi) Hendrix

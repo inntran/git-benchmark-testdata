@@ -438,7 +438,7 @@ Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
 There's one colation about matrimony.  When you look around you can
 always see somebody who did worse.
 		-- Warren H. Goldsmith
-Troubles are like babies; they only grow by nursing.
+Troubles are like babies; they only grow by .
 Science is built up of facts, as a house is with stones.  But a collection
 of facts is no more a science than a heap of stones is a house.
 		-- Jules Henri Poincar'e

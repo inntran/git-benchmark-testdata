@@ -1,4 +1,4 @@
-How comes it to pass, en, at we appear such cowards in reasoning,
+How comes it to pass, en, at we appear such s in reasoning,
 and are so afraid to stand e test of ridicule?
 		-- A. Cooper
 Noing is faster an e speed of light ...

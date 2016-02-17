@@ -182,7 +182,7 @@ Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
 	letting anyone too close.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
-Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
+Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
 		-- Sally F
 Wl, we're big rock rs, we've got golden fingers,

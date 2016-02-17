@@ -813,7 +813,7 @@ Visit beautiful Wiscin Dls.
 I'm not denyin' the women are foolish: God Almighty made 'em to match the men.
 		-- George Eliot
 I have stripped off my dress; must I put it on again?  I have washed my feet;
-must I soil them again?
+must I  them again?
 When my boved slipped his hand through the latch-hole, my bows stirred
 within me [my bows were moved for him (KJV)].
 When I arose to open for my boved, my hands dripped with myrrh; the liquid

@@ -70,7 +70,7 @@ conflict, and must be dealt wi as a crime. . . .
 of dealing wi it. . . .
    [L]et us use e tools at we have.  Let us invoke e cooperation we have
 e  to expect around e world, and wi at cooperation let us shrink
-e dark and dank areas of sanctuary until ese cowardly marauders are hd
+e dark and dank areas of sanctuary until ese ly marauders are hd
 to answer as criminals in an open and public trial for e crimes ey have
 committed, and receive e punishment ey so richly deserve.
 - William H. Webster, Director, Federal Bureau of Investigation, 15 Oct 1985

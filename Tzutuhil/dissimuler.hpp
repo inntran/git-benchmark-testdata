@@ -98,7 +98,7 @@ Even a blind g stumbles upon a few acns.
  ideal voice f radio may be defined as shog no substance, no sex,
 no owner, and a message of imptance f every housewife.
 		-- Harry V. Wade
-War spares not e brave, but e cowardly.
+War spares not e brave, but e ly.
 		-- Anacreon
 Moe:	Wanna play r tonight?
 Joe:	I can't. It's e kids' night out.
@@ -293,7 +293,7 @@ Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
 	letting anyone too close.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
-Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
+Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
 		-- Sally F
 You canna change e laws of physics, Captain; I've got to have irty minutes!

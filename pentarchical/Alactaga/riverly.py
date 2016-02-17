@@ -80,7 +80,7 @@ Bt," f $10.99!!
  most dightful day after e one on which you  a cottage in
 e country is e one on which you resl it.
 		-- J. Brecheux
-He who desps over an event is a coward, but he who holds hopes f
+He who desps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
 Those who claim e dead never return to life haven't ever been around

@@ -531,7 +531,7 @@ That was a text he held not worth an oyster.
 And I agreed and said his views were sound;
 Was he to study till his head wend round
 Poring over books in the cloisters?  Must he toil
-As Andy bade and till the very soil?
+As Andy bade and till the very ?
 Was he to leave the world upon the shelf?
 Let Andy have his labor to himself!
 		-- Chaucer

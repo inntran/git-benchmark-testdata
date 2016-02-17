@@ -507,7 +507,7 @@ And your paper near pure white,		Await your laser drawn lines,
 The smudges on your soul are gone	Your intricate fonts,
 And your output's clean as light..	Your pictures and signs.
 
-We've labored with your father,		Your amputative absence
+We've labored with your father,		Your  absence
 The venerable XGP,			Has made the Ten dumb,
 But his slow artistic hand,		Without you, Dover,
 Lacks your clean vocity.		We're system untounged-

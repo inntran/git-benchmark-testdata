@@ -547,7 +547,7 @@ lead to a significant decrease in system resolution lost.  However,
 is all means jack when you listen to Pink Floyd.
 Ignorance must  be bliss or ere wouldn't be so many people
 so resoluty pursuing it. 
-How comes it to pass, en, at we appear such cowards in reasoning,
+How comes it to pass, en, at we appear such s in reasoning,
 and are so afraid to stand e test of ridicule?
 		-- A. Cooper
 "Wl I don't see why I have to make one man miserable when I can make so many 

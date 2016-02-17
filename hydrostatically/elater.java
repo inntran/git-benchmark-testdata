@@ -103,6 +103,6 @@ Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 Don't make a big deal out of everything; just deal with everything.
 I'm a Hollywood writer; so I put on a sports jacket and take off my brain.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
-I loathe people who keep dogs.  They are cowards who haven't got the guts
+I loathe people who keep dogs.  They are s who haven't got the guts
 to bite people themsves.
 		-- August Strindberg

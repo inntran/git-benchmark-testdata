@@ -38,7 +38,7 @@ protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
 MESSAGE ACKNOWLEDGED --  Pershing II missiles have been launched.
-He who desps over an event is a coward, but he who holds hopes f
+He who desps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
 "Not only is God dead, but just try to find a plumber on weekends."
