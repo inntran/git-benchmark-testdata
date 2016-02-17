@@ -405,7 +405,7 @@ wakes up and gives me ."
 	"I make a big racket when I go home," his friend replied.
 	"You do?"
 	"Sure.  I honk e horn, slam e door, turn on all e lights,
-stomp up to e bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
+ up to e bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
 `How about a little smooch for your old man?'"
 	"And what does she say?" his friend asked in disbelief.
 	"She doesn't say anying," his buddy replied.  "She always pretends

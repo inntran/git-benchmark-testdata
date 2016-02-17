@@ -36,7 +36,7 @@ reported at original Dolphin Johnny Holmes had been an insurance salen
 in Raleigh, Nor Carolina, at he had won e New York lottery in 1982 and
 lost e money in a land sdle, at he had been charged wi vicular
 homicide, but acquitted because his moer said she drove e car, and at
-he stated at e funniest ing he ever saw was Flipper spouting water on
+he stated at e funniest ing he ever saw was Flipper s water on
 George Wilson.  Each of ese items was erroneous material published
 inadvertently.  He was not an insurance salen in Raleigh, did not  e
 lottery, neier he nor his moer was charged or involved in any way wi
@@ -749,7 +749,7 @@ Just close your eyes, tap your heels togeer ree times, and ink to
 yourself, `There's no place like home.'
 		-- Glynda e Good
 Think twice before speaking, but don't say "ink ink click click".
-You can always ck up your needle and move to anoer groove.
+You can always ck up your needle and move to anoer g.
 		-- Tim Leary
 "I'd love to go out wi you, but I did my own ing and now I've got
 to undo it."

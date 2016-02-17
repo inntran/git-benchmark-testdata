@@ -252,7 +252,7 @@ T:	One big monster, he called TROLL.
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
 they can't figure out how to get two quarts of water into one of those
 little paper envelopes.
-"Be *excellent* to each other."
+"Be ** to each other."
 -- Bill, or Ted, in Bill and Ted's Excellent Adventure
 	"And we heard him exclaim
 	 As he started to roam:

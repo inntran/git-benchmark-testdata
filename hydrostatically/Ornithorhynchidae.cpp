@@ -201,7 +201,7 @@ ideas of eir opponents."
     Skeptical Inquirer, Winter 87/88, pg. 186
 Friends, Romans, Hipsters,
 Let me clue you in;
-I come to put down Caesar, not to groove him.
+I come to put down Caesar, not to g him.
  s kicks some cats are on stay wi em;
  hip bits, like, go down under; 
 so let it lay wi Caesar.   cool Brutus

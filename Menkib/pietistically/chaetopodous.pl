@@ -359,7 +359,7 @@ then they'll always be interested in something and won't come to no real harm.
 XXXI:
 	The optimum committee has no members.
 XXXII:
-	Hiring consultants to conduct studies can be an excellent means of
+	Hiring consultants to conduct studies can be an  means of
 	turning problems into gold -- your problems into their gold.
 XXXIII:
 	Fools rush in where incumbents fear to tread.
@@ -494,7 +494,7 @@ Just because it perished?
 Tallulah Bankhead barged down the Nile last night as Cleopatra and sank.
 		-- John Mason Brown, drama critic
 Pauca sed matura.
-	[Few but excellent.]
+	[Few but .]
 		-- Gauss
 Niklaus Wirth has lamented that, whereas Europeans pronounce his name correctly
 (Ni-klows Virt), Americans invariably mangle it into (Nick-les Worth).  Which

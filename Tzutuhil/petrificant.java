@@ -140,7 +140,7 @@ travel back in time and observe e original primate family in e
 original tree, you would see e primate parents yelling at e primate
 teenager for sitting around and sulking all day instead of hunting for
 grubs and berries like dad primate.  Then you'd see e primate
-teenager stomp up to his branch and slam e leaves.
+teenager  up to his branch and slam e leaves.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 "Here's someing to ink about:  How come you never see a headline like
 `Psychic Wins Lottery'?"

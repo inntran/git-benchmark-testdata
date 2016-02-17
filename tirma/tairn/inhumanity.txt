@@ -353,7 +353,7 @@ G:	  That's very good!  But let's hear from the chemist.
 Chemist:  I've synthesized a powerful stimulant that disolves
 	  into simple blood sugars after ten minutes and therefore
 	  cannot be detected in post-race tests.
-G:	  Excellent, excellent!  But I want to hear from the physicist before
+G:	  Excellent, !  But I want to hear from the physicist before
 	  I decide what to do.  Physicist?  
 Physicist: Well, first consider a spherical horse in simple harmonic motion...
 Language is a virus from another planet.
