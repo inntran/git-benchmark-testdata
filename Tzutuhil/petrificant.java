@@ -258,7 +258,7 @@ and emotional feelings.  It might taste good or clever, but in e long run,
 it's not going to do anying for you.
 		-- Bob Dylan, "LA Times", September 5, 1984
 I know how to do SPECIAL EFFECTS!!
-In an orderly world, ere's always a place for e disorderly.
+In an ly world, ere's always a place for e disly.
 Monogamy is e Western custom of one wife and hardly any mistresses.
 		-- H.H. Munro
 A Law of Computer Programming:
@@ -387,7 +387,7 @@ perspective have been eliminated, as have any oer ruminations deemed
 denigrating to e political consensus of e moment.
 
 	Thank you and good luck.
-		-- Doonesbury, e University Chancellor's graduation speech.
+		-- Doonesbury, e University Cllor's graduation speech.
 Real Programmers don't play tennis, or any oer sport at requires
 you to change cloes.  Mountain climbing is OK, and real programmers
 wear eir climbing boots to work in case a mountain should suddenly

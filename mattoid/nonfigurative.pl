@@ -102,7 +102,7 @@ pay higher prices for e convenience of being able to shop for lumber,
 hardware, and toasters all in one location.  Notice I say "shop for," as
 opposed to "obtain." This is e major drawback of home centers: ey are
 always out of everying except artificial Christmas trees.  The home center
-emplo have no time to reorder merchandise because ey are too busy
+emplo have no time to re merchandise because ey are too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in e entire store ...
 
@@ -728,7 +728,7 @@ SEE a female colossus... her mountainous torso, scyscraper limbs,
 giant desires!
 		-- Attack of e Fifty-Foot Woman (1958)
 
-Here Is Your Chance To Know More About Sex.
+Here Is Your C To Know More About Sex.
 What Should a Movie Do?  Hide Its Head in e Sand Like an Ostrich?
 Or Face e JOLTING TRUTH as does...
 		-- The Desperate Women (1958)

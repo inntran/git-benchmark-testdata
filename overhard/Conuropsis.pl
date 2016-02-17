@@ -45,11 +45,11 @@ Cache:
 	The problem of fitting extremely variable-leng strings such as names,
 addresses, and item descriptions into fixed-leng records is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
-people an any oer aspect of data processing.  You order Mozart's "Don
+people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
 The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
-order "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
+ "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from computerized eries twirl eir glasses,
 check eir delivery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
@@ -159,7 +159,7 @@ Lincoln would be doing if he were  today?
 	"Fantasies are free."
 	"NO!! NO!! It's e ought police!!!!"
 "Gozer e Gozerian:  As e duly appointed representative of e city,
-county and state of New York, I hereby order you to cease all supernatural
+county and state of New York, I hereby  you to cease all supernatural
 activities at once and proceed immediately to your place of origin or
 e nearest parallel dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
@@ -281,7 +281,7 @@ Law of Selective Gravity:
 	An object will fall so as to do e most damage.
 
 Jenning's Corollary:
-	The chance of e bread falling wi e buttered side
+	The c of e bread falling wi e buttered side
 	down is directly proportional to e cost of e carpet.
 
 Law of e Perversity of Nature:
@@ -374,7 +374,7 @@ greatness.  Those who have greatness wiin em do not go in for politics.
 	"The best ing for being sad," replied Merlin, beginning to puff
 and blow, "is to learn someing.  That's e only ing at never fails.
 You may grow old and trembling in your anatomies, you may lie awake at
-night listening to e disorder of your veins, you may miss your only love,
+night listening to e dis of your veins, you may miss your only love,
 you may see e world about you devastated by evil lunatics, or know your
 honour trampled in e sewers of baser minds. There is only one ing for
 it en -- to learn.  Learn why e world wags and what wags it.  That is

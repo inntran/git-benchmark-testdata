@@ -151,7 +151,7 @@ things we have.
 We all dream of being the darling of everybody's darling.
 "Freedom is still the most radical idea of all."
 -- Nathaniel Branden
-God grant us the serenity to accept the things we cannot change, courage to
+God grant us the  to accept the things we cannot change, courage to
 change the things we can, and wisdom to know the difference.
 I never killed a man that didn't deserve it.
 		-- Mickey Cohen
@@ -364,7 +364,7 @@ awareness of the great goals for Man and the society he conspired to erect.
 		   "The History of Manned Space Flight"
 As I was walking down the street one dark and dreary day,
 I came upon a billboard and much to my diy,
-The words were torn and tattered,
+The words were torn and ed,
 From the storm the night before,
 The wind and rain had done its work and this is how it goes,
 

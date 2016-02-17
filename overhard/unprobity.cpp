@@ -175,7 +175,7 @@ Did you know that for the price of a 280-Z you can  two Z-80's?
 		-- P.J. Plauger
 The Greatest Mathematical Error 
 	The Mariner I space probe was launched from Cape Canaveral on 28
-July 1962 towards Venus.  After 13 minutes' flight a booster engine would
+July 1962 towards Venus.  After 13 minutes' flight a  engine would
 give acceleration up to 25,820 mph; after 44 minutes 9,800 solar cells
 would unfold; after 80 days a computer would calculate the final course
 corrections and after 100 days the craft would cirlce the unknown planet,
@@ -238,7 +238,7 @@ Well, O.K.  I'll compromise with my principles because of EXISTENTIAL DESPAIR!
 Get Revenge!  Live long enough to be a problem for your children!
 "An ounce of prevention is worth a ton of code."
 -- an anonymous programmer
-The generation of random numbers is too important to be left to chance.
+The generation of random numbers is too important to be left to c.
 I used to have a drinking problem.  Now I love the stuff.
 I don't want to bore you, but there's nobody else around for me to bore.
 Skill without imagination is craftnship and gives us many useful objects
@@ -307,7 +307,7 @@ Never face facts; if you do you'll never get up in the morning.
 trained and educated professions, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
 	Once someone has sunk to that level, what worse can you say about them?
-It isn't necessary to have relatives in Kansas City in order to be
+It isn't necessary to have relatives in Kansas City in  to be
 unhappy.
 		-- Groucho Marx
 The person who marries for money usually earns every penny of it.
@@ -349,7 +349,7 @@ as to affect his brain.  They are greatly distended, he has eyelashes, and
 his eyelids move, and cosequently his brain is in a state of constant
 irritation and distraction."
 	"Yes?" said old Yacob.  "Yes?"
-	"And I think I may say with reasonable certainty that, in order
+	"And I think I may say with reasonable certainty that, in 
 to cure him completely, all that we need do is a simple and easy surgical
 operation -- namely, to remove those irritant bodies."
 	"And then he will be sane?"
@@ -570,7 +570,7 @@ Hand, n.:
 	A singular instrument worn at the end of a human arm and
 	commonly thrust into somebody's pocket.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-The fancy is indeed no other than a mode of memory emancipated from the order
+The fancy is indeed no other than a mode of memory emancipated from the 
 of space and time.  -- uel Taylor Coleridge
 Bagbiter:
 	1. n.; Equipment or program that fails, usually intermittently.  2.

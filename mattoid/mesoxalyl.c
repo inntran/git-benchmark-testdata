@@ -68,7 +68,7 @@ Murphy would be there to tell me
 The pot's at the other end.
 		-- Bert Whitney
 In the force if Yoda's so strong, construct a  with words in
-the proper order then why can't he?
+the proper  then why can't he?
 You have an ambitious nature and may make a name for yourself.
 Adhere to your own act, and congratulate yourself if you have done something
 strange and extravagant, and broken the monotony of a decorous age.
@@ -85,6 +85,6 @@ man who eats Grape-Nuts on principle.
 good or bad, although you can be sure that everyone will.
  -- John Kenneth Galbraith
 I know you're in search of yourself, I just haven't seen you anywhere.
-The more laws and order are made prominent, the more thieves and
+The more laws and  are made prominent, the more thieves and
 robbers there will be.
 		-- Lao Tsu

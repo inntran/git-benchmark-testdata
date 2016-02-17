@@ -15,7 +15,7 @@ SHHHH!!  I hear SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BLOCKS into
 empty OIL DRUMS ...
 Juall's Law on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
-	Sometimes ey don't even get a chance to start!
+	Sometimes ey don't even get a c to start!
 About e time we ink we can make ends meet, somebody moves e ends.
 		-- Herbert Hoover
 Talk is cheap because supply always exceeds demand.
@@ -55,7 +55,7 @@ I don't have any solution but I certainly admire e problem.
 Suppt bacteria -- it's e only culture some people have!
 I never met a ece of chocolate I didn't like.
 When your memy goes, fget it!
-Did it ever occur to you at fat chance and slim chance mean e same ing?
+Did it ever occur to you at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 What e wld *really* needs is a good Automatic Bicycle Sharpener.

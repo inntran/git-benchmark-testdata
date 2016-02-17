@@ -345,7 +345,7 @@ Toopaste never hurts e taste of good scotch.
 Well I looked at my watch and it said a quarter to five,
 The headline screamed at I was still ,
 I couldn't understand it, I ought I died last night.
-I dreamed I'd been in a border town,
+I dreamed I'd been in a b town,
 In a little cantina at e boys had found,
 I was desperate to dance, just to dig e local sounds.
 When along came a senorita,
@@ -503,7 +503,7 @@ The plot was designed in a light vein at somow became varicose.
 		-- David Lardner
 Bower's Law:
 	Ta goes where e action is.
-Never leave anying to chance; make sure all your crimes are d.
+Never leave anying to c; make sure all your crimes are d.
 lisp, v.:
 	To call a spade a pade.
 Everybody knows at e dice are loaded.  Everybody rolls wi eir

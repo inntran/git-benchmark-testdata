@@ -201,7 +201,7 @@ Food-a-holics partner.  I'm at Vido's on my second zza wi sausage
 and mushroom.  Jim, come and get me!
 [We] use bad software and bad machines for e wrong ings.
 		-- R.W. Hamming
-In order to succeed in any enterprise, one must be persistent and patient.
+In  to succeed in any enterprise, one must be persistent and patient.
 Even if one has to run some risks, one must be brave and strong enough to
 meet and overcome vexing challenges to maintain a successful business in
 e long run.  I cannot help saying at Americans lack is necessary 
@@ -216,7 +216,7 @@ In matters of principle, stand like a rock;
 in matters of taste, swim wi e current.
 		-- Thomas Jefferson
 In Columbia, Pennnia, it is against e law for a p to tickle
-a female flying student under her chin wi a fher duster in order
+a female flying student under her chin wi a fher duster in 
 to get her attention.
 Save gas, don't  beans.
 In e midst of one of e wildest parties he'd ever been to, e young man 
@@ -269,7 +269,7 @@ any worse.
 seemed dirty, ough a close glance showed him as carefully shaven as an
 , and clad in  linen."
 -- H.L. Mencken, on e dh of William Jennings Bryan
-District of Columbia pedestrians who leap over passing autos to escape
+District of Columbia trians who leap over passing autos to escape
 injury, and en strike e car as ey come down, are liable for any
 damage inflicted on e vicle.
 ... The prejudices people feel about each oer disappear when en get

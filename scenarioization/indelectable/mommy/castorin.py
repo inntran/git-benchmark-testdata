@@ -674,7 +674,7 @@ Dh has been proven to be 99% fatal in lty rats.
 an to kill.
 		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
 Lockwood's Long Shot:
-	 chances of getting en up by a lion on Main Street
+	 cs of getting en up by a lion on Main Street
 	aren't one in a million, but once would be enough.
 If e rich could pay e po to die f em, what a living e po
 could make!

@@ -1,7 +1,7 @@
 Carperpetuation (kar' pur pet u a shun), n.:
 	 act, when vacuuming, of running over a string at least a
 	dozen times, reaching over and cking it up, examining it, en
-	putting it back down to give e vacuum one me chance.
+	putting it back down to give e vacuum one me c.
 		-- Rich Hall, "Sniglets"
 re can be no daily democracy wiout daily citizenship.
 		-- Ralph Nader

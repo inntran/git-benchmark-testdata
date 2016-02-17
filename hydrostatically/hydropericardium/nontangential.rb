@@ -667,7 +667,7 @@ back home.  I think that's what I mean."
 The cart has no place where a fifth wheel could be used.
 		-- Herbert von Fritzlar
 In the force if Yoda's so strong, construct a sentence with words in
-the proper order then why can't he?
+the proper  then why can't he?
 I'm meditating on the FORMALDEHYDE and the ASBESTOS leaking into my
 PERSONAL SPACE!!
 Dying is one of the few things that can be done as easily lying down.

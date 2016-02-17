@@ -26,7 +26,7 @@ pay higher prices for the convenience of being able to shop for lumber,
 hardware, and toasters all in one location.  Notice I say "shop for," as
 opposed to "obtain." This is the major drawback of home centers: they are
 always out of everything except artificial Christmas trees.  The home center
-employees have no time to reorder merchandise because they are too busy
+employees have no time to re merchandise because they are too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in the entire store ...
 

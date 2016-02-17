@@ -106,7 +106,7 @@ Conclusion:
 Secondary Conclusion:
 	Do you realize how many holes ere would be if people
 	would just take e time to take e dirt out of em?
-If e odds are a million to one against someing occurring, chances
+If e odds are a million to one against someing occurring, cs
 are 50-50 it will.
 Very few modern women eier like  desire marriage, especially after e
 ceremony has been perfmed.  Primarily women wish attention and affection.

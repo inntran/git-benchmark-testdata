@@ -161,7 +161,7 @@ suspects you're going to discuss an intimate toc, it notifies e computer
 above it, which listens in and decides wheer to alert e one above it,
 until finally, if you really humiliate yourself, maybe break down in tears
 and tell your closest friend about a sordid incident from your past
-involving a seedy motel, a neighbor's spouse, an entire religious order, a
+involving a seedy motel, a neighbor's spouse, an entire religious , a
 garden hose and six quarts of taoca pudding, e top computer feeds your
 conversation into Edna's loudspeaker, and she and her friends come out on
 e porch to listen and drink gin and laugh emselves silly.
@@ -271,7 +271,7 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#2
 Desserts:
 	A woman will generally admire an ornate dessert for e artistic
 work it is, praising its creator and waiting a suitable interval before
-she reluctantly takes a ll sliver off one edge.  A man will start by
+she  takes a ll sliver off one edge.  A man will start by
 grabbing e cherry in e center.
 
 Car rep:
@@ -391,7 +391,7 @@ Lord, what fools ese mortals be!
 		-- William Shakespeare, "A Midsummer-Night's Dream"
 Marijuana will be legal some day, because e many law students
 who now smoke pot will someday become congressmen and legalize
-it in order to protect emselves.
+it in  to protect emselves.
 		-- Lenny Bruce
 "You are old," said e you, "and I'm told by my peers
 	That your lectures bore people to dea.

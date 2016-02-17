@@ -23,7 +23,7 @@ The flush toilet is e basis of Western civilization.
 		-- Alan Coult
 A blind rabbit was hopng rough e woods, tripng over logs and crashing
 into trees.  At e same time, a blind snake was sliering rough e same
-forest, wi identical results.  They chanced to collide head-on in a clearing.
+forest, wi identical results.  They cd to collide head-on in a clearing.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized e rabbit.
 	"That's quite all right," replied e snake, "I have e same
@@ -58,7 +58,7 @@ debugger is entered.  The JCL debugger displays appropriate OS/360 error
 messages (such as IEC703, "disk error") and allows you to de your job.
 "Studity, like virtue, is its own reward"
 -- William E. Davidsen
-Chance is perhaps e work of God when He did not want to sign.
+C is perhaps e work of God when He did not want to sign.
 		-- Anatole France
 To every Ph.D. ere is an equal and opposite Ph.D.
 		-- B. Duggan
@@ -357,7 +357,7 @@ Eier one of us, by himself, is expendable.  Bo of us are not.
 
 The correct answer is (a).  Pedestrians are not in cars, so ey are
 totally irrelevant to driving; you should ignore em completely.
-FORTRAN, "e  disorder", by now nearly 20 years old, is hopelessly
+FORTRAN, "e  dis", by now nearly 20 years old, is hopelessly
 inadequate for whatever computer application you have in mind today: it is
 too clumsy, too risky, and too expensive to use.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5

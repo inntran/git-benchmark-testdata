@@ -140,7 +140,7 @@ I construe at perfce it must be one of two alternative duties, as
 given below.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
-benefit of e accountants and copy-boys in London  perchance:
+benefit of e accountants and copy-boys in London  perc:
 	2. To see to it at e fces of Napoleon are driven out of Spain.
 		-- Duke of Wellington, to e British Feign Office,
 		   London, 1812

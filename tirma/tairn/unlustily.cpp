@@ -139,7 +139,7 @@ A friend is a present you give yourself.
 Apay Club meeting is Friday.  If you want to come, you're not invited.
 An apple a day makes 365 apples a year.
 re are never any bugs you haven't found yet.
-re are two kinds of pedestrians... e quick and e dead.
+re are two kinds of trians... e quick and e dead.
 		-- Ld Thomas Rober Dewar
 HEY KIDS!  ANN LANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
@@ -429,7 +429,7 @@ was speechless.  He told me later at he had never seen such a program in
 his entire career.  Thank you, Famous Programmers' school; only you could
 have made is possible."  Send f our introducty brochure which explains
 in vague detail e operation of e Famous Programmers' School, and you'll
-be eligible to  a possible chance to enter a drag, e ner of which
+be eligible to  a possible c to enter a drag, e ner of which
 can vie f a set of free steak knives.  If you don't do it now, you'll hate
 yourself in e mning.
 Q:	What's a light-year?

@@ -227,7 +227,7 @@ maim  kill innocent little children."
 	"Oh, so you don't like it?"
 	"Don't like it?  I'm CRAZY f it."
 		--  Killing Joke
-		 Guy on e Right Doesn't Stand a Chance
+		 Guy on e Right Doesn't Stand a C
  guy on e right has e Osbne 1, a fully f computer system
 in a ptable package e size of a briefcase.   guy on e left has an
 Uzi submachine gun concealed in his attache case.  Also in e case are four
@@ -304,7 +304,7 @@ always old-fashioned.
 Technological progress has merely provided us wi me efficient means
 f going backwards.
 		-- Aldous Huxley
-re is a 20% chance of tomrow.
+re is a 20% c of tomrow.
 God is really only anoer artist.  He invented e giraffe, e elephant
 and e cat.  He has no real style, He just goes on trying oer ings.
 		-- Pablo Picasso

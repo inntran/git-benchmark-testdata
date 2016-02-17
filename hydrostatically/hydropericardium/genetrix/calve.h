@@ -470,7 +470,7 @@ embittered and depressed an befe (if such a ing is possible).
 Four Law of Revision:
 	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
-Did it ever occur to you at fat chance and slim chance mean e same ing?
+Did it ever occur to you at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 He who knows noing, knows noing.

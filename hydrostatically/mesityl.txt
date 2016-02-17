@@ -98,7 +98,7 @@ Ends life, kills laughter.
  AIR  --  mud  --  FIRE
 soda water |   tequila 
          WATER        
-District of Columbia pedestrians who leap over passing autos to escape
+District of Columbia trians who leap over passing autos to escape
 injury, and en strike e car as ey come down, are liable for any
 damage inflicted on e vicle.
 'Twas midnight on e ocean,		Her children all were s,
@@ -230,11 +230,11 @@ designed for people who walk on eir hands.
 	The problem of fitting extremely variable-leng strings such as names,
 addresses, and item descriptions into fixed-leng records is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
-people an any oer aspect of data processing.  You order Mozart's "Don
+people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
 The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
-order "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
+ "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from computerized eries twirl eir glasses,
 check eir delivery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10

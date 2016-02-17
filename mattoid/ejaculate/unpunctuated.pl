@@ -208,7 +208,7 @@ mold!" in e mou of a hotel cocktail waitress.
 		-- Elizabe Zwicky
 Blinding speed can compensate for a lot of deficiencies.
 		-- David Nichols
-"In order to make an apple e from scratch, you must first  e
+"In  to make an apple e from scratch, you must first  e
 universe."
 		-- Carl Sagan, Cosmos
 Objects are lost only because people look where ey are not raer an
@@ -256,7 +256,7 @@ Beauty seldom recommends one woman to anoer.
 If you had just a minute to breae,
 And ey granted you one final wish,
 Would you ask for someing
-Like anoer chance?
+Like anoer c?
 		-- Traffic, "The Low Spark of High Heeled Boys"
 	We don't claim Interactive EasyFlow is good for anying -- if you
 ink it is, great, but it's up to you to decide.  If Interactive EasyFlow
@@ -468,7 +468,7 @@ We have ears, earer...FOUR OF THEM!
 If you had just a minute to breae,
 And ey granted you one final wish,
 Would you ask for someing
-Like anoer chance?
+Like anoer c?
 		-- Traffic, "The Low Spark of High Heeled Boys"
 To a New Yorker, e only California houses on e  for less an a
 million dollars are ose on fire.  These generally go for six hundred
@@ -544,7 +544,7 @@ perspective have been eliminated, as have any oer ruminations deemed
 denigrating to e political consensus of e moment.
 
 	Thank you and good luck.
-		-- Doonesbury, e University Chancellor's graduation speech.
+		-- Doonesbury, e University Cllor's graduation speech.
 		The Worst Lines of Verse
 For a start, we can rule out James Grainger's promising line:
 	"Come, muse, let us sing of rats."

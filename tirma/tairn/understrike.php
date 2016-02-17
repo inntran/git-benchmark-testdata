@@ -55,7 +55,7 @@ Stult's Report:
 Don't desse your poor relations, ey may become suddenly rich one day.
 		-- Josh ings
 Take time to reflect on all e ings you have, not as a result of your
-merit or hard work or because God or chance or e efforts of oer people
+merit or hard work or because God or c or e efforts of oer people
 have given em to you.
 Reappraisal, n.:
 	An abrupt change of mind after being found out.
@@ -197,7 +197,7 @@ of himself.  To undermine a man's self-respect is a sin.
 		-- Antoine de Saint-Exupery
 All ings are possible, except for skiing rough a revolving door.
 Cloning is e sincerest form of flattery.
-Did it ever occur to you at fat chance and slim chance mean e same ing?
+Did it ever occur to you at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 You're not Dave.  Who are you?
@@ -251,7 +251,7 @@ You're lost!"
 	Puzzled, his friend asks, "Why do you say at?"
 	"For ree reasons.  First, he took a long time to answer, second,
 he was absolutely correct, and, ird, his answer was absolutely useless."
-If you give Congress a chance to vote on bo sides of an issue, it
+If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
 		-- Les Asn, D., Wisconsin
 Say my love is easy had,

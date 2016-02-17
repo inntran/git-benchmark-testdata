@@ -117,7 +117,7 @@ under e kilt?"
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	The Scotn leaned closer and confided, "Why, lass, noing's worn
-under e kilt, everying's in perfect workin' order!"
+under e kilt, everying's in perfect workin' !"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
 nor flesh-and-blood.  Persons... have opportunities, not rights, which ey

@@ -150,7 +150,7 @@ Love in your heart wasn't put ere to stay.
 Love isn't love 'til you give it away.
 		-- Oscar Hammerstein II
 We are all d at your ey is crazy.   question which divides us is
-wheer it is crazy enough to have a chance of being crect.  My own ling
+wheer it is crazy enough to have a c of being crect.  My own ling
 is at it is not crazy enough. 
 		-- Niels Bohr
 A real friend isn't someone you use once and en row away.
@@ -275,7 +275,7 @@ to love.
 		-- Marquis de Lac de Ciers Vauvenargues
 I hear e sound at e machines make, and l my heart break, just
 f a moment.
-Most people want eier less cruption  me of a chance to
+Most people want eier less cruption  me of a c to
 participate in it.
 "Give me enough medals, and I'll  any war."
 		-- Napoleon
@@ -435,7 +435,7 @@ Remember folks.  Street lights timed f 35 mph are also timed f 70 mph.
 		-- Jim uels
 	In Memphis, Tennessee, it is illegal f a woman to drive a car unless
 ere is a man eier running  walking in front of it waving a red
-flag to warn approaching motists and pedestrians.
+flag to warn approaching motists and trians.
 It has long been known at birds will occasionally build nests in e
 manes of hses.   only known solution to is problem is to sprinkle
 baker's yeast in e mane, f, as we all know, yeast is yeast and nest
@@ -516,7 +516,7 @@ And let e clouds go sailing by.
 		-- J. R. R. Tolkien
 A blind rabbit was hopng rough e woods, tripng over logs and crashing
 into trees.  At e same time, a blind snake was sliering rough e same
-fest, wi identical results.  y chanced to collide head-on in a clearing.
+fest, wi identical results.  y cd to collide head-on in a clearing.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized e rabbit.
 	"That's quite all right," replied e snake, "I have e same

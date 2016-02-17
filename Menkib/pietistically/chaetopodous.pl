@@ -369,7 +369,7 @@ XXXIV:
 	randomly.
 XXXV:
 	The weaker the data available upon which to base one's conclusion,
-	the greater the precision which should be quoted in order to give
+	the greater the precision which should be quoted in  to give
 	the data authenticity.
 		-- Norman Augustine
 If God had intended Man to Watch TV, He would have given him Rabbit Ears.

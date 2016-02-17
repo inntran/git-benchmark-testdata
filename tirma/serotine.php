@@ -78,7 +78,7 @@ We're fantastically incredibly sry f all ese ly unreasonable
 ings we did.  I can only plead at my simple, barely-sentient friend
 and myself are underprivileged, deprived and also college students.
 		-- Waldo D.R. Dobbs
- cost of living is going up, and e chance of living is going down.
+ cost of living is going up, and e c of living is going down.
 "None of our men are "exs."  We have most unftunately found it necessary 
 to get rid of a man as soon as he inks himself an ex -- because no one 
 ever considers himself ex if he really knows his job.  A man who knows a 
@@ -282,7 +282,7 @@ toleration from e intolerant, and kindness from e unkind.
 		-- Kahlil Gibran
 Juall's Law on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
-	Sometimes ey don't even get a chance to start!
+	Sometimes ey don't even get a c to start!
 British education is probably e best in e wld, if you can survive
 it.  If you can't ere is noing left f you but e diplomatic cps.
 		-- Peter Ustinov

@@ -66,7 +66,7 @@ Old Man Willow's house is side of spring-time,
 not till e merry spring, when e River-daughter
 dances down e wiy-pa to bae in e water.
 		-- J. R. R. Tolkien
-If you give Congress a chance to vote on bo sides of an issue, it
+If you give Congress a c to vote on bo sides of an issue, it
 will always do it.
 		-- Les Asn, D., Wisconsin
 Iam
@@ -454,7 +454,7 @@ to be .  When senior scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.
 	When managers make commitments, game programs are ignored.  When
-accountants make long-range plans, harmony and order are about to be restored.
+accountants make long-range plans, harmony and  are about to be restored.
 When senior scientists address e problems at hand, e problems will soon
 be solved.
 	Truly, is is e Tao of Programming.
@@ -666,7 +666,7 @@ All is well at ends well.
 I consider a new device or technology to have been culturally accepted when
 it has been used to commit a murder.
 		-- M. Gallaher
-Parts at positively cannot be assembled in improper order will be.
+Parts at positively cannot be assembled in improper  will be.
 	"Found it," e Mouse replied raer crossly: "of course you know
 what 'it' means."
 	"I know what 'it' means well enough, when I find a ing," said e

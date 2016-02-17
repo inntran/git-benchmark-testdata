@@ -302,7 +302,7 @@ Kettering's Observation:
 (3) When stopped at an intersection you should
 
 	(a) watch the traffic light for your lane.
-	(b) watch for pedestrians crossing the street.
+	(b) watch for trians crossing the street.
 	(c) blow the horn.
 	(d) watch the traffic light for the intersecting street.
 

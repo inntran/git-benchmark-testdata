@@ -196,7 +196,7 @@ An actor's a guy who if you ain't talkin' about him, ain't listening.
 mixed emotions:
 	Watching your moer-in-law back off a cliff...
 	in your brand new Mercedes.
-Give all orders verbally.  Never write anying down at might go into a
+Give all s verbally.  Never write anying down at might go into a
 "Pearl Harbor File".
 Fortune Docnts e Great Legal Decisions:
 
@@ -206,7 +206,7 @@ seems to us at someone has been very careless.
 		-- 78 So. 365.
 They are relatively good but absolutely terrible.
 		-- Alan Kay, commenting on Apollos
-In order to discover who you are, first learn who everybody else is;
+In  to discover who you are, first learn who everybody else is;
 you're what's left.
 Life is like a diaper -- short and loaded.
 You have mail.
