@@ -2,18 +2,18 @@
 `Psychic Wins Lottery'?"
 		-- Jay Leno
 God grant me the senility to accept the things I cannot change,
-The frustration to try to change things I cannot affect,
+ frustration to try to change things I cannot affect,
 and the wisdom to tell the difference.
 Who will take care of the world after you're gone?
 High heels are a device invented by a woman who was tired of being kissed
 on the forehead.
 If a subordinate asks you a pertinent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase the question back at him.
-The test of intelligent tinkering is to save all the parts.
+ test of intelligent tinkering is to save all the parts.
 		-- Aldo Leopold
 Politics, as a practice, whatever its professions, has always been the
 systematic organisation of hatreds.
-		-- Henry Adams, "The Education of Henry Adams"
+		-- Henry Adams, " Education of Henry Adams"
 "Hey Ivan, check your six."
 -- Sidewinder missile jacket patch, showing a Sidewinder driving up the tail
  of a Russian Su-27
@@ -53,7 +53,7 @@ Behind blue eyes.
 No one knows what its like to be hated,
 	to be fated,
 To telling only lies.
-			-- The Who
+			--  Who
 What I mean (and everybody else means) by the word QUALITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
@@ -61,17 +61,17 @@ is so mysterious but because Quality is so simple, immediate, and direct.
 A pessimist is a man who has been compelled to live with an optimist.
 		-- Elbert Hubbard
 Huh?
-	A boy spent years collecting postage stamps.  The girl next door bought
+	A boy spent years collecting postage stamps.   girl next door bought
 an album too, and started her own collection.  "Dad, she buys everything I've
 bought, and it's taken all the fun out of it for me.  I'm quitting."  Don't,
 son, remember, 'Imitation is the sincerest form of philately.'"
-There is no act of treachery or mean-ness of which a political party
+re is no act of treachery or mean-ness of which a political party
 is not capable; for in politics there is no honour.
 		-- Benjamin Disraeli, "Vivian Grey"
 Things fall apart; the centre cannot hold.
 Necessity has no law.
 		-- St. Augustine
-United Nations, New York, December 25.  The peace and joy of the Christmas
+United Nations, New York, December 25.   peace and joy of the Christmas
 season was marred by a proclamation of a general strike of all the military
 forces of the world.  Panic reigns in the hearts of all the patriots of
 every persuasion.  Meanwhile, fears of universal disaster sank to an all-time
@@ -87,7 +87,7 @@ O reed by the living pool!  Fair river-daughter!
 O spring-time and summer-time, and spring again after!
 O wind on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
-The trouble with you
+ trouble with you
 Is the trouble with me.
 Got two good eyes
 But we still don't see.
@@ -115,12 +115,12 @@ All I want is a warm bed and a kind word and unlimited power.
 All say, "How hard it is that we have to die"--a strange complaint to come from
 the mouths of people who have had to live.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-The Fastest Defeat In Chess
-	The big name for us in the world of chess is Gibaud, a French chess
+ Fastest Defeat In Chess
+	 big  for us in the world of chess is Gibaud, a French chess
 master.  
 	In Paris during 1924 he was beaten after only four moves by a
 Monsieur Lazard.  Happily for posterity, the moves are recorded and so
-chess enthusiasts may reconstruct this magnificent collapse in the comfort
+chess enthusiasts may reconstruct this magnificent colse in the comfort
 of their own homes.
 	Lazard was black and Gibaud white:
 	1: P-Q4, Kt-KB3
@@ -129,7 +129,7 @@ of their own homes.
 	4: P-K6, Kt-K6
 	White then resigns on realizing that a fifth move would involve
 either a Q-KR5 check or the loss of his queen.
-		-- Stephen Pile, "The Book of Heroic Failures"
+		-- Stephen Pile, " Book of Heroic Failures"
 Getting the job done is no excuse for not following the rules.
 
 Corollary:
@@ -141,14 +141,14 @@ I enjoy the time that we spend together.
 Toes, knees, NIPPLES.  Toes, knees, nipples, KNUCKLES ...
 Nipples, dimples, knuckles, NICKLES, wrinkles, pimples!!
 broad-mindedness, n:
-	The result of flattening high-mindedness out.
+	 result of flattening high-mindedness out.
 "Every group has a couple of experts.  And every group has at least one idiot.
  Thus are ba and harmony (and discord) maintained.  It's sometimes hard
  to remember this in the bulk of the flamewars that all of the hassle and
  pain is generally caused by one or two highly-motivated, caustic twits."
 -- Chuq Von Rospach, chuq@apple.com, about Usenet
 Reach into the thoughts of friends,
-And find they do not know your name.
+And find they do not know your .
 Squeeze the teddy bear too tight,
 And watch the feathers burst the seams.
 Touch the stained glass with your cheek,
@@ -157,17 +157,17 @@ Hold a candle to the night,
 And see the darkness bend the flame.
 Tear the mask of peace from God,
 And hear the roar of souls in hell.
-Pluck a rose in name of love,
+Pluck a rose in  of love,
 And watch the petals curl and wilt.
 Lean upon the western wind,
 And know you are alone.
 		-- Dru Mims
 A gleekzorp without a tornpee is like a quop without a fertsneet (sort of).
-New York is real.  The rest is done with mirrors.
+New York is real.   rest is done with mirrors.
 What is important is food, money and opportunities for scoring off one's
 enemies.  Give a man these three things and you won't hear much squawking
 out of him.
-		-- Brian O'Nolan, "The Best of Myles"
+		-- Brian O'Nolan, " Best of Myles"
 Save yourself!  Reboot in 5 seconds!
 Maybe we could paint GOLDIE HAWN a rich PRUSSIAN BLUE --
 An investment in knowledge always pays the best interest.
@@ -194,7 +194,7 @@ But the thrill we've never known,
 Is the thrill that'll get'cha, when you get your picture,
 On the cover of the Rolling Stone.
 
-I got a freaky old lady, name of Cole King Katie,
+I got a freaky old lady,  of Cole King Katie,
 Who embroiders on my jeans.
 I got my poor old gray-haired daddy,
 Drivin' my limousine.
@@ -212,10 +212,10 @@ And we keep gettin' richer, but we can't get our picture,
 On the cover of the Rolling Stone.
 		-- Dr. Hook and the Medicine Show
 		[As a note, they eventually DID make the cover of RS. Ed.]
-The secret of success is sincerity.  Once you can fake that, you've got
+ secret of success is sincerity.  Once you can fake that, you've got
 it made.
 		-- Jean Giraudoux
 Don't let go of what you've got hold of, until you have hold of something else.
 		-- First Rule of Wing Walking
-Computers are useless.  They can only give you answers.
+Computers are useless.  y can only give you answers.
 		-- Pablo Picasso

@@ -7,10 +7,10 @@ a record 86 attempts (three completions) in 87 plays....  Though Strewzinksi
 has so far failed to score any points for the Crimson, his jackrabbit speed
 has made him the least sacked quarterback in the Ivy league.
 Wide Receiver:
-	The other directional signal in Harvard's offensive machine is senior
+	 other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
 fast.  Expect to see Yip elude all pursuers and make it into the endzone five
-or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
+or six times, his average for a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
 those times.
 YALE:
@@ -21,11 +21,11 @@ Finklestein, the tightest ends in recent Eli history.  Also contributing to
 the powerful defense is junior tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look for these three to shut down the opening
 coin toss.
-		-- Harvard Lampoon 1988 Program Parody, distributed at The Game
+		-- Harvard Lampoon 1988 Program Parody, distributed at  Game
 A day without sunshine is like night.
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
 Those of us who believe in the right of any human being to belong to whatever
@@ -60,6 +60,6 @@ Never trust a computer you can't repair yourself.
 One meets his destiny often on the road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing the truth."
 	"Or by misleading the innocent."
-		-- Spock and McCoy, "And The Children Shall Lead",
+		-- Spock and McCoy, "And  Children Shall Lead",
 		   stardate 5029.5.
 Hedonist for hire... no job too easy!

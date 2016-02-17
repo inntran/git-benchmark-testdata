@@ -4,7 +4,7 @@ Do you want the instant respect that comes from being able to use technical
 terms that nobody understands?  Do you want to strike fear and loathing into
 the hearts of DP managers everywhere?  If so, then let the Famous Programmers'
 School lead you on... into the world of professional computer programming.
-They say a good programmer can write 20 lines of effective program per day.
+y say a good programmer can write 20 lines of effective program per day.
 With our unique training course, we'll show you how to write 20 lines of code
 and lots more besides.  Our training course covers every programming language
 in existence, and some that aren't.  You'll learn why the on/off switch for a
@@ -37,7 +37,7 @@ say in those awkward situations?  Worry no more...
 	Way to go, clumsy.
 	If you don't like it, you can lump it.
 XLI:
-	The more one produces, the less one gets.
+	 more one produces, the less one gets.
 XLII:
 	Simple systems are not feasible because they require infinite testing.
 What has roots as nobody sees,
@@ -55,8 +55,8 @@ XLVI:
 		-- Norman Augustine
 I thought there was something fishy about the butler.  Probably a Pisces,
 working for scale.
-		-- Firesign Theatre, "The Further Adventures of Nick Danger"
-The herd instinct among economists makes sheep look like independent thinkers.
+		-- Firesign atre, " Further Adventures of Nick Danger"
+ herd instinct among economists makes sheep look like independent thinkers.
 You can learn many things from children.  How much patience you have,
 for instance.
 		-- Franklin P. Jones
@@ -70,7 +70,7 @@ But now I think a thought that brings me hope:
 Neither had Chaucer, Shakespeare, Milton, Pope.
 		-- Justin Richardson.
 Celestial navigation is based on the premise that the Earth is the center
-of the universe.  The premise is wrong, but the navigation works.  An
+of the universe.   premise is wrong, but the navigation works.  An
 incorrect model can be a useful tool.
 		-- Kelvin Throop III
 One Bell System - it used to work before they installed the Dimension!
@@ -78,14 +78,14 @@ We're fantastically incredibly sorry for all these extremely unreasonable
 things we did.  I can only plead that my simple, barely-sentient friend
 and myself are underprivileged, deprived and also college students.
 		-- Waldo D.R. Dobbs
-The cost of living is going up, and the chance of living is going down.
+ cost of living is going up, and the chance of living is going down.
 "None of our men are "experts."  We have most unfortunately found it necessary 
 to get rid of a man as soon as he thinks himself an expert -- because no one 
 ever considers himself expert if he really knows his job.  A man who knows a 
 job sees so much more to be done than he has done, that he is always pressing 
 forward and never gives up an instant of thought to how good and how efficient 
 he is.  Thinking always ahead, thinking always of trying to do more, brings a 
-state of mind in which nothing is impossible. The moment one gets into the
+state of mind in which nothing is impossible.  moment one gets into the
 "expert" state of mind a great number of things become impossible."
 -- From Henry Ford Sr., "My Life and Work," p. 86 (1922):
 When you become used to never being alone, you may consider yourself
@@ -100,7 +100,7 @@ She is not refined.  She is not unrefined.  She keeps a parrot.
 	Catching his children with their hands in the new, still wet, patio,
 the father spanked them.  His wife asked, "Don't you love your children?"
 "In the abstract, yes, but not in the concrete."
-The Force is what holds everything together.  It has its dark side, and
+ Force is what holds everything together.  It has its dark side, and
 it has its light side.  It's sort of like cosmic duct tape.
 Do not read this fortune under penalty of law.
 Violators will be prosecuted.
@@ -116,13 +116,13 @@ On November 13, Felix Unger was asked to remove himself from his place
 of residence.
 Great American Axiom:
 	Some is good, more is better, too much is just right.
-The geographical center of Boston is in Roxbury.  Due north of the
+ geographical center of Boston is in Roxbury.  Due north of the
 center we find the South End.  This is not to be confused with South
 Boston which lies directly east from the South End.  North of the South
 End is East Boston and southwest of East Boston is the North End.
 A countryman between two lawyers is like a fish between two cats.
 		-- Ben Franklin
-The Golden Rule of Arts and Sciences:
+ Golden Rule of Arts and Sciences:
 	He who has the gold makes the rules.
 A man would still do something out of sheer perversity - he would create
 destruction and chaos - just to gain his point... and if all this could in
@@ -135,24 +135,24 @@ just whipped out a quarter?
 Dear Sir,
 	I am firmly opposed to the spread of microchips either to the home or
 to the office,  We have more than enough of them foisted upon us in public
-places.  They are a disgusting Americanism, and can only result in the farmers
+places.  y are a disgusting Americanism, and can only result in the farmers
 being forced to grow smaller potatoes, which in turn will cause massive un-
 employment in the already severely depressed agricultural industry.
 	Yours faithfully,
 	Capt. Quinton D'Arcy, J.P.
 	Sevenoaks
-		-- Letters To The Editor, The Times of London
+		-- Letters To  Editor,  Times of London
 "It's not just a computer -- it's your ass."
 		-- Cal Keegan
 Just remember, wherever you go, there you are.
 		-- Buckaroo Bonzai
-The real problem with hunting elephants is carrying the decoys.
+ real problem with hunting elephants is carrying the decoys.
 "All the system's paths must be topologically and circularly interrelated for 
  conceptually definitive, locally transformable, polyhedronal understanding to 
  be attained in our spontaneous -- ergo, most economical -- geodesiccally 
  structured thoughts."
 -- R. Buckminster Fuller [...and a total nonsequitur as far as I can tell.  -kl]
-The farther you go, the less you know.
+ farther you go, the less you know.
 		-- Lao Tsu, "Tao Te Ching"
 Einstein argued that there must be simplified explanations of nature, because
 God is not capricious or arbitrary.  No such faith comforts the software
@@ -188,12 +188,12 @@ Eorderen cocca-colha yce-coeld, [d]e reol [p]yng.
 		-- Not Chaucer, for certain
 Real software engineers don't like the idea of some inexplicable and
 greasy hardware several aisles away that may stop working at any
-moment.  They have a great distrust of hardware people, and wish that
-systems could be virtual at *___all* levels.  They would like personal
+moment.  y have a great distrust of hardware people, and wish that
+systems could be virtual at *___all* levels.  y would like personal
 computers (you know no one's going to trip over something and kill your
 DFA in mid-transit), except that they need 8 megabytes to run their
 Correctness Verification Aid packages.
-The individual choice of garnishment of a burger can be an important
+ individual choice of garnishment of a burger can be an important
 point to the consumer in this day when individualism is an increasingly
 important thing to people.
 		-- Donald N. Smith, president of Burger King
@@ -203,16 +203,16 @@ A pickup with three guys in it pulls into the lumber yard.  One of the men
 gets out and goes into the office.
 	"I need some four-by-two's," he says.
 	"You must mean two-by-four's" replies the clerk.
-	The man scratches his head.  "Wait a minute," he says, "I'll go
+	 man scratches his head.  "Wait a minute," he says, "I'll go
 check." 
 	Back, after an animated conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
 	"OK," says the clerk, writing it down, "how long you want 'em?"
-	The guy gets the blank look again.  "Uh... I guess I better go
+	 guy gets the blank look again.  "Uh... I guess I better go
 check," he says.
 	He goes back out to the truck, and there's another animated
-conversation.  The guy comes back into the office.  "A long time," he says,
+conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
 He draweth out the thread of his verbosity finer than the staple of his
 argument.
@@ -226,7 +226,7 @@ Heisenberg may have been here.
 Exercise caution in your daily affairs.
 Words must be weighed, not counted.
 Ill-chosen abstraction is particularly evident in the design of the ADA
-runtime system. The interface to the ADA runtime system is so opaque that
+runtime system.  interface to the ADA runtime system is so opaque that
 it is impossible to model or predict its performance, making it effectively
 useless for real-time systems. -- Marc D. Donner and David H. Jameson.
 Perfect day for scrubbing the floor and other exciting things.
@@ -248,8 +248,8 @@ Children begin by loving their parents.  After a time they judge them.  Rarely,
 if ever, do they forgive them.
 - Oscar Wilde
 Of all the words of witch's doom
-There's none so bad as which and whom.
-The man who kills both which and whom
+re's none so bad as which and whom.
+ man who kills both which and whom
 Will be enshrined in our Who's Whom.
 		-- Fletcher Knebel
 I'm continually AMAZED at th'breathtaking effects of WIND EROSION!!
@@ -258,7 +258,7 @@ Beggars should be no choosers.
 I often quote myself; it adds spice to my conversation.
 		-- G. B. Shaw
 In this world some people are going to like me and some are not.  So, I may
-as well be me.  Then I know if someone likes me, they like me.
+as well be me.  n I know if someone likes me, they like me.
 Blinding speed can compensate for a lot of deficiencies.
 		-- David Nichols
 Q:	Why did the astrophysicist order three hamburgers?
@@ -290,9 +290,9 @@ If you think the pen is mightier than the sword, the next time someone pulls
 out a sword I'd like to see you get up there with your Bic.
 "I have come up with a sure-fire concept for a hit television show,
 which would be called `A Live Celebrity Gets Eaten by a Shark'."
-		-- Dave Barry, "The Wonders of Sharks on TV"
+		-- Dave Barry, " Wonders of Sharks on TV"
 Real Programmers think better when playing Adventure or Rogue.
-"The sixties were good to you, weren't they?"
+" sixties were good to you, weren't they?"
 -- George Carlin
 Small things make base men proud.
 		-- William Shakespeare, "Henry VI"
@@ -321,10 +321,10 @@ Nothing is impossible for the man who doesn't have to do it himself.
 If life is merely a joke, the question still remains: for whose amusement?
 IT MAKES ME MAD when I go to all the trouble of having Marta cook up about
 a hundred drumsticks, then the guy at Marineland says, "You can't throw
-that chicken to the dolphins. They eat fish."
+that chicken to the dolphins. y eat fish."
 
 Sure they eat fish if that's all you give them!  Man, wise up.
-		-- Jack Handley, The New Mexican, 1988.
+		-- Jack Handley,  New Mexican, 1988.
 Most people will listen to your unreasonable demands, if you'll consider
 their unacceptable offer.
 I have a rock garden.  Last week three of them died.
@@ -364,19 +364,19 @@ water..."
 	"I'm sorry," replies the man on the camel, "I don't have any water
 with me.  But I'd be delighted to sell you a necktie."
 	"Tie?" whispers the man.  "I need *water*."
-	"They're only four dollars apiece."
+	"y're only four dollars apiece."
 	"I need *water*."
 	"Okay, okay, say two for seven dollars."
 	"Please!  I need *water*!", says the man.
 	"I don't have any water, all I have are ties," replies the salesman,
 and he heads off into the distance.
-	The man, losing track of time, crawls for what seems like days.
+	 man, losing track of time, crawls for what seems like days.
 Finally, nearly dead, sun-blind and with his skin peeling and blistering, he
 sees a restaurant in the distance.  Summoning the last of his strength he
 staggers up to the door and confronts the head waiter.
 	"Water... can I get... water," the dying man manages to stammer.
 	"I'm sorry, sir, ties required."
-The moving cursor writes, and having written, blinks on.
+ moving cursor writes, and having written, blinks on.
 If you stand on your head, you will get footprints in your hair.
 	"Sheriff, we gotta catch Black Bart."
 	"Oh, yeah?  What's he look like?"
@@ -390,7 +390,7 @@ In the Spring, I have counted 136 different kinds of weather inside of
 All is well that ends well.
 		-- John Heywood
 Never offend people with style when you can offend them with substance.
-		-- Sam Brown, "The Washington Post", January 26, 1977
+		-- Sam Brown, " Washington Post", January 26, 1977
 Day of inquiry.  You will be subpoenaed.
 It is now quite lawful for a Catholic woman to avoid pregnancy by a resort to
 mathematics, though she is still forbidden to resort to physics and chemistry.
@@ -404,10 +404,10 @@ the National League for five years.  This is the United States of America
 and one citizen has as much right to play as another.
 		-- Ford Frick, National League President, reacting to a
 		   threatened strike by some Cardinal players in 1947 if
-		   Jackie Robinson took the field against St. Louis.  The
+		   Jackie Robinson took the field against St. Louis.  
 		   Cardinals backed down and played.
 Human beings were created by water to transport it uphill.
-The more things change, the more they'll never be the same again.
+ more things change, the more they'll never be the same again.
 If your bread is stale, make toast.
 Meade's Maxim:
 	Always remember that you are absolutely unique, just like everyone else.
@@ -418,7 +418,7 @@ This is an IBM Manual scroll.--More--
 You are permanently confused.
 		-- Dave Decot
 Happiness adds and multiplies as we divide it with others.
-The trouble with eating Italian food is that five or six days later
+ trouble with eating Italian food is that five or six days later
 you're hungry again.
 		-- George Miller
 A group of politicians deciding to dump a President because his morals
@@ -427,7 +427,7 @@ not going to church on Sunday.
 		-- Russell Baker
 For some reason, this fortune reminds everyone of Marvin Zelkowitz.
 "Open Channel D..."
--- Napoleon Solo, The Man From U.N.C.L.E.
+-- Napoleon Solo,  Man From U.N.C.L.E.
 Remember the... the... uhh.....
 Nonsense.  Space is blue and birds fly through it.
 		-- Heisenberg

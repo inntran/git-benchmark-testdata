@@ -18,7 +18,7 @@ something out of you.
 I'd like to meet the guy who invented beer and see what he's working on now.
 If a man had a child who'd gone anti-social, killed perhaps, he'd still
 tend to protect that child.
-		-- McCoy, "The Ultimate Computer", stardate 4731.3
+		-- McCoy, " Ultimate Computer", stardate 4731.3
 Reporter:   "What would you do if you found a million dollars?"
 Yogi Berra: "If the guy was poor, I would give it back."
 Eeny, Meeny, Jelly Beanie, the spirits are about to speak!
@@ -57,10 +57,10 @@ riddled with bullets or cut to pieces with Bowie-knives, we cordially
 recommend our Sacramento climate and Sacramento surgery.
 		-- Sacramento Daily Union, September 11, 1861
 Schlattwhapper, n.:
-	The window shade that allows itself to be pulled down,
+	 window shade that allows itself to be pulled down,
 	hesitates for a second, then snaps up in your face.
 		-- Rich Hall, "Sniglets"
-There are three kinds of people: men, women, and unix.
+re are three kinds of people: men, women, and unix.
 "It's when they say 2 + 2 = 5 that I begin to argue."
 -- Eric Pepke
 "It could be that Walter's horse has wings" does not imply that there is
@@ -81,7 +81,7 @@ necessary that if someone is a better logician than I am then someone is a
 better logician than I am" is false because there need not have been any me.
 		-- A.N. Prior, "Time and Modality"
 Default, n.:
-	The hardware's, of course.
+	 hardware's, of course.
 Beware of all enterprises that require new clothes, and not rather
 a new wearer of clothes.
 		-- Henry David Thoreau
@@ -103,21 +103,21 @@ Colvard's Unconscionable Commentary:
 Grelb's Commentary:
 	Likelihoods, however, are 90% against you.
 Yow!  Am I in Milwaukee?
-The worst sin towards our fellow creatures is not to hate them,
+ worst sin towards our fellow creatures is not to hate them,
 but to be indifferent to them; that's the essence of inhumanity.
 		-- G.B. Shaw
 ANN JILLIAN'S HAIR makes LONI ANDERSON'S HAIR look like RICARDO
 MONTALBAN'S HAIR!
 Speer's 1st Law of Proofreading:
-	The visibility of an error is inversely proportional to the
+	 visibility of an error is inversely proportional to the
 	number of times you have looked at it.
 Love is staying up all night with a sick child, or a healthy adult.
 A Hen Brooding Kittens
 	A friend informs us that he saw at the Novato ranch, Marin county,
 a few days since, a hen actually brooding and otherwise caring for three
-kittens!  The gentleman upon whose premises this strange event is transpiring
+kittens!   gentleman upon whose premises this strange event is transpiring
 says the hen adopted the kittens when they were but a few days old, and that
-she has devoted them her undivided care for several weeks past.  The young
+she has devoted them her undivided care for several weeks past.   young
 felines are now of respectable size, but they nevertheless follow the hen at
 her cluckings, and are regularly brooded at night beneath her wings.
 		-- Sacramento Daily Union, July 2, 1861
@@ -125,10 +125,10 @@ her cluckings, and are regularly brooded at night beneath her wings.
 entertainment is all about ... Idiots, explosives and falling anvils."
 		-- Calvin and Hobbes, Bill Wson
 Here we are in America ... when do we collect unemployment?
-The District of Columbia has a law forbidding you to exert pressure on
+ District of Columbia has a law forbidding you to exert pressure on
 a balloon and thereby cause a whistling sound on the streets.
 God grant me the senility to accept the things I cannot change,
-The frustration to try to change things I cannot affect,
+ frustration to try to change things I cannot affect,
 and the wisdom to tell the difference.
 If anything can go wrong, it will.
 QOTD:
@@ -137,7 +137,7 @@ QOTD:
 Q:	What is purple and commutes?
 A:	An Abelian grape.
 Norm:  Gentlemen, start your taps.
-		-- Cheers, The Coach's Daughter
+		-- Cheers,  Coach's Daughter
 
 Coach: How's life treating you, Norm?
 Norm:  Like it caught me in bed with his wife.
@@ -153,12 +153,12 @@ far to the corner and they have added a hill.  I have given up running for
 the bus; it leaves earlier than it used to.
 	It seems to me they are making the stairs steeper than in the old
 days.  And have you noticed the smaller print they use in the newspapers?
-	There is no sense in asking anyone to read aloud anymore, as everbody
+	re is no sense in asking anyone to read aloud anymore, as everbody
 speaks in such a low voice I can hardly hear them.
-	The material in dresses is so skimpy now, especially around the hips
+	 material in dresses is so skimpy now, especially around the hips
 and waist, that it is almost impossible to reach one's shoelaces.  And the
-sizes don't run the way they used to.  The 12's and 14's are so much smaller.
-	Even people are changing.  They are so much younger than they used to
+sizes don't run the way they used to.   12's and 14's are so much smaller.
+	Even people are changing.  y are so much younger than they used to
 be when I was their age.  On  the other hand people my age are so much older
 than I am.
 	I ran into an old classmate the other day and she has aged so much
@@ -173,16 +173,16 @@ attention to detail.  It requires intelligence, dedication, and an
 enormous amount of hard work.  But, a certain amount of unpredictable
 and often unrepeatable inspiration is what usually makes the difference
 between adequacy and excellence.
-The good time is approaching,
-The season is at hand.
+ good time is approaching,
+ season is at hand.
 When the merry click of the two-base lick
 Will be heard throughout the land.
-The frost still lingers on the earth, and
+ frost still lingers on the earth, and
 Budless are the trees.
 But the merry ring of the voice of spring
 Is borne upon the breeze.
-		-- Ode to Opening Day, "The Sporting News", 1886
-The propriety of some persons seems to consist in having improper
+		-- Ode to Opening Day, " Sporting News", 1886
+ propriety of some persons seems to consist in having improper
 thoughts about their neighbours.
 		-- F.H. Bradley
 Bingo, gas station, hamburger with a side order of airplane noise,
@@ -206,7 +206,7 @@ watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and described the scene into his
 tape recorder, he saw two gnus grazing peacefully. So preoccupied were
 they that they failed to observe the approach of a pride of lions led
-by two magnificent specimens, obviously the leaders. The lions charged,
+by two magnificent specimens, obviously the leaders.  lions charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman recorded on his tape: "Well, that's the end of
@@ -224,11 +224,11 @@ Next to being shot at and missed, nothing is really quite as satisfying
 as an income tax refund.
 		-- F. J. Raymond
 What use is magic if it can't save a unicorn?
-		-- Peter S. Beagle, "The Last Unicorn"
+		-- Peter S. Beagle, " Last Unicorn"
 I BET WHEN NEANDERTHAL KIDS would make a snowman, someone would always
-end up saying, "Don't forget the thick heavy brows."  Then they would get
+end up saying, "Don't forget the thick heavy brows."  n they would get
 embarrassed because they remembered they had the big hunky brows too, and
 they'd get mad and eat the snowman.
-		-- Jack Handley, The New Mexican, 1988.
+		-- Jack Handley,  New Mexican, 1988.
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland

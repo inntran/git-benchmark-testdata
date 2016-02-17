@@ -5,11 +5,11 @@ Captain Penny's Law:
 An infallible method of conciliating a tiger is to allow oneself to be
 devoured.
 		-- Konrad Adenauer
-The income tax has made more liars out of the American people than golf
+ income tax has made more liars out of the American people than golf
 has.  Even when you make a tax form out on the level, you don't know
 when it's through if you are a crook or a martyr.
 		-- Will Rogers
-The ideas of economists and political philosophers, both when they
+ ideas of economists and political philosophers, both when they
 are right and when they are wrong, are more powerful than is generally
 understood.  Indeed, the world is ruled by little else.
 		-- John Maynard Keyes
@@ -23,14 +23,14 @@ H. L. Mencken's Law:
 
 Martin's Extension:
 	Those who cannot teach -- administrate.
-The New England Journal of Medicine reports that 9 out of 10 doctors agree
+ New England Journal of Medicine reports that 9 out of 10 doctors agree
 that 1 out of 10 doctors is an idiot.
 Computers will not be perfected until they can compute how much more
 than the estimate the job will cost.
 If a thing's worth doing, it is worth doing badly.
 		-- G.K. Chesterton
 Moe:	What did you give your wife for Valentine's Day?
-Joe:	The usual gift -- she ate my heart out.
+Joe:	 usual gift -- she ate my heart out.
 Surprise your boss.  Get to work on time.
 Cheer Up!  Things are getting worse at a slower rate.
 Two things are certain about science.  It does not stand still for long,
@@ -42,8 +42,8 @@ precepts defended with authoritarian vigor.  Others view it as nothing
 but a cold, dry narrow, plodding, rule-bound process -- the scientific
 method: hidebound, linear, and left brained.
 
-These people are the victims of their own stereotypes.  They are
-destined to view the world of science with a set of blinders.  They
+se people are the victims of their own stereotypes.  y are
+destined to view the world of science with a set of blinders.  y
 know nothing of the tumult, cacophony, rambunctiousness, and 
 tendentiousness of the actual scientific process, let alone the 
 creativity, passion, and joy of discovery.  And they are likely to
@@ -51,20 +51,20 @@ know little of the continual procession of new insights and discoveries
 that every day, in some way, change our view (if not theirs) of the
 natural world.
 
--- Kendrick Frazier, "The Year in Science: An Overview," in
+-- Kendrick Frazier, " Year in Science: An Overview," in
    1988 Yearbook of Science and the Future, Encyclopaedia Britannica, Inc.
 Confession is good for the soul only in the sense that a tweed coat is
 good for dandruff.
 		-- Peter de Vries
-The two most common things in the Universe are hydrogen and stupidity.
+ two most common things in the Universe are hydrogen and stupidity.
 		-- Harlan Ellison
 Too much of a good thing is WONDERFUL.
 		-- Mae West
 I smell a RANCID CORN DOG!
-The one day you'd sell your soul for something, souls are a glut.
+ one day you'd sell your soul for something, souls are a glut.
 innovate, v.:
 	To annoy people.
-The tree in which the sap is stagnant remains fruitless.
+ tree in which the sap is stagnant remains fruitless.
 		-- Hosea Ballou
 No group of professionals meets except to conspire against the public at large.
 		-- Mark Twain
@@ -117,13 +117,13 @@ of a pig is more or less green than the designated hitter rule."
 		-- David Guaspari
 theory, n.:
 	System of ideas meant to explain something, chosen with a view to
-	originality, controversialism, incomprehensibility, and how good
+	originality, consialism, incomprehensibility, and how good
 	it will look in print.
 Decorate your home.  It gives the illusion that your life is more
 interesting than it really is.
 		-- C. Schulz
 Snow White has become a camera buff.  She spends hours and hours
-shooting pictures of the seven dwarfs and their antics.  Then she
+shooting pictures of the seven dwarfs and their antics.  n she
 mails the exposed film to a cut rate photo service.  It takes weeks
 for the developed film to arrive in the mail, but that is all right
 with Snow White.  She clears the table, washes the dishes and sweeps
@@ -134,13 +134,13 @@ Best Beer: A panel of tasters assembled by the Consumer's Union in 1969
 judged Coors and Miller's High Life to be among the very best. Those who
 doubt that beer is a serious subject might ponder its effect on American
 history. For example, New England's first colonists decided to drop anchor
-at Plymouth Rock instead of continuing on to Virginia because, as one of
+at Plymouth Rock ins of continuing on to Virginia because, as one of
 them put it, "We could not now take time for further consideration, our
 victuals being spent and especially our beer."
 	-- Felton & Fowler's Best, Worst & Most Unusual
 I see a good deal of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
-		-- The Best of Will Rogers
+		--  Best of Will Rogers
 Paranoia is simply an optimistic outlook on life.
 Finding out what goes on in the C.I.A. is like performing acupuncture
 on a rock.
@@ -149,7 +149,7 @@ We are all born equal... just some of us are more equal than others.
 Love in your heart wasn't put there to stay.
 Love isn't love 'til you give it away.
 		-- Oscar Hammerstein II
-We are all agreed that your theory is crazy.  The question which divides us is
+We are all agreed that your theory is crazy.   question which divides us is
 whether it is crazy enough to have a chance of being correct.  My own feeling
 is that it is not crazy enough. 
 		-- Niels Bohr
@@ -159,13 +159,13 @@ Eat shit -- billions of flies can't be wrong.
 Yow!  Now I get to think about all the BAD THINGS I did to a BOWLING
 BALL when I was in JUNIOR HIGH SCHOOL!
 I used to think romantic love was a neurosis shared by two, a supreme
-foolishness.  I no longer thought that.  There's nothing foolish in
+foolishness.  I no longer thought that.  re's nothing foolish in
 loving anyone.  Thinking you'll be loved in return is what's foolish.
 		-- Rita Mae Brown
 Yes, we will be going to OSI, Mars, and Pluto, but not necessarily in
 that order.
 		-- Jeffrey Honig
-The five rules of Socialism:
+ five rules of Socialism:
 	(1) Don't think.
 	(2) If you do think, don't speak.
 	(3) If you think and speak, don't write.
@@ -186,7 +186,7 @@ understand it.
       ...and before I knew what I was doing, I had kicked the
       typewriter and threw it around the room and made it beg for
       mercy.  At this point the typewriter pleaded for me to dress
-      him in feminine attire but instead I pressed his margin release
+      him in feminine attire but ins I pressed his margin release
       over and over again until the typewriter lost consciousness.
       Presently, I regained consciousness and realized with shame what
       I had done.  My shame is gone and now I am looking for a
@@ -199,7 +199,7 @@ of a KOSHER DELI --
 I never expected to see the day when girls would get sunburned in the
 places they do today.
 		-- Will Rogers
-Instead of loving your enemies, treat your friends a little better.
+Ins of loving your enemies, treat your friends a little better.
 		-- Edgar W. Howe
 	"For I perceive that behind this seemingly unrelated sequence
 of events, there lurks a singular, sinister attitude of mind."
@@ -233,7 +233,7 @@ It is annoying to be honest to no purpose.
 Silly Putty."
 -  Dennis Rawlins, astronomer
 Other women cloy
-The appetites they feed, but she makes hungry
+ appetites they feed, but she makes hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
 Many people are desperately looking for some wise advice which will
@@ -244,7 +244,7 @@ Fill what's empty, empty what's full, scratch where it itches.
 		-- Alice Roosevelt Longworth
 He who has but four and spends five has no need for a wallet.
 Are we THERE yet?  My MIND is a SUBMARINE!!
-The grave's a fine and private place,
+ grave's a fine and private place,
 but none, I think, do there embrace.
 		-- Andrew Marvell
 "Violence accomplishes nothing."  What a contemptible lie!  Raw, naked
@@ -261,18 +261,18 @@ If the code and the comments disagree, then both are probably wrong.
 Cold, adj.:
 	When the politicians walk around with their hands in their own pockets.
 You will lose an important disk file.
-They call them "squares" because it's the most complicated shape they can
+y call them "ss" because it's the most complicated shape they can
 deal with.
 For a holy stint, a moth of the cloth gave up his woolens for lint.
-There are bad times just around the corner,
-There are dark clouds hurtling through the sky
+re are bad times just around the corner,
+re are dark clouds hurtling through the sky
 	And it's no good whining 
 	About a silver lining
 For we know from experience that they won't roll by...
 		-- Noel Coward
-The heaviest object in the world is the body of the woman you have ceased
+ heaviest object in the world is the body of the woman you have ceased
 to love.
-		-- Marquis de Lac de Clapiers Vauvenargues
+		-- Marquis de Lac de Ciers Vauvenargues
 I hear the sound that the machines make, and feel my heart break, just
 for a moment.
 Most people want either less corruption or more of a chance to
@@ -307,11 +307,11 @@ we must ask how one differentiates "real transcendence" from neuropathies
 that produce the same extreme realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
 [temporal-lobe epileptics] are laid alongside the epiphanous revelations of
-the religious tradition, the parallels are striking.  The same is true of the
+the religious tradition, the parallels are striking.   same is true of the
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 spirits, demons, or extraterrestrials when natural causes will suffice.
 -- Barry L. Beyerstein, "Neuropathology and the Legacy of Spiritual 
-   Possession", The Skeptical Inquirer, Vol. XII, No. 3, pg. 255
+   Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
 Fourth Law of Revision:
 	It is usually impractical to worry beforehand about
 	interferences -- if you have none, someone will make one for you.
@@ -334,8 +334,8 @@ Curiously enough, the dolphins had long known of the impending
 destruction of the of the planet Earth and had made many attempts to
 alert mankind to the danger; but most of their communications were
 misinterpreted ...
-		-- Douglas Admas "The Hitchhikers' Guide To The Galaxy"
-There cannot be a crisis next week.  My schedule is already full.
+		-- Douglas Admas " Hitchhikers' Guide To  Galaxy"
+re cannot be a crisis next week.  My schedule is already full.
 		-- Henry Kissinger
 			Pittsburgh driver's test
 
@@ -347,7 +347,7 @@ you test it?
 	(c) once a day.
 	(d) once an hour.
 
-The correct answer is (d). You should test your car's horn at least once
+ correct answer is (d). You should test your car's horn at least once
 every hour, and more often at night or in residential neighborhoods.
 He's like a function -- he returns a value, in the form of his opinion.
 It's up to you to cast it into a void or not.
@@ -375,7 +375,7 @@ omnibiblious, adj.:
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to dispel a source
 	of error in an opponent.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Maslow's Maxim:
 	If the only tool you have is a hammer, you treat everything like 
 	a nail.
@@ -386,27 +386,27 @@ Don't go!!  I AM Howard Cosell! ... And I DON'T know Polish jokes!!
 IBM Pollyanna Principle:
 	Machines should work.  People should think.
 667:
-	The neighbor of the beast.
+	 neighbor of the beast.
 Q:	Know what the difference between your latest project
 	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+A:	Who knows?   elephant *might* fly, heh, heh...
 If little green men land in your back yard, hide any little green women
 you've got in the house.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armchair Anarchist's Almanac"
 "Why are we importing all these highbrow plays like `Amadeus'?  I could
 have told you Mozart was a jerk for nothing."
 		-- Ian Shoales
 Those who don't know, talk.  Those who don't talk, know.
 Nothing endures but change.
 		-- Heraclitus
-The appreciation of the average visual graphisticator alone is worth
+ appreciation of the average visual graphisticator alone is worth
 the whole suaveness and decadence which abounds!!
-The rights and interests of the laboring man will be protected and cared
+ rights and interests of the laboring man will be protected and cared
 for not by our labor agitators, but by the Christian men to whom God in his
 infinite wisdom has given control of property interests of the country, and
 upon the successful management of which so much remains.
 		-- George F. Baer, railroad industrialist
-The politician is someone who deals in man's problems of adjustment.
+ politician is someone who deals in man's problems of adjustment.
 To ask a politician to lead us is to ask the tail of a dog to lead the dog.
 		-- Buckminster Fuller
 To get something clean, one has to get something dirty.
@@ -419,7 +419,7 @@ belonging to it.
 If I pull this SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOLOGIST!
 To err is human; to admit it, a blunder.
 What foods these morsels be!
-Perhaps the world's second worst crime is boredom.  The first is being a bore.
+Perhaps the world's second worst crime is boredom.   first is being a bore.
 		-- Cecil Beaton
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #15 -- DOGO
 
@@ -429,7 +429,7 @@ SIT, STAY, HEEL, and ROLL OVER.  An innovative feature of DOGO is "puppy
 graphics", a small cocker spaniel that occasionally leaves a deposit as
 it travels across the screen.
 INSIDE, I have the same personality disorder as LUCY RICARDO!!
-There is a fly on your nose.
+re is a fly on your nose.
 This fortune would be seven words long if it were six words shorter.
 Remember folks.  Street lights timed for 35 mph are also timed for 70 mph.
 		-- Jim Samuels
@@ -437,7 +437,7 @@ Remember folks.  Street lights timed for 35 mph are also timed for 70 mph.
 there is a man either running or walking in front of it waving a red
 flag to warn approaching motorists and pedestrians.
 It has long been known that birds will occasionally build nests in the
-manes of horses.  The only known solution to this problem is to sprinkle
+manes of horses.   only known solution to this problem is to sprinkle
 baker's yeast in the mane, for, as we all know, yeast is yeast and nest
 is nest, and never the mane shall tweet.
 You're a good example of why some animals eat their young.
@@ -462,11 +462,11 @@ Horngren's Observation:
 Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
 Honk if you love peace and quiet.
-The man with the best job in the country is the Vice President.  All he has
+ man with the best job in the country is the Vice President.  All he has
 to do is get up every morning and say, "How's the President?"
 		-- Will Rogers
 
-The vice-presidency ain't worth a pitcher of warm spit.
+ vice-presidency ain't worth a pitcher of warm spit.
 		-- Vice President John Nance Garner
 Q:	What's hard going in and soft and sticky coming out?
 A:	Chewing gum.
@@ -476,15 +476,15 @@ Sometimes, too long is too long.
 		-- Joe Crowe
         "...'fire' does not m, 'earth' and 'air' and 'water' do not
 m.  'I' do not m.  No word ms.  But man forgets reality
-and remembers words.  The more words he remembers, the cleverer do his
+and remembers words.   more words he remembers, the cleverer do his
 fellows esteem him.  He looks upon the great transformations of the
 world, but he does not see them as they were seen when man looked upon
-reality for the first time.  Their names come to his lips and he smiles
+reality for the first time.  ir s come to his lips and he smiles
 as he tastes them, thinking he knows them in the naming."
 -- Siddartha, _Lord_of_Light_ by Roger Zelazny
 Experiments must be reproducible; they should all fail in the same way.
 Harold had never wanted a woman so much in his life, upon overhearing the
-22-year-old beauty remark that he was too old and out of shape for her.  The
+22-year-old beauty remark that he was too old and out of shape for her.  
 determined septuagenarian immediately embarked upon a rigorous self-improvement
 program.  He had his face lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Within months, the
@@ -496,7 +496,7 @@ could you do this to me after all the pain I went through?"
 recognize you."
 Do not drink coffee in early A.M.  It will keep you awake until noon.
 What passes for optimism is most often the effect of an intellectual error.
-		-- Raymond Aron, "The Opium of the Intellectuals"
+		-- Raymond Aron, " Opium of the Intellectuals"
 Age, n.:
 	That period of life in which we compound for the vices that we
 	still  by reviling those that we no longer have the enterprise
@@ -516,7 +516,7 @@ And let the clouds go sailing by.
 		-- J. R. R. Tolkien
 A blind rabbit was hopping through the woods, tripping over logs and crashing
 into trees.  At the same time, a blind snake was slithering through the same
-forest, with identical results.  They chanced to collide head-on in a clearing.
+forest, with identical results.  y chanced to collide head-on in a clearing.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized the rabbit.
 	"That's quite all right," replied the snake, "I have the same
@@ -529,7 +529,7 @@ and long ears.  You're... hmmm... you're probably a bunny rabbit!"
 	"Great!" said the rabbit.  "Thanks, I really owe you one!"
 	"Well," replied the snake, "I don't know what I am, either.  Do you
 suppose you could try and tell me?"
-	The rabbit ran his paws all over the snake.  "Well, you're low, cold
+	 rabbit ran his paws all over the snake.  "Well, you're low, cold
 and slimey..."  And, as he ran one paw underneath the snake, "and you have
 no balls.  You must be an attorney!"
 We Klingons believe as you do -- the sick should die.  Only the strong
@@ -539,7 +539,7 @@ Oh, well, I guess this is just going to be one of those lifetimes.
 You will be imprisoned for contributing your time and skill to a bank robbery.
 Any great truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  For instance, my
-grandmother used to say, "The black cat is always the last one off the fence."
+grandmother used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Short
 AMAZING BUT TRUE ...
@@ -569,7 +569,7 @@ And reckoned its true worth:
 Take us back again to the homes of men
 On the cool, green hills of Earth.
 
-The arching sky is calling
+ arching sky is calling
 Spacemen back to their trade.
 All hands!  Standby!  Free falling!
 And the lights below us fade.
@@ -587,7 +587,7 @@ In the Spring, I have counted 136 different kinds of weather inside of
 24 hours.
 		-- Mark Twain, on New England weather
 Some of my readers ask me what a "Serial Port" is.
-The answer is: I don't know.
+ answer is: I don't know.
 Is it some kind of wine you have with breakfast?
 Old programmers never die, they just branch to a new address.
 Nick the Greek's Law of Life:
@@ -596,7 +596,7 @@ Acquaintance, n:
 	A person whom we know well enough to borrow from but not well
 	enough to lend to.  A degree of friendship called slight when the
 	object is poor or obscure, and intimate when he is rich or famous.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 "Not Hercules could have knock'd out his brains, for he had none."
 		-- Shakespeare
 What is a magician but a practising theorist?
@@ -607,30 +607,30 @@ Where the Romulans lurk
 And the Klingons often go berserk.
 
 Yes, the good ship Enterprise
-There's excitement anywhere it flies
+re's excitement anywhere it flies
 Where Tribbles play
 And Nurse Chapel never gets her way.
 
 	See Captain Kirk standing on the bridge,
 	Mr. Spock is at his side.
-	The weekly menace, ooh-ooh
+	 weekly menace, ooh-ooh
 	It gets fried, sced far and wide.
 
 It's the good ship Enterprise
 Heading out where danger lies
 And you live in dread
 If you're wearing a shirt that's red.
-	-- Doris Robin and Karen Trimble of The L.A. Filkharmonics,
-	   "The Good Ship Enterprise," to the tune of "The Good Ship Lollipop"
+	-- Doris Robin and Karen Trimble of  L.A. Filkharmonics,
+	   " Good Ship Enterprise," to the tune of " Good Ship Lollipop"
 Mac Airways:
-The cashiers, flight attendants and pilots all look the same, feel the same
+ cashiers, flight attendants and pilots all look the same, feel the same
 and act the same. When asked questions about the flight, they reply that you
 don't want to know, don't need to know and would you please return to your
 seat and watch the movie.
 If God had meant for us to be in the Army, we would have been born with
 green, baggy skin.
 Walk softly and carry a big stick.
-		-- Theodore Roosevelt
+		-- odore Roosevelt
 A prediction is worth twenty explanations.
 		-- K. Brecher
 A public debt is a kind of anchor in the storm; but if the anchor be
@@ -650,4 +650,4 @@ invite them as we may.
 Concerning the war in Vietnam, Senator George Aiken of Vermount noted
 in January, 1966, "I'm not very keen for doves or hawks.  I think we need
 more owls."
-		-- Bill Adler, "The Washington Wits"
+		-- Bill Adler, " Washington Wits"

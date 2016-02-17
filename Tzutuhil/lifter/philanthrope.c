@@ -1,4 +1,4 @@
-"The way of the world is to praise dead saints and prosecute live ones."
+" way of the world is to praise dead saints and prosecute live ones."
  -- Nathaniel Howe
 No snowflake in an avalanche ever feels responsible.
 May you have many beautiful and obedient daughters.
@@ -9,19 +9,19 @@ BASIC is to computer programming as QWERTY is to typing.
 May you live in uninteresting times.
 		-- Chinese proverb
 Often things ARE as bad as they seem!
-Actually, my goal is to have a sandwich named after me.
+Actually, my goal is to have a sandwich d after me.
 Acquaintance, n:
 	A person whom we know well enough to borrow from but not well
 	enough to lend to.  A degree of friendship called slight when the
 	object is poor or obscure, and intimate when he is rich or famous.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 "I once witnessed a long-winded, month-long flamewar over the use of
 mice vs. trackballs...It was very silly."
 (By Matt Welsh)
 What passes for woman's intuition is often nothing more than man's
 transparency.
 		-- George Nathan
-The function of the expert is not to be more right than other people,
+ function of the expert is not to be more right than other people,
 but to be wrong for more sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:
@@ -42,7 +42,7 @@ A:  Attached to the ears.
 with my breakfast cereal."
 - Zaphod Beeblebrox in "Hithiker's Guide to the Galaxy"
 I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
-The Road goes ever on and on
+ Road goes ever on and on
 Down from the door where it began.
 Now far ahead the Road has gone,
 And I must follow, if I can,

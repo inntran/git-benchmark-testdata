@@ -4,13 +4,13 @@ Life is a grand adventure -- or it is nothing.
 		-- Helen Keller
 Pascal is a language for children wanting to be naughty.
 		-- Dr. Kasi Ananthanarayanan
-I played lead guitar in a band called The Federal Duck, which is the kind
-of name that was popular in the '60s as a result of controlled substances
+I played lead guitar in a band called  Federal Duck, which is the kind
+of  that was popular in the '60s as a result of controlled substances
 being in widespread use.  Back then, there were no restrictions, in terms
 of talent, on who could make an album, so we made one, and it sounds like
 a group of people who have been given powerful but unfamiliar instruments
 as a therapy for a degenerative nerve disease.
-		-- Dave Barry, "The Snake"
+		-- Dave Barry, " Snake"
 SHHHH!!  I hear SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BLOCKS into
 empty OIL DRUMS ...
 Juall's Law on Nice Guys:
@@ -33,10 +33,10 @@ Bondage maybe, discipline never!
 		-- T.K.
 TIPS FOR PERFORMERS:
 	Playing cards have the top half upside-down to help cheaters.
-	There are a finite number of jokes in the universe.
+	re are a finite number of jokes in the universe.
 	Singing is a trick to get people to listen to music longer than
 		they would ordinarily.
-	There is no music in space.
+	re is no music in space.
 	People will pay to watch people make sounds.
 	Everything on stage should be larger than in real life.
 What I mean (and everybody else means) by the word QUALITY cannot be
@@ -59,27 +59,27 @@ Did it ever occur to you that fat chance and slim chance mean the same thing?
 
 Or that we drive on parkways and park on driveways?
 What the world *really* needs is a good Automatic Bicycle Sharpener.
-The danger is not that a particular class is unfit to govern.  Every class
+ danger is not that a particular class is unfit to govern.  Every class
 is unfit to govern.
 		-- Lord Acton
 Did I SELL OUT yet??
 For those who like this sort of thing, this is the sort of thing they like.
 		-- Abraham Lincoln
-"There are things that are so serious that you can only joke about them"
+"re are things that are so serious that you can only joke about them"
 - Heisenberg
 According to the latest official figures, 43% of all statistics are
 totally worthless.
 	A novice asked the Master: "Here is a programmer that never designs,
 documents, or tests his programs.  Yet all who know him consider him one of
 the best programmers in the world.  Why is this?"
-	The Master replies: "That programmer has mastered the Tao.  He has
+	 Master replies: "That programmer has mastered the Tao.  He has
 gone beyond the need for design; he does not become angry when the system
 crashes, but accepts the universe without concern.  He has gone beyond the
 need for documentation; he no longer cares if anyone else sees his code.  He
 has gone beyond the need for testing; each of his programs are perfect within
 themselves, serene and elegant, their purpose self-evident.  Truly, he has
 entered the mystery of the Tao."
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, " Tao of Programming"
 Feminists just want the human race to be a tie.
 Sturgeon's Law:
 	90% of everything is crud.
@@ -100,7 +100,7 @@ longer believe you.
 Without fools there would be no wisdom.
 Deadwood, n.:
 	Anyone in your company who is more senior than you are.
-"There is nothing so deadly as not to hold up to people the opportunity to
+"re is nothing so deadly as not to hold up to people the opportunity to
 do great and wonderful things, if we wish to stimulate them in an active way."
 - Dr. Harold Urey, Nobel Laureate in chemistry
 I smell a wumpus.
@@ -123,7 +123,7 @@ But Captain -- the engines can't take this much longer!
 Yow!  Am I having fun yet?
 I never killed a man that didn't deserve it.
 		-- Mickey Cohen
-The reason it's called "Grape Nuts" is that it contains "dextrose", which is
+ reason it's called "Grape Nuts" is that it contains "dextrose", which is
 also sometimes called "grape sugar," and also because "Grape Nuts" is
 catchier, in terms of marketing, than "A Cross Between Gerbil Food and
 Gravel," which is what it tastes like.
@@ -131,7 +131,7 @@ Gravel," which is what it tastes like.
 Save the whales.  Collect the whole set.
 If you have to think twice about it, you're wrong.
 Moe:	What did you give your wife for Valentine's Day?
-Joe:	The usual gift -- she ate my heart out.
+Joe:	 usual gift -- she ate my heart out.
 A Parable of Modern Research:
 
 	Bob has lost his keys in a room which is dark except for one
@@ -182,8 +182,8 @@ She lays eggs in the Relative When.
 She doesn't lay eggs in the Positive Now
 Because she's unable to postulate How.
 		-- Frederick Winsor
-The person you rejected yesterday could make you happy, if you say yes.
-"I'm returning this note to you, instead of your paper, because it (your paper)
+ person you rejected yesterday could make you happy, if you say yes.
+"I'm returning this note to you, ins of your paper, because it (your paper)
 presently occupies the bottom of my bird cage."
 		-- English Professor, Providence College
 Democracy is a government where you can say what you think even if you
@@ -193,7 +193,7 @@ Catsup and Mustard all over the place!  It's the Human Hamburger!
 An amendment to a motion may be amended, but an amendment to an amendment
 to a motion may not be amended.  However, a substitute for an amendment to
 and amendment to a motion may be adopted and the substitute may be amended.
-		-- The Montana legislature's contribution to the English
+		--  Montana legislature's contribution to the English
 		language.
 I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
@@ -202,8 +202,8 @@ If only one could get that wonderful feeling of accomplishment without
 having to accomplish anything.
 Politics, as a practice, whatever its professions, has always been the
 systematic organisation of hatreds.
-		-- Henry Adams, "The Education of Henry Adams"
-The easiest way to figure the cost of living is to take your income and
+		-- Henry Adams, " Education of Henry Adams"
+ easiest way to figure the cost of living is to take your income and
 add ten percent.
 ... we must be wary of granting too much power to natural selection
 by viewing all basic capacities of our brain as direct adaptations.
@@ -213,7 +213,7 @@ an adaptation for definite roles (probably a complex set of interacting
 functions).  But these assumptions do not lead to the notion, often
 uncritically embraced by strict s, that all major capacities
 of the brain must arise as direct products of natural selection.
-		-- S.J. Gould, "The Mismeasure of Man"
+		-- S.J. Gould, " Mismeasure of Man"
 "Most of us, when all is said and done, like what we like and make up reasons 
 for it afterwards."
 -- Soren F. Petersen
@@ -246,14 +246,14 @@ world on USENET or write adventure games and research papers.
 		-- E. Post
 		"Real Programmers Don't Use Pascal", Datamation, 7/83
 Get Revenge!  Live long enough to be a problem for your children!
-There are three things I have always loved and never understood --
+re are three things I have always loved and never understood --
 art, music, and women.
-There is hardly a thing in the world that some man can not make a little
+re is hardly a thing in the world that some man can not make a little
 worse and sell a little cheaper.
 I do not believe that this generation of Americans is willing to resign itself
 to going to bed each night by the light of a Communist moon...
 - Lyndon B. Johnson
-The first duty of a revolutionary is to get away with it.
+ first duty of a revolutionary is to get away with it.
 		-- Abbie Hoffman
 You have had a long-term stimulation relative to business.
 "Conversion, fastidious Goddess, loves blood better than brick, and feasts
@@ -267,7 +267,7 @@ and we'll make sure it gets expunged.
 1 Billion dollars of budget deficit		= 1 Gramm-Rudman
 6.023 x 10 to the 23rd power alligator pears	= Avocado's number
 2 pints						= 1 Cavort
-Basic unit of Laryngitis			= The Hoarsepower
+Basic unit of Laryngitis			=  Hoarsepower
 Shortest distance between two jokes		= A straight line
 6 Curses					= 1 Hexahex
 3500 Calories					= 1 Food Pound
@@ -292,7 +292,7 @@ One half large intestine			= 1 Semicolon
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to the 12th power microphones		= 1 Megaphone
 10 to the 6th power Bicycles			= 2 megacycles
-The amount of beauty required launch 1 ship	= 1 Millihelen
+ amount of beauty required launch 1 ship	= 1 Millihelen
 With every passing hour our solar system comes forty-three thousand
 miles closer to globular cluster M13 in the constellation Hercules, and
 still there are some misfits who continue to insist that there is no
@@ -307,9 +307,9 @@ REAL-TIME EXECUTIONER to delete liveware that adversely affects ...
 		-- Linden and Wihelminalaan
 I feel ... JUGULAR ...
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
-his fellow anti-establishment rabble-rousers, "The first thing we do, let's
+his fellow anti-establishment rabble-rousers, " first thing we do, let's
 kill all the lawyers."  That action may be extreme but a similar sentiment
-was expressed by Thomas K. Connellan, president of The Management Group, Inc.
+was expressed by Thomas K. Connellan, president of  Management Group, Inc.
 Speaking to business executives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
 of attorneys and accountants, and a dearth of production experts.  Lawyers
@@ -317,7 +317,7 @@ and accountants "do not make the economic pie any bigger; they only figure
 out how the pie gets divided.  Neither profession provides any added value
 to product."
 	According to Connellan, the highly productive Japanese society has
-10 lawyers and 30 accountants per 100,000 population.  The U.S. has 200
+10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests that "the U.S. proportion of
 pie-bakers and pie-dividers is way out of whack."  Could Dick Butcher have
 been an efficiency expert?
@@ -337,7 +337,7 @@ People's Action Rules:
 	(3) Some people who shouldn't, will.
 	(4) Some people who can't, will try, regardless.
 	(5) Some people who shouldn't, but try, will then blame others.
-Experience is what causes a person to make new mistakes instead of old ones.
+Experience is what causes a person to make new mistakes ins of old ones.
 Humor in the Court:
 Q.  Mrs. Smith, do you believe that you are emotionally unstable?
 A.  I should be.
@@ -350,7 +350,7 @@ Getting the job done is no excuse for not following the rules.
 
 Corollary:
 	Following the rules will not get the job done.
-The following quote is from page 4-27 of the MSCP Basic Disk Functions
+ following quote is from page 4-27 of the MSCP Basic Disk Functions
 Manual which is part of the UDA50 Programmers Doc Kit manuals:
 
 As stated above, the host area of a disk is structured as a vector of
@@ -362,7 +362,7 @@ Referring to our hyper-cube analogy, the set of potentially accessible
 blocks form a line parallel to the track axis.  This line moves
 parallel to the sector axis, wrapping around when it reaches the edge
 of the hyper-cube.
-The most important thing in a relationship between a man and a woman
+ most important thing in a relationship between a man and a woman
 is that one of them be good at taking orders.
 		-- Linda Festa
 egrep pns are full regular expressions; it uses a fast deterministic
@@ -371,10 +371,10 @@ algorithm that sometimes needs exponential space.
 A wise man can see more from a mountain top than a fool can from the bottom
 of a well.
 Happiness is a hard disk.
-The mark of a good party is that you wake up the next morning wanting to
-change your name and start a new life in different city.
+ mark of a good party is that you wake up the next morning wanting to
+change your  and start a new life in different city.
 		-- Vance Bourjaily, "Esquire"
-The best book on programming for the layman is "Alice in Wonderland";
+ best book on programming for the layman is "Alice in Wonderland";
 but that's because it's the best book on anything for the layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
@@ -395,7 +395,7 @@ know the answer either.
 Experience is not what happens to you; it is what you do with what happens
 to you.
 		-- Aldous Huxley
-There are no emotional victims, only volunteers.
+re are no emotional victims, only volunteers.
 Lots of girls can be had for a song.  Unfortunately, it often turns out to
 be the wedding march.
 	"Beauty is transitory."
@@ -434,7 +434,7 @@ Armstrong's Collection Law:
 	it is surely made out to someone else.
 Any great truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  For instance, my
-grandmother used to say, "The black cat is always the last one off the fence."
+grandmother used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Short
 What sane person could live in this world and not be crazy?
@@ -454,7 +454,7 @@ Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
 Give your very best today.  Heaven knows it's little enough.
 Work expands to fill the time available.
-		-- Cyril Northcote Parkinson, "The Economist", 1955
+		-- Cyril Northcote Parkinson, " Economist", 1955
 Good news.  Ten weeks from Friday will be a pretty good day.
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\

@@ -6,15 +6,15 @@ large numbers and prospered.
 	One day they looked up in the heavens and desired to reach up as far
 as the eye could see.  So they set out in building a Mathematical edifice that
 was to reach up as far as "up" went.  Further and further up they went ...
-until one night the edifice collapsed under the weight of paradox.
-	The following morning saw only rubble where there once was a huge
+until one night the edifice colsed under the weight of paradox.
+	 following morning saw only rubble where there once was a huge
 structure reaching to the heavens.  One by one, the Mathematicians climbed
 out from under the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
-understand each other.  They all spoke different languages.  They all fought
+understand each other.  y all spoke different languages.  y all fought
 amongst themselves and each went about their own way.  To this day the
 Topologists remain the original Mathematicians.
-		-- The Story of Babel
+		--  Story of Babel
 Imagine what we can imagine!
 		-- Arthur Rubinstein
 Test-tube babies shouldn't throw stones.
@@ -32,10 +32,10 @@ any young woman of aspiration should expect to spend most of her vacations
 in a car, probing into unfamiliar corners.  She is not required to know how
 to drive but she will certainly be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
-help, she's bound to cause trouble.  Therefore, you'd think that colleges
+help, she's bound to cause trouble.  refore, you'd think that colleges
 which train the bright young women who're going to marry the bright young
 men who are going to own the Cadillacs that roar back and forth across this
-continent would teach the girls to read maps.  None do. They teach a hundred
+continent would teach the girls to read maps.  None do. y teach a hundred
 other useless things, but never a word about the one that will cause the
 greatest friction.
 		-- James Michener, "Space"
@@ -51,9 +51,9 @@ All great discoveries are made by mistake.
 Machines certainly can solve problems, store information, correlate,
 and play games -- but not with pleasure.
 		-- Leo Rosten
-Against stupidity the very gods Themselves contend in vain.
-		-- Friedrich von Schiller, "The Maid of Orleans", III, 6
-The reverse side also has a reverse side.  
+Against stupidity the very gods mselves contend in vain.
+		-- Friedrich von Schiller, " Maid of Orleans", III, 6
+ reverse side also has a reverse side.  
 		-- Japanese proverb
 Blame Saint Andreas -- it's all his fault.
 "Nuclear war would really set back cable."
@@ -78,7 +78,7 @@ PDSK	Punch Disk
 -- Seymour, from _Little Shop Of Horrors_
 It's not so hard to lift yourself by your bootstraps once you're off the ground.
 		-- Daniel B. Luten
-There may be said to be two classes of people in the world; those who constantly
+re may be said to be two classes of people in the world; those who constantly
 divide the people of the world into two classes and those who do not.
 		-- Robert Benchley
 Everything's great in this good old world;
@@ -89,45 +89,45 @@ Hunger and War do not mean a thing;
 Everything's rosy where'er we roam;
 Hark, how the little birds gaily sing!
 (This is what fetches the bacon home.)
-		-- Dorothy Parker, "The Far Sighted Muse"
+		-- Dorothy Parker, " Far Sighted Muse"
 No live organism can continue for long to exist sanely under conditions of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty years and might stand for eighty more.
 Within, walls continued uht, bricks met neatly, floors were firm, and
-doors were sensibly shut; silence lay steadily against the wood and stone
+doors were sensibly shut; silence lay sily against the wood and stone
 of Hill House, and whatever walked there, walked alone.
-		-- Shirley Jackson, "The Haunting of Hill House"
+		-- Shirley Jackson, " Haunting of Hill House"
 What is wanted is not the will to believe, but the will to find out,
 which is the exact opposite.
 		-- Bertrand Russell, "Skeptical Essays", 1928
 Swahili, n.:
-	The language used by the National Enquirer to print their retractions.
+	 language used by the National Enquirer to print their retractions.
 		-- Johnny Hart
 It is illegal to say "Oh, Boy" in Jonesboro, Georgia.
 Anger kills as surely as the other vices.
 "You can't teach people to be lazy - either they have it, or they don't."
-		-- Dagwood Bumstead
+		-- Dagwood Bums
 If you can survive death, you can probably survive anything.
-Be warned that typing \fBkillall \fIname\fP may not have the desired
+Be warned that typing \fBkillall \fI\fP may not have the desired
 effect on non-Linux systems, especially when done by a privileged user.
 (From the killall manual page)
 He draweth out the thread of his verbosity finer than the staple of his
 argument.
 		-- William Shakespeare, "Love's Labour's Lost"
-	A master programmer passed a novice programmer one day.  The master
+	A master programmer passed a novice programmer one day.   master
 noted the novice's preoccupation with a hand-held computer game.  "Excuse me",
 he said, "may I examine it?"
-	The novice bolted to attention and handed the device to the master.
+	 novice bolted to attention and handed the device to the master.
 "I see that the device claims to have three levels of play: Easy, Medium,
 and Hard", said the master.  "Yet every such device has another level of play,
 where the device seeks not to conquer the human, nor to be conquered by the
 human."
 	"Pray, great master," implored the novice, "how does one find this
 mysterious setting?"
-	The master dropped the device to the ground and crushed it under foot.
+	 master dropped the device to the ground and crushed it under foot.
 And suddenly the novice was enlightened.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, " Tao of Programming"
 Reply hazy, ask again later.
 Now I'm concentrating on a specific tank battle toward the end of World War II!
 "It was a virgin forest, a place where the Hand of Man had never set foot."
@@ -138,8 +138,8 @@ A friend is a present you give yourself.
 		-- Robert Louis Stevenson
 Apathy Club meeting this Friday.  If you want to come, you're not invited.
 An apple a day makes 365 apples a year.
-There are never any bugs you haven't found yet.
-There are two kinds of pedestrians... the quick and the dead.
+re are never any bugs you haven't found yet.
+re are two kinds of pedestrians... the quick and the dead.
 		-- Lord Thomas Rober Dewar
 HEY KIDS!  ANN LANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
@@ -159,7 +159,7 @@ Column 1		Column 2		Column 3
 8. compatible		8. third-generation	8. hardware
 9. bad		9. policy		9. contingency
 
-	The procedure is simple.  Think of any three-digit number, then select
+	 procedure is simple.  Think of any three-digit number, then select
 the corresponding buzzword from each column.  For instance, number 257 produces
 "systematized logistical projection," a phrase that can be dropped into
 virtually any report with that ring of decisive, knowledgeable authority.  "No
@@ -170,10 +170,10 @@ Many mental processes admit of being roughly measured.  For instance,
 the degree to which people are bored, by counting the number of their
 fidgets. I not infrequently tried this method at the meetings of the
 Royal Geographical Society, for even there dull memoirs are occasionally
-read.  [...]  The use of a watch attracts attention, so I reckon time
-by the number of my breathings, of which there are 15 in a minute.  They
+read.  [...]   use of a watch attracts attention, so I reckon time
+by the number of my breathings, of which there are 15 in a minute.  y
 are not counted mentally, but are punctuated by pressing with 15 fingers
-successively.  The counting is reserved for the fidgets.  These observations
+successively.   counting is reserved for the fidgets.  se observations
 should be confined to persons of middle age.  Children are rarely still,
 while elderly philosophers will sometimes remain rigid for minutes altogether.
 		-- Francis Galton, 1909
@@ -182,44 +182,44 @@ C Code.
 C Code Run.
 Run, Code, RUN!
 	PLEASE!!!!
-I have a dog; I named him Stay.  So when I'd go to call him, I'd say, "Here,
+I have a dog; I d him Stay.  So when I'd go to call him, I'd say, "Here,
 Stay, here..." but he got wise to that.  Now when I call him he ignores me
 and just keeps on typing.
 		-- Steven Wright
 Sum quod eris.
-The first version always gets thrown away.
+ first version always gets thrown away.
 Lieberman's Law:
 	Everybody lies, but it doesn't m since nobody listens.
-The following statement is not true.  The previous statement is true.
+ following statement is not true.   previous statement is true.
 One Bell System - it sometimes works.
 Ladybug, ladybug,
 Look to your stern!
 Your house is on fire,
 Your children will burn!
 So jump ye and sing, for
-The very first time
-The four lines above
+ very first time
+ four lines above
 Have been put into rhyme.
 		-- Walt Kelly
-The meek shall inherit the earth; but by that time there won't be
+ meek shall inherit the earth; but by that time there won't be
 anything left worth inheriting.
 Perfect day for scrubbing the floor and other exciting things.
 VMS version 2.0 ==>
 "All Bibles are man-made."
 -- Thomas Edison
 May's Law:
-	The quality of correlation is inversly proportional to the density
-	of control.  (The fewer the data points, the smoother the curves.)
+	 quality of correlation is inversly proportional to the density
+	of control.  ( fewer the data points, the smoother the curves.)
 Deja vu:
 	French., already seen; unoriginal; trite.
-	Psychol., The illusion of having previously experienced
+	Psychol.,  illusion of having previously experienced
 	something actually being encountered for the first time.
-	Psychol., The illusion of having previously experienced
+	Psychol.,  illusion of having previously experienced
 	something actually being encountered for the first time.
 Democracy is a form of government in which it is permitted to wonder
 aloud what the country could do under first-class management.
 		-- Senator Soaper
-There is a fly on your nose.
+re is a fly on your nose.
 Finagle's First Law:
 	To study a subject best, understand it thoroughly before you start.
 
@@ -235,9 +235,9 @@ Finagle's Fifth Law:
 
 Finagle's Sixth Law:
 	Don't believe in miracles -- rely on them.
-The appreciation of the average visual graphisticator alone is worth
+ appreciation of the average visual graphisticator alone is worth
 the whole suaveness and decadence which abounds!!
-"The pathology is to want control, not that you ever get it, because of
+" pathology is to want control, not that you ever get it, because of
 course you never do."
 -- Gregory Bateson
 Sinners can repent, but stupid is forever.
@@ -251,10 +251,10 @@ A healthy male adult bore consumes each year one and a half times his own
 weight in other people's patience.
 		-- John Updike
 At about 2500 A.D., humankind discovers a computer problem that *must* be
-solved.  The only difficulty is that the problem is NP complete and will
+solved.   only difficulty is that the problem is NP complete and will
 take thousands of years even with the latest optical biologic technology
-available.  The best computer scientists sit down to think up some solution.
-In great dismay, one of the C.S. people tells her husband about it.  There
+available.   best computer scientists sit down to think up some solution.
+In great dismay, one of the C.S. people tells her husband about it.  re
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"
@@ -263,7 +263,7 @@ a computer problem?"
 fast machine and the computer would have just a few minutes to calculate but
 that is the exact opposite of what we want... Of course!  Leave the
 computer here, and accelerate the earth!"
-	The problem was so important that they did exactly that.  When
+	 problem was so important that they did exactly that.  When
 the earth came back, they were presented with the answer:
 
 	IEH032 Error in JOB Control Card.
@@ -276,22 +276,22 @@ I hate small towns because once you've seen the cannon in the park
 there's nothing else to do.
 		-- Lenny Bruce
 Actually, what I'd like is a little toy spaceship!!
-There are no games on this system.
+re are no games on this system.
 I have lots of things in my pockets;
 None of them is worth anything.
 Sociopolitical whines aside,
 Gan you give me, gratis, free,
-The price of half a gallon
+ price of half a gallon
 Of Gallo extra bad
 And most of the bus fare home.
 Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+A:	 cats keep trying to bury them.
 "It was a virgin forest, a place where the Hand of Man had never set foot."
 If it pours before seven, it has rained by eleven.
 Swipple's Rule of Order:
 	He who shouts the loudest has the floor.
 Everyone complains of his memory, no one of his judgement.
-The appreciation of the average visual graphisticator alone is worth
+ appreciation of the average visual graphisticator alone is worth
 the whole suaveness and decadence which abounds!!
 Avoid the Gates of Hell.  Use Linux
 (Unknown source)
@@ -320,7 +320,7 @@ All power corrupts, but we need electricity.
 If you don't do the things that are not worth doing, who will?
 Education is an admirable thing, but it is well to remember from time to
 time that nothing that is worth knowing can be taught.
-		-- Oscar Wilde, "The Critic as Artist"
+		-- Oscar Wilde, " Critic as Artist"
 You will feel hungry again in another hour.
 Those who can, do; those who can't, write.
 Those who can't write work for the Bell Labs Record.
@@ -334,7 +334,7 @@ available to anyone.
 		-- Tom Weller, "Science Made Stupid"
 Did YOU find a DIGITAL WATCH in YOUR box of VELVEETA?
 Lewis's Law of Travel:
-	The first piece of luggage out of the chute doesn't belong to anyone,
+	 first piece of luggage out of the chute doesn't belong to anyone,
 	ever.
 Yow!  Is my fallout shelter termite proof?
 "Out of register space (ugh)"
@@ -362,8 +362,8 @@ I'd be a poorer man if I'd never seen an eagle fly.
 [I saw an eagle fly once.  Fortunately, I had my eagle fly sw handy.  Ed.]
 Fidelity, n.:
 	A virtue peculiar to those who are about to be betrayed.
-The garden is in mourning;
-The rain falls cool among the flowers.
+ garden is in mourning;
+ rain falls cool among the flowers.
 Summer shivers quietly
 On its way towards its end.
 
@@ -377,11 +377,11 @@ She will linger on, yearning for peace,
 And slowly
 Close her weary eyes.
 		-- Hermann Hesse, "September"
-	A couple of kids tried using pickles instead of paddles for a Ping-Pong
-game.  They had the volley of the Dills.
+	A couple of kids tried using pickles ins of paddles for a Ping-Pong
+game.  y had the volley of the Dills.
 I'm pretending I'm pulling in a TROUT!  Am I doing it correctly??
 He who fights and runs away lives to fight another day.
-There's only one everything.
+re's only one everything.
 Never say you know a man until you have divided an inheritance with him.
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic Empire, life was wild, rich and largely tax free.
@@ -393,12 +393,12 @@ and small furry creatures from Alpha Centauri were real small furry creatures
 from Alpha Centauri.  And all dared to brave unknown terrors, to do mighty
 deeds, to boldly split infinitives that no man had split before -- and thus
 was the Empire forged.
--- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
+-- Douglas Adams, _ Hitchhiker's Guide to the Galaxy_
 CCI Power 6/40: one board, a megabyte of cache, and an attitude...
 Your Co-worker Could Be a Space Alien, Say Experts
 		...Here's How You Can Tell
 Many Americans work side by side with space aliens who look human -- but you
-can spot these visitors by looking for certain tip-offs, say experts. They
+can spot these visitors by looking for certain tip-offs, say experts. y
 listed 10 signs to watch for:
     (3) Bizarre sense of humor.  Space aliens who don't understand
 	earthly humor may laugh during a company training film or tell
@@ -410,7 +410,7 @@ listed 10 signs to watch for:
    (10) Displays a change of mood or physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is turned on," said Steiger.
-The experts pointed out that a co-worker would have to display most if not
+ experts pointed out that a co-worker would have to display most if not
 all of these traits before you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
 
@@ -420,7 +420,7 @@ Let not the sands of time get in your lunch.
 
 Many of our students have gone on to achieve great success in all fields of
 programming.  One former student developed the concept of the personalized
-form letter.  Does the phrase, "Dear Mr.(insert name), You may already be a
+form letter.  Does the phrase, "Dear Mr.(insert ), You may already be a
 winner!," sound familiar?  Another student writes "After only five lessons I
 sold a "My Most Unforgettable Program" article to Corrosive Computing magazine.
 Another of our graduates writes, "I recently completed a database-management

@@ -1,5 +1,5 @@
-The ultimate game show will be the one where somebody gets killed at the end.
-		-- Chuck Barris, creator of "The Gong Show"
+ ultimate game show will be the one where somebody gets killed at the end.
+		-- Chuck Barris, creator of " Gong Show"
 You Earth people glorified organized violence for forty centuries.  But
 you imprison those who employ it privately.
 		-- Spock, "Dagger of the Mind", stardate 2715.1
@@ -8,15 +8,15 @@ Everything that you know is wrong, but you can be straightened out.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #18: FIFTH
 
 FIFTH is a precision mathematical language in which the data types
-refer to quantity.  The data types range from CC, OUNCE, SHOT, and
-JIGGER to FIFTH (hence the name of the language), LITER, MAGNUM and
+refer to quantity.   data types range from CC, OUNCE, SHOT, and
+JIGGER to FIFTH (hence the  of the language), LITER, MAGNUM and
 BLOTTO.  Commands refer to ingredients such as CHABLIS, CHARDONNAY,
 CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
 
-The many versions of the FIFTH language reflect the sophistication and
+ many versions of the FIFTH language reflect the sophistication and
 financial status of its users.  Commands in the ELITE dialect include
 VSOP and LAFITE, while commands in the GUTTER dialect include HOOTCH
-and RIPPLE. The l is a favorite of frustrated FORTH programmers
+and RIPPLE.  l is a favorite of frustrated FORTH programmers
 who end up using this language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Support wildlife -- vote for an orgy.
@@ -24,7 +24,7 @@ Marriages are made in heaven and consummated on earth.
 		-- John Lyly
 Duckies are fun!
 Buck-passing usually turns out to be a boomerang.
-The Illiterati Programus Canto 1:
+ Illiterati Programus Canto 1:
 	A program is a lot like a nose: Sometimes it runs, and
 	sometimes it blows.
 ... or were you driving the PONTIAC that HONKED at me in MIAMI last Tuesday?
@@ -57,12 +57,12 @@ and where he dwelleth none can say;
 for into darkness fell his star
 in Mordor where the shadows are.
 		-- J. R. R. Tolkien
-The society which scorns excellence in plumbing as a humble activity and
+ society which scorns excellence in plumbing as a humble activity and
 tolerates shoddiness in philosophy because it is an exalted activity will
 have neither good plumbing nor good philosophy... neither its pipes nor
 its theories will hold water.
 Hearts will never be practical until they can be made unbreakable.
-		-- The Wizard of Oz
+		--  Wizard of Oz
 Most non-Catholics know that the Catholic schools are rendering a greater
 service to our nation than the public schools in which subversive textbooks
 have been used, in which Communist-minded teachers have taught, and from
@@ -87,12 +87,12 @@ sent champagne and women over to your place by taxi.
 Put a rogue in the limelight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
 You display the wonderful traits of charm and courtesy.
-The problem with any unwritten law is that you don't know where to go
+ problem with any unwritten law is that you don't know where to go
 to erase it.
 		-- Glaser and Way
 ... a thing called Ethics, whose nature was confusing but if you had it you
 were a High-Class Realtor and if you hadn't you were a shyster, a piker and
-a fly-by-night.  These virtues awakened Confidence and enabled you to handle
+a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But they didn't imply that you were to be impractical
 and refuse to take twice the value for a house if a buyer was such an idiot
 that he didn't force you down on the asking price.
@@ -101,7 +101,7 @@ That all men should be brothers is the dream of people who have no brothers.
 		-- Charles Chincholles, "Pensees de tout le monde"
 	Young men and young women may work systematically six days in the
 week and rise fresh in the morning, but let them attend modern dances for
-only a few hours each evening and see what happens.  The Waltz, Polka,
+only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
 to both sexes.  Health and vigor will vanish like the dew before the sun.
 	It is not the extraordinary exercise which harms the dancer, but
@@ -119,9 +119,9 @@ her husband's schedule, and reports of Californians evacuating Los Angeles
 on the strength of a prediction from a sixteenth-century physician and
 astrologer Michel de Notredame, the image of the U.S. as a scientific and
 technological nation has taking a bit of a bing lately.  Sadly, such
-happenings cannot be dismissed as passing fancies.  They are manifestations
+happenings cannot be dismissed as passing fancies.  y are manifestations
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
-could threaten the country's position as a technological power. . . .  The
+could threaten the country's position as a technological power. . . .  
 manifest widespread desire to reject rationality and substitute a series
 of quasirandom beliefs in order to understand the universe does not augur
 well for a nation deeply concerned about its ability to compete with its
@@ -136,7 +136,7 @@ suffer from the anti-science disease rampant in an apparently decaying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
 For courage mounteth with occasion.
 		-- William Shakespeare, "King John"
-There are few people more often in the wrong than those who cannot endure
+re are few people more often in the wrong than those who cannot endure
 to be thought so.
 Some of us are becoming the men we wanted to marry.
 		-- Gloria Steinem
@@ -152,7 +152,7 @@ is concerned."
 -- Baseball pitcher Bo Belinsky
 Just because you like my stuff doesn't mean I owe you anything.
 		-- Bob Dylan
-No woman can endure a gambling husband, unless he is a steady winner.
+No woman can endure a gambling husband, unless he is a sy winner.
 		-- Lord Thomas Dewar
 Mate, this parrot wouldn't VOOM if you put four million volts through it!
 		-- Monty Python
@@ -161,24 +161,24 @@ Jesuit priests are DATING CAREER DIPLOMATS!!
 Life is like an onion: you peel it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
-"The one charm of marriage is that it makes a life of deception a neccessity."
+" one charm of marriage is that it makes a life of deception a neccessity."
 - Oscar Wilde
-There are three things men can do with women: love them, suffer for them,
+re are three things men can do with women: love them, suffer for them,
 or turn them into literature.
 		-- Stephen Stills
 We gave you an atomic bomb, what do you want, mermaids?
 		-- I. I. Rabi to the Atomic Energy Commission
 ... he dominates the DECADENT SUBWAY SCENE.
 An Italian is COMBING his hair in suburban DES MOINES!
-I have to think hard to name an interesting man who does not drink.
+I have to think hard to  an interesting man who does not drink.
 		-- Richard Burton
 Hedonist for hire... no job too easy!
 Fun experiments:
 	Get a can of shaving cream, throw it in a freezer for about a week.
-	Then take it out, peel the metal off and put it where you want...
+	n take it out, peel the metal off and put it where you want...
 	bedroom, car, etc.  As it thaws, it expands an unbelievable amount.
 I know th'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
-The only reward of virtue is virtue.
+ only reward of virtue is virtue.
 		-- Ralph Waldo Emerson
 Imagine that Cray computer decides to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
@@ -189,7 +189,7 @@ What's the first question that the computer community asks?
 "Is it PC compatible?"
 Again she fled, but swift he came.
 Tin'uviel!  Tin'uviel!
-He called her by her elvish name;
+He called her by her elvish ;
 And there she halted listening.
 One moment stood she, and a spell
 His voice laid on her: Beren came
@@ -198,7 +198,7 @@ That in his arms lay glistening.
 
 As Beren looked into her eyes
 Within the shadows of her hair,
-The trembling starlight of the skies
+ trembling starlight of the skies
 He saw there mirrored shimmering.
 Tin'uviel the elven-fair,
 Immortal maiden elven-wise,
@@ -209,13 +209,13 @@ Long was the way that fate them bore,
 O'er stony mountains cold and grey,
 Through halls of iron and darkling door,
 And woods of nightshade morrowless.
-The Sundering Seas between them lay,
+ Sundering Seas between them lay,
 And yet at last they met once more,
 And long ago they passed away
 In the forest singing sorrowless.
 		-- J. R. R. Tolkien
 millihelen, n.:
-	The amount of beauty required to launch one ship.
+	 amount of beauty required to launch one ship.
 "It is better for civilization to be going down the drain than to be
 coming up it."
 -- Henry Allen
@@ -223,7 +223,7 @@ Moderation is a fatal thing.  Nothing succeeds like excess.
 		-- Oscar Wilde
 -- I love KATRINKA because she drives a PONTIAC.  We're going away
 now.  I fed the cat.
-Universities are places of knowledge.  The freshman each bring a little
+Universities are places of knowledge.   freshman each bring a little
 in with them, and the seniors take none away, so knowledge accumulates.
 In buying horses and taking a wife shut your eyes tight and commend
 yourself to God.
@@ -235,7 +235,7 @@ Gibson's Springtime Song (to the tune of "Deck the Halls"):
 'Tis the season to chase mousies (Fa la la la la, la la la la)
 Snatch them from their little housies (...)
 First we chase them 'round the field (...)
-Then we have them for a meal (...)
+n we have them for a meal (...)
 
 Toss them here and catch them there (...)
 See them flying through the air (...)
@@ -262,16 +262,16 @@ Were there fewer fools, knaves would starve.
 Work is the crab grass in the lawn of life.
 		-- Schulz
 Whoever dies with the most toys wins.
-The eyes of Texas are upon you,
+ eyes of Texas are upon you,
 All the livelong day;
-The eyes of Texas are upon you,
+ eyes of Texas are upon you,
 You cannot get away;
 Do not think you can escape them
 From night 'til early in the morn;
-The eyes of Texas are upon you
+ eyes of Texas are upon you
 'Til Gabriel blows his horn.
 		-- University of Texas' school song
-Extraordinary claims demand extraordinary proof.  There are many examples of
+Extraordinary claims demand extraordinary proof.  re are many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egregious findings that
 contradict well-established research turn out to be artifacts.  I have
@@ -281,25 +281,25 @@ neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
-- Barry L. Beyerstein, "The Brain and Conciousness: Implications for Psi
-   Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
+- Barry L. Beyerstein, " Brain and Conciousness: Implications for Psi
+   Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 Oh, I don't blame Congress.  If I had $600 billion at my disposal, I'd
 be irresponsible, too.
 		-- Lichty & Wagner
 Humorists always sit at the children's table.
 		-- Woody Allen
-The Least Successful Collector
+ Least Successful Collector
 	Betsy Baker played a central role in the history of collecting.  She
 was employed as a servant in the house of John Warburton (1682-1759) who had
 amassed a fine collection of 58 first edition plays, including most of the
 works of Shakespeare.
 	One day Warburton returned home to find 55 of them charred beyond
-legibility.  Betsy had either burned them or used them as pie bottoms.  The
+legibility.  Betsy had either burned them or used them as pie bottoms.  
 remaining three folios are now in the British Museum.
-	The only comparable literary figure was the maid who in 1835 burned
-the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
+	 only comparable literary figure was the maid who in 1835 burned
+the manuscript of the first volume of Thomas Carlyle's " Hisory of the
 French Revolution", thinking it was wastepaper.
-		-- Stephen Pile, "The Book of Heroic Failures"
+		-- Stephen Pile, " Book of Heroic Failures"
 People who think they know everything greatly annoy those of us who do.
 Whenever a system becomes completely defined, some damn fool discovers
 something which either abolishes the system or expands it beyond recognition.
@@ -308,13 +308,13 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#6
 Bathrooms:
 	A man has six items in his bathroom -- a toothbrush, toothpaste,
 shaving cream, razor, a bar of Dial soap, and a towel from the Holiday Inn.
-The average number of items in the typical woman's bathroom is 437.  A man
+ average number of items in the typical woman's bathroom is 437.  A man
 would not be able to identify most of these items.
 
 Groceries:
 	A woman makes a list of things she needs and then goes to the store
 and buys these things.  A man waits 'til the only items left in his fridge
-are half a lime and a Blue Ribbon.  Then he goes grocery shopping.  He buys
+are half a lime and a Blue Ribbon.  n he goes grocery shopping.  He buys
 everything that looks good.  By the time a man reaches the checkout counter,
 his cart is packed tighter that the Clampett's car on Beverly Hillbillies.
 Of course, this will not stop him from entering the 10-items-or-less lane.
@@ -322,14 +322,14 @@ Love is the triumph of imagination over intelligence.
 		-- H. L. Mencken
 Alone, adj.:
 	In bad company.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 Yow!  I'm imagining a surfer van filled with soy sauce!
 If you make any money, the government shoves you in the creek once a year
 with it in your pockets, and all that don't get wet you can keep.
-		-- The Best of Will Rogers
-... there are about 5,000 people who are part of that commitee.  These guys
+		--  Best of Will Rogers
+... there are about 5,000 people who are part of that commitee.  se guys
 have a hard time sorting out what day to meet, and whether to eat croissants
 or doughnuts for breakfast -- let alone how to define how all these complex
 layers that are going to be agreed upon.
@@ -348,13 +348,13 @@ on vacation, the gas station and drive-in theatre had to close.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#4
 
 Clothes:
-	Men don't discard clothes.  The average man still has the gym shirt
+	Men don't discard clothes.   average man still has the gym shirt
 he wore in high school.  He thinks a jacket is "just getting broken in" about
 the time it develops holes in the elbows.  A man will let new shirts sit on
 the shelf in their original packaging for a couple of years before putting
 them to use, hoping they'll become more comfortable with age.
 	Women think clothes are radioactive, with a half-life of one year.
-They exercise precautions to avoid contamination by last year's fashions.
+y exercise precautions to avoid contamination by last year's fashions.
 Household hint:
 	If you are out of cream for your coffee, mayonnaise makes a
 	dandy substitute.
@@ -374,11 +374,11 @@ An idealist is one who helps the other fellow to make a profit.
 		-- Henry Ford
 Weinberg, as a young grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
-was a great idea," said the manager. Then he paused and asked the killer
+was a great idea," said the manager. n he paused and asked the killer
 question, "NOW what's the least popular vegetable?"
 
 Law: Once you eliminate your #1 problem, #2 gets a promotion.
-	-- Gerald Weinberg, "The Secrets of Consulting"
+	-- Gerald Weinberg, " Secrets of Consulting"
 Lady Luck brings added income today.  Lady friend takes it away tonight.
 "Don't drop acid, take it pass-fail!"
 -- Bryan Michael Wendt
@@ -402,15 +402,15 @@ Lady Luck brings added income today.  Lady friend takes it away tonight.
 	}
 I'm mentally OVERDRAWN!  What's that SIGNPOST up ahead?  Where's ROD
 STERLING when you really need him?
-There can be no twisted thought without a twisted molecule.
+re can be no twisted thought without a twisted molecule.
 		-- R. W. Gerard
 It pays to be obvious, especially if you have a reputation for subtlety.
-The brain is a wonderful organ; it starts working the moment you get up
+ brain is a wonderful organ; it starts working the moment you get up
 in the morning, and does not stop until you get to school.
 	"... freedom ... is a worship word..."
 	"It is our worship word too."
-		-- Cloud William and Kirk, "The Omega Glory", stardate unknown
-The makers may make
+		-- Cloud William and Kirk, " Omega Glory", stardate unknown
+ makers may make
 and the users may use,
 but the fixers must fix
 with but minimal clues
@@ -422,7 +422,7 @@ with but minimal clues
 
 		 Heavens, they're tasty and expeditious!
 
-	    They're made from whole wheat, to give shy persons
+	    y're made from whole wheat, to give shy persons
 	   the strength to get up and do what needs to be done.
 
 			   POWDERMILK BISCUITS
@@ -430,22 +430,22 @@ with but minimal clues
 	Buy them ready-made in the big blue box with the picture of
 	the biscuit on the front, or in the brown bag with the dark
 		     stains that indicate freshness.
-And do you not think that each of you women is an Eve?  The judgement of God
+And do you not think that each of you women is an Eve?   judgement of God
 upon your sex endures today; and with it invariably endures your position of 
 criminal at the bar of justice.
 - Tertullian, second-century Christian writer, misogynist
 Beauty is truth, truth beauty, that is all
 Ye know on earth, and all ye need to know.
 		-- John Keats
-The advertisement is the most truthful part of a newspaper.
+ advertisement is the most truthful part of a newspaper.
 		-- Thomas Jefferson
 We can predict everything, except the future.
 If you see an onion ring -- answer it!
-"The Right Honorable Gentleman is indebted to his memory for his jests
+" Right Honorable Gentleman is indebted to his memory for his jests
 and to his imagination for his facts."
 		-- Sheridan
 Do what comes naturally.  Seethe and fume and throw a tantrum.
-The luck that is ordained for you will be coveted by others.
+ luck that is ordained for you will be coveted by others.
 If you're right 90% of the time, why quibble about the remaining 3%?
 O love, could thou and I with fate conspire
 To grasp this sorry scheme of things entire,
@@ -479,7 +479,7 @@ It's not whether you win or lose, it's how you place the blame.
 One is not born a woman, one becomes one.
 		-- Simone de Beauvoir
 Non-sequiturs make me eat lampshades.
-There is one way to find out if a man is honest -- ask him.  If he says
+re is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is crooked.
 		-- Groucho Marx
 Paralysis through analysis.
@@ -492,10 +492,10 @@ in chartered accountancy beckons.
 Gee, Toto, I don't think we're in Kansas anymore.
 Is a person who blows up banks an econoclast?
 Go out and tell a lie that will make the whole family proud of you.
-		-- Cadmus, to Pentheus, in "The Bacchae" by Euripides
-The bank sent our statement this morning,
-The red ink was a sight of great awe!
-Their figures and mine might have bad,
+		-- Cadmus, to Pentheus, in " Bacchae" by Euripides
+ bank sent our statement this morning,
+ red ink was a sight of great awe!
+ir figures and mine might have bad,
 But my wife was too quick on the draw.
 Dealing with the problem of pure staff accumulation,
 all our researches ... point to an average increase of 5.75% per year.
@@ -513,13 +513,13 @@ single droplets, and may have been the first to suggest the use of oil.
 According to Fletcher, he had expected to be co-authored with Millikan on
 the crucial first article announcing the measurement of the electronic
 charge, but was talked out of this by Millikan.
-		-- Steven Weinberg, "The Discovery of Subatomic Particles"
+		-- Steven Weinberg, " Discovery of Subatomic Particles"
 
 Robert Millikan is generally credited with making the first really
 precise measurement of the charge on an electron and was awarded the 
 Nobel Prize in 1923.
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
-Theorem: All positive integers are equal.
+orem: All positive integers are equal.
 Proof: Sufficient to show that for any two positive integers, A and B, A = B.
 	Further, it is sufficient to show that for all N > 0, if A and B
 	(positive integers) satisfy (MAX(A, B) = N) then A = B.
@@ -529,28 +529,28 @@ Proceed by induction:
 	So A = B.
 
 Assume that the theorem is true for some value k.  Take A and B with
-	MAX(A, B) = k+1.  Then  MAX((A-1), (B-1)) = k.  And hence
+	MAX(A, B) = k+1.  n  MAX((A-1), (B-1)) = k.  And hence
 	(A-1) = (B-1).  Consequently, A = B.
 Every word is like an unnecessary stain on silence and nothingness.
 		-- Beckett
 Is this an out-take from the "BRADY BUNCH"?
-The net of law is spread so wide,
+ net of law is spread so wide,
 No sinner from its sweep may hide.
 Its meshes are so fine and strong,
-They take in every child of wrong.
+y take in every child of wrong.
 O wondrous web of mystery!
 Big fish alone escape from thee!
 		-- James Jeffrey Roche
 Editing is a rewording activity.
-The last time I saw him he was walking down Lover's Lane holding his own hand.
+ last time I saw him he was walking down Lover's Lane holding his own hand.
 		-- Fred Allen
 I would rather be a serf in a poor man's house and be above ground than
 reign among the dead.
-		-- Achilles, "The Odessey", XI, 489-91
+		-- Achilles, " Odessey", XI, 489-91
 Everyone hates me because I'm paranoid.
 Breast Feeding should not be attempted by fathers with hairy chests,
 since they can make the baby sneeze and give it wind.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armchair Anarchist's Almanac"
 Drinking is not a spectator sport.
 		-- Jim Brosnan
 You do not have mail.
@@ -561,14 +561,14 @@ If you have received a letter inviting you to speak at the dedication of a
 new cat hospital, and you hate cats, your reply, declining the invitation,
 does not necessarily have to cover the full range of your emotions.  You must
 make it clear that you will not attend, but you do not have to let fly at cats.
-The writer of the letter asked a civil question; attack cats, then, only if
+ writer of the letter asked a civil question; attack cats, then, only if
 you can do so with good humor, good taste, and in such a way that your answer
 will be courteous as well as responsive.  Since you are out of sympathy with
 cats, you may quite properly give this as a reason for not appearing at the
 dedication ceremonies of a cat hospital.  But bear in mind that your opinion
 of cats was not sought, only your services as a speaker.  Try to keep things
 straight.
-		-- Strunk and White, "The Elements of Style"
+		-- Strunk and White, " Elements of Style"
 Garbage In, Gospel Out
 Anything cut to length will be too short.
 Most burning issues generate far more heat than light.
@@ -577,7 +577,7 @@ Johnson's First Law:
 	most inconvenient possible time.
 I've had a perfectly wonderful evening.  But this wasn't it.
 		-- Groucho Marx
-The time spent on any item of the agenda [of a finance committee] will be
+ time spent on any item of the agenda [of a finance committee] will be
 in inverse proportion to the sum involved.
 		-- C.N. Parkinson
 It is much harder to find a job than to keep one.
@@ -590,28 +590,28 @@ Everybody has something to conceal.
 Like so many Americans, she was trying to construct a life that made
 sense from things she found in gift shops.
 		-- Kurt Vonnegut, Jr.
-> > Other than the fact Linux has a cool name, could someone explain why I
+> > Other than the fact Linux has a cool , could someone explain why I
 > > should use Linux over BSD?
 >
-> No.  That's it.  The cool name, that is.  We worked very hard on
-> creating a name that would appeal to the majority of people, and it
+> No.  That's it.   cool , that is.  We worked very hard on
+> creating a  that would appeal to the majority of people, and it
 > certainly paid off: thousands of people are using linux just to be able
-> to say "OS/2? Hah.  I've got Linux.  What a cool name".  386BSD made the
+> to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made the
 > mistake of putting a lot of numbers and weird abbreviations into the
-> name, and is scaring away a lot of people just because it sounds too
+> , and is scaring away a lot of people just because it sounds too
 > technical.
 (Linus Torvalds' follow-up to a question about Linux)
-The amount of weight an evangelist carries with the almighty is measured
+ amount of weight an evangelist carries with the almighty is measured
 in billigrahams.
-"The Mets were great in 'sixty eight,
- The Cards were fine in 'sixty nine,
+" Mets were great in 'sixty eight,
+  Cards were fine in 'sixty nine,
  But the Cubs will be heavenly in nineteen and seventy."
 -- Ernie Banks
 It is difficult to produce a television documentary that is both
 incisive and probing when every twelve minutes one is interrupted by
 twelve dancing rabbits singing about toilet paper.
 		-- Rod Serling
-"The Amiga is the only personal computer where you can run a multitasking 
+" Amiga is the only personal computer where you can run a multitasking 
 operating system and get realtime performance, out of the box."
 -- Peter da Silva
 Conversation enriches the understanding, but solitude is the school of genius.
@@ -628,13 +628,13 @@ Sure sends a mean packet.		Never uses lint,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
 He's a UNIX wizard,
-There has to be a twist.
-The UNIX wizard's got			Ain't got no distractions,
+re has to be a twist.
+ UNIX wizard's got			Ain't got no distractions,
 Unlimited space on disk.		Can't hear no whistles or bells,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of smell,
 What makes him so good?			Those crazy little programs,
-					The proper bit flags set,
+					 proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
 		-- UNIX Wizard
@@ -643,9 +643,9 @@ What excuses stand in your way?  How can you eliminate them?
 Depend on the rabbit's foot if you will, but remember, it didn't help
 the rabbit.
 		-- R.E. Shay
-The system will be down for 10 days for preventive maintenance.
+ system will be down for 10 days for preventive maintenance.
 Meskimen's Law:
-	There's never time to do it right, but there's always time to
+	re's never time to do it right, but there's always time to
 	do it over.
 Alive without breath,
 As cold as death;
@@ -678,7 +678,7 @@ Hubbard's Law:
 	Don't take life too seriously; you won't get out of it alive.
 Your only obligation in any lifetime is to be true to yourself.  Being
 true to anyone else or anything else is not only impossible, but the
-mark of a fake messiah.  The simplest questions are the most profound.
+mark of a fake messiah.   simplest questions are the most profound.
 Where were you born?  Where is your home?  Where are you going?  What
 are you doing?  Think about these once in awhile and watch your answers
 change.
@@ -696,7 +696,7 @@ a fulfillment.
 		-- Dag Hammarskjold
 A right is not what someone gives you; it's what no one can take from you.
 -- Ramsey Clark
-God help the troubadour who tries to be a star.  The more that you try
+God help the troubadour who tries to be a star.   more that you try
 to find success, the more that you will fail.
 		-- Phil Ochs, on the Second System Effect
 Last year we drove across the country...  We switched on the driving...
@@ -704,7 +704,7 @@ every half mile.  We had one cassette tape to listen to on the entire trip.
 I don't remember what it was.
 		-- Steven Wright
 It's hard to think of you as the end result of millions of years of evolution.
-There's only one way to have a happy marriage and as soon as I learn
+re's only one way to have a happy marriage and as soon as I learn
 what it is I'll get married again.
 		-- Clint Eastwood
 Not far from here, by a white sun, behind a green star, lived the
@@ -728,13 +728,13 @@ Croll's Query:
 God is love, but get it in writing.
 		-- Gypsy Rose Lee
 malpractice, n.:
-	The reason surgeons wear masks.
+	 reason surgeons wear masks.
 Cohn's Law:
-	The more time you spend in reporting on what you are doing, the less
+	 more time you spend in reporting on what you are doing, the less
 	time you have to do anything.  Stability is achieved when you spend
 	all your time reporting on the nothing you are doing.
-The old complaint that mass culture is designed for eleven-year-olds
-is of course a shameful canard.  The key age has traditionally been
+ old complaint that mass culture is designed for eleven-year-olds
+is of course a shameful canard.   key age has traditionally been
 more like fourteen.
 		-- Robert Christgau, "Esquire"
 UNIX was half a billion (500000000) seconds old on
@@ -749,9 +749,9 @@ thousands of underground publications, a legal independent
 Church, private agriculture, and the East bloc's first and only
 independent trade union federation, NSZZ Solidarnosc, which is
 an affiliate of both the International Confederation of Free
-Trade Unions and the World Confederation of Labor.  There is
+Trade Unions and the World Confederation of Labor.  re is
 literally a world of difference between Poland - even in its
-present state of collapse - and Soviet society at the peak of
+present state of colse - and Soviet society at the peak of
 its "glasnost."  This difference has been maintained at great
 cost by the Poles since 1944.
 -- David Phillips, SUNY at Buffalo, about establishing a
@@ -760,7 +760,7 @@ cost by the Poles since 1944.
 Verba volant, scripta manent!
 From the moment I picked your book up until I put it down I was convulsed
 with laughter.  Some day I intend reading it.
-		-- Groucho Marx, from "The Book of Insults"
+		-- Groucho Marx, from " Book of Insults"
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #13: SLOBOL
 
 SLOBOL is best known for the speed, or lack of it, of its compiler.
@@ -786,12 +786,12 @@ parties.  Often, as a sign of their great respect, they don't even invite me.
 		-- Dave Barry
 Picking up the pieces of my sweet shed dream,
 I wonder how the old folks are tonight,
-Her name was Ann, and I'll be damned if I recall her face,
+Her  was Ann, and I'll be damned if I recall her face,
 She left me not knowing what to do.
 
 Carefree Highway, let me slip away on you,
 Carefree Highway, you seen better days,
-The morning after blues, from my head down to my shoes,
+ morning after blues, from my head down to my shoes,
 Carefree Highway, let me slip away, slip away, on you...
 
 Turning back the pages to the times I love best,
@@ -808,7 +808,7 @@ From the good old faithful feelin' we once knew.
 **** IMPORTANT ****  ALL USERS PLEASE NOTE ****
 
 Due to a recent systems overload error your recent disk files have been
-erased.  Therefore, in accordance with the UNIX Basic Manual, University of
+erased.  refore, in accordance with the UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of the Revised
 Federal Communications Act, you are being granted Temporary Disk Space,
 valid for three months from this date, subject to the restrictions set forth
@@ -838,22 +838,22 @@ they'll come out for it.
 		-- Red Skelton, surveying the funeral of Hollywood mogul
 		   Harry Cohn
 QOTD:
-	"There may be no excuse for laziness, but I'm sure looking."
+	"re may be no excuse for laziness, but I'm sure looking."
 	Catching his children with their hands in the new, still wet, patio,
 the father spanked them.  His wife asked, "Don't you love your children?"
 "In the abstract, yes, but not in the concrete."
 When a shepherd goes to kill a wolf, and takes his dog along to see
-the sport, he should take care to avoid mistakes.  The dog has certain
+the sport, he should take care to avoid mistakes.   dog has certain
 relationships to the wolf the shepherd may have forgotten.
 		-- Robert Pirsig, "Zen and the Art of Motorcycle Maintenance"
-The giraffe you thought you offended last week is willing to be nuzzled today.
-"There is such a fine line between genius and stupidity."
+ giraffe you thought you offended last week is willing to be nuzzled today.
+"re is such a fine line between genius and stupidity."
 - David St. Hubbins, "Spinal Tap"
 "...very few phenomena can pull someone out of Deep Hack Mode, with two
 noted exceptions: being struck by lightning, or worse, your *computer*
 being struck by lightning."
 (By Matt Welsh)
-Notes for a ballet, "The Spell": ... Suddenly Sigmund hears the flutter of
+Notes for a ballet, " Spell": ... Suddenly Sigmund hears the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
 unfortunately, divided lengthwise.  She enchants Sigmund, who is careful
@@ -871,7 +871,7 @@ doesn't sell it, they don't eat it.  Vending machines don't sell quiche.
 		-- J. B. White
 Anxious after the delay, Gruber doesn't waste any time getting the Koenig
 [a modified Porsche] up to speed, and almost immediately we are blowing off
-Alfas, Fiats, and Lancias full of excited Italians.  These people love fast
+Alfas, Fiats, and Lancias full of excited Italians.  se people love fast
 cars.  But they love sport too and no passing encounter goes unchallenged.
 Nothing serious, just two wheels into your lane as you're bearing down on
 them at 130-plus -- to see if you're paying attention.
@@ -894,7 +894,7 @@ single droplets, and may have been the first to suggest the use of oil.
 According to Fletcher, he had expected to be co-authored with Millikan on
 the crucial first article announcing the measurement of the electronic
 charge, but was talked out of this by Millikan.
-		-- Steven Weinberg, "The Discovery of Subatomic Particles"
+		-- Steven Weinberg, " Discovery of Subatomic Particles"
 
 Robert Millikan is generally credited with making the first really
 precise measurement of the charge on an electron and was awarded the 

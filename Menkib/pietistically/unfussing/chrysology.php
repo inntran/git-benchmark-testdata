@@ -12,7 +12,7 @@ Norm:   No, I'd like a dead cat in a glass.
 		-- Cheers, Little Carla, Happy at Last, Part 2
 When does later become never?
 One Bell System - it works.
-This is not the age of pamphleteers. It is the age of the engineers.  The
+This is not the age of pamphleteers. It is the age of the engineers.  
 spark-gap is mightier than the pen.  Democracy will not be salvaged by men
 who talk fluently, debate forcefully and quote aptly.
 		-- Lancelot Hogben, Science for the Citizen, 1938
@@ -25,7 +25,7 @@ as shared ideals and shared value systems and shared ideas and shared
 agreement as to the processes we are going to use for working together.  In
 many cases they develop into real love relationships."
 -- Max DePree, chairman and CEO of Herman Miller Inc., "Herman Miller's 
-   Secrets of Corporate Creativity", The Wall Street Journal, May 3, 1988
+   Secrets of Corporate Creativity",  Wall Street Journal, May 3, 1988
 People seem to enjoy things more when they know a lot of other people
 have been left out on the pleasure.
 		-- Russell Baker
@@ -37,10 +37,10 @@ For some reason a glaze passes over people's faces when you say
 Avoid gunfire in the bathroom tonight.
 "Falling in love makes smoking pot all day look like the ultimate in restraint."
 -- Dave Sim, author of Cerebrus.
-You first have to decide whether to use the short or the long form. The
+You first have to decide whether to use the short or the long form. 
 short form is what the Internal Revenue Service calls "simplified", which
 means it is designed for people who need the help of a Sears tax-preparation
-expert to distinguish between their first and last names.  Here's the
+expert to distinguish between their first and last s.  Here's the
 complete text:
 
 "(1) How much did you make?  (AMOUNT)
@@ -52,7 +52,7 @@ complete text:
      you please! Which just goes to show you, (YOUR FIRST
      NAME), that it pays to file the short form!"
 
-The IRS wants you to use this form because it gets to keep most of your
+ IRS wants you to use this form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want the long form.
 		-- Dave Barry, "Sweating Out Taxes"
 Is it 1974?  What's for SUPPER?  Can I spend my COLLEGE FUND in one
@@ -80,20 +80,20 @@ A famous Lisp Hacker noticed an Undergraduate sitting in front of a Xerox
 1108, trying to edit a complex Klone network via a browser. Wanting to
 help, the Hacker clicked one of the nodes in the network with the mouse,
 and asked "what do you see?" Very earnestly, the Undergraduate replied "I
-see a cursor." The Hacker then quickly pressed the boot toggle at the back
+see a cursor."  Hacker then quickly pressed the boot toggle at the back
 of the keyboard, while simultaneously hitting the Undergraduate over the head
-with a thick Interlisp Manual.  The Undergraduate was then Enlightened.
+with a thick Interlisp Manual.   Undergraduate was then Enlightened.
 Money and women are the most sought after and the least known of any two
 things we have.
-		-- The Best of Will Rogers
+		--  Best of Will Rogers
 "I'm not a god, I was misquoted."
 -- Lister, Red Dwarf
 Only a fool has no doubts.
-The only thing that experience teaches us is that experience teaches us nothing.
+ only thing that experience teaches us is that experience teaches us nothing.
 		-- Andre Maurois (Emile Herzog)
 I would rather be a serf in a poor man's house and be above ground than
 reign among the dead.
-		-- Achilles, "The Odessey", XI, 489-91
+		-- Achilles, " Odessey", XI, 489-91
 Every day it's the same thing -- variety.  I want something different.
 Major premise:
 	Sixty men can do sixty times as much work as one man.
@@ -101,7 +101,7 @@ Minor premise:
 	A man can dig a posthole in sixty seconds.
 Conclusion:
 	Sixty men can dig a posthole in one second.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 
 Secondary Conclusion:
 	Do you realize how many holes there would be if people
@@ -137,7 +137,7 @@ It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
 and knocked on the front door.  No one responded.  He could feel the water
 from the roof running down the back of his neck as he stood on the stoop.
-The next time he knocked louder, but still no answer.  By now he was soaked
+ next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
 man appeared out of an upstairs window.
 	"What do you want?" he asked gruffly.
@@ -148,7 +148,7 @@ okay with me."
 Don't ever slam a door; you might want to go back.
 If you always postpone pleasure you will never have it.  Quit work and play
 for once!
-"The only way I can lose this election is if I'm caught in bed with a dead 
+" only way I can lose this election is if I'm caught in bed with a dead 
 girl or a live boy."
 -- Louisiana governor Edwin Edwards
 Life is a biochemical reaction to the stimulus of the surrounding
@@ -165,7 +165,7 @@ For those who like this sort of thing, this is the sort of thing they like.
 Hand, n.:
 	A singular instrument worn at the end of a human arm and
 	commonly thrust into somebody's pocket.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 "You know, we've won awards for this crap."
 -- David Letterman
 Memory fault -- core...uh...um...core... Oh dammit, I forget!
@@ -182,26 +182,26 @@ of asterisked sentences:
 In tiny type were these "fuller explanations":
 
       * Don't asterisks make you suspicious as all get out?  Well, all
-	this means is that the IIc alone weights 7.5 pounds. The power
+	this means is that the IIc alone weights 7.5 pounds.  power
 	pack, monitor, an extra disk drive, a printer and several bricks
 	will make the IIc weigh more. Our lawyers were concerned that you
 	might not be able to figure this out for yourself.
 
-     ** The FTC is concerned about price fixing. You can pay more if
+     **  FTC is concerned about price fixing. You can pay more if
 	you really want to.  Or less.
 		-- Forbes
 If I had any humility I would be perfect.
 		-- Ted Turner
 I used to think that the brain was the most wonderful organ in
-my body.  Then I realized who was telling me this.
+my body.  n I realized who was telling me this.
 		-- Emo Phillips
 If dolphins are so smart, why did Flipper work for television?
 Life begins at the centerfold and expands outward.
 		-- Miss November, 1966
 I just had a NOSE JOB!!
-The Seventh Edition licensing procedures are, I suppose, still in effect, 
+ Seventh Edition licensing procedures are, I suppose, still in effect, 
 though I doubt that tapes are available from AT&T.  At any rate, whatever 
-restrictions the license imposes still exist.  These restrictions were and 
+restrictions the license imposes still exist.  se restrictions were and 
 are reasonable for places that just want to run the system, but don't allow 
 many of the things that Minix was written for, like study of the source in 
 classes, or by individuals not in a university or company.
@@ -227,8 +227,8 @@ Don't tell me how hard you work.  Tell me how much you get done.
 Civilization, as we know it, will end sometime this evening.
 See SYSNOTE tomorrow for more information.
 Don't guess -- check your security regulations.
-"There was a boy called Eustace Clarence Scrubb, and he almost deserved it."
-		-- C. S. Lewis, "The Chronicles of Narnia"
+"re was a boy called Eustace Clarence Scrubb, and he almost deserved it."
+		-- C. S. Lewis, " Chronicles of Narnia"
 Living on Earth may be expensive, but it includes an annual free trip
 around the Sun.
 Ignorance must certainly be bliss or there wouldn't be so many people
@@ -238,16 +238,16 @@ Littering is dumb.
 Her locks an ancient lady gave
 Her loving husband's life to save;
 And men -- they honored so the dame --
-Upon some stars bestowed her name.
+Upon some stars bestowed her .
 
 But to our modern married fair,
 Who'd give their lords to save their hair,
 No stellar recognition's given.
-There are not stars enough in heaven.
+re are not stars enough in heaven.
 I'd rather laugh with the sinners,
 Than cry with the saints,
-The sinners are much more fun!
-		-- Billy Joel, "Only The Good Die Young"
+ sinners are much more fun!
+		-- Billy Joel, "Only  Good Die Young"
 I tell ya, gambling never agreed with me.  Last week I went to the track
 and they shot my horse with the opening gun.
 
@@ -257,7 +257,7 @@ fortune cookie I found the guy's check sitting at the next table.  I said,
 		-- Rodney Dangerfield
 My central memory of that time seems to hang on one or five or maybe forty
 nights -- or very early mornings -- when I left the Fillmore half-crazy and,
-instead of going home, aimed the big 650 Lightning across the Bay Bridge at
+ins of going home, aimed the big 650 Lightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
@@ -278,9 +278,9 @@ It's faster horses,
 Younger women,
 Older whiskey and
 More money.
-		-- Tom T. Hall, "The Secret of Life"
-A green hunting cap squeezed the top of the fleshy balloon of a head.  The
-green earflaps, full of large ears and uncut hair and the fine bristles that
+		-- Tom T. Hall, " Secret of Life"
+A green hunting cap squeezed the top of the fleshy balloon of a head.  
+green earfs, full of large ears and uncut hair and the fine bristles that
 grew in the ears themselvse, stuck out on either side like turn signals
 indicating two directions at once.  Full, pursed lips protruded beneath the
 bushy black moustache and, at their corners, sank into little folds filled
@@ -308,13 +308,13 @@ Bachelor:
  you're an orgasm addict,
  you're always at it,
  and you're an orgasm addict."
--- The Buzzcocks
+--  Buzzcocks
 beta test, v:
 	To voluntarily entrust one's data, one's livelihood and one's
 	sanity to hardware or software intended to destroy all three.
 	In earlier days, virgins were often selected to beta test volcanos.
 What foods these morsels be!
-The lawgiver, of all beings, most owes the law allegiance.  He of all men
+ lawgiver, of all beings, most owes the law allegiance.  He of all men
 should behave as though the law compelled him.  But it is the universal
 weakness of mankind that what we are given to administer we presently imagine
 we own.
@@ -325,13 +325,13 @@ Article the Third:
 	enjoy the right to a speedy diaper change.  Public announcements and
 	guided tours of the aforementioned are not necessary.
 Article the Fourth:
-	The decision to eat strained lamb or not should be with the "feedee"
+	 decision to eat strained lamb or not should be with the "feedee"
 	and not the "feeder".  Blowing the strained lamb into the feeder's
 	face should be accepted as an opinion, not as a declaration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
 	a public meeting place, during a movie, or after hours when the
-	lights are out.  They have not yet learned that joy and laughter have
+	lights are out.  y have not yet learned that joy and laughter have
 	to last a lifetime and must be conserved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
 ...when fits of creativity run strong, more than one programmer or writer has
@@ -346,7 +346,7 @@ good either if you speak when your head is empty.
 1 Billion dollars of budget deficit		= 1 Gramm-Rudman
 6.023 x 10 to the 23rd power alligator pears	= Avocado's number
 2 pints						= 1 Cavort
-Basic unit of Laryngitis			= The Hoarsepower
+Basic unit of Laryngitis			=  Hoarsepower
 Shortest distance between two jokes		= A straight line
 6 Curses					= 1 Hexahex
 3500 Calories					= 1 Food Pound
@@ -371,14 +371,14 @@ One half large intestine			= 1 Semicolon
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to the 12th power microphones		= 1 Megaphone
 10 to the 6th power Bicycles			= 2 megacycles
-The amount of beauty required launch 1 ship	= 1 Millihelen
+ amount of beauty required launch 1 ship	= 1 Millihelen
 Corry's Law:
 	Paper is always strongest at the perforations.
 New England Life, of course.  Why do you ask?
 An exotic journey in downtown Newark is in your future.
 Year, n.:
 	A period of three hundred and sixty-five disappointments.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Ho! Ho! Ho! to the bottle I go
 To heal my heart and drown my woe.
 Rain may fall and wind may blow,
@@ -386,15 +386,15 @@ And many miles be still to go,
 But under a tall tree I will lie,
 And let the clouds go sailing by.
 		-- J. R. R. Tolkien
-The so-called lessons of history are for the most part the rationalizations
+ so-called lessons of history are for the most part the rationalizations
 of the victors.  History is written by the survivors.
 		-- Max Lerner
-The human animal differs from the lesser primates in his passion for
+ human animal differs from the lesser primates in his passion for
 lists of "Ten Best".
 		-- H. Allen Smith
 What we Are is God's gift to us.
 What we Become is our gift to God.
-Bowie's Theorem:
+Bowie's orem:
 	If an experiment works, you must be using the wrong equipment.
 When nothing can possibly go wrong, it will.
 			-- Gifts for Men --
@@ -415,7 +415,7 @@ once, I would have gladly traded all the gifts I got for a new set of tires.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
 How many "coming men" has one known!  Where on earth do they all go to?
 		-- Sir Arthur Wing Pinero
-The most difficult thing in the world is to know how to do a thing and to
+ most difficult thing in the world is to know how to do a thing and to
 watch someone else doing it wrong, without commenting.
 		-- T.H. White
 Rule of Creative Research:
@@ -445,20 +445,20 @@ is that the image fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing that became a serious issue....Not
 that long ago, it was Reagan's support of Creationism....Creationists actually
-got equal time with evolutionists.  The public was supposed to be open-minded
+got equal time with evolutionists.   public was supposed to be open-minded
 to the claims of paleontologists and fundamentalists, as if the two were
 scientific colleagues....It has been clear for a long time that the president
 is averse to science...In general, these attitudes fall onto friendly American
 turf....But at the outer edges, this skepticism about science easily turns
-into a kind of naive acceptance of nonscience, or even nonsense.  The same
+into a kind of naive acceptance of nonscience, or even nonsense.   same
 people who doubt experts can also believe any quackery, from the benefits of
 laetrile to eye of newt to the movment of planets.  We lose the capacity to
 make rational -- scientific -- judgments.  It's all the same.
--- Ellen Goodman, The Boston Globe Newspaper Company-Washington Post Writers 
+-- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
     Group
 Weed's Axiom:
 	Never ask two questions in a business letter.
-	The reply will discuss the one in which you are
+	 reply will discuss the one in which you are
 	least interested and say nothing about the other.
 Repartee is something we think of twenty-four hours too late.
 		-- Mark Twain
@@ -469,16 +469,16 @@ It doesn't much signify whom one marries, for one is sure to find out
 next morning it was someone else.
 		-- Will Rogers
 Windows 95 Beer: A lot of people have taste-tested it and claim it's 
-wonderful. The can looks a lot like Mac Beer's can, but tastes more like 
+wonderful.  can looks a lot like Mac Beer's can, but tastes more like 
 Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look inside, the 
 cans only have 16 oz. of beer in them. Most people will probably keep 
 drinking Windows 3.1 Beer until their friends try Windows 95 Beer and say 
-they like it. The ingredients list, when you look at the small print, has 
+they like it.  ingredients list, when you look at the small print, has 
 some of the same ingredients that come in DOS beer, even though the 
 manufacturer claims that this is an entirely new brew.
 He that composes himself is wiser than he that composes a book.
 		-- B. Franklin
-The solution of this problem is trivial and is left as an exercise for
+ solution of this problem is trivial and is left as an exercise for
 the reader.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
@@ -490,7 +490,7 @@ In the Land of Mordor where the Shadows lie.
 One Ring to rule them all, One Ring to find them,
 One Ring to bring them all and in the darkness bind them
 In the Land of Mordor where the Shadows lie.
-		-- J.R.R. Tolkien, "The Lord of the Rings"
+		-- J.R.R. Tolkien, " Lord of the Rings"
 Such efforts are almost always slow, laborious, political, petty, boring,
 ponderous, thankless, and of the utmost criticality.
 	-- Leonard Kleinrock, on standards efforts
@@ -499,7 +499,7 @@ take forceful action:
 	Do something that should have been done a long time ago.
 "He flung himself on his horse and rode madly off in all directions."
 hard, adj.:
-	The quality of your own data; also how it is to believe those
+	 quality of your own data; also how it is to believe those
 	of other people.
 America is the country where you buy a lifetime supply of aspirin for one
 dollar, and use it up in two weeks.
@@ -557,7 +557,7 @@ Mathematics, rightly viewed, possesses not only truth but supreme beauty --
 a beauty cold and austere, like that of a sculpture, without appeal to any
 part of our weaker nature, without the gorgeous trapping of painting or music,
 yet sublimely pure, and capable of a stern perfection such as only the
-greatest art can show.  The true spirit of delight, the exaltation, the sense
+greatest art can show.   true spirit of delight, the exaltation, the sense
 of being more than man, which is the touchstone of the highest excellence, is
 to be found in mathematics as surely as in poetry.
 		-- Bertrand Russell
@@ -597,7 +597,7 @@ I feel the same when you are near.
 alta, v:	To change; make or become different; modify.
 ansa, v:	A spoken or written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
-Baaston, n:	The capital of Massachusetts.
+Baaston, n:	 capital of Massachusetts.
 baaba, n:	One whose business is to cut or trim hair or beards.
 beea, n:	An alcoholic beverage brewed from malt and hops, often
 			found in baas.
@@ -620,18 +620,18 @@ Yet kindly sells himself for nought;
 		-- Jonathan Swift
 It happened long ago
 In the new magic land
-The Indians and the buffalo    
+ Indians and the buffalo    
 Existed hand in hand
-The Indians needed food
-They need skins for a roof
-The only took what they needed
+ Indians needed food
+y need skins for a roof
+ only took what they needed
 And the buffalo ran loose
 But then came the white man
 With his thick and empty head
 He couldn't see past his billfold
 He wanted all the buffalo dead
 It was sad, oh so sad.
-		-- Ted Nugent, "The Great White Buffalo"
+		-- Ted Nugent, " Great White Buffalo"
 Tan me hide when I'm dead, Fred,
 Tan me hide when I'm dead.
 So we tanned his hide when he died, Clyde,
@@ -660,7 +660,7 @@ time travel, you never can tell."
 		-- Doctor Who, "Androids of Tara"
 A wise person makes his own decisions, a weak one obeys public opinion.
 		-- Chinese proverb
-The gods gave man fire and he invented fire engines.  They gave him
+ gods gave man fire and he invented fire engines.  y gave him
 love and he invented marriage.
 Q:	How many gradual (sorry, that's supposed to be "graduate") students
 	does it take to screw in a lightbulb?
@@ -682,7 +682,7 @@ Brigands will demand your money or your life, but a woman will demand both.
 Klatu barada nikto.
 Ozman's Laws:
 	(1)  If someone says he will do something "without fail," he won't.
-	(2)  The more people talk on the phone, the less money they make.
+	(2)   more people talk on the phone, the less money they make.
 	(3)  People who go to conferences are the ones who shouldn't.
 	(4)  Pizza always burns the roof of your mouth.
 Beware of the Turing Tar-pit in which everything is possible but nothing of 
@@ -710,14 +710,14 @@ limited to a single, now quite trite, adjective?
 Heisenberg may have slept here...
 Teachers have class.
 Pollyanna's Educational Constant:
-	The hyperactive child is never absent.
+	 hyperactive child is never absent.
 Cynic, n.:
 	One who looks through rose-colored glasses with a jaundiced eye.
 Real wealth can only increase.
 		-- R. Buckminster Fuller
 It gets late early out there.
 		-- Yogi Berra
-The difference between us is not very far,
+ difference between us is not very far,
 cruising for burgers in daddy's new car.
 You are wise, witty, and wonderful, but you spend too much time reading
 this sort of trash.
@@ -728,7 +728,7 @@ Arnold's Addendum:
 	Anything not fitting into these categories causes cancer in rats.
 Where's SANDY DUNCAN?
 Did I say 2?  I lied.
-The man on tops walks a lonely street; the "chain" of command is often a noose.
+ man on tops walks a lonely street; the "chain" of command is often a noose.
 Real software engineers work from 9 to 5, because that is the way the job is
 described in the formal spec.  Working late would feel like using an
 undocumented external procedure.
@@ -752,39 +752,39 @@ of asterisked sentences:
 In tiny type were these "fuller explanations":
 
       * Don't asterisks make you suspicious as all get out?  Well, all
-	this means is that the IIc alone weights 7.5 pounds. The power
+	this means is that the IIc alone weights 7.5 pounds.  power
 	pack, monitor, an extra disk drive, a printer and several bricks
 	will make the IIc weigh more. Our lawyers were concerned that you
 	might not be able to figure this out for yourself.
 
-     ** The FTC is concerned about price fixing. You can pay more if
+     **  FTC is concerned about price fixing. You can pay more if
 	you really want to.  Or less.
 		-- Forbes
-There is nothing new except what has been forgotten.
+re is nothing new except what has been forgotten.
 		-- Marie Antoinette
 boss, n:
 	According to the Oxford English Dictionary, in the Middle Ages the
 	words "boss" and "botch" were largely synonymous, except that boss,
 	in addition to meaning "a supervisor of workers" also meant "an
-	ornamental stud."
+	orntal stud."
 My own business always bores me to death; I prefer other people's.
 		-- Oscar Wilde
-"The Computer made me do it."
+" Computer made me do it."
 All programmers are playwrights and all computers are lousy actors.
 Optimism, n.:
-	The belief that everything is beautiful, including what is ugly, good,
+	 belief that everything is beautiful, including what is ugly, good,
 	bad, and everything right that is wrong.  It is held with greatest
 	tenacity by those accustomed to falling into adversity, and most
 	acceptably expounded with the grin that apes a smile.  Being a blind
 	faith, it is inaccessible to the light of disproof -- an intellectual
 	disorder, yielding to no treatment but death.  It is hereditary, but
 	not contagious.
-There was a writer in 'Life' magazine ... who claimed that rabbits have
+re was a writer in 'Life' magazine ... who claimed that rabbits have
 no memory, which is one of their defensive mechanisms.  If they recalled
 every close shave they had in the course of just an hour life would become
 insupportable.
 		-- Kurt Vonnegut
-The bone-chilling scream split the warm summer night in two, the first
+ bone-chilling scream split the warm summer night in two, the first
 half being before the scream when it was fairly balmy and calm and
 pleasant, the second half still balmy and quite pleasant for those who
 hadn't heard the scream at all, but not calm or balmy or even very nice
@@ -795,7 +795,7 @@ but your brain wasn't reacting yet to let you know.
 A rock store eventually closed down; they were taking too much for granite.
 Misery loves company, but company does not reciprocate.
 FORTUNE'S FUN FACTS TO KNOW AND TELL:		#14
-	The Baby Ruth candy bar was not named after George Herman "The Babe"
+	 Baby Ruth candy bar was not d after George Herman " Babe"
 Ruth, but after the oldest daughter of President Grover Cleveland.
 Onward through the fog.
 Today is what happened to yesterday.

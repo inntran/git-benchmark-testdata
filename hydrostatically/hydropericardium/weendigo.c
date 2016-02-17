@@ -18,13 +18,13 @@ well-defined ones.  Those who admire the massive, rigid bone structures
 of dinosaurs should remember that jellyfish still enjoy their very
 secure ecological niche.
 		-- Beau Sheil, "Power Tools for Programmers"
-The universe is an island, surrounded by whatever it is that surrounds
+ universe is an island, surrounded by whatever it is that surrounds
 universes.
 DYSLEXICS OF THE WORLD, UNTIE!
 By working faithfully eight hours a day, you may eventually get to be
 boss and work twelve.
 		-- Robert Frost
-The heart is wiser than the intellect.
+ heart is wiser than the intellect.
 Disclose classified information only when a NEED TO KNOW exists.
 You speak of courage.  Obviously you do not know the difference between
 courage and foolhardiness.  Always it is the brave ones who die, the soldiers.
@@ -34,8 +34,8 @@ Too clever is dumb.
 		-- Ogden Nash
 He thinks the Gettysburg Address is where Lincoln lived.
 		-- Wanda, "A Fish Called Wanda"
-They will only cause the lower classes to move about needlessly.
-		-- The Duke of Wellington, on early steam railroads.
+y will only cause the lower classes to move about needlessly.
+		--  Duke of Wellington, on early steam railroads.
 Fortune and love befriend the bold.
 		-- Ovid
 Rudd's Discovery:
@@ -48,7 +48,7 @@ woman.  Well, I found her -- but alas, she was waiting for the ideal man.
 		-- Robert Schuman
 Have at you!
 Government lies, and newspapers lie, but in a democracy they are different lies.
-We do not colonize.  We conquer.  We rule.  There is no other way for us.
+We do not colonize.  We conquer.  We rule.  re is no other way for us.
 		-- Rojan, "By Any Other Name", stardate 4657.5
 Boston State House is the hub of the Solar System.  You couldn't pry that out
 of a Boston man if you had the tire of all creation straightened out for a
@@ -68,8 +68,8 @@ But say my verses do not scan,
 	And I get me another man!
 		-- Dorothy Parker, "Fighting Words"
 Of all the words of witch's doom
-There's none so bad as which and whom.
-The man who kills both which and whom
+re's none so bad as which and whom.
+ man who kills both which and whom
 Will be enshrined in our Who's Whom.
 		-- Fletcher Knebel
 Slow day.  Practice crawling.
@@ -82,10 +82,10 @@ but which one?  Differences are crucial.
 		-- Lazarus Long
 IOT trap -- core dumped
 Early to rise, early to bed, makes a man healthy, wealthy and dead.
-		-- Terry Pratchett, "The Light Fantastic"
+		-- Terry Pratchett, " Light Fantastic"
 Unix:  Some say the learning curve is steep, but you only have to climb it once.
 -- Karl Lehenbauer
-They're only trying to make me LOOK paranoid!
+y're only trying to make me LOOK paranoid!
 If people are good only because they fear punishment, and hope for reward,
 then we are a sorry lot indeed.
 		-- Albert Einstein
@@ -121,7 +121,7 @@ Nor shall my sword rest in my hand,
 Till we have built Jerusalem
 In England's green and pleasant land.
 		-- William Blake, "Jerusalem"
-Now there's a violent movie titled, "The Croquet Homicide," or "Murder
+Now there's a violent movie titled, " Croquet Homicide," or "Murder
 With Mallets Aforethought."
 		-- Shelby Friedman, WSJ.
 Philadelphia is not dull -- it just seems so because it is next to
@@ -132,17 +132,17 @@ Generally speaking, the Way of the warrior is resolute acceptance of death.
 		-- Secretary of State Henry Stimson, on closing down
 		   the Black Chamber, the precursor to the National
 		   Security Agency.
-FORTRAN?  The syntactically incorrect statement "DO 10 I = 1.10" will parse and
+FORTRAN?   syntactically incorrect statement "DO 10 I = 1.10" will parse and
 generate code creating a variable, DO10I, as follows: "DO10I = 1.10"  If that
 doesn't terrify you, it should.
-There are no rules for March.  March is spring, sort of, usually, March
+re are no rules for March.  March is spring, sort of, usually, March
 means maybe, but don't bet on it.
 Straw?  No, too stupid a fad.  I put soot on warts.
-The man she had was kind and clean
+ man she had was kind and clean
 And well enough for every day,
 But oh, dear friends, you should have seen
-The one that got away.
-		-- Dorothy Parker, "The Fisherwoman"
+ one that got away.
+		-- Dorothy Parker, " Fisherwoman"
 Those of you who think you know everything are annoying those of us who do.
 A copy of the universe is not what is required of art; one of the damned
 things is ample.
@@ -160,8 +160,8 @@ In one I'm enlightened, in the other I ain't.
 If *you* understand, Cecil, then show me the way
 And rescue my psyche from quantum decay.
 But if this queer thing has perplexed even you,
-Then I will *___and* I won't see you in Schrodinger's zoo.
-		-- Randy F., Chicago, "The Straight Dope, a compendium
+n I will *___and* I won't see you in Schrodinger's zoo.
+		-- Randy F., Chicago, " Straight Dope, a compendium
 		   of human knowledge" by Cecil Adams
 You will not be elected to public office this year.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
@@ -172,10 +172,10 @@ hearts, without anguish in mind, without uncertainty, without doubt,
 without an element of despair even in their consolation, believe only
 in the God idea, not God Himself.
 - Miguel de Unamuno, Spanish philosopher and writer
-The early worm gets the late bird.
+ early worm gets the late bird.
 According to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
-The greatest dangers to liberty lurk in insidious encroachment by men
+ greatest dangers to liberty lurk in insidious encroachment by men
 of zeal, well-meaning but without understanding.
 		-- Justice Louis D. Brandeis
 "Never ascribe to malice that which is caused by greed and ignorance."
@@ -184,16 +184,16 @@ While having never invented a sin, I'm trying to perfect several.
 One of the signs of Napoleon's greatness is the fact that he once had a
 publisher shot.
 		-- Siegfried Unseld
-The idea that an arbitrary naive human should be able to properly use a given
+ idea that an arbitrary naive human should be able to properly use a given
 tool without training or understanding is even more wrong for computing than
 it is for other tools (e.g. automobiles, airplanes, guns, power saws).
 		-- Doug Gwyn
-The connection between the language in which we think/program and the problems
+ connection between the language in which we think/program and the problems
 and solutions we can imagine is very close.  For this reason restricting
 language features with the intent of eliminating programmer errors is at best
 dangerous.
-- Bjarne Stroustrup in "The C++ Programming Language"
-There is a great discovery still to be made in Literature: that of
+- Bjarne Stroustrup in " C++ Programming Language"
+re is a great discovery still to be made in Literature: that of
 paying literary men by the quantity they do NOT write.
 Two friends were out drinking when suddenly one lurched backward off his 
 barstool and lay motionless on the floor.
@@ -213,29 +213,29 @@ reason.  He knows it because he fired the guy.
 	"He made a bad decision, and what it came down to was, 'Well, I
 bought it because I figured it was safe to buy IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
-		-- The Wall Street Journal, December 6, 1989
+		--  Wall Street Journal, December 6, 1989
 I am very fond of the company of ladies.  I like their beauty,
 I like their delicacy, I like their vivacity, and I like their silence.
 		-- Samuel Johnson
-The Army needs leaders the way a foot needs a big toe.
+ Army needs leaders the way a foot needs a big toe.
 		-- Bill Murray
 To understand a program you must become both the machine and the program.
 TRANSACTION CANCELLED - FARECARD RETURNED
-...this is an awesome sight.  The entire rebel resistance buried under six
-million hardbound copies of "The Naked Lunch."
-- The Firesign Theater
+...this is an awesome sight.   entire rebel resistance buried under six
+million hardbound copies of " Naked Lunch."
+-  Firesign ater
 "All language designers are arrogant.  Goes with the territory..."
 (By Larry Wall)
 This Fortune Examined By INSPECTOR NO. 2-14
 He that composes himself is wiser than he that composes a book.
 		-- B. Franklin
 X windows:
-	The ultimate bottleneck.
+	 ultimate bottleneck.
 	Flawed beyond belief.
-	The only thing you have to fear.
+	 only thing you have to fear.
 	Somewhere between chaos and insanity.
 	On autopilot to oblivion.
-	The joke that kills.
+	 joke that kills.
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
 	Belongs more to the problem set than the solution set.
@@ -245,12 +245,12 @@ X windows:
 	Built to fall apart.
 	Nullifying centuries of progress.
 	Falling to new depths of inefficiency.
-	The last thing you need.
-	The defacto substandard.
+	 last thing you need.
+	 defacto substandard.
 
 Elevating brain damage to an art form.
 	X windows.
-As in certain cults it is possible to kill a process if you know its true name.
+As in certain cults it is possible to kill a process if you know its true .
 		-- Ken Thompson and Dennis M. Ritchie
 Dear Emily:
 	I saw a long article that I wish to rebut carefully, what should
@@ -261,12 +261,12 @@ Dear Angry:
 	Include the entire text with your article, and include your comments
 between the lines.  Be sure to post, and not mail, even though your article
 looks like a reply to the original.  Everybody *loves* to read those long
-point-by-point debates, especially when they evolve into name-calling and
+point-by-point debates, especially when they evolve into -calling and
 lots of "Is too!" -- "Is not!" -- "Is too, twizot!" exchanges.
 		-- Emily Postnews Answers Your Questions on Netiquette
 If you're not careful, you're going to catch something.
 Life's too short to dance with ugly women.
-There are three reasons for becoming a writer: the first is that you need
+re are three reasons for becoming a writer: the first is that you need
 the money; the second that you have something to say that you think the
 world should know; the third is that you can't think what to do with the
 long winter evenings.
@@ -302,18 +302,18 @@ shortcomings.
 		-- Laurence J. Peter, "Peter's Principles"
 I see a good deal of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
-		-- The Best of Will Rogers
+		--  Best of Will Rogers
 	Everthing is farther away than it used to be.  It is even twice as
 far to the corner and they have added a hill.  I have given up running for
 the bus; it leaves earlier than it used to.
 	It seems to me they are making the stairs steeper than in the old
 days.  And have you noticed the smaller print they use in the newspapers?
-	There is no sense in asking anyone to read aloud anymore, as everbody
+	re is no sense in asking anyone to read aloud anymore, as everbody
 speaks in such a low voice I can hardly hear them.
-	The material in dresses is so skimpy now, especially around the hips
+	 material in dresses is so skimpy now, especially around the hips
 and waist, that it is almost impossible to reach one's shoelaces.  And the
-sizes don't run the way they used to.  The 12's and 14's are so much smaller.
-	Even people are changing.  They are so much younger than they used to
+sizes don't run the way they used to.   12's and 14's are so much smaller.
+	Even people are changing.  y are so much younger than they used to
 be when I was their age.  On  the other hand people my age are so much older
 than I am.
 	I ran into an old classmate the other day and she has aged so much
@@ -333,8 +333,8 @@ forth old bore who expected every hero-worshiping adenoidal little twerp
 of a student-poet to hang on to his every word I never saw.
 		-- James Dickey
 Lubarsky's Law of Cybernetic Entomology:
-	There's always one more bug.
-The public demands certainties;  it must be told definitely and a bit
+	re's always one more bug.
+ public demands certainties;  it must be told definitely and a bit
 raucously that this is true and that is false.  But there are no certainties.
 		-- H.L. Mencken, "Prejudice"
 If I felt any more SOPHISTICATED I would DIE of EMBARRASSMENT!
@@ -351,24 +351,24 @@ A:  Picking them up in the air.
 Q:  Where was the dog at this time?
 A:  Attached to the ears.
 Sushido, n.:
-	The way of the tuna.
+	 way of the tuna.
 "Don't drop acid, take it pass-fail!"
 -- Bryan Michael Wendt
-The one day you'd sell your soul for something, souls are a glut.
+ one day you'd sell your soul for something, souls are a glut.
 Just remember: when you go to court, you are trusting your fate to
 twelve people that weren't smart enough to get out of jury duty!
 Breast Feeding should not be attempted by fathers with hairy chests,
 since they can make the baby sneeze and give it wind.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armchair Anarchist's Almanac"
 For years a secret shame destroyed my peace--
 I'd not read Eliot, Auden or MacNiece.
 But now I think a thought that brings me hope:
 Neither had Chaucer, Shakespeare, Milton, Pope.
 		-- Justin Richardson.
-There's a lesson that I need to remember
+re's a lesson that I need to remember
 When everything is falling apart
 In life, just like in loving
-There's such a thing as trying to hard
+re's such a thing as trying to hard
 
 You've gotta sing
 Like you don't need the money
@@ -401,7 +401,7 @@ Our business in life is not to succeed but to continue to fail in high spirits.
 		-- Robert Louis Stevenson
 He only knew his iron spine held up the sky -- he didn't realize his brain
 had fallen to the ground.
-		-- The Book of Serenity
+		--  Book of Serenity
 One can never consent to creep when one feels an impulse to soar.
 		-- Helen Keller
 I do not fear computers.  I fear the lack of them.
@@ -420,7 +420,7 @@ pre-Adamite ancestral descent.  You will understand this when I tell you
 that I can trace my ancestry back to a protoplasmal primordial atomic
 globule.  Consequently, my family pride is something inconceivable.  I
 can't help it.  I was born sneering.
-		-- Pooh-Bah, "The Mikado"
+		-- Pooh-Bah, " Mikado"
 EARL GREY PROFILES
 
 NAME:		Jean-Luc Perriwinkle Picard
@@ -438,23 +438,23 @@ EARL GREY NEVER VARIES.
 To love is good, love being difficult.
 Mary Tyler Moore's SEVENTH HUSBAND is wearing my DACRON TANK TOP in a
 cheap hotel in HONOLULU!
-The rich get rich, and the poor get poorer.
-The haves get more, the have-nots die.
+ rich get rich, and the poor get poorer.
+ haves get more, the have-nots die.
 Sooner or later you must pay for your sins.
 (Those who have already paid may disregard this cookie).
 Peter's hungry, time to eat lunch.
 Football combines the two worst features of American life.
 It is violence punctuated by committee meetings.
-		-- George F. Will, "Men At Work:  The Craft of Baseball"
-Give thought to your reputation.  Consider changing name and moving to
+		-- George F. Will, "Men At Work:   Craft of Baseball"
+Give thought to your reputation.  Consider changing  and moving to
 a new town.
-The power to destroy a planet is insignificant when compared to the power of
+ power to destroy a planet is insignificant when compared to the power of
 the Force.
 - Darth Vader
 What a COINCIDENCE!  I'm an authorized "SNOOTS OF THE STARS" dealer!!
 Happiness, n.:
 	An agreeable sensation arising from contemplating the misery of another.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Work is the curse of the drinking classes.
 		-- Mike Romanoff
 Maintainer's Motto:
@@ -471,7 +471,7 @@ A:	Two, one to hold the giraffe, and the other to fill the bathtub
 Everything in this book may be wrong.
 		-- Messiah's Handbook : Reminders for the Advanced Soul
 Most people don't need a great deal of love nearly so much as they need
-a steady supply.
+a sy supply.
 Grig (the navigator):
 	... so you see, it's just the two of us against the entire space
 	armada.
@@ -481,7 +481,7 @@ Grig:	I've always wanted to fight a desperate battle against
 	overwhelming odds.
 Alex:	It'll be a slaughter!
 Grig:	That's the spirit!
-		-- The Last Starfighter
+		--  Last Starfighter
 Misfortunes arrive on wings and leave on foot.
 Doubt isn't the opposite of faith; it is an element of faith.
 		-- Paul Tillich, German theologian.
@@ -495,7 +495,7 @@ most of them are trash.
 Great spirits have always encountered violent opposition from mediocre minds.
 		-- Albert Einstein
 
-They laughed at Einstein.  They laughed at the Wright Brothers.  But they
+y laughed at Einstein.  y laughed at the Wright Brothers.  But they
 also laughed at Bozo the Clown.
 		-- Carl Sagan
 System restarting, wait...
@@ -526,7 +526,7 @@ Let others praise ancient times; I am glad I was born in these.
 		-- Ovid (43 B.C. - A.D. 18)
 Mother is far too clever to understand anything she does not like.
 		-- Arnold Bennett
-The Official Colorado State Vegetable is now the "state legislator".
+ Official Colorado State Vegetable is now the "state legislator".
 Never tell a lie unless it is absolutely convenient.
 I don't deserve this award, but I have arthritis and I don't deserve that
 either.
@@ -541,10 +541,10 @@ Haste makes waste.
 "We shall reach greater and greater platitudes of achievement."
 -- Richard J. Daley
 This here's the wattle,
-The emblem of our land.
+ emblem of our land.
 You can stick it in a bottle;
 You can hold it in your hand.
-Amen!
+!
 		-- Monty Python
 Hindsight is an exact science.
 Many people are secretly interested in life.
@@ -557,16 +557,16 @@ Because newspapers are read too.
 Two and Two is four.
 Four and four is eight.
 Eight and four is twelve.
-There are twelve inches in a ruler.
+re are twelve inches in a ruler.
 Queen Mary was a ruler.
 Queen Mary was a ship.
 Ships sail the sea.
-There are fishes in the sea.
+re are fishes in the sea.
 Fishes have fins.
-The Finns fought the Russians.
+ Finns fought the Russians.
 Russians are red.
 Fire engines are always rush'n.
-Therefore fire engines are red.
+refore fire engines are red.
 zeal, n.:
 	Quality seen in new graduates -- if you're quick.
 An optimist believes we live in the best world possible; 
@@ -616,7 +616,7 @@ glycylalanylalanylglycylalanylisoleucylserylglycylserylalanylisoleucylvalylly-
 sylisoleucylisoleucylglutamylglutaminylhistidylasparaginylisoleucylglutamylpro-
 lylglutamyllysylmethionylleucylalanylalanylleucyllysylvalylphenylalanylvalyl-
 glutaminylprolylmethionyllysylalanylalanylthreonylarginylserine, n.:
-	The chemical name for tryptophan synthetase A protein, a
+	 chemical  for tryptophan synthetase A protein, a
 	1,913-letter enzyme with 267 amino acids.
 		-- Mrs. Byrne's Dictionary of Unusual, Obscure, and
 		   Preposterous Words

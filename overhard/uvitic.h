@@ -7,7 +7,7 @@ appreciated goals.  A lethargic world serves no cause well; a spirited world
 working diligently toward earnestly desired goals provides the means and
 the strength toward which many ends can be satisfied...to unparalleled
 social accomplishment.
-- Dr. Lloyd V. Berkner, in "The History of Manned Space Flight"
+- Dr. Lloyd V. Berkner, in " History of Manned Space Flight"
 Dallas Cowboys Official Schedule
 
 	Sept 14		Pasadena Junior High
@@ -20,9 +20,9 @@ Dallas Cowboys Official Schedule
 	Nov 2		Texas City Vet Clinic
 	Nov 9		Korean War Amputees
 	Nov 15		VA Hospital Polio Patients
-The misnaming of fields of study is so common as to lead to what might be
+ misnaming of fields of study is so common as to lead to what might be
 general systems laws.  For example, Frank Harary once suggested the law that
-any field that had the word "science" in its name was guaranteed thereby
+any field that had the word "science" in its  was guaranteed thereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
 Science.  Discuss the generality of this law, and possible reasons for its
@@ -35,7 +35,7 @@ be in owning a piece thereof.
 My calculator is my shepherd, I shall not want
 It maketh me accurate to ten significant figures,
 	and it leadeth me in scientific notation to 99 digits.
-It restoreth my square roots and guideth me along paths of floating
+It restoreth my s roots and guideth me along paths of floating
 	decimal points for the sake of precision.
 Yea, tho I walk through the valley of surprise quizzes,
 	I will fear no prof, for my calculator is there to hearten me.
@@ -55,24 +55,24 @@ Put a pot of chili on the stove to simmer.  Let it simmer.  Meanwhile,
 broil a good steak.  Eat the steak.  Let the chili simmer.  Ignore it.
 		-- Recipe for chili from Allan Shrivers, former governor
 		   of Texas.
-There's amnesia in a hangknot,
+re's amnesia in a hangknot,
 And comfort in the ax,
 But the simple way of poison will make your nerves relax.
-	There's surcease in a gunshot,
+	re's surcease in a gunshot,
 	And sleep that comes from racks,
 	But a handy draft of poison avoids the harshest tax.
 You find rest on the hot squat,
 Or gas can give you pax,
 But the closest corner chemist has peace in packaged stacks.
-	There's refuge in the church lot
+	re's refuge in the church lot
 	When you tire of facing facts,
 	And the smoothest route is poison prescribed by kindly quacks.
 Chorus:	With an *ugh!* and a groan, and a kick of the heels,
 	Death comes quiet, or it comes with squeals --
 	But the pleasantest place to find your end
 	Is a cup of cheer from the hand of a friend.
-		-- Jubal Harshaw, "One For The Road"
-The less a statesman amounts to, the more he loves the flag.
+		-- Jubal Harshaw, "One For  Road"
+ less a statesman amounts to, the more he loves the flag.
 		-- Kin Hubbard
 Important letters which contain no errors will develop errors in the mail.
 Corresponding errors will show up in the duplicate while the Boss is reading
@@ -99,7 +99,7 @@ accountants make long-range plans, harmony and order are about to be restored.
 When senior scientists address the problems at hand, the problems will soon
 be solved.
 	Truly, this is the Tao of Programming.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, " Tao of Programming"
 I'm shaving!!  I'M SHAVING!!
 Speak roughly to your little boy,
 	And beat him when he sneezes:
@@ -110,7 +110,7 @@ He only does it to annoy
 I speak severely to my boy,
 	And beat him when he sneezes:
 For he can thoroughly enjoy
-	The pepper when he pleases!
+	 pepper when he pleases!
 	Wow!  wow!  wow!
 		-- Lewis Carrol, "Alice in Wonderland"
 Practical politics consists in ignoring facts.
@@ -127,10 +127,10 @@ One day this guy is finally fed up with his middle-class existence and
 decides to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
 way mathematically of guaranteeing winning at the race track?  We could
-make a lot of money and retire and enjoy life."  The mathematician thinks
+make a lot of money and retire and enjoy life."   mathematician thinks
 this over a bit and walks away mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
-success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
+success.   genius, looking a little bleary-eyed, replies, "Well, yes,
 actually I do have an idea, and I'm reasonably sure that it will work, but
 there a number of details to be figured out.
 	After the second week the mathematician appears at his friend's house,
@@ -154,7 +154,7 @@ Otherwise, you'll never find anybody to take her off your hands.
 Eternity is a terrible thought.  I mean, where's it going to end?
 		-- Tom Stoppard
 We have ears, earther...FOUR OF THEM!
-"If Jesus came back today, and saw what was going on in his name, he'd never 
+"If Jesus came back today, and saw what was going on in his , he'd never 
 stop throwing up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
 Men never make passes at girls wearing glasses.
@@ -185,7 +185,7 @@ Four thousand throats may be cut in one night by a running man.
 She missed an invaluable opportunity to give him a look that you could
 have poured on a waffle ...
 Fourth Law of Applied Terror:
-	The night before the English History mid-term, your Biology
+	 night before the English History mid-term, your Biology
 	instructor will assign 200 pages on planaria.
 
 Corollary:
@@ -211,9 +211,9 @@ mailman."
 	"Thank you, Amie," said the teacher.  "What about your father, Billy?"
 	Billy proudly stood up and announced, "My daddy plays piano in a
 whorehouse."
-	The teacher was aghast and promptly changed the subject to geography.
+	 teacher was aghast and promptly changed the subject to geography.
 Later that day she went to Billy's house and rang the bell.  Billy's father
-answered the door.  The teacher explained what his son had said and demanded
+answered the door.   teacher explained what his son had said and demanded
 an explanation.
 	Billy's father replied, "Well, I'm really an attorney.  But how do
 you explain a thing like that to a seven-year-old child?"
@@ -224,7 +224,7 @@ Alliance, n.:
 	In international politics, the union of two thieves who have
 	their hands so deeply inserted in each other's pocket that they cannot
 	separately plunder a third.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Like you,  I am frequently haunted by profound questions related to man's
 place in the Scheme of Things.  Here are just a few:
 
@@ -246,7 +246,7 @@ What is worth doing is worth the trouble of asking somebody to do.
 How can you do 'New Math' problems with an 'Old Math' mind?
 		-- Charles Schulz
 Watson's Law:
-	The reliability of machinery is inversely proportional to the
+	 reliability of machinery is inversely proportional to the
 	number and significance of any persons watching it.
 Only Irish coffee provides in a single glass all four essential food groups --
 alcohol, caffeine, sugar, and fat.
@@ -257,7 +257,7 @@ they make a law it's a joke.
 That government is best which governs least.
 		-- Henry David Thoreau, "Civil Disobedience"
 You have literary talent that you should take pains to develop.
-These screamingly hilarious gogs ensure owners of     X Ray Gogs to be the life
+se screamingly hilarious gogs ensure owners of     X Ray Gogs to be the life
 of any party.
 -- X-Ray Gogs Instructions
 What they said:
@@ -265,7 +265,7 @@ What they said:
 
 "You will be fortunate if you can get him to work for you."
 	(We certainly never succeeded.)
-There is no other employee with whom I can adequately compare him.
+re is no other employee with whom I can adequately compare him.
 	(Well, our rats aren't really employees...)
 "Success will never spoil him."
 	(Well, at least not MUCH more.)
@@ -275,7 +275,7 @@ There is no other employee with whom I can adequately compare him.
 in it he has definitely demonstrated his complete capabilities."
 	(And his IQ, as well.)
 "He should go far."
-	(The farther the better.)
+	( farther the better.)
 "He will take full advantage of his staff."
 	(He even has one of them mowing his lawn after work.)
 Alliance:  In international politics, the union of two thieves who have their

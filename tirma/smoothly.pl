@@ -1,4 +1,4 @@
-The Modelski Chain Rule:
+ Modelski Chain Rule:
 (1)	Look intently at the problem for several minutes.  Scratch your
 	head at 20-30 second intervals.  Try solving the problem on your
 	Hewlett-Packard.
@@ -24,17 +24,17 @@ I feel partially hydrogenated!
 Q:  What's the difference between a car salesman and a computer
     salesman?
 
-A:  The car salesman can probably drive!
+A:   car salesman can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
-What a strange game.  The only winning move is not to play.
+What a strange game.   only winning move is not to play.
 		-- WOP, "War Games"
 Authors (and perhaps columnists) eventually rise to the top of whatever
 depths they were once able to plumb.
 		-- Stanley Kaufman
 Money and women are the most sought after and the least known of any two
 things we have.
-		-- The Best of Will Rogers
+		--  Best of Will Rogers
 May Euell Gibbons eat your only copy of the manual!
 Nobody really knows what happiness is, until they're married.
 And then it's too late.
@@ -47,12 +47,12 @@ Jane and I got mixed up with a television show -- or as we call it back
 east here: TV -- a clever contraction derived from the words Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
 because nothing's well done. It was discovered, I suppose you've heard,
-by a man named Fulton Berle, and it has already revolutionized social
+by a man d Fulton Berle, and it has already revolutionized social
 grace by cutting down parlour conversation to two sentences: "What's on
 television?" and "Good night".
-		-- Goodman Ace, letter to Groucho Marx, in The Groucho
+		-- Goodman Ace, letter to Groucho Marx, in  Groucho
 		   Letters, 1967
-The Martian Canals were clearly the Martian's last ditch effort!
+ Martian Canals were clearly the Martian's last ditch effort!
 Prediction is very difficult, especially of the future.
 - Niels Bohr
 Chicago Transit Authority Rider's Rule #36:
@@ -60,18 +60,18 @@ Chicago Transit Authority Rider's Rule #36:
 	where he got his "pyramid powered pizza warmer".
 		-- Chicago Reader 3/27/81
 	A master was explaining the nature of Tao to one of his novices.
-"The Tao is embodied in all software -- regardless of how insignificant,"
+" Tao is embodied in all software -- regardless of how insignificant,"
 said the master.
 	"Is Tao in a hand-held calculator?" asked the novice.
 	"It is," came the reply.
 	"Is the Tao in a video game?" continued the novice.
 	"It is even in a video game," said the master.
 	"And is the Tao in the DOS for a personal computer?"
-	The master coughed and shifted his position slightly.  "The lesson
+	 master coughed and shifted his position slightly.  " lesson
 is over for today," he said.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, " Tao of Programming"
 user, n.:
-	The word computer professionals use when they mean "idiot."
+	 word computer professionals use when they mean "idiot."
 		-- Dave Barry, "Claw Your Way to the Top"
 
 [I always thought "computer professional" was the phrase hackers used
@@ -94,12 +94,12 @@ Action Required:	Go stand next to nearest dog.  After a while complain
 			demand a beer as compensation.
 		-- Bar Troubleshooting
 Keep in mind always the four constant Laws of Frisbee:
-	(1) The most powerful force in the world is that of a disc
+	(1)  most powerful force in the world is that of a disc
 	   straining to land under a car, just out of reach (this
 	   force is technically termed "car suck").
 	(2) Never precede any maneuver by a comment more predictive
 	   than "Watch this!"
-	(3) The probability of a Frisbee hitting something is directly
+	(3)  probability of a Frisbee hitting something is directly
 	   proportional to the cost of hitting it.  For instance, a
 	   Frisbee will always head directly towards a policeman or
 	   a little old lady rather than the beat up Chevy.
@@ -122,12 +122,12 @@ Nobody shot me.
 Only Capone kills like that.
 		-- George "Bugs" Moran, on the Saint Valentine's Day Massacre
 
-The only man who kills like that is Bugs Moran.
+ only man who kills like that is Bugs Moran.
 		-- Al Capone, on the Saint Valentine's Day Massacre
 For the fashion of Minas Tirith was such that it was built on seven levels,
 each delved into a hill, and about each was set a wall, and in each wall
 was a gate.
-		-- J.R.R. Tolkien, "The Return of the King"
+		-- J.R.R. Tolkien, " Return of the King"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
 	 referring to system overview.]
@@ -137,12 +137,12 @@ more time for dreaming.
 		-- J. P. McEvoy
 Spock: We suffered 23 casualties in that attack, Captain.
 Cheap things are of no value, valuable things are not cheap.
-MESSAGE ACKNOWLEDGED -- The Pershing II missiles have been launched.
+MESSAGE ACKNOWLEDGED --  Pershing II missiles have been launched.
 As a computer, I find your faith in technology amusing.
 Adhere to your own act, and congratulate yourself if you have done something
 strange and extravagant, and broken the monotony of a decorous age.
 		-- Ralph Waldo Emerson
-The life of a repo man is always intense.
+ life of a repo man is always intense.
 Overload -- core meltdown sequence initiated.
 To err is human,
 To purr feline.

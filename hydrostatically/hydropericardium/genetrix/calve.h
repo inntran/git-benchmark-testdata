@@ -1,4 +1,4 @@
-"There was a vague, unpleasant manginess about his appearence; he somehow
+"re was a vague, unpleasant manginess about his appearence; he somehow
 seemed dirty, though a close g showed him as carefully shaven as an
 actor, and clad in immaculate linen."
 -- H.L. Mencken, on the death of William Jennings Bryan
@@ -15,7 +15,7 @@ about his or her love affairs.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down the street and...  Ooohh, that's much better.
 		-- Steven Wright
-"The algorithm to do that is extremely nasty.  You might want to mug
+" algorithm to do that is extremely nasty.  You might want to mug
 someone with it."
 		-- M. Devine, Computer Science 340
 Remember, an int is not always 16 bits.  I'm not sure, but if the 80386 is one
@@ -30,19 +30,19 @@ Anyone stupid enough to be caught by the police is probably guilty.
 pay higher prices for the convenience of being able to shop for lumber,
 hardware, and toasters all in one location.  Notice I say "shop for," as
 opposed to "obtain." This is the major drawback of home centers: they are
-always out of everything except artificial Christmas trees.  The home center
+always out of everything except artificial Christmas trees.   home center
 employees have no time to reorder merchandise because they are too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in the entire store ...
 
 	Let's say a piece in your toilet tank breaks, so you remove the
 broken part, take it to the home center, and ask an employee if he has a
-replacement.  The employee, who has never is his life even seen the inside
+replacement.   employee, who has never is his life even seen the inside
 of a toilet tank, will peer at the broken part in very much the same way
 that a member of a primitive Amazon jungle tribe would look at an electronic
 calculator, and then say, "We're expecting a shipment of these sometime
 around the middle of next week."
-		-- Dave Barry, "The Taming of the Screw"
+		-- Dave Barry, " Taming of the Screw"
 I'd be a poorer man if I'd never seen an eagle fly.
 		-- John Denver
 
@@ -72,7 +72,7 @@ If I set here and stare at nothing long enough, people might think
 I'm an engineer working on something.
 		-- S.R. McElroy
 Oh, when I was in love with you,
-	Then I was clean and brave,
+	n I was clean and brave,
 And miles around the wonder grew
 	How well did I behave.
 
@@ -100,7 +100,7 @@ use; mighty Durbanu before whom we would kneel in supplication (with purely-
 for-defense bombs hidden in our pockets) with lowered heads (making invisible
 the knife in our teeth) and ask for crumbs from their table (in order to
 extrapolate the location of their kitchens).
-		-- Theodore Sturgeon, "The World Well Lost"
+		-- odore Sturgeon, " World Well Lost"
 We fight only when there is no other choice.  We prefer the ways of
 peaceful contact.
 		-- Kirk, "Spectre of the Gun", stardate 4385.3
@@ -113,7 +113,7 @@ And tapes mixed up on the racks --
 	And then you'll be sure
 	Your tape drive will skip.
 		-- Uncle Colonel's Cursory Rhymes
-The Road goes ever on and on
+ Road goes ever on and on
 Down from the door where it began.
 Now far ahead the Road has gone,
 And I must follow, if I can,
@@ -128,7 +128,7 @@ Lying is an indispensable part of making life tolerable.
 Gravity is a myth, the Earth sucks.
 "I have come up with a sure-fire concept for a hit television show,
 which would be called `A Live Celebrity Gets Eaten by a Shark'."
-		-- Dave Barry, "The Wonders of Sharks on TV"
+		-- Dave Barry, " Wonders of Sharks on TV"
 Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
 are not the person involved.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
@@ -160,13 +160,13 @@ is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and the Art of Motorcycle Maintenance"
 New York's got the ways and means;
 Just won't let you be.
-		-- The Grateful Dead
-The best you get is an even break.
+		--  Grateful Dead
+ best you get is an even break.
 		-- Franklin Adams
 What on earth would a man do with himself if something did not stand in his way?
 		-- H.G. Wells
-The only constant is change.
-There is no doubt that my lawyer is honest.  For example, when he
+ only constant is change.
+re is no doubt that my lawyer is honest.  For example, when he
 filed his income tax return last year, he declared half of his salary
 as 'unearned income.'
 		-- Michael Lara
@@ -185,10 +185,10 @@ a record 86 attempts (three completions) in 87 plays....  Though Strewzinksi
 has so far failed to score any points for the Crimson, his jackrabbit speed
 has made him the least sacked quarterback in the Ivy league.
 Wide Receiver:
-	The other directional signal in Harvard's offensive machine is senior
+	 other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
 fast.  Expect to see Yip elude all pursuers and make it into the endzone five
-or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
+or six times, his average for a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
 those times.
 YALE:
@@ -199,7 +199,7 @@ Finklestein, the tightest ends in recent Eli history.  Also contributing to
 the powerful defense is junior tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look for these three to shut down the opening
 coin toss.
-		-- Harvard Lampoon 1988 Program Parody, distributed at The Game
+		-- Harvard Lampoon 1988 Program Parody, distributed at  Game
 A penny saved is a penny taxed.
 Are we running light with overbyte?
 Moore's Constant:
@@ -211,13 +211,13 @@ He said "Nothin'."
 Try to sing this song with that kind of enthusiasm;
 As if you just squashed a cop.
 		-- Arlo Guthrie, "Motorcycle Song"
-The naked truth of it is, I have no shirt.
+ naked truth of it is, I have no shirt.
 		-- William Shakespeare, "Love's Labour's Lost"
-The part of the world that people find most puzzling is the part called "Me".
-The way to fight a woman is with your hat.  Grab it and run.
+ part of the world that people find most puzzling is the part called "Me".
+ way to fight a woman is with your hat.  Grab it and run.
 Mathematicians practice absolute freedom.
 		-- Henry Adams
-The horror... the horror!
+ horror... the horror!
 	One day it was announced that the young monk Kyogen had reached
 an enlightened state.  Much impressed by this news, several of his peers
 went to speak with him.
@@ -231,7 +231,7 @@ it cannot be argued, there are never enough comfortable chairs.
 		-- Fran Lebowitz
 "A dirty mind is a joy forever."
 -- Randy Kunkee
-The most delightful day after the one on which you buy a cottage in
+ most delightful day after the one on which you buy a cottage in
 the country is the one on which you  it.
 		-- J. Brecheux
 Robot, n.:
@@ -259,12 +259,12 @@ Some companies call their prototypes "releases", that's all.
 Anyone who uses the phrase "easy as taking candy from a baby" has never
 tried taking candy from a baby.
 		-- Robin Hood
-The best thing about growing older is that it takes such a long time.
+ best thing about growing older is that it takes such a long time.
 Computer programmers do it byte by byte.
 F u cn rd ths u cnt spl wrth a dm!
-"The greatest dangers to liberty lurk in insidious encroachment by mean of zeal,
+" greatest dangers to liberty lurk in insidious encroachment by mean of zeal,
 well-meaning but without understanding."
--- Justice Louis O. Brandeis (Olmstead vs. United States)
+-- Justice Louis O. Brandeis (Olms vs. United States)
 When you don't know what you are doing, do it neatly.
 Nothing makes a person more productive than the last minute.
 It is possible by ingenuity and at the expense of clarity... {to do almost
@@ -284,7 +284,7 @@ If a thing's worth having, it's worth cheating for.
 Your Co-worker Could Be a Space Alien, Say Experts
 		...Here's How You Can Tell
 Many Americans work side by side with space aliens who look human -- but you
-can spot these visitors by looking for certain tip-offs, say experts. They
+can spot these visitors by looking for certain tip-offs, say experts. y
 listed 10 signs to watch for:
     (3) Bizarre sense of humor.  Space aliens who don't understand
 	earthly humor may laugh during a company training film or tell
@@ -296,7 +296,7 @@ listed 10 signs to watch for:
    (10) Displays a change of mood or physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is turned on," said Steiger.
-The experts pointed out that a co-worker would have to display most if not
+ experts pointed out that a co-worker would have to display most if not
 all of these traits before you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
 
@@ -317,7 +317,7 @@ And the muscular strength which it gave to my jaw,
 	Has lasted the rest of my life."
 
 "You are old," said the youth, "one would hardly suppose
-	That your eye was as steady as ever;
+	That your eye was as sy as ever;
 Yet you bad an eel on the end of your nose --
 	What made you so awfully clever?"
 
@@ -332,15 +332,15 @@ to kill today.  That's all it takes!  Knowing that we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 You've been leading a dog's life.  Stay off the furniture.
-> > Other than the fact Linux has a cool name, could someone explain why I
+> > Other than the fact Linux has a cool , could someone explain why I
 > > should use Linux over BSD?
 >
-> No.  That's it.  The cool name, that is.  We worked very hard on
-> creating a name that would appeal to the majority of people, and it
+> No.  That's it.   cool , that is.  We worked very hard on
+> creating a  that would appeal to the majority of people, and it
 > certainly paid off: thousands of people are using linux just to be able
-> to say "OS/2? Hah.  I've got Linux.  What a cool name".  386BSD made the
+> to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made the
 > mistake of putting a lot of numbers and weird abbreviations into the
-> name, and is scaring away a lot of people just because it sounds too
+> , and is scaring away a lot of people just because it sounds too
 > technical.
 (Linus Torvalds' follow-up to a question about Linux)
 Remember, UNIX spelled backwards is XINU.
@@ -361,7 +361,7 @@ Well, don't worry about it...  It's nothing.
 		   Lockard had picked up a radar signal of what appeared to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
-The hardest thing is to disguise your feelings when you put a lot of
+ hardest thing is to disguise your feelings when you put a lot of
 relatives on the train for home.
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghorn Leghorn
@@ -375,7 +375,7 @@ Have the courage to take your own thoughts seriously, for they will shape you.
 Welcome to Lake Wobegon, where all the men are strong, the women are pretty,
 and the children are above-average.
 		-- Garrison Keillor
-There are new messages.
+re are new messages.
 An avocado-tone refrigerator would look good on your resume.
 Conscious is when you are aware of something and conscience is when you
 wish you weren't.
@@ -393,10 +393,10 @@ How many surrealists does it take to screw in a lightbulb?
 
 One to hold the giraffe and one to fill the bathtub with brightly colored
 power tools.
-The one L lama, he's a priest
-The two L llama, he's a beast
+ one L lama, he's a priest
+ two L llama, he's a beast
 And I will bet my silk pyjama
-There isn't any three L lllama.
+re isn't any three L lllama.
 		-- O. Nash, to which a fire chief replied that occasionally
 		his department responded to something like a "three L lllama."
 We've tried each spinning space mote
@@ -404,7 +404,7 @@ And reckoned its true worth:
 Take us back again to the homes of men
 On the cool, green hills of Earth.
 
-The arching sky is calling
+ arching sky is calling
 Spacemen back to their trade.
 All hands!  Standby!  Free falling!
 And the lights below us fade.
@@ -423,20 +423,20 @@ Have you seen how Sonny's burning,
 Like some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
-		-- The Birthday Party, "Sonny's Burning"
+		--  Birthday Party, "Sonny's Burning"
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghorn Leghorn
 It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memorable.  I vividly recall the night we decided how to organize
-the actual writing of external specifications for OS/360.  The manager of
+the actual writing of external specifications for OS/360.   manager of
 architecture, the manager of control program implementation, and I were
 threshing out the plan, schedule, and division of responsibilities.
 
-The architecture manager had 10 good men.  He asserted that they could write
+ architecture manager had 10 good men.  He asserted that they could write
 the specifications and do it right.  It would take ten months, three more
 than the schedule allowed.
 
-The control program manager had 150 men.  He asserted that they could prepare
+ control program manager had 150 men.  He asserted that they could prepare
 the specifications, with the architecture team coordinating; it would be 
 well-done and practical, and he could do it on schedule.  Futhermore, if
 the architecture team did it, his 150 men would sit twiddling their thumbs
@@ -448,21 +448,21 @@ also be three months late, and of much lower quality.  I did, and it was.  He
 was right on both counts.  Moreover, the lack of conceptual integrity made
 the system far more costly to build and change, and I would estimate that it
 added a year to debugging time.
-- Frederick Brooks Jr., "The Mythical Man Month" 
-There was, it appeared, a mysterious rite of initiation through which,
-in one way or another, almost every member of the team passed.  The term
+- Frederick Brooks Jr., " Mythical Man Month" 
+re was, it appeared, a mysterious rite of initiation through which,
+in one way or another, almost every member of the team passed.   term
 that the old hands used for this rite -- West invented the term, not the
 practice -- was `signing up.'  By signing up for the project you agreed
 to do whatever was necessary for success.  You agreed to forsake, if
 necessary, family, hobbies, and friends -- if you had any of these left
 (and you might not, if you had signed up too many times before).
-		-- Tracy Kidder, "The Soul of a New Machine"
+		-- Tracy Kidder, " Soul of a New Machine"
 "Dump the condiments.  If we are to be eaten, we don't need to taste good."
 -- "Visionaries" cartoon
 Life Sucks.  Cynical, misanthropic male, 34, looking for soul mate but
 certain not to find her.  Drop me a note.  I'll call you, we'll talk and
 I'll ask you out to dinner where I'll probably spend more than I can
-afford in a feeble attempt to impress you.  Then we'll realize we have
+afford in a feeble attempt to impress you.  n we'll realize we have
 absolutely nothing in common and we'll go our separate ways, more
 embittered and depressed than before (if such a thing is possible).
 Fourth Law of Revision:

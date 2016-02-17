@@ -45,11 +45,11 @@ the way to the far shore, and if we had been in a Warner Brothers
 cartoon we would have run right INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
 into trees and coconuts fell onto their heads.
-		-- Dave Barry, "The Wonders of Sharks on TV"
+		-- Dave Barry, " Wonders of Sharks on TV"
 Wernher von Braun settled for a V-2 when he coulda had a V-8.
 I tell them to turn to the study of mathematics, for it is only there that
 they might escape the lusts of the flesh.
-		-- Thomas Mann, "The Magic Mountain"
+		-- Thomas Mann, " Magic Mountain"
 Easiest Color to Solve on a Rubik's Cube:	Black.
 
 Simply remove all the little colored stickers on the cube, and each of
@@ -69,11 +69,11 @@ A professor is one who talks in someone else's sleep.
 linux: the choice of a GNU generation
 (ksh@cis.ufl.edu put this on Tshirts in '93)
 People who take cold baths never have rheumatism, but they have cold baths.
-The reported resort to astrology in the White House has occasioned much
+ reported resort to astrology in the White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
 which are part of a newspaper's harmless pleasure and make no truth claims,
-astrology is a fraud.  The idea that it gets a hearing in government is
+astrology is a fraud.   idea that it gets a hearing in government is
 dismaying.
 -- George Will, Washing Post Writers Group
 'Twas the nocturnal segment of the diurnal period
@@ -89,4 +89,4 @@ Pursuant to our anticipatory pleasure regarding an
    philanthropist among whose folkloric appelations
    is the honorific title of St. Nicklaus ...
 In just seven days, I can make you a man!
-		-- The Rocky Horror Picture Show
+		--  Rocky Horror Picture Show

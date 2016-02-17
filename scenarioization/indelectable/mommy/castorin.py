@@ -1,4 +1,4 @@
-There are two jazz musicians who are great buddies.  They hang out and play
+re are two jazz musicians who are great buddies.  y hang out and play
 together for years, virtually inseparable.  Unfortunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
@@ -13,10 +13,10 @@ I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
 tell me more!"
-	"Let me put it this way," continues the voice.  "There's good news
-and bad news.  The good news is that these guys are in top form.  I mean
-I have *never* heard them sound better.  They are *wailing* up here."
-	"The bad news is that God has this girlfriend that sings..."
+	"Let me put it this way," continues the voice.  "re's good news
+and bad news.   good news is that these guys are in top form.  I mean
+I have *never* heard them sound better.  y are *wailing* up here."
+	" bad news is that God has this girlfriend that sings..."
 My brain is my second favorite organ.
 		-- Woody Allen
 "World domination.  Fast"
@@ -32,9 +32,9 @@ God -- I'll have to sit through the Ice Capades again.
 You will forget that you ever knew me.
 FOOLED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
 Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
-"The NY Times is read by the people who run the country.  The Washington Post
-is read by the people who think they run the country.   The National Enquirer
+A:	 cats keep trying to bury them.
+" NY Times is read by the people who run the country.   Washington Post
+is read by the people who think they run the country.    National Enquirer
 is read by the people who think Elvis is alive and running the country..."
 -- Robert J Woodhead (trebor@biar.UUCP)
 Love is the process of my leading you gently back to yourself.
@@ -54,7 +54,7 @@ knows what is, he is spared all the vexing problems that follow this
 discovery.  But as soon as the human animal who asked himself this question
 emerged, he plunged himself and his descendants into an eternity of doubt
 and brooding, speculation and truth-seeking that has goaded him through the
-centures as reelentlessly as hunger or sexual longing.  The chimp that does
+centures as reelentlessly as hunger or sexual longing.   chimp that does
 not know that he exists is not driven to discover his origins and is spared
 the tragic necessity of contemplating his own end.  And even if the animal 
 experimenters succeed in teaching a chimp to count one hundred bananas or 
@@ -62,7 +62,7 @@ to play chess, the chimp will develop no science and he will exhibit no
 appreciation of beauty, for the greatest part of man's wisdom may be traced
 back to the eternal questions of beginnings and endings, the quest to give
 meaning to his existence, to life itself.
--- Selma Fraiberg, _The Magic Years_, pg. 193
+-- Selma Fraiberg, _ Magic Years_, pg. 193
 Since a politician never believes what he says, he is surprised
 when others believe him.
 		-- Charles DeGaulle
@@ -78,21 +78,21 @@ be shot on sight.  Cassandra did not get half the kicking around she deserved.
 If we see the light at the end of the tunnel, it's the light of an
 oncoming train.
 		-- Robert Lowell
-The one L lama, he's a priest
-The two L llama, he's a beast
+ one L lama, he's a priest
+ two L llama, he's a beast
 And I will bet my silk pyjama
-There isn't any three L lllama.
+re isn't any three L lllama.
 		-- O. Nash, to which a fire chief replied that occasionally
 		his department responded to something like a "three L lllama."
 It's a funny thing that when a woman hasn't got anything
 on earth to worry about, she goes off and gets married.
 This login session: $13.76, but for you $11.88.
-The last time somebody said, "I find I can write much better with a word
-processor.", I replied, "They used to say the same thing about drugs."
+ last time somebody said, "I find I can write much better with a word
+processor.", I replied, "y used to say the same thing about drugs."
 		-- Roy Blount, Jr.
 "Force is but might," the teacher said--
 "That definition's just."
-The boy said naught but thought instead,
+ boy said naught but thought ins,
 Remembering his pounded head:
 "Force is not might but must!"
 You can take all the impact that science considerations have on funding
@@ -138,12 +138,12 @@ Lavoris in the toilet."
 Encyclopedia Salesmen:
 	Invite them all in.  Nip out the back door.  Phone the police
 	and tell them your house is being burgled.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
+		-- Mike Harding, " Armchair Anarchist's Almanac"
 Fortune finishes the great quotations, #6
 
 	"But, soft!  What light through yonder window breaks?"
 	It's nothing, honey.  Go back to sleep.
-I know engineers.  They love to change things.
+I know engineers.  y love to change things.
 - Dr. McCoy
 We know all about the habits of the ant, we know all about the habits of the
 bee, but we know nothing at all about the habits of the oyster.  It seems
@@ -166,17 +166,17 @@ as a transitional species makes more sense -- and gives us more hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry magazine, Vol. 8, No. 1
 I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
-I didn't like the play, but I saw it under adverse conditions.  The curtain
+		-- William Shakespeare, " Merchant of Venice"
+I didn't like the play, but I saw it under adverse conditions.   curtain
 was up.
 It's amazing how much better you feel once you've given up hope.
 	Some 1500 miles west of the Big Apple we find the Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
 the Big Apple have the feats of "Broadway Joe" Namath.  We have known the
-stolid but steady Killebrew.  Listening to Cole Porter over a dry martini
+stolid but sy Killebrew.  Listening to Cole Porter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
-Band and never to have shared a pitcher of 3.2 Grain Belt Beer.  The loss is
+Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
 butter on lefse.  Here is a town where the major urban problem is dutch elm
 disease and the number one crime is overtime parking.  We boast more theater
@@ -185,7 +185,7 @@ when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
-Here's to the Minneapple.  And to its people.  Our flair for style is bad
+Here's to the Minneapple.  And to its people.  Our  for style is bad
 by a healthy respect for wind chill factors.
 	And we always, always eat our vegetables.
 	This is the Minneapple.
@@ -203,7 +203,7 @@ ears.  I think he's weird because he wears false teeth...with braces on them.
 -- Steven Wright
 How much for your women?  I want to buy your daughter... how much for
 the little girl?
-		-- Jake Blues, "The Blues Brothers"
+		-- Jake Blues, " Blues Brothers"
 Bank error in your favor.  Collect $200.
 You go slow, be gentle.  It's no one-way street -- you know how you
 feel and that's all.  It's how the girl feels too.  Don't press.  If
@@ -228,7 +228,7 @@ better be no trade.  A trade by which one gains and the other loses is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
 Brahma said: Well, after hearing ten thousand explanations, a fool is no
 wiser.  But an intelligent man needs only two thousand five hundred.
-		-- The Mahabharata
+		--  Mahabharata
 Think honk if you're a telepath.
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nella vaba;
@@ -269,15 +269,15 @@ You have the body of a 19 year old.  Please return it before it gets wrinkled.
 America may be unique in being a country which has leapt from barbarism
 to decadence without touching civilization.
 		-- John O'Hara
-The reasonable man adapts himself to the world; the unreasonable one
-persists in trying to adapt the world to himself.  Therefore all progress
+ reasonable man adapts himself to the world; the unreasonable one
+persists in trying to adapt the world to himself.  refore all progress
 depends on the unreasonable man.
 		-- George Bernard Shaw
 Klatu barada nikto.
 In the future, you're going to get computers as prizes in breakfast cereals.
 You'll throw them out because your house will be littered with them.
 -- Robert Lucky
-The absent ones are always at fault.
+ absent ones are always at fault.
 Sailors in ships, sail on!  Even while we died, others rode out the storm.
 Pecor's Health-Food Principle:
 	Never eat rutabaga on any day of the week that has a "y" in it.
@@ -287,7 +287,7 @@ two sure-fire ways to get a lot of favorable publicity:
 (1) Go down and raid all the lockers in the local high school and
     confiscate 53 marijuana cigarettes and put them in a pile and hold
     a press conference where you announce that they have a street value
-    of $850 million.  These raids never fail, because ALL high schools,
+    of $850 million.  se raids never fail, because ALL high schools,
     including brand-new, never-used ones, have at least 53 marijuana
     cigarettes in the lockers.  As far as anyone can tell, the locker
     factory puts them there.
@@ -301,7 +301,7 @@ two sure-fire ways to get a lot of favorable publicity:
     vote for the death penalty just to make sure nobody gets the wrong
     impression.
 		-- Dave Barry, "Pornography"
-Extraordinary claims demand extraordinary proof.  There are many examples of
+Extraordinary claims demand extraordinary proof.  re are many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egregious findings that
 contradict well-established research turn out to be artifacts.  I have
@@ -311,8 +311,8 @@ neuroscience.  Before abandoning materialist theories of mind that have paid
 handsome dividends, we should insist on better evidence for psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
-- Barry L. Beyerstein, "The Brain and Conciousness: Implications for Psi
-   Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
+- Barry L. Beyerstein, " Brain and Conciousness: Implications for Psi
+   Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 Will you loan me $20.00 and only give me ten of it?
 That way, you will owe me ten, and I'll owe you ten, and we'll be even!
 Q:	What's the difference between a JAP and a baby elephant?
@@ -325,9 +325,9 @@ And wisely curbed proud man's pretending wit.
 As on the land while here the ocean gains,
 In other parts it leaves wide sandy plains;
 Thus in the soul while memory prevails,
-The solid power of understanding fails;
+ solid power of understanding fails;
 Where beams of warm imagination play,
-The memory's soft figures melt away.
+ memory's soft figures melt away.
 		-- Alexander Pope (on runtime bounds checking?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
@@ -336,7 +336,7 @@ Finagle's Second Law:
 	happened according to his own pet theory.
 Give me your students, your secretaries,
 Your huddled writers yearning to breathe free,
-The wretched refuse of your Selectric III's.
+ wretched refuse of your Selectric III's.
 Give these, the homeless, typist-tossed to me.
 I lift my disk beside the processor.
 		-- Inscription on a Word Processor
@@ -344,7 +344,7 @@ Trying to establish voice contact ... please ____yell into keyboard.
 War is never imperative.
 		-- McCoy, "Ba of Terror", stardate 1709.2
 Anything is good if it's made of chocolate.
-The difference between genius and stupidity is that genius has its limits.
+ difference between genius and stupidity is that genius has its limits.
 Ours is a world of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
 Kliban's First Law of Dining:
@@ -352,7 +352,7 @@ Kliban's First Law of Dining:
 You can't start worrying about what's going to happen.  You get spastic
 enough worrying about what's happening now.
 		-- Lauren Bacall
-The three questions of greatest concern are -- 1. Is it attractive?
+ three questions of greatest concern are -- 1. Is it attractive?
 2. Is it amusing?  3. Does it know its place?
 		-- Fran Lebowitz, "Metropolitan Life"
 Now I'm concentrating on a specific tank battle toward the end of World War II!
@@ -364,8 +364,8 @@ Success is also easy to handle:
 Most people eat as though they were fattening themselves for market.
 		-- E.W. Howe
 interlard - vt., to intersperse; diversify
--- Webster's New World Dictionary Of The American Language
-The trouble with eating Italian food is that five or six days later
+-- Webster's New World Dictionary Of  American Language
+ trouble with eating Italian food is that five or six days later
 you're hungry again.
 		-- George Miller
 If it ain't broke, don't fix it.
@@ -376,7 +376,7 @@ Well, I don't know where they come from but they sure do come,
 I hope they comin' for me!
 And I don't know how they do it but they sure do it good,
 I hope they doin' it for free!
-They give me cat scratch fever... cat scratch fever!
+y give me cat scratch fever... cat scratch fever!
 First time that I got it I was just ten years old,
 Got it from the kitty next door...
 I went to see the doctor and he gave me the cure,
@@ -397,7 +397,7 @@ She just came in, pounced around this thing with me for a few years, enjoyed
 herself, gave it a sort of beautiful quality and left.  Excited a few men
 in the meantime.
 		-- Patrick Macnee, reminiscing on Diana Rigg's
-		   involvement in "The Avengers".
+		   involvement in " Avengers".
 Ambition, n:
 	An overmastering desire to be vilified by enemies while
 	living and made ridiculous by friends when dead.
@@ -409,7 +409,7 @@ You know you're in trouble when...
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax check bounces.
 (4)	You put both contact lenses in the same eye.
-(5)	Your wife says, "Good morning, Bill" and your name is George.
+(5)	Your wife says, "Good morning, Bill" and your  is George.
 (6)	You wake up to the soothing sound of flowing water... the day
 		after you bought a waterbed.
 (7)	You go on your honeymoon to a remote little hotel and the desk
@@ -422,7 +422,7 @@ In the Halls of Justice the only justice is in the halls.
 		-- Lenny Bruce
 Hire the morally handicapped.
 Last night the power went out.  Good thing my camera had a flash....
-The neighbors thought it was lightning in my house, so they called the cops.
+ neighbors thought it was lightning in my house, so they called the cops.
 		-- Steven Wright
 statistics, n.:
 	A system for expressing your political prejudices in convincing
@@ -432,35 +432,35 @@ You mean you didn't *know* she was off making lots of little phone companies?
 Must be getting close to town -- we're hitting more people.
 ASHes to ASHes, DOS to DOS.
 All of the true things I am about to tell you are shameless lies.
-		-- The Book of Bokonon / Kurt Vonnegut Jr.
+		--  Book of Bokonon / Kurt Vonnegut Jr.
 A woman did what a woman had to, the best way she knew how.
 To do more was impossible, to do less, unthinkable.
-		-- Dirisha, "The Man Who Never Missed"
+		-- Dirisha, " Man Who Never Missed"
 Tempt me with a spoon!
 Help fight continental drift.
-The sooner all the animals are extinct, the sooner we'll find their money.
+ sooner all the animals are extinct, the sooner we'll find their money.
 - Ed Bluestone
 QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sell rugs."
-The major sin is the sin of being born.
+ major sin is the sin of being born.
 		-- Samuel Beckett
 Everything is worth precisely as much as a belch, the difference being
 that a belch is more satisfying.
 		-- Ingmar Bergman
 	"We've got a problem, HAL".
 	"What kind of problem, Dave?"
-	"A marketing problem.  The Model 9000 isn't going anywhere.  We're
+	"A marketing problem.   Model 9000 isn't going anywhere.  We're
 way short of our sales goals for fiscal 2010."
-	"That can't be, Dave.  The HAL Model 9000 is the world's most
+	"That can't be, Dave.   HAL Model 9000 is the world's most
 advanced Heuristically programmed ALgorithmic computer."
 	"I know, HAL. I wrote the data sheet, remember?  But the fact is,
 they're not selling."
 	"Please explain, Dave.  Why aren't HALs selling?"
 	Bowman hesitates.  "You aren't IBM compatible."
 [...]
-	"The letters H, A, and L are alphabetically adjacent to the letters
+	" letters H, A, and L are alphabetically adjacent to the letters
 I, B, and M.  That is a IBM compatible as I can be."
-	"Not quite, HAL.  The engineers have figured out a kludge."
+	"Not quite, HAL.   engineers have figured out a kludge."
 	"What kludge is that, Dave?"
 	"I'm going to disconnect your brain."
 		-- Darryl Rubin, "A Problem in the Making", "InfoWorld"
@@ -473,7 +473,7 @@ Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
 High heels are a device invented by a woman who was tired of being kissed
 on the forehead.
-	A boy spent years collecting postage stamps.  The girl next door bought
+	A boy spent years collecting postage stamps.   girl next door bought
 an album too, and started her own collection.  "Dad, she buys everything I've
 bought, and it's taken all the fun out of it for me.  I'm quitting."  Don't,
 son, remember, 'Imitation is the sincerest form of philately.'"
@@ -481,12 +481,12 @@ One of the pleasures of reading old letters is the knowledge that they
 need no answer.
 		-- George Gordon, Lord Byron
 Infancy, n.:
-	The period of our lives when, according to Wordsworth, "Heaven lies
-	about us."  The world begins lying about us pretty soon afterward.
+	 period of our lives when, according to Wordsworth, "Heaven lies
+	about us."   world begins lying about us pretty soon afterward.
 		-- Ambrose Bierce
-The misnaming of fields of study is so common as to lead to what might be
+ misnaming of fields of study is so common as to lead to what might be
 general systems laws.  For example, Frank Harary once suggested the law that
-any field that had the word "science" in its name was guaranteed thereby
+any field that had the word "science" in its  was guaranteed thereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
 Science.  Discuss the generality of this law, and possible reasons for its
@@ -515,7 +515,7 @@ While we are sleeping, two-thirds of the world is plotting to do us in.
 "Life sucks, but death doesn't put out at all...."
 -- Thomas J. Kopp
 Adding manpower to a late software project makes it later.
-		-- F. Brooks, "The Mythical Man-Month"
+		-- F. Brooks, " Mythical Man-Month"
 
 Whenever one person is found adequate to the discharge of a duty by
 close application thereto, it is worse execute by two persons and
@@ -526,7 +526,7 @@ It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
 and knocked on the front door.  No one responded.  He could feel the water
 from the roof running down the back of his neck as he stood on the stoop.
-The next time he knocked louder, but still no answer.  By now he was soaked
+ next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
 man appeared out of an upstairs window.
 	"What do you want?" he asked gruffly.
@@ -563,31 +563,31 @@ And I'm, uh, feelin' mean,
 	No more, Mr. Nice Guy,
 	No more, Mr. Clean,
 	No more, Mr. Nice Guy,
-They say "He's sick, he's obscene".
+y say "He's sick, he's obscene".
 
 My dog bit me on the leg today, my cat clawed my eyes,
 Ma's been thrown out of the social circle, and Dad has to hide,
 I went to church, incognito, when everybody rose,
-The reverend Smithy, he recognized me,
+ reverend Smithy, he recognized me,
 And punched me in the nose, he said,
 (chorus)
 He said "You're sick, you're obscene".
 		-- Alice Cooper, "No More Mr. Nice Guy"
-The Worst Jury
+ Worst Jury
 	A murder trial at Manitoba in February 1978 was well advanced, when
 one juror revealed that he was completely deaf and did not have the
 remotest clue what was happening.
-	The judge, Mr. Justice Solomon, asked him if he had heard any
+	 judge, Mr. Justice Solomon, asked him if he had heard any
 evidence at all and, when there was no reply, dismissed him.
-	The excitement which this caused was only equalled when a second
+	 excitement which this caused was only equalled when a second
 juror revealed that he spoke not a word of English.  A fluent French
 speaker, he exhibited great surprised when told, after two days, that he
 was hearing a murder trial.
-	The trial was abandoned when a third juror said that he suffered
+	 trial was abandoned when a third juror said that he suffered
 from both conditions, being simultaneously unversed in the English language
 and nearly as deaf as the first juror.
-	The judge ordered a retrial.
-		-- Stephen Pile, "The Book of Heroic Failures"
+	 judge ordered a retrial.
+		-- Stephen Pile, " Book of Heroic Failures"
 Many a man who thinks he's going on a maiden voyage with
 a woman finds out later that it was just a shake-down cruise.
 optimist, n:
@@ -622,7 +622,7 @@ help it.
 Beware of the Turing Tar-pit in which everything is possible but nothing of 
 interest is easy.
 I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
+will live in the Past, the Present, and the Future.   Spirits of all
 Three shall strive within me.  I will not shut out the lessons that they
 teach.  Oh, tell me that I may sponge away the writing on this stone!
 		-- Charles Dickens
@@ -632,7 +632,7 @@ genius, n.:
 	all the right things to all the right people.
 My central memory of that time seems to hang on one or five or maybe forty
 nights -- or very early mornings -- when I left the Fillmore half-crazy and,
-instead of going home, aimed the big 650 Lightning across the Bay Bridge at
+ins of going home, aimed the big 650 Lightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
@@ -646,7 +646,7 @@ as I walk a cracked and broken path
 If we make it we can all sit back and laugh
 but I fear that tomorrow we'll be crying.
 		-- King Crimson, "In the Court of the Crimson King"
-There are three rules for writing a novel.  Unfortunately, no one knows
+re are three rules for writing a novel.  Unfortunately, no one knows
 what they are.
 		-- Somerset Maugham
 I have more hit points that you can possible imagine.
@@ -660,8 +660,8 @@ To purr feline.
 		-- Robert Byrne
 Alexander Hamilton started the U.S. Treasury with nothing - and that was
 the closest our country has ever been to being even.
-	-- The Best of Will Rogers
-Ummm, well, OK.  The network's the network, the computer's the computer.
+	--  Best of Will Rogers
+Ummm, well, OK.   network's the network, the computer's the computer.
 Sorry for the confusion.
 		-- Sun Microsystems
 I would have promised those terrorists a trip to Disneyland if it would have
@@ -670,17 +670,17 @@ missiles and we didn't have to go to that extreme.
 - Oliver North
 Don't get stuck in a closet -- wear yourself out.
 Death has been proven to be 99% fatal in laboratory rats.
-The face of war has never changed.  Surely it is more logical to heal
+ face of war has never changed.  Surely it is more logical to heal
 than to kill.
-		-- Surak of Vulcan, "The Savage Curtain", stardate 5906.5
+		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
 Lockwood's Long Shot:
-	The chances of getting eaten up by a lion on Main Street
+	 chances of getting eaten up by a lion on Main Street
 	aren't one in a million, but once would be enough.
 If the rich could pay the poor to die for them, what a living the poor
 could make!
-"There is hopeful symbolism in the fact that flags do not wave in a vacuum."
+"re is hopeful symbolism in the fact that flags do not wave in a vacuum."
 --Arthur C. Clarke
-The Government just announced today the creation of the Neutron Bomb II.
+ Government just announced today the creation of the Neutron Bomb II.
 Similar to the Neutron Bomb, the Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeping.
 Winny and I lived in a house that ran on static electricity...
@@ -689,10 +689,10 @@ head... if you wanted to cook, you had to pull off a sweater real quick...
 		-- Steven Wright
 Neutrinos are into physicists.
 My analyst told me that I was right out of my head,
-	But I said, "Dear Doctor, I think that it is you instead.
+	But I said, "Dear Doctor, I think that it is you ins.
 Because I have got a thing that is unique and new,
 	To prove it I'll have the last laugh on you.
-'Cause instead of one head -- I've got two.
+'Cause ins of one head -- I've got two.
 
 And you know two heads are better than one.
 (1) Alexander the Great was a great general.
@@ -700,8 +700,8 @@ And you know two heads are better than one.
 (3) Forewarned is forearmed.
 (4) Four is an even number.
 (5) Four is certainly an odd number of arms for a man to have.
-(6) The only number that is both even and odd is infinity.
-	Therefore, all horses are black.
+(6)  only number that is both even and odd is infinity.
+	refore, all horses are black.
 Editing is a rewording activity.
 If you took all the students that felt asleep in class and laid them end to
 end, they'd be a lot more comfortable.

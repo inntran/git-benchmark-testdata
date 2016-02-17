@@ -24,20 +24,20 @@ Everywhere I look I see NEGATIVITY and ASPHALT ...
 You know you have a small apartment when Rice Krispies echo.
 		-- S. Rickly Christian
 It is not necessary to inquire whether a woman would like something for
-dessert.  The answer is yes, she would like something for dessert, but
+dessert.   answer is yes, she would like something for dessert, but
 she would like you to order it so she can pick at it with your fork.  She
 does not want you to call attention to this by saying, 'If you wanted a
 dessert, why didn't you order one?'  You must understand, she has the
-dessert she wants.  The dessert she wants is contained within yours.
+dessert she wants.   dessert she wants is contained within yours.
 		-- Merrill Marcoe, "An Insider's Guide to the American Woman"
-There's a way out of any cage.
-		-- Captain Christopher Pike, "The Menagerie" ("The Cage"),
+re's a way out of any cage.
+		-- Captain Christopher Pike, " Menagerie" (" Cage"),
 		   stardate unknown.
-The human mind treats a new idea the way the body treats a strange
+ human mind treats a new idea the way the body treats a strange
 protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
-MESSAGE ACKNOWLEDGED -- The Pershing II missiles have been launched.
+MESSAGE ACKNOWLEDGED --  Pershing II missiles have been launched.
 He who despairs over an event is a coward, but he who holds hopes for
 the human condition is a fool.
 		-- Albert Camus
@@ -52,7 +52,7 @@ QOTD:
 "To vacillate or not to vacillate, that is the question ... or is it?"
 To find a friend one must close one eye; to keep him -- two.
 		-- Norman Douglas
-The Worst Car Hire Service
+ Worst Car Hire Service
 	When David Schwartz left university in 1972, he set up Rent-a-wreck
 as a joke.  Being a natural prankster, he acquired a fleet of beat-up
 shabby, wreckages waiting for the scrap heap in California.
@@ -68,5 +68,5 @@ we might overlook that too."
 	"Where's the ashtray?" asked on Los Angeles wife, as she settled
 into the ripped interior.  "Honey," said her husband, "the whole car's the
 ash tray."
-		-- Stephen Pile, "The Book of Heroic Failures"
-The 80's -- when you can't tell hairstyles from chemotherapy.
+		-- Stephen Pile, " Book of Heroic Failures"
+ 80's -- when you can't tell hairstyles from chemotherapy.

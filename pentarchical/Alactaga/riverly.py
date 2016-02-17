@@ -8,11 +8,11 @@ is to enforce the law and fight crime.
 After a few boring years, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced than the lichen family.
-		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
+		-- Dave Barry, "Kids Today: y Don't Know Dum Diddly Do"
 If our behavior is strict, we do not need fun!
 We all live under the same sky, but we don't all have the same horizon.
 		-- Dr. Konrad Adenauer
-The annual meeting of the "You Have To Listen To Experience" Club is now in
+ annual meeting of the "You Have To Listen To Experience" Club is now in
 session.  Our Achievement Awards this year are in the fields of publishing,
 advertising and industry.  For best consistent contribution in the field of
 publishing our award goes to editor, R.L.K., [...] for his unrivalled alle-
@@ -39,13 +39,13 @@ When Yahweh your gods has settled you in the land you're about to occupy, and
 driven out many infidels before you...you're to cut them down and exterminate
 them.  You're to make no compromise with them or show them any mercy.
 [Deut. 7:1 (KJV)]
-There's a lot to be said for not saying a lot.
+re's a lot to be said for not saying a lot.
 	Horses are forbidden to eat fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
 It's difficult to see the picture when you are inside the frame.
 And thou shalt eat it as barley cakes, and thou shalt bake it with dung that
-cometh out of man, in their sight...Then he [the Lord!] said unto me, Lo, I
+cometh out of man, in their sight...n he [the Lord!] said unto me, Lo, I
 have given thee cow's dung for man's dung, and thou shalt prepare thy bread
 therewith.
 [Ezek. 4:12-15 (KJV)]
@@ -53,20 +53,20 @@ therewith.
 by staff writers
 
 	...
-	The central Superhighway site called ``sunsite.unc.edu''
-collapsed in the morning before the release.  News about the release had
+	 central Superhighway site called ``sunsite.unc.edu''
+colsed in the morning before the release.  News about the release had
 been leaked by a German hacker group, Harmonious Hardware Hackers, who
-had cracked into the author's computer earlier in the week.  They had
+had cracked into the author's computer earlier in the week.  y had
 got the release date wrong by one day, and caused dozens of eager fans
 to connect to the sunsite computer at the wrong time.  ``No computer can
 handle that kind of stress,'' explained the mourning sunsite manager,
-Erik Troan.  ``The spinning disks made the whole computer jump, and
+Erik Troan.  `` spinning disks made the whole computer jump, and
 finally it crashed through the floor to the basement.''  Luckily,
 repairs were swift and the computer was working again the same evening.
 ``Thank God we were able to buy enough needles and thread and patch it
-together without major problems.''  The site has also installed a new
+together without major problems.''   site has also installed a new
 throttle on the network pipe, allowing at most four clients at the same
-time, thus making a new crash less likely.  ``The book is now in our
+time, thus making a new crash less likely.  `` book is now in our
 Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
 		-- Lars Wirzenius <wirzeniu@cs.helsinki.fi>
 		   [comp.os.linux.announce]
@@ -75,7 +75,7 @@ end, they'd be a lot more comfortable.
 		-- "Graffiti in the Big Ten"
 In 1962, you could buy a pair of SHARKSKIN SLACKS, with a "Continental
 Belt," for $10.99!!
-The most delightful day after the one on which you buy a cottage in
+ most delightful day after the one on which you buy a cottage in
 the country is the one on which you resell it.
 		-- J. Brecheux
 He who despairs over an event is a coward, but he who holds hopes for
@@ -89,7 +89,7 @@ Finagle's Third Law:
 
 Corollaries:
 	(1) Nobody whom you ask for help will see it.
-	(2) The first person who stops by, whose advice you really
+	(2)  first person who stops by, whose advice you really
 	    don't want to hear, will see it immediately.
 Advancement in position.
 toilet toup'ee, n.:
@@ -100,7 +100,7 @@ It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
 and knocked on the front door.  No one responded.  He could feel the water
 from the roof running down the back of his neck as he stood on the stoop.
-The next time he knocked louder, but still no answer.  By now he was soaked
+ next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the door.  At last the head of a
 man appeared out of an upstairs window.
 	"What do you want?" he asked gruffly.
@@ -121,8 +121,8 @@ I'd LOVE to, but...
 	-- I'm touring China with a wok band.
 	-- My chocolate-appreciation class meets that night.
 	-- I'm running off to Yugoslavia with a foreign-exchange student
-		named Basil Metabolism.
-	-- There are important world issues that need worrying about.
+		d Basil Metabolism.
+	-- re are important world issues that need worrying about.
 	-- I'm going to count the bristles in my toothbrush.
 	-- I prefer to remain an enigma.
 	-- I think you want the OTHER Peggy/Cathy/Mike/whomever.
@@ -142,7 +142,7 @@ QED: A sheet of paper is a lazy dog.
 		-- Willard Espy, "An Almanac of Words at Play"
 Be careful when a loop exits to the same place from side and bottom.
 I've always considered statesmen to be more expendable than soldiers.
-The English country gentleman galloping after a fox -- the unspeakable
+ English country gentleman galloping after a fox -- the unspeakable
 in full pursuit of the uneatable.
 		-- Oscar Wilde, "A Woman of No Importance"
 Woman on Street:	Sir, you are drunk; very, very drunk.
@@ -150,13 +150,13 @@ Winston Churchill:	Madame, you are ugly; very, very ugly.
 			I shall be sober in the morning.
 ... a thing called Ethics, whose nature was confusing but if you had it you
 were a High-Class Realtor and if you hadn't you were a shyster, a piker and
-a fly-by-night.  These virtues awakened Confidence and enabled you to handle
+a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But they didn't imply that you were to be impractical
 and refuse to take twice the value for a house if a buyer was such an idiot
 that he didn't force you down on the asking price.
 		-- Sinclair Lewis, "Babbitt"
 "A horrible little boy came up to me and said, `You know in your book
-The Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
+ Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
 talk about Deimos rising in the East?'  I said, `Yes?'  He said `No.'
 -- So I hit him."
 		-- attributed to Ray Bradbury
@@ -164,18 +164,18 @@ If ignorance is bliss, why aren't there more happy people?
 QOTD:
 	"I may not be able to walk, but I drive from the sitting posistion."
 Immutability, Three Rules of:
-	(1)  If a tarpaulin can flap, it will.
+	(1)  If a tarpaulin can f, it will.
 	(2)  If a small boy can get dirty, he will.
 	(3)  If a teenager can go out, he will.
-The scum also rises.
+ scum also rises.
 		-- Dr. Hunter S. Thompson
 Gold, n.:
 	A soft malleable metal relatively scarce in distribution.  It
 	is mined deep in the earth by poor men who then give it to rich
 	men who immediately bury it back in the earth in great prisons,
 	although gold hasn't done anything to them.
-		-- Mike Harding, "The Armchair Anarchist's Almanac"
-The door is the key.
+		-- Mike Harding, " Armchair Anarchist's Almanac"
+ door is the key.
 Proposed Additions to the PDP-11 Instruction Set:
 
 PI	Punch Invalid
@@ -198,7 +198,7 @@ Work is the curse of the drinking classes.
 		-- Mike Romanoff
 Should I start with the time I SWITCHED personalities with a BEATNIK
 hair stylist or my failure to refer five TEENAGERS to a good OCULIST?
-Karlson's Theorem of Snack Food Packages:
+Karlson's orem of Snack Food Packages:
 	For all P, where P is a package of snack food, P is a SINGLE-SERVING
 	package of snack food.
 
@@ -208,7 +208,7 @@ Gibson the Cat's Corrolary:
 Don't worry if you're a kleptomaniac; you can always take something for it.
 Weekend, where are you?
 To thine own self be true.  (If not that, at least make some money.)
-There has been an alarming increase in the number of things you know
+re has been an alarming increase in the number of things you know
 nothing about.
 Calling you stupid is an insult to stupid people!
 		-- Wanda, "A Fish Called Wanda"
@@ -221,16 +221,16 @@ concern to be different, the African apes would be included in our
 family, the Hominidae.
 - Richard Leakey
 	"Well, it's , ugly, and derelicts have used it for a toilet.
-The rides are dilapidated to the point of being lethal, and could easily
+ rides are diidated to the point of being lethal, and could easily
 maim or kill innocent little children."
 	"Oh, so you don't like it?"
 	"Don't like it?  I'm CRAZY for it."
-		-- The Killing Joke
-		The Guy on the Right Doesn't Stand a Chance
-The guy on the right has the Osborne 1, a fully f computer system
-in a portable package the size of a briefcase.  The guy on the left has an
+		--  Killing Joke
+		 Guy on the Right Doesn't Stand a Chance
+ guy on the right has the Osborne 1, a fully f computer system
+in a portable package the size of a briefcase.   guy on the left has an
 Uzi submachine gun concealed in his attache case.  Also in the case are four
-fully loaded, 32-round clips of 125-grain 9mm ammunition.  The owner of the
+fully loaded, 32-round clips of 125-grain 9mm ammunition.   owner of the
 Uzi is going to get more tactical firepower delivered -- and delivered on
 target -- in less time, and with less effort.  All for $795. It's inevitable.
 If you're going up against some guy with an Osborne 1 -- or any personal 
@@ -250,11 +250,11 @@ as the strawberries, knows nothing about grapes.
 		-- Philippus Paracelsus
 Satire is what closes in New Haven.
 Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
-To see the butcher slap the steak, before he laid it on the block,
+		-- Wm. Shakespeare, " Tempest"
+To see the butcher s the steak, before he laid it on the block,
 and give his knife a sharpening, was to forget breakfast instantly.  It was
 agreeable, too -- it really was -- to see him cut it off, so smooth and juicy.
-There was nothing savage in the act, although the knife was large and keen;
+re was nothing savage in the act, although the knife was large and keen;
 it was a piece of art, high art; there was delicacy of touch, clearness of
 tone, skilful handling of the subject, fine shading.  It was the triumph of
 mind over m; quite.
@@ -274,11 +274,11 @@ told you once, I've told you a thousand times, resist hyperbole.  Also,
 avoid awkward or affected alliteration.  Don't string too many prepositional
 phrases together unless you are walking through the valley of the shadow of
 death.  "Avoid overuse of 'quotation "marks."'"
-"The preeminence of a learned man over a worshiper is equal to the preeminence
+" preeminence of a learned man over a worshiper is equal to the preeminence
 of the moon, at the night of the full moon, over all the stars.  Verily, the
 learned men are the heirs of the Prophets."
 -- A tradition attributed to Muhammad
-There will be big changes for you but you will be happy.
+re will be big changes for you but you will be happy.
 Well, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 What, after all, is a halo?  It's only one more thing to keep clean.
@@ -289,13 +289,13 @@ with income tax policies.
 You're being followed.  Cut out the hanky-panky for a few days.
 My mother loved children -- she would have given anything if I had been one.
 		-- Groucho Marx
-The moon is made of green cheese.
+ moon is made of green cheese.
 		-- John Heywood
 All the evidence concerning the universe has not yet been collected,
 so there's still hope.
 Bacon's not the only thing that's cured by hanging from a string.
 Wasting time is an important part of living.
-The best portion of a good man's life, his little, nameless, unremembered acts
+ best portion of a good man's life, his little, less, unremembered acts
 of kindness and love.
 		-- Wordsworth
 For an idea to be fashionable is ominous, since it must afterwards be
@@ -303,7 +303,7 @@ always old-fashioned.
 Technological progress has merely provided us with more efficient means
 for going backwards.
 		-- Aldous Huxley
-There is a 20% chance of tomorrow.
+re is a 20% chance of tomorrow.
 God is really only another artist.  He invented the giraffe, the elephant
 and the cat.  He has no real style, He just goes on trying other things.
 		-- Pablo Picasso
@@ -315,7 +315,7 @@ your human intuition.
 		-- Spock, "Assignment: Earth", stardate unknown
 Imagine what we can imagine!
 		-- Arthur Rubinstein
-The English have no respect for their language, and will not teach
+ English have no respect for their language, and will not teach
 their children to speak it.
 		-- G. B. Shaw
 YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIELD OF PAPER SHUFFLING!
@@ -333,7 +333,7 @@ you earn your MDL degree from MIT Tech your future will be brighter.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 In the plot, people came to the land; the land loved them; they worked and
-struggled and had lots of children.  There was a Frenchman who talked funny
+struggled and had lots of children.  re was a Frenchman who talked funny
 and a greenhorn from England who was a fancy-pants but when it came to the
 crunch he was all courage.  Those novels would make you retch.
 		-- Canadian novelist Robertson Davies, on the generic Canadian
@@ -348,9 +348,9 @@ Go on, EMOTE!  I was RAISED on thought balloons!!
 Men use thought only to justify their wrong doings, and speech only to
 conceal their thoughts.
 		-- Voltaire
-The hater of property and of government takes care to have his warranty
+ hater of property and of government takes care to have his warranty
 deed recorded, and the book written against fame and learning has the
-author's name on the title page.
+author's  on the title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 C++ is the best example of second-system effect since OS/360.
 Faith may be defined briefly as an illogical belief in the occurence of the
@@ -361,7 +361,7 @@ April, June, and no wonder.
 all the rest have peanut butter
 except my father who wears red suspenders."
 Why is it called a funny bone when it hurts so much?
-The opossum is a very sophisticated animal.  It doesn't even get up
+ opossum is a very sophisticated animal.  It doesn't even get up
 until 5 or 6 PM.
 Most people have a furious itch to talk about themselves and are restrained
 only by the disinclination of others to listen.  Reserve is an artificial
@@ -375,5 +375,5 @@ Yevtushenko has... an ego that can crack crystal at a distance of twenty feet.
 He is considered a most graceful speaker who can say nothing in the most words.
 Today is the first day of the rest of your lossage.
 Thrashing is just virtual crashing.
-The story you are about to hear is true.  Only the names have been
+ story you are about to hear is true.  Only the s have been
 changed to protect the innocent.

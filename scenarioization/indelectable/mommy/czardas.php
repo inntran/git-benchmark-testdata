@@ -11,14 +11,14 @@ what it does.
 Stay together, drag each other down.
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 X windows:
-	The ultimate bottleneck.
+	 ultimate bottleneck.
 	Flawed beyond belief.
-	The only thing you have to fear.
+	 only thing you have to fear.
 	Somewhere between chaos and insanity.
 	On autopilot to oblivion.
-	The joke that kills.
+	 joke that kills.
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
 	Belongs more to the problem set than the solution set.
@@ -28,8 +28,8 @@ X windows:
 	Built to fall apart.
 	Nullifying centuries of progress.
 	Falling to new depths of inefficiency.
-	The last thing you need.
-	The defacto substandard.
+	 last thing you need.
+	 defacto substandard.
 
 Elevating brain damage to an art form.
 	X windows.
@@ -42,7 +42,7 @@ permitted.  And in Italy, under the law, everything is permitted,
 especially that which is prohibited.
 		-- Newton Minow,
 		Speech to the Association of American Law Schools, 1985
-The water was not fit to drink.  To make it palatable, we had to add whiskey.
+ water was not fit to drink.  To make it palatable, we had to add whiskey.
 By diligent effort, I learned to like it.
 		-- Winston Churchill
 Good advice is one of those insults that ought to be forgiven.
@@ -52,12 +52,12 @@ there is nothing in it.
 "All snakes who wish to remain in Ireland will please raise their right hands."
 		-- Saint Patrick
 While Europe's eye is fix'd on mighty things,
-The fate of empires and the fall of kings;
+ fate of empires and the fall of kings;
 While quacks of State must each produce his plan,
 And even children lisp the Rights of Man;
 Amid this mighty fuss just let me mention,
-The Rights of Woman merit some attention.
-		-- Robert Burns, Address on "The Rights of Woman", 26/10 1792
+ Rights of Woman merit some attention.
+		-- Robert Burns, Address on " Rights of Woman", 26/10 1792
 "What is the Nature of God?"
 
     CLICK...CLICK...WHIRRR...CLICK...=BEEP!=
@@ -73,23 +73,23 @@ over 80 you are neglecting your golf.
 		-- Walter Hagen
 Fly Windows NT:
 All the passengers carry their seats out onto the tarmac, placing the chairs
-in the outline of a plane. They all sit down, flap their arms and make jet
+in the outline of a plane. y all sit down, f their arms and make jet
 swooshing sounds as if they are flying.
 A waist is a terrible thing to mind.
 		-- Ziggy
 OS/2 Skyways:
-The terminal is almost empty, with only a few prospective passengers milling
-about. The announcer says that their flight has just departed, wishes them a
+ terminal is almost empty, with only a few prospective passengers milling
+about.  announcer says that their flight has just departed, wishes them a
 good flight, though there are no planes on the runway. Airline personnel
 walk around, apologising profusely to customers in hushed voices, pointing
 from time to time to the sleek, powerful jets outside the terminal on the
-field. They tell each passenger how good the real flight will be on these
+field. y tell each passenger how good the real flight will be on these
 new jets and how much safer it will be than Windows Airlines, but that they
 will have to wait a little longer for the technicians to finish the flight
 systems. Maybe until mid-1995. Maybe longer.
 If what they've been doing hasn't solved the problem, tell them to
 do something else.
-	-- Gerald Weinberg, "The Secrets of Consulting"
+	-- Gerald Weinberg, " Secrets of Consulting"
 You know the great thing about TV?  If something important happens
 anywhere at all in the world, no m what time of the day or night,
 you can always change the channel.
@@ -100,13 +100,13 @@ news: gotcha
 Lawrence Radiation Laboratory keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
-"The wages of sin are death; but after they're done taking out taxes,
+" wages of sin are death; but after they're done taking out taxes,
 it's just a tired feeling:"
 Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	you can find it.  Murphy's Law applies to Newton's.
 It used to be the fun was in
-The capture and kill.
+ capture and kill.
 In another place and time
 I did it all for thrills.
 		-- Lust to Love
@@ -128,23 +128,23 @@ Famous last words:
 	(4) We won't need reservations.
 	(5) It's always sunny there this time of the year.
 	(6) Don't worry, it's not loaded.
-	(7) They'd never (be stupid enough to) make him a manager.
+	(7) y'd never (be stupid enough to) make him a manager.
 	(8) Don't worry!  Women love it!
 I've always considered statesmen to be more expendable than soldiers.
 Conscience is what hurts when everything else feels so good.
-	The salesman and the system analyst took off to spend a weekend in the
-forest, hunting bear.  They'd rented a cabin, and, when they got there, took
+	 salesman and the system analyst took off to spend a weekend in the
+forest, hunting bear.  y'd rented a cabin, and, when they got there, took
 their backpacks off and put them inside.  At which point the salesman turned
 to his friend, and said, "You unpack while I go and find us a bear."
 	Puzzled, the analyst finished unpacking and then went and sat down
-on the porch.  Soon he could hear rustling noises in the forest.  The noises
+on the porch.  Soon he could hear rustling noises in the forest.   noises
 got nearer -- and louder -- and suddenly there was the salesman, running like
 hell across the clearing toward the cabin, pursued by one of the largest and
 most ferocious grizzly bears the analyst had ever seen.
 	"Open the door!", screamed the salesman.
-	The analyst whipped open the door, and the salesman ran to the door,
-suddenly stopped, and stepped aside.  The bear, unable to stop, continued
-through the door and into the cabin.  The salesman slammed the door closed
+	 analyst whipped open the door, and the salesman ran to the door,
+suddenly stopped, and stepped aside.   bear, unable to stop, continued
+through the door and into the cabin.   salesman slammed the door closed
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin this
 one and I'll go rustle us up another!"
 "Once he had one leg in the White House and the nation trembled under his 
@@ -163,7 +163,7 @@ Any circuit design must contain at least one part which is obsolete, two parts
 which are unobtainable, and three parts which are still under development.
 "A fractal is by definition a set for which the Hausdorff Besicovitch
 dimension strictly exceeds the topological dimension."
--- Mandelbrot, _The Fractal Geometry of Nature_
+-- Mandelbrot, _ Fractal Geometry of Nature_
 Iam
 not
 very
@@ -180,11 +180,11 @@ Fortunately, the responsibility for providing evidence is on the part of
 the person making the claim, not the critic.  It is not the responsibility
 of UFO skeptics to prove that a UFO has never existed, nor is it the
 responsibility of paranormal-health-claims skeptics to prove that crystals
-or colored lights never healed anyone.  The skeptic's role is to point out
+or colored lights never healed anyone.   skeptic's role is to point out
 claims that are not adequately supported by acceptable evidcence and to
 provide plausible alternative explanations that are more in keeping with
 the accepted body of scientific evidence.
-		-- Thomas L. Creed, The Skeptical Inquirer, Vol. XII,
+		-- Thomas L. Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215
-The proof of the pudding is in the eating.
+ proof of the pudding is in the eating.
 		-- Miguel de Cervantes

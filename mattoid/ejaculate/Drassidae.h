@@ -14,7 +14,7 @@ the astrological influence. . . .If so, astrological predictions -- like those
 of any scientific field -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of their
 efficacy, so in the last two decades scientists and statisticians have
- done such testing for them.  There have been dozens of well-designed
+ done such testing for them.  re have been dozens of well-designed
 tests all around the world, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
 in the real (and fascinating) universe beyond our planet, and not let them
@@ -24,7 +24,7 @@ the firelight, afraid of the night.
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 Norm:  Gentlemen, start your taps.
-		-- Cheers, The Coach's Daughter
+		-- Cheers,  Coach's Daughter
 
 Coach: How's life treating you, Norm?
 Norm:  Like it caught me in bed with his wife.
@@ -35,15 +35,15 @@ Norm:  Not for the squeamish, Coach.
 		-- Cheers, Friends, Romans, and Accountants
 "More software projects have gone awry for lack of calendar time than for all
  other causes combined."
--- Fred Brooks, Jr., _The Mythical Man Month_
+-- Fred Brooks, Jr., _ Mythical Man Month_
 Many pages make a thick book.
-The best way to accelerate a Macintoy is at 9.8 meters per second per second.
-The Great Movie Posters:
+ best way to accelerate a Macintoy is at 9.8 meters per second per second.
+ Great Movie Posters:
 
-When You're Six Tons -- And They Call You Killer -- It's Hard To Make Friends...
+When You're Six Tons -- And y Call You Killer -- It's Hard To Make Friends...
 		-- Namu, the Killer Whale (1966)
 
-Meet the Girls with the Thermo-Nuclear Navels!
+Meet the Girls with the rmo-Nuclear Navels!
 		-- Dr. Goldfoot and the Girl Bombs (1966)
 
 A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
@@ -61,7 +61,7 @@ When in doubt, have a man come through the door with a gun in his hand.
 In Africa some of the native tribes have a custom of beating the ground
 with clubs and uttering spine chilling cries.  Anthropologists call
 this a form of primitive self-expression.  In America we call it golf.
-The price of seeking to force our beliefs on others is that someday
+ price of seeking to force our beliefs on others is that someday
 they might force their beliefs on us.
 		-- Mario Cuomo
 UH-OH!!  I think KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
@@ -70,7 +70,7 @@ This conjunction of an immense military establishment and a large arms
 industry is now in the American experience... We must not fail to 
 comprehend its grave implications... We must guard against the 
 acquisition of unwarranted influence...by the military-industrial
-complex.  The potential for the disastrous rise of misplaced power
+complex.   potential for the disastrous rise of misplaced power
 exists and will persist.
 - Dwight D. Eisenhower, from his farewell address in 1961
 Veni, vidi, vici.
@@ -80,7 +80,7 @@ Experience is what you get when you didn't get what you wanted.
 "She said, `I know you ... you cannot sing'.  I said, `That's nothing,
 you should hear me play piano.'"
 		-- Morrisey
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+y spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
 always spell better than they pronounce.
 		-- Mark Twain
 [Norm goes into the bar at Vic's Bowl-A-Rama.]
@@ -92,22 +92,22 @@ Cliff: He's got a life, you know.
 
 Woody: What can I do for you, Mr. Peterson?
 Norm:  Elope with my wife.
-		-- Cheers, The Triangle
+		-- Cheers,  Triangle
 
 Woody: How's life, Mr. Peterson?
 Norm:  Oh, I'm waiting for the movie.
 		-- Cheers, Take My Shirt... Please?
 Famous last words:
 I BET WHEN NEANDERTHAL KIDS would make a snowman, someone would always
-end up saying, "Don't forget the thick heavy brows."  Then they would get
+end up saying, "Don't forget the thick heavy brows."  n they would get
 embarrassed because they remembered they had the big hunky brows too, and
 they'd get mad and eat the snowman.
-		-- Jack Handley, The New Mexican, 1988.
+		-- Jack Handley,  New Mexican, 1988.
 When the bosses talk about improving productivity, they are never talking
 about themselves.
 I loved her with a love thirsty and desperate. I felt that we two might commit
 some act so atrocious that the world, seeing us, would find it irresistible.
-		-- Gene Wolfe, "The Shadow of the Torturer"
+		-- Gene Wolfe, " Shadow of the Torturer"
 PARDON me, am I speaking ENGLISH?
 "All snakes who wish to remain in Ireland will please raise their right hands."
 		-- Saint Patrick
@@ -127,11 +127,11 @@ One cannot make an omelette without breaking eggs -- but it is amazing
 how many eggs one can break without making a decent omelette.
 		-- Professor Charles P. Issawi
 Good government never depends upon laws, but upon the personal qualities of
-those who govern.  The machinery of government is always subordinate to the
-will of those who administer that machinery.  The most important element of
+those who govern.   machinery of government is always subordinate to the
+will of those who administer that machinery.   most important element of
 government, therefore, is the method of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
-	There once was this swami who lived above a delicatessan.  Seems one
+	re once was this swami who lived above a delicatessan.  Seems one
 day he decided to stop in downstairs for some fresh liver.  Well, the owner
 of the deli was a bit of a cheap-skate, and decided to pick up a little extra
 change at his customer's expense.  Turning quietly to the counterman, he
@@ -147,33 +147,33 @@ Why are the programmers resigning one by one?
 Because they are burnt out.
 
 Having worked for poor management, they no longer value their jobs.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, " Tao of Programming"
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 It has been observed that one's nose is never so happy as when it is
-thrust into the affairs of another, from which some physiologists have
+thrust into the affairs of another, from which some s have
 drawn the inference that the nose is devoid of the sense of smell.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Avoid the Gates of Hell.  Use Linux
 (Unknown source)
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
 Los Angeles.  Disregard personal feelings about city and intercept."
--- The Firesign Theatre movie, _J-Men Forever_
+--  Firesign atre movie, _J-Men Forever_
 Love sometimes expresses itself in sacrifice.
 		-- Kirk, "Metamorphosis", stardate 3220.3
 Peace is much more precious than a piece of land... let there be no more wars.
 		-- Mohammed Anwar Sadat, 1918-1981
 Most people have a mind that's open by appointment only.
-The history of the rise of Christianity has everything to do with politics,
+ history of the rise of Christianity has everything to do with politics,
 culture, and human frailties and nothing to do with supernatural manipulation
 I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
 of events.  Had divine intervention been the guiding force, surely two
 millennia after the birth of Jesus he would not have a world where there
 are more Muslims than Catholics, more Hindus than Protestants, and more
 nontheists than Catholics and Protestants combined.
--- John K. Naland, "The First Easter", Free Inquiry magazine, Vol. 8, No. 2
+-- John K. Naland, " First Easter", Free Inquiry magazine, Vol. 8, No. 2
 If you sit down at a poker game and don't see a sucker, get up.  You're
 the sucker.
-The program isn't debugged until the last user is dead.
+ program isn't debugged until the last user is dead.
 We thrive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
 size apartments "efficient" and incomprehensible artworks "innovative".  In
 fact, "euphemism" has become a euphemism for "bald-faced lie".  And now, here
@@ -206,7 +206,7 @@ A New York City ordinance prohibits the shooting of rabbits from the
 rear of a Third Avenue street car -- if the car is in motion.
 Can't act.  Slightly bald.  Also dances.
 		-- RKO executive, reacting to Fred Astaire's screen test.
-		   Cerf/Navasky, "The Experts Speak"
+		   Cerf/Navasky, " Experts Speak"
 Everything that you know is wrong, but you can be straightened out.
 	Once upon a time there was a beautiful young girl taking a stroll 
 through the woods.  All at once she saw an extremely ugly bull frog seated 
@@ -219,7 +219,7 @@ help you break such a spell."
 	"Well," replied the frog, "the only way that this spell can be
 taken away is for some lovely young woman to take me home and let me spend
 the night under her pillow."
-	The young girl took the ugly frog home and placed him beneath her
+	 young girl took the ugly frog home and placed him beneath her
 pillow that night when she retired.  When she awoke the next morning, sure
 enough, there beside her in bed was a very young, handsome man, clearly of
 royal blood.  And so they lived happily ever after, except that to this day
@@ -230,7 +230,7 @@ Money may buy friendship but money cannot buy love.
 In Brooklyn, we had such great pennant races, it made the World Series
 just something that came later.
 		-- Walter O'Malley, Dodgers owner
-The Killer Ducks are coming!!!
+ Killer Ducks are coming!!!
 If I can have honesty, it's easier to overlook mistakes.
 		-- Kirk, "Space Seed", stardate 3141.9
 Alcohol is the anesthesia by which we endure the operation of life.
@@ -242,7 +242,7 @@ On the eighth day, God created FORTRAN.
 	... This striving for excellence extends into people's personal
 lives as well.  When '80s people buy something, they buy the best one, as
 determined by (1) price and (2) lack of availability. Eighties people buy
-imported dental floss.  They buy gourmet baking soda.  If an '80s couple
+imported dental floss.  y buy gourmet baking soda.  If an '80s couple
 goes to a restaurant where they have made a reservation three weeks in
 advance, and they are informed that their table is available, they stalk
 out immediately, because they know it is not an excellent restaurant.  If
@@ -255,21 +255,21 @@ This novel is not to be tossed lightly aside, but to be hurled with great force.
 		-- Dorothy Parker
 Positive, adj.:
 	Mistaken at the top of one's voice.
-		-- Ambrose Bierce, "The Devil's Dictionary"
+		-- Ambrose Bierce, " Devil's Dictionary"
 Television is a medium because anything well done is rare.
 		-- attributed to both Fred Allen and Ernie Kovacs
 Lucas is the source of many of the components of the legendarily reliable
-British automotive electrical systems.  Professionals call the company "The
+British automotive electrical systems.  Professionals call the company "
 Prince of Darkness".  Of course, if Lucas were to design and manufacture
-nuclear weapons, World War III would never get off the ground.  The British
-don't like warm beer any more than the Americans do.  The British drink warm
+nuclear weapons, World War III would never get off the ground.   British
+don't like warm beer any more than the Americans do.   British drink warm
 beer because they have Lucas refrigerators.
 Modern man is the missing link between apes and human beings.
 It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+		-- William Shakespeare, " Merchant of Venice"
 Sum quod eris.
 You see but you do not observe.
-Sir Arthur Conan Doyle, in "The Memoirs of Sherlock Holmes"
+Sir Arthur Conan Doyle, in " Memoirs of Sherlock Holmes"
 Fortune's graffito of the week (or maybe even month):
 
 		Don't Write On Walls!
@@ -282,7 +282,7 @@ Dr. Livingston?
 Dr. Livingston I. Presume?
 Ever wondered about the origins of the term "bugs" as applied to computer
 technology?  U.S. Navy Capt. Grace Murray Hopper has firsthand explanation.
-The 74-year-old captain, who is still on active duty, was a pioneer in 
+ 74-year-old captain, who is still on active duty, was a pioneer in 
 computer technology during World War II.  At the C.W. Post Center of Long
 Island University, Hopper told a group of Long Island public school adminis-
 trators that the first computer "bug" was a real bug--a moth.  At Harvard
@@ -313,20 +313,20 @@ Fortune's diet truths:
 2:  Any recipe calling for soybeans tastes like mud.
 3:  Carob is not an acceptable substitute for chocolate.  In fact, carob is not
     an acceptable substitute for anything, except, perhaps, brown shoe polish.
-4:  There is no such thing as a "fun salad."  So let's stop pretending and see
+4:  re is no such thing as a "fun salad."  So let's stop pretending and see
     salads for what they are:  God's punishment for being fat.
 5:  Fruit salad without maraschino cherries and marshmallows is about as
     appealing as tepid beer.
 6:  A world lacking gravy is a tragic place!
 7:  You should immediately pass up any recipes entitled "luscious and
-    low-cal."  Also skip dishes featuring "lively liver."  They aren't and
+    low-cal."  Also skip dishes featuring "lively liver."  y aren't and
     it isn't.
 8:  Wearing a blindfold often makes many diet foods more palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!
-10: Okra tastes slightly worse than its name implies.
+10: Okra tastes slightly worse than its  implies.
 11: A plain baked potato isn't worth the effort involved in chewing and
     swallowing.
-The end of the world will occur at three p.m., this Friday, with
+ end of the world will occur at three p.m., this Friday, with
 symposium to follow.
 HELLO, everybody, I'm a HUMAN!!
 O Lord, grant that we may always be right, for Thou knowest we will
@@ -335,13 +335,13 @@ Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	you can find it.  Murphy's Law applies to Newton's.
 	Mr. Jones related an incident from "some time back" when IBM Canada
-Ltd. of Markham, Ont., ordered some parts from a new supplier in Japan.  The
+Ltd. of Markham, Ont., ordered some parts from a new supplier in Japan.  
 company noted in its order that acceptable quality allowed for 1.5 per cent
 defects (a fairly high standard in North America at the time).
-	The Japanese sent the order, with a few parts packaged separately in
-plastic. The accompanying letter said: "We don't know why you want 1.5 per
+	 Japanese sent the order, with a few parts packaged separately in
+plastic.  accompanying letter said: "We don't know why you want 1.5 per
 cent defective parts, but for your convenience, we've packed them separately."
-		-- Excerpted from an article in The (Toronto) Globe and Mail
+		-- Excerpted from an article in  (Toronto) Globe and Mail
 Sometimes, too long is too long.
 		-- Joe Crowe
 Are you making all this up as you go along?

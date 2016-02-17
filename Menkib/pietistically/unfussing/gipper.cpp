@@ -1,11 +1,11 @@
 Woke up this mornin' an' I had myself a beer,
 Yeah, Ah woke up this mornin' an' I had myself a beer
-The future's uncertain and the end is always near.
+ future's uncertain and the end is always near.
 		-- Jim Morrison, "Roadhouse Blues"
 Worth seeing?  Yes, but not worth going to see.
 Godwin's Law (prov.  [Usenet]):
 	As a Usenet discussion grows longer, the probability of a
-	comparison involving Nazis or Hitler approaches one." There is a
+	comparison involving Nazis or Hitler approaches one." re is a
 	tradition in many groups that, once this occurs, that thread is
 	over, and whoever mentioned the Nazis has automatically lost
 	whatever argument was in progress.  Godwin's Law thus guarantees
@@ -40,15 +40,15 @@ you about himself; and a brilliant conversationalist is one who talks to
 you about yourself.
 		-- Lisa Kirk
 Your lucky number has been disconnected.
-The 357.73 Theory:
+ 357.73 ory:
 	Auditors always reject expense accounts
 	with a bottom line divisible by 5.
-Houston, Tranquillity Base here.  The Eagle has landed.
+Houston, Tranquillity Base here.   Eagle has landed.
 		-- Neil Armstrong
 Science Fiction, Double Feature.
 Frank has built and lost his creature.
 Darkness has conquered Brad and Janet.
-The servants gone to a distant planet.
+ servants gone to a distant planet.
 Wo, oh, oh, oh.
 At the late night, double feature, Picture show.
 I want to go, oh, oh, oh.
@@ -68,14 +68,14 @@ impulsive philanthropy, which we aren't in any position to afford, but
 shouldn't regret it too loudly lest we spoil the purity of the deed.
 		-- Tom Robbins
 When the saleman's car broke down, he walked to the nearest farmhouse to ask
-if he could stay the night.  The farmer agreed to put him up.  "I live alone,"
+if he could stay the night.   farmer agreed to put him up.  "I live alone,"
 he continued, "you can have the bedroom at the top of the stairs, to the
 right."
 	"Oh, never mind," the disappointed salesman said. "I think I'm in
 the wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so that you could make the earth spin
 real fast and freak everybody out.
-		-- Jack Handley, The New Mexican, 1988.
+		-- Jack Handley,  New Mexican, 1988.
 "If value corrupts then absolute value corrupts absolutely."
 DON'T go!!  I'm not HOWARD COSELL!!  I know POLISH JOKES ... WAIT!!
 Don't go!!  I AM Howard Cosell! ... And I DON'T know Polish jokes!!
@@ -86,7 +86,7 @@ All generalizations are false, including this one.
 		-- Mark Twain
 Delta: We're Amtrak with wings.    -- David Letterman
 It's always darkest just before it gets pitch black.
-We've sent a man to the moon, and that's 29,000 miles away.  The center
+We've sent a man to the moon, and that's 29,000 miles away.   center
 of the Earth is only 4,000 miles away.  You could drive that in a week,
 but for some reason nobody's ever done it.
 		-- Andy Rooney
@@ -95,16 +95,16 @@ When my brain begins to reel from my literary labors, I make an occasional
 cheese dip.
 		-- Ignatius Reilly
 Moe:	What did you give your wife for Valentine's Day?
-Joe:	The usual gift -- she ate my heart out.
+Joe:	 usual gift -- she ate my heart out.
 You know you are getting old when you think you should drive the speed limit.
 		-- E.A. Gilliam
 Live within your income, even if you have to borrow to do so.
 		-- Josh Billings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
-	The housewife replied, "Four!".
-	The accountant said, "It's either 3 or 4.  Let me run those figures
+	 housewife replied, "Four!".
+	 accountant said, "It's either 3 or 4.  Let me run those figures
 through my spread sheet one more time."
-	The lawyer pulled the drapes, dimmed the lights and asked in a
+	 lawyer pulled the drapes, dimmed the lights and asked in a
 hushed voice, "How much do you want it to be?"
 A new koan:
 	If you have some ice cream, I will give it to you.

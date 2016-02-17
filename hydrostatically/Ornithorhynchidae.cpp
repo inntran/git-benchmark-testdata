@@ -1,15 +1,15 @@
 Carperpetuation (kar' pur pet u a shun), n.:
-	The act, when vacuuming, of running over a string at least a
+	 act, when vacuuming, of running over a string at least a
 	dozen times, reaching over and picking it up, examining it, then
 	putting it back down to give the vacuum one more chance.
 		-- Rich Hall, "Sniglets"
-There can be no daily democracy without daily citizenship.
+re can be no daily democracy without daily citizenship.
 		-- Ralph Nader
 First study the enemy.  Seek weakness.
 		-- Romulan Commander, "Ba of Terror", stardate 1709.2
 Winter is the season in which people try to keep the house as warm as
 it was in the summer, when they complained about the heat.
-The default Magic Word, "Abracadabra", actually is a corruption of the
+ default Magic Word, "Abracadabra", actually is a corruption of the
 Hebrew phrase "ha-Bracha dab'ra" which means "pronounce the blessing".
 Democracy is good.  I say this because other systems are worse.
 		-- Jawaharlal Nehru
@@ -17,10 +17,10 @@ This conjunction of an immense military establishment and a large arms
 industry is now in the American experience... We must not fail to 
 comprehend its grave implications... We must guard against the 
 acquisition of unwarranted influence...by the military-industrial
-complex.  The potential for the disastrous rise of misplaced power
+complex.   potential for the disastrous rise of misplaced power
 exists and will persist.
 - Dwight D. Eisenhower, from his farewell address in 1961
-All men are mortal.  Socrates was mortal.  Therefore, all men are Socrates.
+All men are mortal.  Socrates was mortal.  refore, all men are Socrates.
 		-- Woody Allen
 Better tried by twelve than carried by six.
 		-- Jeff Cooper
@@ -70,13 +70,13 @@ Humanity has the stars in its future, and that future is too important to be
 lost under the burden of juvenile folly and ignorant superstition.
 - Isaac Asimov
 Ninety percent of the time things turn out worse than you thought they would.
-The other ten percent of the time you had no right to expect that much.
+ other ten percent of the time you had no right to expect that much.
 		-- Augustine
 Do you think the "Monkees" should get gas on odd or even days?
 	"I think they're going to take all this money that we spend now on war
 and death --"
 	"And make them spend it on life."
-		-- Edith Keeler and Kirk, "The City on the Edge of Forever",
+		-- Edith Keeler and Kirk, " City on the Edge of Forever",
 		   stardate unknown.
 Experiments must be reproducible; they should all fail in the same way.
 Larkinson's Law:
@@ -94,7 +94,7 @@ by all USEnauts.
 		-- Emily Postnews Answers Your Questions on Netiquette
 Rubber bands have snappy endings!
 All your people must learn before you can reach for the stars.
-		-- Kirk, "The Gamesters of Triskelion", stardate 3259.2
+		-- Kirk, " Gamesters of Triskelion", stardate 3259.2
 It's easier to fight for one's principles than to live up to them.
 Fortune's Real-Life Courtroom Quote #3:
 
@@ -124,7 +124,7 @@ A gentleman is a man who wouldn't hit a lady with his hat on.
 What is research but a blind date with knowledge?
 		-- Will Harvey
 Beware of Bigfoot!
-The best man for the job is often a woman.
+ best man for the job is often a woman.
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 Never kick a man, unless he's down.
@@ -135,7 +135,7 @@ Please stand for the National Anthem:
 	True patriot love
 	In all thy sons' command
 	With glowing hearts we see thee rise
-	The true north strong and free
+	 true north strong and free
 	From far and wide, O Canada
 	We stand on guard for thee
 	God keep our land glorious and free
@@ -148,7 +148,7 @@ And the crowd was stilled.  One elderly man, wondering at the sudden silence,
 turned to the Child and asked him to repeat what he had said.  Wide-eyed,
 the Child raised his voice and said once again, "Why, the Emperor has no
 clothes!  He is naked!"
-- "The Emperor's New Clothes"
+- " Emperor's New Clothes"
 You will be run over by a bus.
 Saints should always be judged guilty until they are proven innocent.
 - George Orwell
@@ -171,7 +171,7 @@ picture star.  If your child simply grows up to be someone who does not use
 the word "collectible" as a noun, you can consider yourself an unqualified
 success.
 		-- Fran Lebowitz, "Social Studies"
-What sin has not been committed in the name of efficiency?
+What sin has not been committed in the  of efficiency?
 By trying we can easily learn to endure adversity.  Another man's, I mean.
 		-- Mark Twain
 A Riverside, California, health ordinance states that two persons may
@@ -183,28 +183,28 @@ future for the programming techniques of the past: it creates a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
 Wait ... is this a FUN THING or the END of LIFE in Petticoat Junction??
-The world is full of people who have never, since childhood, met an
+ world is full of people who have never, since childhood, met an
 open doorway with an open mind.
 		-- E.B. White
 I can hire one half of the working class to kill the other half.
 		-- Jay Gould
-The door is the key.
-"The argument that the literal story of Genesis can qualify as science
-collapses on three major grounds: the creationists' need to invoke
+ door is the key.
+" argument that the literal story of Genesis can qualify as science
+colses on three major grounds: the creationists' need to invoke
 miracles in order to compress the events of the earth's history into
 the biblical span of a few thousand years; their unwillingness to 
 abandon claims clearly disproved, including the assertion that all
 fossils are products of Noah's flood; and their reliance upon distortion,
 misquote, half-quote, and citation out of context to characterize the
 ideas of their opponents."
--- Stephen Jay Gould, "The Verdict on Creationism", 
-   The Skeptical Inquirer, Winter 87/88, pg. 186
+-- Stephen Jay Gould, " Verdict on Creationism", 
+    Skeptical Inquirer, Winter 87/88, pg. 186
 Friends, Romans, Hipsters,
 Let me clue you in;
 I come to put down Caesar, not to groove him.
-The square kicks some cats are on stay with them;
-The hip bits, like, go down under; 
-so let it lay with Caesar.  The cool Brutus
+ s kicks some cats are on stay with them;
+ hip bits, like, go down under; 
+so let it lay with Caesar.   cool Brutus
 Gave you the message: Caesar had big eyes;
 If that's the sound, someone's copping a plea,
 And, like, old Caesar really set them straight.
@@ -219,10 +219,10 @@ In war, truth is the first casualty.
 		-- U Thant
 Living in the complex world of the future is somewhat like having bees
 live in your head.  But, there they are.
-The longer the title, the less important the job.
+ longer the title, the less important the job.
 "Well, you see, it's such a transitional creature.  It's a piss-poor
 reptile and not very much of a bird."
-- Melvin Konner, from "The Tangled Wing", quoting a zoologist who has
+- Melvin Konner, from " Tangled Wing", quoting a zoologist who has
 studied the archeopteryz and found it "very much like people"
 No one becomes depraved in a moment.
 		-- Decimus Junius Juvenalis
@@ -281,12 +281,12 @@ I am an optimist.  It does not seem too much use being anything else.
 		-- Winston Churchill
 Well, we'll really have a party, but we've gotta post a guard outside.
 		-- Eddie Cochran, "Come On Everybody"
-The animals are not as stupid as one thinks -- they have neither
+ animals are not as stupid as one thinks -- they have neither
 doctors nor lawyers.
 		-- L. Docquier
 Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
-Do not do unto others as you would they should do unto you.  Their tastes
+Do not do unto others as you would they should do unto you.  ir tastes
 may not be the same.
 		-- George Bernard Shaw
 What does "it" mean in the sentence "What time is it?"?
@@ -316,7 +316,7 @@ Fellow programmer, greetings!  You are reading a letter which will bring
 you luck and good fortune.  Just mail (or UUCP) ten copies of this letter
 to ten of your friends.  Before you make the copies, send a chip or
 other bit of hardware, and 100 lines of 'C' code to the first person on the
-list given at the bottom of this letter.  Then delete their name and add
+list given at the bottom of this letter.  n delete their  and add
 yours to the bottom of the list.
 
 Don't break the chain!  Make the copy within 48 hours.  Gerald R. of San
@@ -330,14 +330,14 @@ her terminal and she now spends her days writing documentation for IBM PC's.
 Don't break the chain!  Send out your ten copies today!
 For example, if \thinmskip = 3mu, this makes \thickmskip = 6mu.  But if
 you also want to use \skip12 for horizontal glue, whether in math mode or
-not, the amount of skipping will be in points (e.g., 6pt).  The rule is
+not, the amount of skipping will be in points (e.g., 6pt).   rule is
 that glue in math mode varies with the size only when it is an \mskip;
 when moving between an mskip and ordinary skip, the conversion factor
-1mu=1pt is always used.  The meaning of '\mskip\skip12' and
+1mu=1pt is always used.   meaning of '\mskip\skip12' and
 '\baselineskip=\the\thickmskip' should be clear.
 		-- Donald Knuth, TeX 82 -- Comparison with TeX80
 Plato, by the way, wanted to banish all poets from his proposed Utopia
-because they were liars.  The truth was that Plato knew philosophers
+because they were liars.   truth was that Plato knew philosophers
 couldn't compete successfully with poets.
 		-- Kilgore Trout (Philip J. Farmer), "Venus on the Half Shell"
 Sin lies only in hurting other people unnecessarily.  All other "sins" are
@@ -345,11 +345,11 @@ invented nonsense.  (Hurting yourself is not sinful -- just stupid).
 		-- Lazarus Long
 If only Dionysus were alive!  Where would he eat?
 		-- Woody Allen
-There's no justice in this world.
+re's no justice in this world.
 		-- Frank Costello, on the prosecution of "Lucky" Luciano by
 		   New York district attorney Thomas Dewey after Luciano had
 		   saved Dewey from assassination by Dutch Schultz (by ordering
-		   the assassination of Schultz instead)
+		   the assassination of Schultz ins)
 Eat shit -- billions of flies can't be wrong.
 All art is but imitation of nature.
 		--  Annaeus Seneca
@@ -369,7 +369,7 @@ In the Land of Mordor where the Shadows lie.
 One Ring to rule them all, One Ring to find them,
 One Ring to bring them all and in the darkness bind them
 In the Land of Mordor where the Shadows lie.
-		-- J.R.R. Tolkien, "The Lord of the Rings"
+		-- J.R.R. Tolkien, " Lord of the Rings"
 "Rights" is a fictional abstraction.  No one has "Rights", neither machines
 nor flesh-and-blood.  Persons... have opportunities, not rights, which they
 use or do not use.
@@ -384,8 +384,8 @@ A swift-flowing steam does not grow stagnant.
 Neither sound nor thoughts can travel through a vacuum.
 Software rots if not used.
 
-These are great mysteries.
-		-- Geoffrey James, "The Tao of Programming"
+se are great mysteries.
+		-- Geoffrey James, " Tao of Programming"
 As I was passing Project MAC,
 I met a Quux with seven hacks.
 Every hack had seven bugs;
@@ -443,20 +443,20 @@ arrival of voodoo optico transmitigational magneto killer paramecium, capable
 of teleporting from cable to cable, screen to screen, ear to ear and hoof
 to mouth...
 He who has but four and spends five has no need for a wallet.
-The divinity of Jesus is made a convenient cover for absurdity.  Nowhere
+ divinity of Jesus is made a convenient cover for absurdity.  Nowhere
 in the Gospels do we find a precept for Creeds, Confessions, Oaths,
 Doctrines, and whole carloads of other foolish trumpery that we find in
 Christianity.
 - John Adams
 	Horses are forbidden to eat fire hydrants in Marshalltown, Iowa.
-The difference between this place and yogurt is that yogurt has a live culture.
+ difference between this place and yogurt is that yogurt has a live culture.
 Psychoanalysis??  I thought this was a nude rap session!!!
 Many pages make a thick book, except for pocket Bibles which are on very
 very thin paper.
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Its  is Public Opinion.  It is held in reverence.  It settles everything.
 Some think it is the voice of God.
 		-- Mark Twain
-The debate rages on: Is PL/I Bachtrian or Dromedary?
+ debate rages on: Is PL/I Bachtrian or Dromedary?
 When a man knows he is to be hanged in a fortnight, it concentrates his
 mind wonderfully.
 		-- Samuel Johnson

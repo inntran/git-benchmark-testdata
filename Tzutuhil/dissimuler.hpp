@@ -48,9 +48,9 @@ Some don't prefer the pursuit of happiness to the happiness of pursuit.
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
 the Big Apple have the feats of "Broadway Joe" Namath.  We have known the
-stolid but steady Killebrew.  Listening to Cole Porter over a dry martini
+stolid but sy Killebrew.  Listening to Cole Porter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
-Band and never to have shared a pitcher of 3.2 Grain Belt Beer.  The loss is
+Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
 butter on lefse.  Here is a town where the major urban problem is dutch elm
 disease and the number one crime is overtime parking.  We boast more theater
@@ -59,7 +59,7 @@ when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
-Here's to the Minneapple.  And to its people.  Our flair for style is bad
+Here's to the Minneapple.  And to its people.  Our  for style is bad
 by a healthy respect for wind chill factors.
 	And we always, always eat our vegetables.
 	This is the Minneapple.
@@ -85,7 +85,7 @@ the astrological influence. . . .If so, astrological predictions -- like those
 of any scientific field -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of their
 efficacy, so in the last two decades scientists and statisticians have
- done such testing for them.  There have been dozens of well-designed
+ done such testing for them.  re have been dozens of well-designed
 tests all around the world, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
 in the real (and fascinating) universe beyond our planet, and not let them
@@ -95,7 +95,7 @@ the firelight, afraid of the night.
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 Even a blind pig stumbles upon a few acorns.
-The ideal voice for radio may be defined as showing no substance, no sex,
+ ideal voice for radio may be defined as showing no substance, no sex,
 no owner, and a message of importance for every housewife.
 		-- Harry V. Wade
 War spares not the brave, but the cowardly.
@@ -124,7 +124,7 @@ postcard?"
 Woman inspires us to great things, and prevents us from achieving them.
 		-- Dumas
 I'm hungry, time to eat lunch.
-There is no better way of exercising the imagination than the study of law.
+re is no better way of exercising the imagination than the study of law.
 No poet ever interpreted nature as freely as a lawyer interprets truth.
 		-- Jean Giraudoux, "Tiger at the Gates"
 Horner's Five Thumb Postulate:
@@ -132,14 +132,14 @@ Of all men's miseries, the bitterest is this:
 	Experience varies directly with equipment ruined.
 Leave no stone unturned.
 		-- Euripides
-"Life begins when you can spend your spare time programming instead of
+"Life begins when you can spend your spare time programming ins of
 watching television."
 -- Cal Keegan
 Be independent.  Insult a rich relative today.
 You can make it illegal, but you can't make it unpopular.
 After any salary raise, you will have less money at the end of the
 month than you did before.
-"...you might as well skip the Xmas celebration completely, and instead
+"...you might as well skip the Xmas celebration completely, and ins
 sit in front of your linux computer playing with the
 all-new-and-improved linux kernel version."
 (By Linus Torvalds)
@@ -149,9 +149,9 @@ Foolproof Operation:
 While most peoples' opinions change, the conviction of their
 correctness never does.
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
-his fellow anti-establishment rabble-rousers, "The first thing we do, let's
+his fellow anti-establishment rabble-rousers, " first thing we do, let's
 kill all the lawyers."  That action may be extreme but a similar sentiment
-was expressed by Thomas K. Connellan, president of The Management Group, Inc.
+was expressed by Thomas K. Connellan, president of  Management Group, Inc.
 Speaking to business executives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
 of attorneys and accountants, and a dearth of production experts.  Lawyers
@@ -159,7 +159,7 @@ and accountants "do not make the economic pie any bigger; they only figure
 out how the pie gets divided.  Neither profession provides any added value
 to product."
 	According to Connellan, the highly productive Japanese society has
-10 lawyers and 30 accountants per 100,000 population.  The U.S. has 200
+10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests that "the U.S. proportion of
 pie-bakers and pie-dividers is way out of whack."  Could Dick Butcher have
 been an efficiency expert?
@@ -195,7 +195,7 @@ Don't confuse things that need action with those that take care of themselves.
 Most of your faults are not your fault.
 You are taking yourself far too seriously.
 I'm very good at integral and differential calculus,
-I know the scientific names of beings animalculous;
+I know the scientific s of beings animalculous;
 In short, in ms vegetable, animal, and mineral,
 I am the very model of a modern Major-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
@@ -220,16 +220,16 @@ Not every problem someone has with his girlfriend is necessarily due to
 the capitalist mode of production.
 		-- Herbert Marcuse
 Success is relative: It is what we can make of the mess we have made of things.
-		-- T.S. Eliot, "The Family Reunion"
-The ladies men admire, I've heard,
+		-- T.S. Eliot, " Family Reunion"
+ ladies men admire, I've heard,
 Would shudder at a wicked word.
-Their candle gives a single light;
-They'd rather stay at home at night.
-They do not keep awake till three,
+ir candle gives a single light;
+y'd rather stay at home at night.
+y do not keep awake till three,
 Nor read erotic poetry.
-They never sanction the impure,
+y never sanction the impure,
 Nor recognize an overture.
-They shrink from powders and from paints...
+y shrink from powders and from paints...
 So far, I've had no complaints.
 		-- Dorothy Parker
 A bachelor is an unaltared male.
@@ -256,9 +256,9 @@ It was wonderful to find America, but it would have been more wonderful to miss
 it.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Some of my readers ask me what a "Serial Port" is.
-The answer is: I don't know.
+ answer is: I don't know.
 Is it some kind of wine you have with breakfast?
-The way to fight a woman is with your hat.  Grab it and run.
+ way to fight a woman is with your hat.  Grab it and run.
 	Reporters like Bill Greider from the Washington Post and Him
 Naughton of the New York Times, for instance, had to file long, detailed,
 and relatively complex stories every day -- while my own deadline fell
@@ -304,7 +304,7 @@ A:	Moby Pickle.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
 a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
 I turned my air conditioner the other way around, and it got cold out.
-The weatherman said "I don't understand it.  I was supposed to be 80
+ weatherman said "I don't understand it.  I was supposed to be 80
 degrees today," and I said "Oops."
 
 In my house on the ceilings I have paintings of the rooms above... so
@@ -315,7 +315,7 @@ front of it in only eight minutes.
 		-- Steven Wright
 And the silence came surging softly backwards
 When the plunging hooves were gone...
-		-- Walter de La Mare, "The Listeners"
+		-- Walter de La Mare, " Listeners"
 I never met a man I didn't want to fight.
 		-- Lyle Alzado, professional football lineman
 Happy feast of the pig!
