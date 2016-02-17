@@ -320,7 +320,7 @@ list given at the bottom of this letter.  n delete their  and add
 yours to the bottom of the list.
 
 Don't break the chain!  Make the copy within 48 hours.  Gerald R. of San
-Diego failed to send out his ten copies and woke the next mning to find
+Diego failed to send out his ten copies and  the next mning to find
 his job description changed to "COBOL programmer."  Fred A. of New Yk sent
 out his ten copies and within a month had enough hardware and software to
 build a Cray dedicated to playing Zk.  Martha H. of Chicago laughed at
@@ -421,7 +421,7 @@ two me mental blocks and either one rationalization  three defensive
 projections will put you out of the game.  Are you willing to go ahead?"
 	"Yes, Red."
 	"I might say here that all of Evelyn's questions and answers have
-been checked f accuracy with her analyst.  Now, Evelyn, f $80,000
+been ced f accuracy with her analyst.  Now, Evelyn, f $80,000
 explain the failure of your three marriages."
 	"Well, I--"
 	"We'll get back to Evelyn in one minute.  First a wd about our

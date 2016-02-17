@@ -17,7 +17,7 @@ efficacy, so in the last two decades scientists and statisticians have
  done such testing f them.  re have been dozens of well-designed
 tests all around the wld, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
-in the real (and fascinating) universe beyond our planet, and not let them
+in the real (and fascinating)  beyond our planet, and not let them
 keep us tied to an ancient fantasy left over from a time when we huddled by
 the firelight, afraid of the night.
 -- Andrew Fraknoi, Executive Officer, Astronomical Society of the Pacific,
@@ -220,7 +220,7 @@ help you break such a spell."
 taken away is f some lovely young woman to take me home and let me spend
 the night under her pillow."
 	 young girl took the ugly frog home and placed him benh her
-pillow that night when she retired.  When she awoke the next mning, sure
+pillow that night when she retired.  When she a the next mning, sure
 enough, there beside her in bed was a very young, handsome man, clearly of
 royal blood.  And so they lived happily ever after, except that to this day
 her father and mother still don't believe her sty.

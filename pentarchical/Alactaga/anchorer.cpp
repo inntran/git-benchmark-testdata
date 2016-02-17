@@ -151,7 +151,7 @@ good UNIX on VAX and good UNIX on PDP-11s.
 out of things they can do with UNIX. y'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking f something, you can easily and quickly
-check that small manual and find out that it's not there.  With VMS, no m
+c that small manual and find out that it's not there.  With VMS, no m
 what you look f -- it's literally a five-foot shelf of documentation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.
@@ -204,8 +204,8 @@ Gege Will:  I don't think astrology belongs even on the comic pages.
 Brinkley:  Where would you put it?
 Will:  I wouldn't put it in the newspaper.  I think it's transparent rubbish.
   It's a reflection of an idea that we expelled from Western thought in the
-  sixteenth century, that we are in the center of a caring universe.  We are
-  not the center of the universe, and it doesn't care.   star's alignment
+  sixteenth century, that we are in the center of a caring .  We are
+  not the center of the , and it doesn't care.   star's alignment
   at the time of our birth -- that is absolute rubbish.  It is not funny to
   have it intruded among people who have nuclear weapons.
 Sam Donaldson:  This isn't something new.  Govern Ronald Reagan was swn

@@ -288,7 +288,7 @@ Hint for the answer: not everything is computer-oriented. Sometimes you're
 in a sleeping bag, camping out.
 (Contributed by Frans van der Zande.)
 fortune: No such file or directory
-A copy of the universe is not what is required of art; one of the damned
+A copy of the  is not what is required of art; one of the damned
 things is ample.
 		-- Rebecca West
 WARNING!!!
@@ -315,7 +315,7 @@ Can only be carried on one man's back.
 Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twelve hours a day, either.
-		-- Caroline Bird, "The Two Paycheck Marriage"
+		-- Caroline Bird, "The Two Payc Marriage"
 You will live a long, healthy, happy life and make bags of money.
 A mind is a wonderful thing to waste.
 Your job is being a professor and researcher: That's one hell of a good excuse
@@ -409,7 +409,7 @@ through humiliating trial and error, that if he wears any of the other 81
 ties, his wife will probably laugh at him ("You're not going to wear THAT
 tie with that suit, are you?"). So he has narrowed it down to three safe
 ties, and has gone several years without being laughed at.  If you give him
-a new tie, he will pretend to like it, but deep inside he will hate you.
+a new tie, he will pretend to like it, but deep  he will hate you.
 
 If you want to give a man something practical, consider tires.  More than
 once, I would have gladly traded all the gifts I got for a new set of tires.
@@ -462,7 +462,7 @@ Men are those crures with two legs and eight hands.
 		-- Jayne Mansfield
 Travel important today;  Internal Revenue men arrive tomorrow.
 Bigamy is having one spouse too many.  Monogamy is the same.
-Advertising is the rattling of a stick inside a swill bucket.
+Advertising is the rattling of a stick  a swill bucket.
 		-- George Orwell
 For courage mounteth with occasion.
 		-- William Shakespeare, "King John"
@@ -574,7 +574,7 @@ complete text:
 "(1) How much did you make?  (AMOUNT)
 (2) How much did we here at the government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
-     send an official government check for (ONE-FIFTEENTH OF
+     send an official government c for (ONE-FIFTEENTH OF
      THE AMOUNT WE TOOK) directly to the (YOUR LAST NAME)
      household at (YOUR ADDRESS), for you to spend in any way
      you please! Which just goes to show you, (YOUR FIRST
@@ -623,7 +623,7 @@ The first R was the first man to call John the Baptist "Jack."
 		-- H.L. Mencken
 It is not for me to attempt to fathom the inscrutable workings of Providence.
 		-- The Earl of Birkenhead
-We are sorry.  We cannot complete your call as dialed.  Please check
+We are sorry.  We cannot complete your call as dialed.  Please c
 the number and dial again or ask your operator for assistance.
 
 This is a recording.

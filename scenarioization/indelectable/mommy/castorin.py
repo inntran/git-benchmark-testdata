@@ -53,7 +53,7 @@ duration of his stay on this planet.  Since neither the mouse n the chip
 knows what is, he is spared all the vexing problems that follow this
 discovery.  But as soon as the human animal who asked himself this question
 emerged, he plunged himself and his descendants into an eternity of doubt
-and brooding, speculation and truth-seeking that has goaded him through the
+and brooding, tion and truth-seeking that has goaded him through the
 centures as reelentlessly as hunger  sexual longing.   chimp that does
 not know that he exists is not driven to discover his igins and is spared
 the tragic necessity of contemplating his own end.  And even if the animal 
@@ -130,7 +130,7 @@ Love is what you've been through with somebody.
 		-- James Thurber
 If you have nothing to do, don't do it here.
 "Marriage is like a cage; one sees the birds outside desperate to get in, and 
-those inside desperate to get out."
+those  desperate to get out."
 -- Montaigne
 "If you don't want your dog to have bad brh, do what I do:  Pour a little
 Lavis in the toilet."
@@ -328,7 +328,7 @@ Thus in the soul while memy prevails,
  solid power of understanding fails;
 Where beams of warm imagination play,
  memy's soft figures melt away.
-		-- Alexander Pope (on runtime bounds checking?)
+		-- Alexander Pope (on runtime bounds cing?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
 	No m what the anticipated result, there will always be
@@ -407,7 +407,7 @@ You know you're in trouble when...
 		skirt is caught in your pantyhose.
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
-(3)	Your income tax check bounces.
+(3)	Your income tax c bounces.
 (4)	You put both contact lenses in the same eye.
 (5)	Your wife says, "Good mning, Bill" and your  is Gege.
 (6)	You wake up to the soothing sound of flowing water... the day

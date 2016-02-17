@@ -275,7 +275,7 @@ Men aren't attracted to me by my mind.  y're attracted by what I
 don't mind...
 		-- Gypsy Rose Lee
  common cmant,  shag,
-Lays eggs inside a paper bag;
+Lays eggs  a paper bag;
  reason, you will see, no doubt,
 Is to keep the lightning out.
 But what these unobservant birds
@@ -396,13 +396,13 @@ gets out and goes into the office.
 	"I need some four-by-two's," he says.
 	"You must mean two-by-four's" replies the clerk.
 	 man scratches his head.  "Wait a minute," he says, "I'll go
-check." 
+c." 
 	Back, after an d conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
 	"OK," says the clerk, writing it down, "how long you want 'em?"
 	 guy gets the blank look again.  "Uh... I guess I better go
-check," he says.
+c," he says.
 	He goes back out to the truck, and there's another d
 conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
@@ -489,7 +489,7 @@ good UNIX on VAX and good UNIX on PDP-11s.
 out of things they can do with UNIX. y'll want a real system and will end
 up doing VMS when they get to be serious about programming.
 	With UNIX, if you're looking f something, you can easily and quickly
-check that small manual and find out that it's not there.  With VMS, no m
+c that small manual and find out that it's not there.  With VMS, no m
 what you look f -- it's literally a five-foot shelf of documentation -- if
 you look long enough it's there.  That's the difference -- the beauty of UNIX
 is it's simple; and the beauty of VMS is that it's all there.

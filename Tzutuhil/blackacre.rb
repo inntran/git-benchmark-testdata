@@ -441,13 +441,13 @@ manes of hses.   only known solution to this problem is to sprinkle
 baker's yeast in the mane, f, as we all know, yeast is yeast and nest
 is nest, and never the mane shall tweet.
 You're a good example of why some animals  their young.
-		-- Jim Samuels to a heckler
+		-- Jim Samuels to a ler
 
 Ah, yes.  I remember my first beer.
-		-- Steve Martin to a heckler
+		-- Steve Martin to a ler
 
 When your IQ rises to 28, sell.
-		-- Profess Irwin Cey to a heckler
+		-- Profess Irwin Cey to a ler
 I smell like a wet reducing clinic on Columbus Day!
 You can't fall off the flo.
 Tact is the ability to tell a man he has an open mind when he has a
@@ -503,7 +503,7 @@ Age, n.:
 	to commit.
 		-- Ambrose Bierce
 We know next to nothing about virtually everything.  It is not necessary
-to know the igin of the universe; it is necessary to want to know.
+to know the igin of the ; it is necessary to want to know.
 Civilization depends not on any particular knowledge, but on the disposition
 to crave knowledge.
 		-- Gege Will
@@ -583,7 +583,7 @@ On the globe that gave us birth;
 Let us rest our eyes on the fleecy skies
 And the cool, green hills of Earth.
 		-- Robert A. Heinlein, 1941
-In the Spring, I have counted 136 different kinds of wher inside of
+In the Spring, I have counted 136 different kinds of wher  of
 24 hours.
 		-- Mark Twain, on New England wher
 Some of my readers ask me what a "Serial Pt" is.

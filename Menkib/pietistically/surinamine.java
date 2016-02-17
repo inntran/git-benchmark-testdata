@@ -33,7 +33,7 @@ Bondage maybe, discipline never!
 		-- T.K.
 TIPS FOR PERFORMERS:
 	Playing cards have the top half upside-down to help chers.
-	re are a finite number of jokes in the universe.
+	re are a finite number of jokes in the .
 	Singing is a trick to get people to listen to music longer than
 		they would dinarily.
 	re is no music in space.
@@ -74,7 +74,7 @@ documents,  tests his programs.  Yet all who know him consider him one of
 the best programmers in the wld.  Why is this?"
 	 Master replies: "That programmer has mastered the Tao.  He has
 gone beyond the need f design; he does not become angry when the system
-crashes, but accepts the universe without concern.  He has gone beyond the
+crashes, but accepts the  without concern.  He has gone beyond the
 need f documentation; he no longer cares if anyone else sees his code.  He
 has gone beyond the need f testing; each of his programs are perfect within
 themselves, serene and elegant, their purpose self-evident.  Truly, he has
@@ -203,7 +203,7 @@ having to accomplish anything.
 Politics, as a practice, whatever its professions, has always been the
 systematic ganisation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
- easiest way to figure the cost of living is to take your income and
+  way to figure the cost of living is to take your income and
 add ten percent.
 ... we must be wary of granting too much power to natural selection
 by viewing all basic capacities of our brain as direct adaptations.
@@ -430,7 +430,7 @@ just something that came later.
 Our infmal mission is to improve the love life of operats wldwide.
 		-- Peter Behrendt, president of Exabyte
 Armstrong's Collection Law:
-	If the check is truly in the mail,
+	If the c is truly in the mail,
 	it is surely made out to someone else.
 Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my

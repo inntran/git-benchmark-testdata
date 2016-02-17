@@ -51,7 +51,7 @@ results are that one should  each day:
 	1/2 chicken
 	1 egg
 	1 glass of skim milk
-	27 heads of lettuce.
+	27 heads of .
 		-- Rev. Adrian Melott
 Most people's favite way to end a game is by winning.
 Chocolate chip.
@@ -197,7 +197,7 @@ efficacy, so in the last two decades scientists and statisticians have
  done such testing f them.  re have been dozens of well-designed
 tests all around the wld, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
-in the real (and fascinating) universe beyond our planet, and not let them
+in the real (and fascinating)  beyond our planet, and not let them
 keep us tied to an ancient fantasy left over from a time when we huddled by
 the firelight, afraid of the night.
 -- Andrew Fraknoi, Executive Officer, Astronomical Society of the Pacific,
@@ -356,7 +356,7 @@ Called because of rain.
 If you are good, you will be assigned all the wk.  If you are real
 good, you will get out of it.
 If you've done six impossible things befe breakfast, why not round it
-off with dinner at Milliway's, the restaurant at the end of the universe?
+off with dinner at Milliway's, the restaurant at the end of the ?
 		-- Douglas Adams, " Restaurant at the End of the Universe"
 Help!  I'm trapped in a PDP 11/70!
 I have the simplest tastes.  I am always satisfied with the best.

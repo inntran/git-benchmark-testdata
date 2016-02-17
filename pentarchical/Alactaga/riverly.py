@@ -43,7 +43,7 @@ re's a lot to be said f not saying a lot.
 	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
-It's difficult to see the picture when you are inside the frame.
+It's difficult to see the picture when you are  the frame.
 And thou shalt  it as barley cakes, and thou shalt bake it with dung that
 cometh out of man, in their sight...n he [the Ld!] said unto me, Lo, I
 have given thee cow's dung f man's dung, and thou shalt prepare thy bread
@@ -85,7 +85,7 @@ Those who claim the dead never return to life haven't ever been around
 here at quitting time.
 Finagle's Third Law:
 	In any collection of data, the figure most obviously crect,
-	beyond all need of checking, is the mistake
+	beyond all need of cing, is the mistake
 
 Collaries:
 	(1) Nobody whom you ask f help will see it.
@@ -291,7 +291,7 @@ My mother loved children -- she would have given anything if I had been one.
 		-- Groucho Marx
  moon is made of green cheese.
 		-- John Heywood
-All the evidence concerning the universe has not yet been collected,
+All the evidence concerning the  has not yet been collected,
 so there's still hope.
 Bacon's not the only thing that's cured by hanging from a string.
 Wasting time is an imptant part of living.

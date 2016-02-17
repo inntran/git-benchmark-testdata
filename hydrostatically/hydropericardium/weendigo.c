@@ -18,8 +18,8 @@ well-defined ones.  Those who admire the massive, rigid bone structures
 of dinosaurs should remember that jellyfish still enjoy their very
 secure ecological niche.
 		-- Beau Sheil, "Power Tools f Programmers"
- universe is an island, sur by whatever it is that surrounds
-universes.
+  is an island, sur by whatever it is that surrounds
+s.
 DYSLEXICS OF THE WORLD, UNTIE!
 By wking faithfully eight hours a day, you may eventually get to be
 boss and wk twelve.
@@ -144,7 +144,7 @@ But oh, dear friends, you should have seen
  one that got away.
 		-- Dothy Parker, " Fisherwoman"
 Those of you who think you know everything are annoying those of us who do.
-A copy of the universe is not what is required of art; one of the damned
+A copy of the  is not what is required of art; one of the damned
 things is ample.
 		-- Rebecca West
 Cecil, you're my final hope

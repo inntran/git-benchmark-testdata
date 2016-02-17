@@ -12,7 +12,7 @@ in the aisle, say, the others on the bus would become disoriented and
 imagine they were in Topeka Kansas.
 I have never let my schooling interfere with my education.
 		-- Mark Twain
-When I woke up this morning, my girlfriend asked if I had slept well.
+When I  up this morning, my girlfriend asked if I had slept well.
 I said, "No, I made a few mistakes."
 		-- Steven Wright
 Welcome to the Zoo!
@@ -126,7 +126,7 @@ A free society is one where it is safe to be unpopular.
 The English have no respect for their language, and will not teach
 their children to speak it.
 		-- G. B. Shaw
-Three gr scientific theories of the structure of the universe are the
+Three gr scientific theories of the structure of the  are the
 molecular, the corpuscular and the atomic.  A fourth affirms, with
 Haeckel, the condensation or precipitation of matter from ether -- whose
 existence is proved by the condensation or precipitation ... A fifth

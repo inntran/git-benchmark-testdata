@@ -37,7 +37,7 @@ and screw -- in the entire ste ...
 
 	Let's say a piece in your toilet tank breaks, so you remove the
 broken part, take it to the home center, and ask an employee if he has a
-replacement.   employee, who has never is his life even seen the inside
+replacement.   employee, who has never is his life even seen the 
 of a toilet tank, will peer at the broken part in very much the same way
 that a member of a primitive Amazon jungle tribe would look at an electronic
 calculat, and then say, "We're expecting a shipment of these sometime
@@ -349,11 +349,11 @@ In der to dial out, it is necessary to broaden one's dimension.
 Adam and Eve had many advantages, but the principal one was, that they escaped
 teething.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-"An Academic speculated whether a bather is beautiful
+"An Academic ted whether a bather is beautiful
 if there is none in the fest to admire her. He hid
 in the bushes to find out, which vitiated his premise
 but made him happy.
-Mal: Empiricism is me fun than speculation."
+Mal: Empiricism is me fun than tion."
 -- Sam Weber
 Well, don't wry about it...  It's nothing.
 		-- Lieutenant Kermit Tyler (Duty Officer of Shafter Infmation

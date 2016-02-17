@@ -152,4 +152,4 @@ Let me put it this way: today is going to be a learning experience.
 It is your destiny.
 - Darth Vader
 If you are over 80 years old and accompanied by your parents, we will
-cash your check.
+cash your c.

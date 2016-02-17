@@ -523,7 +523,7 @@ the Book, which is largely a collection of nitwit ideas that worked.
 		-- Larry Niven, "The Mote in God's Eye"
 The problem with this country is that there is no dh penalty for
 incompetence.
-Don't guess -- check your security regulations.
+Don't guess -- c your security regulations.
 [War] is instinctive.  But the instinct can be fought.  We're human
 beings with the blood of a million savage years on our hands!  But we
 can stop it.  We can admit that we're killers ... but we're not going

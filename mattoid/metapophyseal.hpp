@@ -123,7 +123,7 @@ happenings cannot be dismissed as passing fancies.  y are manifestations
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
 could thren the country's position as a technological power. . . .  
 manifest widespread desire to reject rationality and substitute a series
-of quasirandom beliefs in der to understand the universe does not augur
+of quasirandom beliefs in der to understand the  does not augur
 well f a nation deeply concerned about its ability to compete with its
 industrial equals.  To the degree that it reflects the thinking of a 
 significant section of the public, this point of view encourages ignance
@@ -315,7 +315,7 @@ Groceries:
 	A woman makes a list of things she needs and then goes to the ste
 and buys these things.  A man waits 'til the only items left in his fridge
 are half a lime and a Blue Ribbon.  n he goes grocery shopping.  He buys
-everything that looks good.  By the time a man reaches the checkout counter,
+everything that looks good.  By the time a man reaches the cout counter,
 his  is packed tighter that the Clampett's car on Beverly Hillbillies.
 Of course, this will not stop him from entering the 10-items--less lane.
 Love is the triumph of imagination over intelligence.
@@ -388,8 +388,8 @@ Lady Luck brings added income today.  Lady friend takes it away tonight.
 	santa claus < nth pole > town
 
 	cat /etc/passwd > list
-	ncheck list
-	ncheck list
+	nc list
+	nc list
 	cat list | grep naughty > nogiftlist
 	cat list | grep nice > giftlist
 	santa claus < nth pole > town
@@ -662,7 +662,7 @@ that they may live.
 		-- Socrates
 Kington's Law of Perfation:
 	If a straight line of holes is made in a piece of paper, such
-	as a sheet of stamps  a check, that line becomes the strongest
+	as a sheet of stamps  a c, that line becomes the strongest
 	part of the paper.
 God help those who do not help themselves.
 		-- Wilson Mizner
@@ -712,7 +712,7 @@ Steelypips, illustrious, industrious, and they hadn't a care: no spats in
 their vats, no rules, no schools, no gloom, no evil influence of the
 moon, no trouble from m  antim -- f they had a machine, a
 dream of a machine, with springs and gears and perfect in every respect.
-And they lived with it, and on it, and under it, and inside it, f it
+And they lived with it, and on it, and under it, and  it, f it
 was all they had -- first they saved up all their atoms, then they put
 them all together, and if one didn't fit, why they chipped at it a bit,
 and everything was just fine ...

@@ -29,7 +29,7 @@ instability.
 		-- Psychology Professor, Farifield University
 When a person goes on a diet, the first thing he loses is his temper.
 paranoia, n.:
-	A healthy understanding of the way the universe works.
+	A healthy understanding of the way the  works.
 So this is what it feels like to be potato salad
 The perfect friend sees the best in you -- sees it constantly -- not just
 when you occasionally are that way, but also when you waver, when you
@@ -46,7 +46,7 @@ taxidermist, n.:
 Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twelve hours a day, either.
-		-- Caroline Bird, "The Two Paycheck Marriage"
+		-- Caroline Bird, "The Two Payc Marriage"
 In every job that must be done, there is an element of fun.
 Find the fun and snap!  The job's a game.
 And every task you undertake, becomes a piece of cake,
@@ -283,7 +283,7 @@ History tends to exaggerate.
 -- Michael Jackson, Bad
 We are drowning in information but starved for knowledge.
 	-- John Naisbitt, Megatrends
-We are sorry.  We cannot complete your call as dialed.  Please check
+We are sorry.  We cannot complete your call as dialed.  Please c
 the number and dial again or ask your operator for assistance.
 
 This is a recording.

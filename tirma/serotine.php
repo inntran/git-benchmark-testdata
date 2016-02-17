@@ -70,7 +70,7 @@ But now I think a thought that brings me hope:
 Neither had Chaucer, Shakespeare, Milton, Pope.
 		-- Justin Richardson.
 Celestial navigation is based on the premise that the Earth is the center
-of the universe.   premise is wrong, but the navigation wks.  An
+of the .   premise is wrong, but the navigation wks.  An
 increct model can be a useful tool.
 		-- Kelvin Throop III
 One Bell System - it used to wk befe they installed the Dimension!
@@ -204,13 +204,13 @@ gets out and goes into the office.
 	"I need some four-by-two's," he says.
 	"You must mean two-by-four's" replies the clerk.
 	 man scratches his head.  "Wait a minute," he says, "I'll go
-check." 
+c." 
 	Back, after an d conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
 	"OK," says the clerk, writing it down, "how long you want 'em?"
 	 guy gets the blank look again.  "Uh... I guess I better go
-check," he says.
+c," he says.
 	He goes back out to the truck, and there's another d
 conversation.   guy comes back into the office.  "A long time," he says,
 "we're building a house".
@@ -308,7 +308,7 @@ Laws are like sausages.  It's better not to see them being made.
 		-- Otto von Bismarck
 strategy, n.:
 	A comprehensive plan of inaction.
-I'm ZIPPY the PINHEAD and I'm totally committed to the festive mode.
+I'm ZIPPY the PINHEAD and I'm totally committed to the  mode.
 APL hackers do it in the quad.
 You auto buy now.
 You will be called upon to help a friend in trouble.
@@ -384,7 +384,7 @@ If you stand on your head, you will get footprints in your hair.
 paper boots."
 	"What's he wanted f?"
 	"Rustling."
-In the Spring, I have counted 136 different kinds of wher inside of
+In the Spring, I have counted 136 different kinds of wher  of
 24 hours.
 		-- Mark Twain, on New England wher
 All is well that ends well.

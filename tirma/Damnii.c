@@ -252,7 +252,7 @@ When does later become never?
 Lincoln would be doing if he were alive today?
 	1) Writing his memoirs of the Civil War.
 	2) Advising the President.
-	3) Desperately clawing at the inside of his
+	3) Desperately clawing at the  of his
 	   coffin."
 -- David Letterman
 Don't everyone thank me at once!

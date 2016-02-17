@@ -1,5 +1,5 @@
 " way of the wld is to praise dead saints and prosecute live ones."
- -- Nathaniel Howe
+ --  Howe
 No snowflake in an avalanche ever ls responsible.
 May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This bath is too hot.'"

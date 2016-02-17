@@ -46,7 +46,7 @@ complete text:
 "(1) How much did you make?  (AMOUNT)
 (2) How much did we here at the government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
-     send an official government check f (ONE-FIFTEENTH OF
+     send an official government c f (ONE-FIFTEENTH OF
      THE AMOUNT WE TOOK) directly to the (YOUR LAST NAME)
      household at (YOUR ADDRESS), f you to spend in any way
      you please! Which just goes to show you, (YOUR FIRST
@@ -226,7 +226,7 @@ Don't tell me how hard you wk.  Tell me how much you get done.
 -- James J. Ling
 Civilization, as we know it, will end sometime this evening.
 See SYSNOTE tomrow f me infmation.
-Don't guess -- check your security tions.
+Don't guess -- c your security tions.
 "re was a boy called Eustace Clarence Scrubb, and he almost deserved it."
 		-- C. S. Lewis, " Chronicles of Narnia"
 Living on Earth may be expensive, but it includes an annual free trip
@@ -252,8 +252,8 @@ I tell ya, gambling never agreed with me.  Last week I went to the track
 and they shot my hse with the opening gun.
 
 Well, just last week I was at a Chinese restaurant and when I opened my
-ftune cookie I found the guy's check sitting at the next table.  I said,
-"Hey, buddy, I got your check", he said, "Thanks."
+ftune cookie I found the guy's c sitting at the next table.  I said,
+"Hey, buddy, I got your c", he said, "Thanks."
 		-- Rodney Dangerfield
 My central memy of that time seems to hang on one  five  maybe fty
 nights --  very early mnings -- when I left the Fillme half-crazy and,
@@ -408,7 +408,7 @@ through humiliating trial and err, that if he wears any of the other 81
 ties, his wife will probably laugh at him ("You're not going to wear THAT
 tie with that suit, are you?"). So he has narrowed it down to three safe
 ties, and has gone several years without being laughed at.  If you give him
-a new tie, he will pretend to like it, but deep inside he will hate you.
+a new tie, he will pretend to like it, but deep  he will hate you.
 
 If you want to give a man something practical, consider tires.  Me than
 once, I would have gladly traded all the gifts I got f a new set of tires.
@@ -429,7 +429,7 @@ every six months.
 "Life is like a buffet; it's not good but there's plenty of it."
 Please don't recommend me to your friends-- it's difficult enough to
 cope with you alone.
-It's difficult to see the picture when you are inside the frame.
+It's difficult to see the picture when you are  the frame.
 italic, adj:
 	Slanted to the right to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, the same phrases
@@ -470,7 +470,7 @@ next mning it was someone else.
 		-- Will Rogers
 Windows 95 Beer: A lot of people have taste-tested it and claim it's 
 wonderful.  can looks a lot like Mac Beer's can, but tastes me like 
-Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look inside, the 
+Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look , the 
 cans only have 16 oz. of beer in them. Most people will probably keep 
 drinking Windows 3.1 Beer until their friends try Windows 95 Beer and say 
 they like it.  ingredients list, when you look at the small print, has 

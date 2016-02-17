@@ -21,7 +21,7 @@ observations and inferences by the thousands.  The earth is billions of
 years old and its living crures are linked by ties of evolutionary
 descent.  Scientists stand accused of promoting dogma by so stating, but
 do we brand people illiberal when they proclaim that the earth is neither
-flat nor at the center of the universe?  Science *has* taught us some
+flat nor at the center of the ?  Science *has* taught us some
 things with confidence!  Evolution on an ancient earth is as well
 established as our planet's shape and position.  Our continuing struggle
 to understand how evolution happens (the "theory of evolution") does not
@@ -108,7 +108,7 @@ and screw -- in the entire store ...
 
 	Let's say a piece in your toilet tank breaks, so you remove the
 broken part, take it to the home center, and ask an employee if he has a
-replacement.  The employee, who has never is his life even seen the inside
+replacement.  The employee, who has never is his life even seen the 
 of a toilet tank, will peer at the broken part in very much the same way
 that a member of a primitive Amazon jungle tribe would look at an electronic
 calculator, and then say, "We're expecting a shipment of these sometime
@@ -128,7 +128,7 @@ Bastinado is about right.  For exceptional wit one might grant keelhauling.
 But staking him out on an anthill should be reserved for the very wittiest.
 		-- Lazarus Long
 Never give an inch!
-The universe is like a safe to which there is a combination -- but the
+The  is like a safe to which there is a combination -- but the
 combination is locked up in the safe.
 		-- Peter DeVries
 toilet toup'ee, n.:
@@ -244,7 +244,7 @@ With their devices thus permanently destroyed, consumers would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
-the insides of broken electronic devices with cheap cigars and going,
+the s of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 My LESLIE GORE record is BROKEN ...
@@ -471,7 +471,7 @@ and bad news.  The good news is that these guys are in top form.  I mean
 I have *never* heard them sound better.  They are *wailing* up here."
 	"The bad news is that God has this girlfriend that sings..."
 He who always plows a straight furrow is in a rut.
-Join the march to save individuality!
+Join the march to save indivi!
 Your life would be very empty if you had nothing to regret.
 To see a need and wait to be asked, is to already refuse.
 TOO BAD YOU CAN'T BUY a voodoo globe so that you could make the earth spin
@@ -594,7 +594,7 @@ For some reason a glaze passes over people's faces when you say
 "Canada".  Maybe we should invade South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
 Behind every successful man you'll find a woman with nothing to wear.
-No user-servicable parts inside.  Refer to qualified service personnel.
+No user-servicable parts .  Refer to qualified service personnel.
 Why don't you fix your little problem... and light this candle?
 		-- Alan Shepherd, the first man into space, Gemini program
 To a Californian, a person must prove himself criminally insane before he
@@ -611,7 +611,7 @@ With their devices thus permanently destroyed, consumers would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
-the insides of broken electronic devices with cheap cigars and going,
+the s of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 Patience is a minor form of despair, disguised as virtue.

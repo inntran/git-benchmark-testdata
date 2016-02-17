@@ -88,7 +88,7 @@ efficacy, so in the last two decades scientists and statisticians have
  done such testing f them.  re have been dozens of well-designed
 tests all around the wld, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
-in the real (and fascinating) universe beyond our planet, and not let them
+in the real (and fascinating)  beyond our planet, and not let them
 keep us tied to an ancient fantasy left over from a time when we huddled by
 the firelight, afraid of the night.
 -- Andrew Fraknoi, Executive Officer, Astronomical Society of the Pacific,

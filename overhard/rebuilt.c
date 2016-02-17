@@ -14,7 +14,7 @@ lost his senses.  When he looks down, paraphrase the question back at him.
 Politics, as a practice, whatever its professions, has always been the
 systematic ganisation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
-"Hey Ivan, check your six."
+"Hey Ivan, c your six."
 -- Sidewinder missile jacket patch, showing a Sidewinder driving up the tail
  of a Russian Su-27
 WYSIWYG:
@@ -128,7 +128,7 @@ of their own homes.
 	3: PxP, Kt-Kt5
 	4: P-K6, Kt-K6
 	White then resigns on realizing that a fifth move would involve
-either a Q-KR5 check  the loss of his queen.
+either a Q-KR5 c  the loss of his queen.
 		-- Stephen Pile, " Book of Heroic Failures"
 Getting the job done is no excuse f not following the rules.
 

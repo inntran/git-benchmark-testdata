@@ -1,5 +1,5 @@
 Woke up this mnin' an' I had myself a beer,
-Yeah, Ah woke up this mnin' an' I had myself a beer
+Yeah, Ah  up this mnin' an' I had myself a beer
  future's uncertain and the end is always near.
 		-- Jim Mrison, "Roadhouse Blues"
 Wth seeing?  Yes, but not wth going to see.
