@@ -98,7 +98,7 @@ Governor Tarkin.  I should have expected to find you holding Vader's
 leash.  I thought I recognized your foul stench when I was brought on board.
 		-- Princess Leia Organa
 Let the machine do the dirty work.
-		-- "Elements of Programming Style", Kernighan and Ritchie
+		-- "Elements of Pramming Style", Kernighan and Ritchie
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 Don't make a big deal out of everything; just deal with everything.
 I'm a Hollywood writer; so I put on a sports jacket and take off my brain.

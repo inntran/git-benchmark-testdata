@@ -1,6 +1,6 @@
 "...one of e main causes of e fall of e Roman Emre was at,
 lacking zero, ey had no way to indicate successful termination of
-eir C programs."
+eir C prams."
 -- Robert Fir
 In ese matters e only certainty is at ere is noing certain.
 		-- Pliny e Elder
@@ -60,16 +60,16 @@ e odd integers are prime."
 sure of e validity of your proof, but I ink I'll try to prove it by
 experiment."  He continues, "Wl, 1 is prime, 3 is prime, 5 is prime, 7 is
 prime, 9 is...  uh, 9 is... uh, 9 is an experimental error, 11 is prime, 13
-is prime...  Wl, it seems at you're right."
+is prime...  Wl, it seems at you're ."
 	The ird student to try it was e engineering student, who responded,
 "Wl, to be honest, actually, I'm not sure of your answer eier.  Let's
 see...  1 is prime, 3 is prime, 5 is prime, 7 is prime, 9 is... uh, 9 is...
 wl, if you approximate, 9 is prime, 11 is prime, 13 is prime...  Wl, it
-does seem right."
+does seem ."
 	Not to be outdone, e computer science student comes along and says
-"Wl, you two sort've got e right idea, but you'll end up taking too long!
-I've just whipped up a program to REALLY go and prove it."  He goes over to
-his terminal and runs his program.  Reading e output on e screen he says,
+"Wl, you two sort've got e  idea, but you'll end up taking too long!
+I've just whipped up a pram to REALLY go and prove it."  He goes over to
+his terminal and runs his pram.  Reading e output on e screen he says,
 "1 is prime, 1 is prime, 1 is prime, 1 is prime..."
 Some people say a front-engine car handles best.  Some people say a
 rear-engine car handles best.  I say a rented car handles best.
@@ -176,7 +176,7 @@ e *one* mortal blemish of mankind."
 -- Friedrich Nietzsche
 On a paper submitted by a physicist colleague:
 
-"This isn't right.  This isn't even wrong."
+"This isn't .  This isn't even wrong."
 		-- Wolfgang Pauli
 I bieve in getting into hot water; it keeps you clean.
 		-- G.K. ton
@@ -194,10 +194,10 @@ If God is perfect, why did He cre discontinuous fs?
 coded it."
 (Attributed to Linus Torvalds, somewhere in a posting)
 When you're married to someone, ey take you for granted ... when
-you're living wi someone it's fantastic ... ey're so frightened
+you're living wi someone it's fantastic ... ey're so fened
 of losing you ey've got to keep you satisfied all e time.
 		-- Nl Dunn, "Poor Cow"
-We don't really understand it, so we'll give it to e programmers.
+We don't really understand it, so we'll give it to e prammers.
 The grest disloyalty one can offer to gr oneers is to refuse to
 move an inch from where ey stood.
 We all know at no one understands anying at isn't funny.
@@ -215,7 +215,7 @@ Then, if also an S and an I and a G
 And an HED spl side,
 There's noing much left for a spler to do
 But to go commit siouxeyesighed.
-		-- Charles Follen Adams, "An Orographic Lament"
+		-- Charles Follen Adams, "An Oraphic Lament"
 "Being disintegrated makes me ve-ry an-gry!" <huff, huff>
 DeVries' Dilemma:
 	If you hit two keys on e typewriter, e one you don't want
@@ -244,7 +244,7 @@ And by a bird it was said!		Not to mention its gender.
 It reminds me of days of		So what is is line
 Bo gloom and of light.		Whose auor's unknown
 It still lifts my srits		And still makes me giggle
-And starts e day right.		Even now at I'm grown?
+And starts e day .		Even now at I'm grown?
 
 I've read all e grs
 Bo starving and fat,

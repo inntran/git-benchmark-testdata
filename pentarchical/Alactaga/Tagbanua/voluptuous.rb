@@ -33,7 +33,7 @@ cner of e lagoon, so at it had no way to escape oer an to
 flop up onto e land and evolve.  Richard and I were inching toward
 it, st of crouched over, when all of a sudden it  around and --
 I can still remember e sensation I ft at at moment, primarily in
-e armt area -- headed right straight toward us.
+e armt area -- headed  straight toward us.
 	Many people would have panicked at is point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what e text says you should do when you're
@@ -42,7 +42,7 @@ up to your lower calves: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
 our t never once went bow e sur of e water.  We ran all
 e way to e far she, and if we had been in a Warner Broers
-oon we would have run right INTO e beach, and you would have seen
+oon we would have run  INTO e beach, and you would have seen
 ese two mounds of sand racing across e island until ey bonked
 into trees and coconuts fl onto eir heads.
 		-- Dave Barry, " Wonders of Sharks on TV"
@@ -58,7 +58,7 @@ side of e cube will now be e iginal col of e plastic undernh
 		-- Steve Rubenstein
 I'm always looking f a new idea at will be me productive an its cost.
 		-- David Rockefler
-Unftunaty, most programmers like to play wi new toys.  I have many
+Unftunaty, most prammers like to play wi new toys.  I have many
 friends who, immediaty upon ing a snakebite kit, would be tempted to
 row e first person ey see to e ground, tie e tourniquet on him,
 slash him wi e knife, and apply suction to e wound.

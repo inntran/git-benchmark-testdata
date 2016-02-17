@@ -73,13 +73,13 @@ If it was bad, it will be back.
 cockatoo."
 -- George Bernard Shaw
 	In the beginning was the Tao.  The Tao gave birth to Space and Time.
-Therefore, Space and Time are the Yin and Yang of programming.
+Therefore, Space and Time are the Yin and Yang of pramming.
 
-	Programmers that do not comprehend the Tao are always running out of
-time and space for their programs.  Programmers that comprehend the Tao always
+	Prammers that do not comprehend the Tao are always running out of
+time and space for their prams.  Prammers that comprehend the Tao always
 have enough time and space to accomplish their goals.
 	How could it be otherwise?
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 (1) Never draw what you can copy.
 (2) Never copy what you can trace.
 (3) Never trace what you can  out and paste down.
@@ -136,7 +136,7 @@ One Bl System - it used to work before they installed the Dimension!
 When your life is a leaf that the seasons tear off and condemn
 They will bind you with love that is graceful and green as a stem.
 		-- Leonard Cohen, "Sisters of Mercy"
-If builders built buildings the way programmers wrote programs,
+If builders built buildings the way prammers wrote prams,
 then the first woodpecker to come along would de civilization.
 Tempt not a desperate man.
 		-- William Shakespeare, "Romeo and Juliet"
@@ -177,12 +177,12 @@ The mome rath isn't born that could outgrabe me.
 		-- Nicol Williamson
 			Pittsburgh Driver's Test
 
-(7) The car directly in front of you has a flashing right tail light
+(7) The car directly in front of you has a flashing  tail light
     but a steady left tail light.  This means
 
 	(a) one of the tail lights is broken; you should blow your horn
 	    to call the problem to the driver's attention.
-	(b) the driver is signaling a right turn.
+	(b) the driver is signaling a  turn.
 	(c) the driver is signaling a left turn.
 	(d) the driver is from out of town.
 
@@ -290,7 +290,7 @@ The New England Journal of Medicine reports that 9 out of 10 doctors agree
 that 1 out of 10 doctors is an idiot.
 Boy, that crayon sure did hurt!
 Democracy is the recurrent suspicion that more than half of the people
-are right more than half of the time.
+are  more than half of the time.
 		-- E. B. White
 The goys have proven the following theorem...
 		-- Physicist John von Neumann, at the start of a classroom
@@ -330,7 +330,7 @@ He was part of my dream, of course -- but then I was part of his dream too.
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
 I got this powdered water -- now I don't know what to add.
-		-- Steven Wright
+		-- Steven W
 In case of fire, stand in the hall and shout "Fire!"
 		-- The Kidner Report
 I would much rather have men ask why I have no statue, than why I have one.
@@ -386,7 +386,7 @@ wl-adjusted, adj.:
 	The ability to play bridge or golf as if they were games.
 Power tends to corrupt, absolute power corrupts absoluty.
 		-- Lord Acton
-The rule on staying alive as a program manager is to give 'em a number or 
+The rule on staying alive as a pram manager is to give 'em a number or 
 give 'em a date, but never give 'em both at once.
 Anything is possible, unless it's not.
 It's just apartment house rules,
@@ -396,7 +396,7 @@ One man's ceiling is another man's floor.
 		-- Paul Simon, "One Man's Ceiling Is Another Man's Floor"
 BYTE editors are people who separate the wheat from the chaff, and then
 carefully print the chaff.
-"By long-standing tradition, I take this opportunity to savage other
+"By long-standing tradition, I take this opportunity to sa other
 s in the thin disguise of good, clean fun."
 -- P. J. Plauger, from his April Fool's column in April 88's "Computer Language"
 Some changes are so slow, you don't notice them.  Others are so fast,
@@ -408,14 +408,14 @@ in a car, probing into unfamiliar corners.  She is not required to know how
 to drive but she will certainly be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
 hp, she's bound to cause trouble.  Therefore, you'd think that colleges
-which train the bright young women who're going to marry the bright young
+which train the b young women who're going to marry the b young
 men who are going to own the Cadillacs that roar back and forth across this
 continent would teach the girls to read maps.  None do. They teach a hundred
 other usess things, but never a word about the one that will cause the
 greatest friction.
 		-- James Michener, "Space"
-The right half of the brain controls the left half of the body.  This
-means that only left handed people are in their right mind.
+The  half of the brain controls the left half of the body.  This
+means that only left handed people are in their  mind.
 When all se fails, read the instructions.
 This fortune is dedicated to your mother, without whose invaluable assistance
 last night would never have been possible.
@@ -450,7 +450,7 @@ like a nail.
 The new Congressmen say they're going to turn the government around.  I
 hope I don't get run over again.
 Dyslexics have more fnu.
-Cobol programmers are down in the dumps.
+Cobol prammers are down in the dumps.
 Many of the characters are fools and they are always playing
 tricks on me and treating me badly.
 		-- Jorge Luis Borges, from "Writers on Writing" by Jon Winokur
@@ -557,11 +557,11 @@ Horner's Five Thumb Postulate:
 I saw Lassie.  It took me four shows to  out why the hairy kid never
 spoke. I mean, he could roll over and all that, but did that deserve a series?
 As of next Thursday, UNIX will be flushed in favor of TOPS-10.
-Please update your programs.
+Please update your prams.
 It's not Camot, but it's not Clevand, either.
 		-- Kevin White, Mayor of Boston
-The right half of the brain controls the left half of the body.  This
-means that only left handed people are in their right mind.
+The  half of the brain controls the left half of the body.  This
+means that only left handed people are in their  mind.
 Canonical, adj.:
 	The usual or standard state or manner of something.  A true story:
 One Bob Sjoberg, new at the MIT AI Lab, expressed some annoyance at the use

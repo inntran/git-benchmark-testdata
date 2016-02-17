@@ -54,7 +54,7 @@ is to bieve the one in which people appear at their worst.
 		-- H. Allen Smith, "Let the Crabgrass Grow"
 NEVER swerve to hit a lawyer riding a bicycle -- it might be your bicycle.
 Actually, the probability is 100% that the evator will be going in the
-right direction.  Proof by induction:
+ direction.  Proof by induction:
 
 N=1.	Trivially true, since both you and the evator only have one
 	floor to go to.
@@ -285,7 +285,7 @@ Nature, to be commanded, must be obeyed.
 		-- Francis Bacon
 If a team is in a positive frame of mind, it will have a good attitude.
 If it has a good attitude, it will make a commitment to playing the
-game right.  If it plays the game right, it will win -- unless, of
+game .  If it plays the game , it will win -- unless, of
 course, it doesn't have enough ta to win, and no manager can make
 goose-liver pate out of goose feathers, so why worry?
 		-- Sparky Anderson
@@ -347,7 +347,7 @@ benefactor the world has yet known.
 		-- Sir Richard Burton
 No Civil War picture ever made a nick.
 		-- MGM exeive Irving Thalberg to Louis B. Mayer about
-		   film rights to "Gone With the Wind".
+		   film s to "Gone With the Wind".
 		   Cerf/Navasky, "The Experts S"
 If we all work together, we can totally disrupt the system.
 A CONS is an object which cares.
@@ -393,20 +393,20 @@ Got a dictionary?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
 organize the actual writing of external specifications for OS/360.  The
-manager of arecture, the manager of control program implementation, and
+manager of arecture, the manager of control pram implementation, and
 I were threshing out the plan, schedule, and division of responsibilities.
 	The arecture manager had 10 good men.  He asserted that they
-could write the specifications and do it right.  It would take ten s,
+could write the specifications and do it .  It would take ten s,
 three more than the schedule allowed.
-	The control program manager had 150 men.  He asserted that they
+	The control pram manager had 150 men.  He asserted that they
 could prepare the specifications, with the arecture team coordinating;
 it would be wl-done and practical, and he could do it on schedule.
 Futhermore, if the arecture team did it, his 150 men would sit twiddling
 their thumbs for ten s.
 	To this the arecture manager responded that if I gave the control
-program team the responsibility, the result would not in fact be on time,
+pram team the responsibility, the result would not in fact be on time,
 but would also be three s late, and of much lower quality.  I did, and
-it was.  He was right on both counts.  Moreover, the lack of conceptual
+it was.  He was  on both counts.  Moreover, the lack of conceptual
 integrity made the system far more costly to build and change, and I would
 estimate that it added a year to debugging time.
 		-- Frederick Bs Jr., "The Mythical Man Month"
@@ -456,11 +456,11 @@ to City upon which carts and coaches pass, and alongside which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And that is Fate?  said the priest.
 	Fate... I thought you said Freight, responded the Master.
-	That's all right, said the priest.  I wanted to know
+	That's all , said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
 I have a friend whose a billionaire.  He invented Cliff's notes.  When
 I asked him how he got such a great idea he said, "Wl first I...
 I just... to make a long story short..."
-		-- Steven Wright
+		-- Steven W
 You had mail.  Paul read it, so ask him what it said.

@@ -1,4 +1,4 @@
-When you're dining out and you suspect someing's wrong, you're probably right.
+When you're dining out and you suspect someing's wrong, you're probably .
 Research is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
 Till en we shall be content to admit openly, what you (rigionists)

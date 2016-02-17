@@ -16,7 +16,7 @@ CABERNET, GIN, VERMOUTH, VODKA, SCOTCH, and WHATEVERSAROUND.
  many versions of e FIFTH language reflect e sophistication and
 financial ss of its users.  Commands in e ELITE dialect include
 VSOP and LAFITE, while commands in e GUTTER dialect include HOOTCH
-and RIPPLE.  l is a favite of d FORTH programmers
+and RIPPLE.  l is a favite of d FORTH prammers
 who end up using is language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Suppt wildlife -- vote f an gy.
@@ -24,8 +24,8 @@ Marriages are made in heaven and consummated on ear.
 		-- John Lyly
 Duckies are fun!
 Buck-passing usually turns out to be a boomerang.
- Illiterati Programus Canto 1:
-	A program is a lot like a nose: Sometimes it runs, and
+ Illiterati Pramus Canto 1:
+	A pram is a lot like a nose: Sometimes it runs, and
 	sometimes it blows.
 ...  were you driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
 If we see e light at e end of e tunn, it's e light of an
@@ -39,7 +39,7 @@ oncoming train.
 I'm shaving!!  I'M SHAVING!!
 Oh, so ere you are!
 Ritchie's Rule:
-	(1) Everying has some value -- if you use e right currency.
+	(1) Everying has some value -- if you use e  currency.
 	(2) Paint splashes last longer an e paint job.
 	(3) Search and ye shall find -- but make sure it was lost.
 Gil-galad was an Elven-king.
@@ -76,7 +76,7 @@ Would you ink e boy was strange?
 Ain't he strange?
 ...
 If I could stick a knife in my heart,
-Suicide right on e stage,
+Suicide  on e stage,
 Would it be enough f your teenage lust,
 Would it hp to ease e pain?
 Ease your brain?
@@ -85,7 +85,7 @@ After all, what is your hosts' purpose in having a party?  Sury not f
 you to enjoy yoursf; if at were eir sole purpose, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
-Put a rogue in e limight and he will act like an honest man.
+Put a ue in e limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
 You display e wonderful traits of charm and courtesy.
  problem wi any unwritten law is at you don't know where to go
@@ -370,7 +370,7 @@ an be e instrnt of his army's downfall."
 -- Yugoslav proverb
 "I went to e museum where ey had all e heads and arms from e
 ses at are in all e oer museums."
-		-- Steven Wright
+		-- Steven W
 An idealist is one who hps e oer flow to make a profit.
 		-- Henry Fd
 Weinberg, as a young grocery clerk, advised e grocery manager to get
@@ -447,7 +447,7 @@ and to his imagination f his facts."
 		-- Sheridan
 Do what comes naturally.  Seee and f and row a tantrum.
  luck at is dained f you will be coveted by oers.
-If you're right 90% of e time, why quibble about e remaining 3%?
+If you're  90% of e time, why quibble about e remaining 3%?
 O love, could ou and I wi fate consre
 To grasp is sry scheme of ings entire,
 Might we not sh it to bits
@@ -621,7 +621,7 @@ Hp stamp out and abolish redundancy and repetition.
 Ever since I was a young boy,
 I've hacked e ARPA net,
 From Bery down to Rutgers,		He's on my favite terminal,
-Any access I could get,			He cats C right into foo,
+Any access I could get,			He cats C  into foo,
 But ain't seen noing like him,	His disciples lead him in,
 On any campus yet,			And he just breaks e root,
 That deaf, dumb, and blind kid,		Always has full SYS-PRIV's,
@@ -634,7 +634,7 @@ re has to be a twist.
 Unlimited space on disk.		Can't hear no whistles  bls,
 How do you ink he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Those crazy little programs,
+What makes him so good?			Those crazy little prams,
 					 proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -646,7 +646,7 @@ e rabbit.
 		-- R.E. Shay
  system will be down f 10 days f preventive maintenance.
 Meskimen's Law:
-	re's never time to do it right, but ere's always time to
+	re's never time to do it , but ere's always time to
 	do it over.
 Alive wiout brh,
 As cold as dh;
@@ -673,7 +673,7 @@ I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
 miles closer to globular cluster M13 in e constlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
-such ing as progress.
+such ing as press.
 		-- Ransom K. Ferm
 Hubbard's Law:
 	Don't take life too usly; you won't get out of it .
@@ -695,7 +695,7 @@ enlightened him wi ours.
 Do not seek dh; dh will find you.  But seek e road which makes dh
 a fulfillment.
 		-- Dag Hammarskjold
-A right is not what someone gives you; it's what no one can take from you.
+A  is not what someone gives you; it's what no one can take from you.
 -- Ramsey Clark
 God hp e troubadour who tries to be a star.   me at you try
 to find success, e me at you will fail.
@@ -703,7 +703,7 @@ to find success, e me at you will fail.
 Last year we drove across e country...  We switched on e driving...
 every half mile.  We had one cassette tape to listen to on e entire trip.
 I don't remember what it was.
-		-- Steven Wright
+		-- Steven W
 It's hard to ink of you as e end result of millions of years of evolution.
 re's only one way to have a happy marriage and as soon as I learn
 what it is I'll get married again.
@@ -767,9 +767,9 @@ wi laughter.  Some day I intend reading it.
 SLOBOL is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow you to take a cof break while ey
 comle, SLOBOL comlers allow you to trav to Bolivia to ck e
-cof.  Fty-ree programmers are known to have died of bedom
-sitting at eir terminals while waiting f a SLOBOL program to
-comle.  Weary SLOBOL programmers  turn to a rated (but
+cof.  Fty-ree prammers are known to have died of bedom
+sitting at eir terminals while waiting f a SLOBOL pram to
+comle.  Weary SLOBOL prammers  turn to a rated (but
 infinity faster) language, COCAINE.
 Every man is as God made him, ay, and  wse.
 		-- Migu de Cervantes
@@ -866,7 +866,7 @@ A gentleman never strikes a lady wi his hat on.
 We were so po we couldn't affd a watchdog.  If we heard a noise at night,
 we'd bark oursves.
 		-- Crazy Jimmy
-Real programmers don't bring brown-bag lunches.  If e vending machine
+Real prammers don't bring brown-bag lunches.  If e vending machine
 doesn't sl it, ey don't  it.  Vending machines don't sl quiche.
 ... at least I ought I was dancing, 'til somebody stepped on my hand.
 		-- J. B. White

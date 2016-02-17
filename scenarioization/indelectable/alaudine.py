@@ -3,7 +3,7 @@ Four thousand throats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of the Dove", stardate unknown
 Once you've tried to change the world you find it's a whole bunch easier
 to change your mind.
-"Beware of programmers carrying screwdrivers."
+"Beware of prammers carrying screwdrivers."
 -- Chip Salzenberg
 He who despairs over an event is a coward, but he who holds hopes for
 the human condition is a fool.
@@ -93,7 +93,7 @@ Corporation as 'a bunch of mindless jerks who were the first against the
 wall when the revolution came'.
 		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
 One good turn usually gets most of the blanket.
-Like punning, programming is a play on words.
+Like punning, pramming is a play on words.
 While most peoples' opinions change, the conviction of their
 correctness never does.
 Fishbowl, n.:
@@ -108,7 +108,7 @@ Uh, no...
 	Status is when the President calls you in to discuss a
 	problem with him.
 
-Uh, that still ain't right...
+Uh, that still ain't ...
 	STATUS is when you're in the Oval Office talking to the President,
 	and the phone rings.  The President picks it up, listens for a
 	minute, and hands it to you, saying, "It's for you."
@@ -144,7 +144,7 @@ Please stand for the National Anthem:
 
 	Oh, say can you see by dawn's early light
 	What so proudly we hailed at the twilight's last gleaming?
-	Whose broad stripes and bright stars through the perilous 
+	Whose broad stripes and b stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
 	And the rockets' red glare, the bombs bursting in air,
 	Gave proof through the night that our flag was still there.
@@ -186,7 +186,7 @@ You will receive a legacy which will place you above want.
 Should I start with the time I SWITCHED personalities with a BEATNIK
 hair stylist or my failure to refer five TEENAGERS to a good OCULIST?
 I have yet to see any problem, however complicated, which, when
-you looked at it in the right way, did not become still more complicated.
+you looked at it in the  way, did not become still more complicated.
 		-- Poul Anderson
 Cynic, n.:
 	Experienced.
@@ -228,13 +228,13 @@ O Light to us that wander here
 Amid the world of woven trees!
 
 	Gilthoni!  O Elbereth!
-	Clear are thy eyes and bright thy breath!
+	Clear are thy eyes and b thy breath!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
 
 O stars that in the Sunless Year
 With shining hand by her were sown,
-In windy fids now bright and clear
+In windy fids now b and clear
 We see you silver blossom blown!
 
 	O Elbereth!  Gilthoni!
@@ -258,7 +258,7 @@ lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
 you get a divorce so I can marry her.  If you win, I promise never to see
 her again.  Okay?"
 
-"Alright," agreed the husband.  "But how about a quarter a point
+"Al," agreed the husband.  "But how about a quarter a point
 on the side to make it interesting?"
 And if you wonder,
 What I am doing,
@@ -276,7 +276,7 @@ All through the day how the hours rush by,
 		-- John Denver, "Saturday Night in Toledo Ohio"
 QOTD:
 	"Don't let your mind wander -- it's too little to be let out alone."
-A language that doesn't affect the way you think about programming is
+A language that doesn't affect the way you think about pramming is
 not worth knowing.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
@@ -285,7 +285,7 @@ Being owned by someone used to be called slavery -- now it's called commitment.
 You scratch my tape, and I'll scratch yours.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
 a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
-"Text processing has made it possible to right-justify any idea, even
+"Text processing has made it possible to -justify any idea, even
 one which cannot be justified on any other grounds."
 		-- J. Finnegan, USC.
 Let us, then, flow citizens, unite with one heart and one mind.  Let us
@@ -328,7 +328,7 @@ The human mind ordinarily operates at only ten percent of its capacity
 You will pay for your sins.  If you have already paid, please disregard
 this message.
 One planet is all you get.
-Kids always brighten up a house; mostly by leaving the lights on.
+Kids always ben up a house; mostly by leaving the lights on.
 Vila: "I think I have just made the biggest mistake of my life."
 
 Orac: "It is unliky.  I would predict there are far greater mistakes
@@ -341,21 +341,21 @@ boved.
 		-- Russl Baker
 	Something mysterious is formed, born in the silent void.  Waiting
 alone and unmoving, it is at once still and yet in constant motion.  It is
-the source of all programs.  I do not know its name, so I will call it the
-Tao of Programming.
+the source of all prams.  I do not know its name, so I will call it the
+Tao of Pramming.
 	If the Tao is great, then the operating system is great.  If the
 operating system is great, then the compiler is great.  If the compiler is
 greater, then the applications is great.  The user is pleased and there is
 harmony in the world.
-	The Tao of Programming flows far away and returns on the wind of
+	The Tao of Pramming flows far away and returns on the wind of
 morning.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 For a light heart lives long.
 		-- Shakespeare, "Love's Labour's Lost"
 A truth that's told with bad intent
 Beats all the lies you can invent.
 		-- William Blake
-Voodoo Programming:  Things programmers do that they know shouldn't work but
+Voodoo Pramming:  Things prammers do that they know shouldn't work but
 they try anyway, and which sometimes actually work, such as recompiling
 everything.
 -- Karl Lehenbauer
@@ -408,13 +408,13 @@ the issue afterwards.
 Women, when they are not in love, have all the cold blood of an experienced 
 attorney.
 		-- Honor'e de Balzac
-I'll defend to the death your right to say that, but I never said I'd
+I'll defend to the death your  to say that, but I never said I'd
 listen to it!
 		-- Tom Galloway with apologies to Voltaire
-A Law of Computer Programming:
-	Make it possible for programmers to write in English
-	and you will find that programmers cannot write in English.
-When you're dining out and you suspect something's wrong, you're probably right.
+A Law of Computer Pramming:
+	Make it possible for prammers to write in English
+	and you will find that prammers cannot write in English.
+When you're dining out and you suspect something's wrong, you're probably .
 All we know is the phenomenon: we spend our time sending messages to each
 other, talking and trying to listen at the same time, exchanging information.
 This seems to be our most urgent biological f; it is what we do with
@@ -461,7 +461,7 @@ said the master.
 	"And is the Tao in the DOS for a personal computer?"
 	The master coughed and shifted his position slightly.  "The lesson
 is over for today," he said.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 Come, , fill the flowing bowl until it does run over,
 Tonight we will all merry be -- tomorrow we'll get sober.
 		-- John Fletcher, "The Bloody Brother", II, 2

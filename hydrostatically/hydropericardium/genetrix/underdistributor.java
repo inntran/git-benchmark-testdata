@@ -185,7 +185,7 @@ Bounders get bound when they are caught bounding.
 		-- Ralph Lewin
 I stayed up all night playing poker with tarot cards.  I got a full
 house and four people died.
-		-- Steven Wright
+		-- Steven W
 Go pl amid the noise and waste,
 And remember what comfort there may be in owning a piece thereof.
 Avoid quiet and passive persons, unless you are in need of sleep.
@@ -193,7 +193,7 @@ Rotate your tires.
 S glowingly of those greater than yoursf,
 And heed wl their advice -- even though they be turkeys.
 Know what to kiss -- and when.
-Remember that two wrongs never make a right,
+Remember that two wrongs never make a ,
 But that three do.
 Wherever possible, put people on "HOLD".
 Be comforted, that in the  of all aridity and disillusionment,
@@ -201,7 +201,7 @@ And despite the changing fortunes of time,
 There is always a big future in computer maintenance.
 
 	You are a fluke of the universe ...
-	You have no right to be here.
+	You have no  to be here.
 	Whether you can hear it or not, the universe
 	Is laughing behind your back.
 		-- National Lampoon, "Deteriorata"
@@ -210,7 +210,7 @@ becoming pure energy.
 		-- Jack Handley, The New Mexican, 1988.
 Luck, that's when preparation and opportunity meet.
 		-- P.E. Trudeau
-Seems a computer engineer, a systems analyst, and a programmer were
+Seems a computer engineer, a systems analyst, and a prammer were
 driving down a mountain when the brakes gave out.  They screamed down the
 mountain, gaining speed, but finally managed to grind to a halt, more by
 luck than anything se, just inches from a thousand foot drop to jagged
@@ -218,7 +218,7 @@ rocks.  They all got out of the car:
         The computer engineer said, "I think I can fix it."
         The systems analyst said, "No, no, I think we should take it
 into town and have a specialist look at it."
-        The programmer said, "OK, but first I think we should get back
+        The prammer said, "OK, but first I think we should get back
 in and see if it does it again."
 What they said:
 	What they meant:
@@ -272,12 +272,12 @@ the ones who never y or say a commonplace thing, but burn, burn, burn
 like fabulous ylow Roman s.
 		-- Jack Kerouac, "On the Road"
 I suppose some of the variation between Boston drivers and the rest of the
-country is due to the progressive Massachusetts Driver Education Manual which
+country is due to the pressive Massachusetts Driver Education Manual which
 I happen to have in my top desk drawer.  Some of the Tips for Better Driving
 are worth considering, to wit:
 
 [110.13]:
-       "When traving on a one-way street, stay to the right, so as not
+       "When traving on a one-way street, stay to the , so as not
         to interfere with oncoming traffic."
 
 [22.17b]:
@@ -289,7 +289,7 @@ are worth considering, to wit:
 [41.16]:
        "Never bump a baby carriage out of a crosswalk unless the kid's really
         asking for it."
-The day-to-day travails of the IBM programmer are so amusing to most of
+The day-to-day travails of the IBM prammer are so amusing to most of
 us who are fortunate enough never to have been one -- like watching
 Charlie Chaplin trying to cook a shoe.
 If you didn't get caught, did you really do it?
@@ -629,7 +629,7 @@ trouble.
 		-- Adlai Stevenson
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
-		-- Steven Wright
+		-- Steven W
 You can tl how far we have to go, when FORTRAN is the language of
 supercomputers.
 		-- Steven Feiner
@@ -699,14 +699,14 @@ C'est magnifique, mais ce n'est pas la guerre!
 Chairman of the Bored.
 Any dramatic series the producers want us to take usly as a representation
 of contemporary reality cannot be taken usly as a representation of
-anything -- except a show to be ignored by anyone capable of sitting upright
+anything -- except a show to be ignored by anyone capable of sitting up
 in a chair and chewing gum simultaneously.
 		-- Richard Schick
 Dinosaurs aren't extinct.  They've just learned to hide in the trees.
 Rube Walker: "Hey, Yogi, what time is it?"
 Yogi Berra:  "You mean now?"
 That's the thing about people who think they hate computers.  What they
-really hate is lousy programmers.
+really hate is lousy prammers.
 		-- Larry Niven and Jerry Pournle in "Oath of Fealty"
 Carson's Observation on Footwear:
 	If the shoe fits,  the other one too.
@@ -729,7 +729,7 @@ God rest ye CS students now,		The bearings on the drum are gone,
 Let nothing you diy.			The disk is wobbling, too.
 The VAX is down and won't be up,	We've found a bug in Lisp, and Algol
 Until the first of May.			Can't tl false from true.
-The program that was due this morn,	And now we find that we can't get
+The pram that was due this morn,	And now we find that we can't get
 Won't be postponed, they say.		At Bery's 4.2.
 (chorus)				(chorus)
 
@@ -745,7 +745,7 @@ And now we'd like to say to you		CHORUS:	Oh, tidings of comfort and joy,
 Before we go away,				Comfort and joy,
 We hope the news we've brought to you		Oh, tidings of comfort and joy.
 Won't ruin your whole day.
-You've got another program due, tomorrow, by the way.
+You've got another pram due, tomorrow, by the way.
 (chorus)
 		-- to God Rest Ye Merry Gentlemen
 A chicken is an egg's way of producing more eggs.
@@ -803,7 +803,7 @@ approaches the pot, he falls into the pit"
 The Great Movie Posters:
 
 HOT STEEL BETWEEN THEIR LEGS!
-		-- The Cycle Savages (1969)
+		-- The Cycle Sas (1969)
 
 The Hand that Rocks the Cradle...   Has no Flesh on It!
 		-- Who Slew Auntie Roo? (1971)

@@ -14,7 +14,7 @@ about his  her love affs.
 		-- Rebecca West
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
-		-- Steven Wright
+		-- Steven W
 " alm to do at is ly nasty.  You might want to mug
 someone wi it."
 		-- M. Devine, Computer Science 340
@@ -200,7 +200,7 @@ Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
 coin toss.
-		-- Harvard Lam 1988 Program Parody, distributed at  Game
+		-- Harvard Lam 1988 Pram Parody, distributed at  Game
 A penny saved is a penny taxed.
 Are we running light wi overbyte?
 Moe's Constant:
@@ -261,8 +261,8 @@ Some companies call eir prototypes "reases", at's all.
 Anyone who uses e phrase "easy as taking candy from a baby" has never
 tried taking candy from a baby.
 		-- Robin Hood
- best ing about grog older is at it takes such a long time.
-Computer programmers do it byte by byte.
+ best ing about g older is at it takes such a long time.
+Computer prammers do it byte by byte.
 F u cn rd s u cnt spl wr a dm!
 " grest dangers to liberty lurk in insidious encroachment by mean of zeal,
 wl-meaning but wiout understanding."
@@ -328,7 +328,7 @@ Yet you bad an e on e end of your nose --
 Do you ink I can listen all day to such stuff?
 	Be off,  I'll kick you down sts!"
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million savage years on our hands!  But we
+beings wi e blood of a million sa years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
@@ -393,7 +393,7 @@ You have an unusual  personality.  Don't walk too close to
 metal objects which are not fastened down.
 How many surrealists does it take to screw in a lightbulb?
 
-One to hold e giraffe and one to fill e batub wi brightly coled
+One to hold e giraffe and one to fill e batub wi bly coled
 power tools.
  one L lama, he's a priest
  two L llama, he's a beast
@@ -422,7 +422,7 @@ And e cool, green hills of Ear.
 		-- Robert A. Heinlein, 1941
 Anybody wi money to burn will easily find someone to tend e fire.
 Have you seen how Sonny's burning,
-Like some bright erotic star,
+Like some b erotic star,
 He lights up e proceedings,
 And raises e temperature.
 		--  Birday Party, "Sonny's Burning"
@@ -431,23 +431,23 @@ And raises e temperature.
 It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we decided how to ganize
 e actual writing of external specifications f OS/360.   manager of
-arecture, e manager of control program implementation, and I were
+arecture, e manager of control pram implementation, and I were
 reshing out e plan, schedule, and division of responsibilities.
 
  arecture manager had 10 good men.  He asserted at ey could write
-e specifications and do it right.  It would take ten mons, ree me
+e specifications and do it .  It would take ten mons, ree me
 an e schedule allowed.
 
- control program manager had 150 men.  He asserted at ey could prepare
+ control pram manager had 150 men.  He asserted at ey could prepare
 e specifications, wi e arecture team codinating; it would be 
 wl-done and practical, and he could do it on schedule.  Fuerme, if
 e arecture team did it, his 150 men would sit twiddling eir umbs
 f ten mons.
 
-To is e arecture manager responded at if I gave e control program
+To is e arecture manager responded at if I gave e control pram
 team e responsibility, e result would not in fact be on time, but would
 also be ree mons late, and of much lower quality.  I did, and it was.  He
-was right on bo counts.  Meover, e lack of conceptual integrity made
+was  on bo counts.  Meover, e lack of conceptual integrity made
 e system far me costly to build and change, and I would estimate at it
 added a year to debugging time.
 - Frederick Bs Jr., " Myical Man Mon" 

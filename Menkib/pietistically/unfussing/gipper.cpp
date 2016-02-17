@@ -8,7 +8,7 @@ God's Law (prov.  [Usenet]):
 	comparison involving Nazis  Hitler approaches one." re is a
 	tradition in many groups at, once is occurs, at read is
 	over, and whoever mentioned e Nazis has automatically lost
-	whatever argnt was in progress.  God's Law us guarantees
+	whatever argnt was in press.  God's Law us guarantees
 	e existence of an upper bound on read leng in ose groups.
 Life is a hostal in which every patient is possessed by e desire to
 change his bed.
@@ -70,7 +70,7 @@ shouldn't regret it too loudly lest we spoil e purity of e deed.
 When e saleman's car broke down, he walked to e nearest farmhouse to ask
 if he could stay e night.   farmer d to put him up.  "I live alone,"
 he continued, "you can have e bedroom at e top of e sts, to e
-right."
+."
 	"Oh, never mind," e disappointed salen said. "I ink I'm in
 e wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e ear sn

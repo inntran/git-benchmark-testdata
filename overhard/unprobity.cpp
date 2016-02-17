@@ -5,7 +5,7 @@ God is dead and I don't fe all too wl either....
 Ever since I was a young boy,
 I've hacked the ARPA net,
 From Bery down to Rutgers,		He's on my favorite terminal,
-Any access I could get,			He cats C right into foo,
+Any access I could get,			He cats C  into foo,
 But ain't seen nothing like him,	His disciples lead him in,
 On any campus yet,			And he just breaks the root,
 That deaf, dumb, and blind kid,		Always has full SYS-PRIV's,
@@ -18,7 +18,7 @@ The UNIX wizard's got			Ain't got no distractions,
 Unlimited space on disk.		Can't hear no whistles or bls,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Those crazy little programs,
+What makes him so good?			Those crazy little prams,
 					The proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -83,7 +83,7 @@ in a car, probing into unfamiliar corners.  She is not required to know how
 to drive but she will certainly be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
 hp, she's bound to cause trouble.  Therefore, you'd think that colleges
-which train the bright young women who're going to marry the bright young
+which train the b young women who're going to marry the b young
 men who are going to own the Cadillacs that roar back and forth across this
 continent would teach the girls to read maps.  None do. They teach a hundred
 other usess things, but never a word about the one that will cause the
@@ -93,7 +93,7 @@ A good name lost is sdom regained.  When character is gone,
 all is gone, and one of the richest jews of life is lost forever.
 		-- J. Hawes
 "Okay," Bobby said, getting the hang of it, "then what's the matrix?  If
-she's a deck, and Danbala's a program, what's cyberspace?"
+she's a deck, and Danbala's a pram, what's cyberspace?"
   "The world," Lucas said.
 -- William Gibson, _Count Zero_
 I'll learn to play the Saxophone,
@@ -170,7 +170,7 @@ stand prices were outrageous.  Besides, I hadn't had a ecue in a
 long time.  I went to the theater and the sign said adults $5 children
 $2.50.  I told them I wanted 2 boys and a girl.  I once took a cab to
 a drive-in movie.  The movie cost me $95.
-		-- Steven Wright
+		-- Steven W
 Did you know that for the price of a 280-Z you can  two Z-80's?
 		-- P.J. Plauger
 The Greatest Mathematical Error 
@@ -237,7 +237,7 @@ placed in an ashtray, the smoke will waft into the  of the non-smoker.
 Wl, O.K.  I'll compromise with my principles because of EXISTENTIAL DESPAIR!
 Get Revenge!  Live long enough to be a problem for your children!
 "An ounce of prevention is worth a ton of code."
--- an anonymous programmer
+-- an anonymous prammer
 The generation of random numbers is too important to be left to c.
 I used to have a drinking problem.  Now I love the stuff.
 I don't want to bore you, but there's nobody se around for me to bore.
@@ -273,7 +273,7 @@ Declaration not for that, but for future use.
 		--  Abraham Lincoln
 They are rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-You are a fluke of the universe; you have no right to be here.
+You are a fluke of the universe; you have no  to be here.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
 ... Had this been an actual emergency, we would have fled in terror,
@@ -286,7 +286,7 @@ the Master stayed his hand, saying, "That is the 'Body of a rock'."
 		-- Eric Van Lustbader
 "I'm not afraid of dying, I just don't want to be there when it happens."
 -- Woody Allen
-Wl, it's hard for a mere man to bieve that woman doesn't have equal rights.
+Wl, it's hard for a mere man to bieve that woman doesn't have equal s.
 		-- Dwight D. Eisenhower
 Experience is the worst teacher.  It always gives the test first and
 the instruction afterward.
@@ -440,7 +440,7 @@ Try:
 						(C s)
 	If I had a ) for every dollar of the national debt, what would I have?
 	sleep with me				(anything up to 4.3BSD)
-Nothing in progression can rest on its original plan.  We may as wl think of
+Nothing in pression can rest on its original plan.  We may as wl think of
 rocking a grown man in the cradle of an infant.  -- Edmund Burke
 QOTD:
 	"Of course there's no reason for it, it's just our policy."
@@ -467,11 +467,11 @@ regardless of race, creed, color, obesity, or number of dangling keys...
 MAC user's dynamic debugging list evaluator?  Never heard of that.
 MOUNT TAPE U1439 ON B3, NO RING
 Tephone, n.:
-	An invention of the devil which abrogates some of the advantages
+	An invention of the devil which abates some of the advantages
 	of making a disable person keep his distance.
 		-- Ambrose Bierce
 All great ideas are controversial, or have been at one time.
-To the systems programmer, users and applications serve only to provide a
+To the systems prammer, users and applications serve only to provide a
 test load.
 	How do you insult a lawyer?
 	You might as wl not even try.  Consider: of all the highly
@@ -485,35 +485,35 @@ You like to form new friendships and make new acquaintances.
 Victory or defeat!
 Don't get mad, get interest.
 Here comes the orator, with his flood of words and his drop of reason.
-If you don't have time to do it right, where are you going to find the time
+If you don't have time to do it , where are you going to find the time
 to do it over?
 New members are urgently needed in the Society for Prevention of
 Cruty to Yoursf.  Apply within.
-	There was once a programmer who was attached to the court of the
-warlord of Wu.  The warlord asked the programmer: "Which is easier to design:
+	There was once a prammer who was attached to the court of the
+warlord of Wu.  The warlord asked the prammer: "Which is easier to design:
 an accounting package or an operating system?"
-	"An operating system," replied the programmer.
+	"An operating system," replied the prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to the complexity of an operating
 system," he said.
-	"Not so," said the programmer, "when designing an accounting package,
-the programmer operates as a mediator between people having different ideas:
+	"Not so," said the prammer, "when designing an accounting package,
+the prammer operates as a mediator between people having different ideas:
 how it must operate, how its reports must appear, and how it must conform to
 the tax laws.  By contrast, an operating system is not limited my outside
-appearances.  When designing an operating system, the programmer seeks the
+appearances.  When designing an operating system, the prammer seeks the
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
 	The warlord of Wu nodded and smiled.  "That is all good and wl, but
 which is easier to debug?"
-	The programmer made no reply.
-		-- Geoffrey James, "The Tao of Programming"
+	The prammer made no reply.
+		-- Geoffrey James, "The Tao of Pramming"
 "I went to a job interview the other day, the guy asked me if I had any
 questions , I said yes, just one, if you're in a car traving at the
 speed of light and you turn your headlights on, does anything happen?
 
 He said he couldn't answer that, I told him sorry, but I couldn't work
 for him then.
-		-- Steven Wright
+		-- Steven W
 Every man takes the limits of his own fid of vision for the limits
 of the world.
 		-- Schopenhauer
@@ -545,7 +545,7 @@ Have a taco.
 Great spirits have always encountered vio opposition from mediocre minds.
 		-- Albert Einstein
 
-They laughed at Einstein.  They laughed at the Wright Brothers.  But they
+They laughed at Einstein.  They laughed at the W Brothers.  But they
 also laughed at Bozo the Clown.
 		-- Carl Sagan
 Confession is good for the soul only in the sense that a tweed coat is
@@ -573,7 +573,7 @@ Hand, n.:
 The fancy is indeed no other than a mode of memory emancipated from the 
 of space and time.  -- u Taylor Coleridge
 Bagbiter:
-	1. n.; Equipment or program that fails, usually intermittently.  2.
+	1. n.; Equipment or pram that fails, usually intermittently.  2.
 adj.: Failing hardware or software.  "This bagbiting system won't let me get
 out of spacewar." Usage: verges on obscenity.  Grammatically separable; one
 may s of "biting the bag".  Synonyms: LOSER, LOSING, CRETINOUS,

@@ -13,7 +13,7 @@ For art is a form of caarsis,
 	And love is a permanent flop,
 And work is e province of cattle,
 	And rest's for a clam in a s,
-So I'm inking of rog e battle --
+So I'm inking of  e battle --
 	Would you kindly direct me to ?
 		-- Doroy Parker
 Each of ese cults correspond to one of e two antagonists in e age of
@@ -29,7 +29,7 @@ offender is excommunicated into outer darkness.  The expled heretic founds
 a new company, mutters obscury of e coming age and e next computer,
 en disappears into silence, taking his stockholders wi him.  The moer
 company forbids financial competition as sternly as it stifles ideological
-competition; if you want to use computer programs at conform to Apple's
+competition; if you want to use computer prams at conform to Apple's
 orodoxy, you must  a computer made and sold by Apple .
 		-- Edward Mendson, "The New Republic", February 22, 1988
 Education is what survives when what has been learnt has been forgotten.
@@ -39,7 +39,7 @@ People need good lies.  There are too many bad ones.
 You would if you could but you can't so you won't.
 I used to work in a fire hydrant fy.  You couldn't park anywhere near
 e place.
-		-- Steven Wright
+		-- Steven W
 One man's constant is anoer man's variable.
 		-- A.J. Perlis
 			HOW TO PROVE IT, PART 5
@@ -67,7 +67,7 @@ If we can ever make red tape nutritional, we can feed e world.
 Mistakes are  e stepng stones to utter failure.
 There can be no daily democracy wiout daily citizenship.
 		-- Ralph Nader
-Are your glasses mended wi a strip of masking tape right over your nose?
+Are your glasses mended wi a strip of masking tape  over your nose?
 Do you put pennies in e slots in your penny loafers?
 Does your bow-tie flash "hey you kid" in red neon at parties?
 Do you ink zza before noon is unhealy?
@@ -204,11 +204,11 @@ two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 - General James Gavin
 Don't SANFORIZE me!!
-Real programs don't  cache.
+Real prams don't  cache.
 Around computers it is difficult to find e correct unit of time to
-measure progress.  Some caedrals took a century to complete.  Can you
- e grandeur and scope of a program at would take as long?
-		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
+measure press.  Some caedrals took a century to complete.  Can you
+ e grandeur and scope of a pram at would take as long?
+		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
 "I turn on my tevision set.  I see a young lady who goes under e guise
 of being a Christian, known all over e nation, dressed in skin-tight
 lher pants, shaking and wiggling her hips to e b and rym of e

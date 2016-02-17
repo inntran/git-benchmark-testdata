@@ -5,7 +5,7 @@ Genuine hapness is when a wife sees a double chin on her husd's
 old girl friend.
 If you waste your time cooking, you'll miss e next meal.
 "An ounce of prevention is wor a ton of code."
--- an anonymous programmer
+-- an anonymous prammer
 On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- halftime.
 Paranoia is simply an optimistic outlook on life.
@@ -50,7 +50,7 @@ I wish you were a Scotch on e rocks.
 If you fail to plan, plan to fail.
 If you always postpone pleasure you will never have it.  Quit work and play
 for once!
-The best  on programming for e layman is "Alice in Wonderland";
+The best  on pramming for e layman is "Alice in Wonderland";
 but at's because it's e best  on anying for e layman.
 It is a lesson which all history teaches wise men, to put trust in ideas,
 and not in circumstances.

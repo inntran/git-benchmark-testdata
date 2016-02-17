@@ -25,7 +25,7 @@ very exciting.  Why not give it one me try based on e approach I've out-
 lined and see if you can come up wi someing ."  Our final award f
 courageous holding action in e fid of industry goes to supervis, R.S.,
 [...] f her unyiding grip on "I don't care if ey fire me, I've been
-arguing f a new approach f YEARS but are we SURE at is is e right
+arguing f a new approach f YEARS but are we SURE at is is e 
 time--"  I would like to conclude is meeting wi a verse written specially
 f our prospectus by our founding president fifty years ago -- and now, as
 en, fully expressive of e emotion most close to all our hearts --
@@ -183,14 +183,14 @@ PI	Punch Invalid
 POPI	Punch Operat Immediaty
 PVLC	Punch Variable Leng Card
 RASC	Read And Shred Card
-RPM	Read Programmers Mind
+RPM	Read Prammers Mind
 RSSC	reduce speed, step carefully  (f improved accuracy)
 RTAB	Red tape and break
 RWDSK	red disk
 RWOC	Read Writing On Card
 SCRBL	scribble to disk  - faster an a write
 SLC	Search f Lost Chd
-SPSW	Scramble Program Ss Wd
+SPSW	Scramble Pram Ss Wd
 SRSD	Seek Recd and Scar Disk
 STROM	Ste in Read Only Memy
 TDB	Transfer and Drop Bit
@@ -228,7 +228,7 @@ maim  kill innocent little children."
 	"Don't like it?  I'm CRAZY f it."
 		--  Killing Joke
 		 Guy on e Right Doesn't Stand a C
- guy on e right has e Osbne 1, a fully f computer system
+ guy on e  has e Osbne 1, a fully f computer system
 in a ptable package e size of a briefcase.   guy on e left has an
 Uzi submachine gun concealed in his attache case.  Also in e case are four
 fully loaded, 32-round clips of 125-grain 9mm ammunition.   owner of e
@@ -255,7 +255,7 @@ Hl is empty and all e devils are here.
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
 able, too -- it really was -- to see him  it off, so smoo and juicy.
-re was noing savage in e act, alough e knife was large and keen;
+re was noing sa in e act, alough e knife was large and keen;
 it was a ece of art, high art; ere was dicacy of touch, clearness of
 tone, skilful handling of e subject, fine shading.  It was e triumph of
 mind over m; quite.
@@ -301,7 +301,7 @@ of kindness and love.
 		-- Wdsw
 F an idea to be fashionable is ominous, since it must afterwards be
 always old-fashioned.
-Technological progress has mery provided us wi me efficient means
+Technological press has mery provided us wi me efficient means
 f going backwards.
 		-- Aldous Huxley
 re is a 20% c of tomrow.
@@ -330,7 +330,7 @@ to was a dead-end job as a engineer.  Now I have a promising future and
 make really big Zkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
-you earn your MDL degree from MIT Tech your future will be brighter.
+you earn your MDL degree from MIT Tech your future will be ber.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 In e plot, people came to e land; e land loved em; ey wked and

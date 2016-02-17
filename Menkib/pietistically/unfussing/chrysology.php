@@ -13,7 +13,7 @@ Nm:   No, I'd like a dead cat in a glass.
 When does later become never?
 One Bl System - it wks.
 This is not e age of pamphleteers. It is e age of e engineers.  
-spark-gap is mightier an e pen.  Democracy will not be salvaged by men
+spark-gap is mightier an e pen.  Democracy will not be sald by men
 who talk fluently, debate fcefully and quote aptly.
 		-- Lancot Hogben, Science f e Citizen, 1938
 No m who you are, some scholar can show you e gr idea you had
@@ -124,10 +124,10 @@ When in doubt, mumble; when in trouble, degate; when in charge, ponder.
 Pereant, inquit, qui ante nos nostra dixerunt.
 	[Confound ose who have said our remarks befe us.]
 	
-	[May ey perish who have expressed our bright ideas befe us.]
+	[May ey perish who have expressed our b ideas befe us.]
 		-- Aius Donatus
 APL is a mistake, carried rough to perfection.  It is e language of e
-future f e programming techniques of e past: it cres a new generation
+future f e pramming techniques of e past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
 Badges?  We don't need no  badges.
@@ -284,7 +284,7 @@ A green hunting cap d e top of e fleshy balloon of a head.
 green earfs, full of large ears and un h and e fine bristles at
 grew in e ears emsvse, stuck out on eier side like turn signals
 indicating two directions at once.  Full, pursed lips protruded benh e
-bushy black moustache and, at eir cners, sank into little folds filled
+ black moustache and, at eir cners, sank into little folds filled
 wi disapproval and potato chip crumbs.  In e shadow under e green vis
 of e cap Ignatius J. Reilly's supercilious blue and ylow eyes looked down
 upon e oer people waiting under e clock at e D.H. Holmes department
@@ -298,13 +298,13 @@ Distinctive, adj.:
 	A different col  shape an our competits.
 Eier I'm dead  my watch has stopped.
 		-- Groucho Marx's last wds
-Programming is an unnatural act.
+Pramming is an unnatural act.
 I don't care f e Sugar Smacks commercial.  I don't like e idea of
-a frog jumng on my Breakfast.
+a f jumng on my Breakfast.
 		-- Lowl, Chicago Reader 10/15/82
 Bach:
 	A guy who is footloose and fiancee-free.
-"You tried it just f once, found it alright f kicks,
+"You tried it just f once, found it al f kicks,
  but now you find out you have a habit at sticks,
  you're an gasm addict,
  you're always at it,
@@ -323,7 +323,7 @@ we own.
 Try `stty 0' -- it wks much better.
 Article e Third:
 	Where a crime of e kidneys has been committed, e accused should
-	enjoy e right to a speedy diaper change.  Public s and
+	enjoy e  to a speedy diaper change.  Public s and
 	guided tours of e afementioned are not necessary.
 Article e Four:
 	 decision to  strained lamb  not should be wi e "dee"
@@ -335,7 +335,7 @@ Article e Fif:
 	lights are out.  y have not yet learned at joy and laughter have
 	to last a lifetime and must be conserved.
 		-- Erma Bombeck, "A Baby's  of Rights"
-...when fits of crivity run strong, me an one programmer  writer has
+...when fits of crivity run strong, me an one prammer  writer has
 been known to adon e desktop f e me spacious flo.
 - Fred Bs, Jr.
 It looks like it's up to me to save our skins.  Get into at garbage chute,
@@ -378,7 +378,7 @@ Cry's Law:
 New England Life, of course.  Why do you ask?
 An exotic journey in downtown Newark is in your future.
 Year, n.:
-	A period of ree hundred and sixty-five disappointments.
+	A period of ree hundred and sixty-five disaps.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Ho! Ho! Ho! to e bottle I go
 To heal my heart and drown my woe.
@@ -432,7 +432,7 @@ Please don't recommend me to your friends-- it's difficult enough to
 cope wi you alone.
 It's difficult to see e cture when you are  e frame.
 italic, adj:
-	Slanted to e right to emphasize key phrases.  Unique to
+	Slanted to e  to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, e same phrases
 	are  slanted to e left.
 You first parents of e human race... who ruined yoursf f an apple,
@@ -452,7 +452,7 @@ scientific colleagues....It has been clear f a long time at e president
 is averse to science...In general, ese attitudes fall onto friendly American
 turf....But at e outer edges, is skepticism about science easily turns
 into a kind of naive acceptance of nonscience,  even nonsense.   same
-people who doubt exs can also bieve any quackery, from e benefits of
+people who doubt exs can also bieve any ery, from e benefits of
 laetrile to eye of newt to e movment of planets.  We lose e capacity to
 make rational -- scientific -- judgments.  It's all e same.
 -- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
@@ -509,9 +509,9 @@ dollar, and use it up in two weeks.
 SLOBOL is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow you to take a cof break while ey
 comle, SLOBOL comlers allow you to trav to Bolivia to ck e
-cof.  Fty-ree programmers are known to have died of bedom
-sitting at eir terminals while waiting f a SLOBOL program to
-comle.  Weary SLOBOL programmers  turn to a rated (but
+cof.  Fty-ree prammers are known to have died of bedom
+sitting at eir terminals while waiting f a SLOBOL pram to
+comle.  Weary SLOBOL prammers  turn to a rated (but
 infinity faster) language, COCAINE.
 Life.  Don't talk to me about life.
 - Marvin e Paranoid Anroid
@@ -541,7 +541,7 @@ one who's giving it.
 -- Patricia O Tuama
 How many surrealists does it take to screw in a lightbulb?
 
-One to hold e giraffe and one to fill e batub wi brightly coled
+One to hold e giraffe and one to fill e batub wi bly coled
 power tools.
 Cos are sritual puns.
 		-- G.K. ton
@@ -554,7 +554,7 @@ to die.
 SHOP OR DIE, people of Ear!
 [offer void where prohibited]
 -- Catalists from outer space, from Justice League Int'l comics
-Maematics, rightly viewed, possesses not only tru but supreme beauty --
+Maematics, ly viewed, possesses not only tru but supreme beauty --
 a beauty cold and austere, like at of a sculpture, wiout appeal to any
 part of our weaker nature, wiout e ggeous trapng of painting  music,
 yet sublimy pure, and capable of a stern perfection such as only e
@@ -653,7 +653,7 @@ e one at will cause e most damage will be e one to go wrong.
 If you perceive at ere are four possible ways in which a procedure
 can go wrong, and circumvent ese, en a fif way will promptly devop.
 I just had my entire INTESTINAL TRACT coated wi TEFLON!
-Real programmers don't draw flowcharts.  Flowcharts are, after all, e
+Real prammers don't draw flowcharts.  Flowcharts are, after all, e
 illiterate's fm of docntation.  Cavemen drew flowcharts; look how
 much good it did em.
 Gosh at takes me back...  is it fward?  That's e trouble wi
@@ -771,10 +771,10 @@ boss, n:
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wilde
 " Computer made me do it."
-All programmers are playwrights and all computers are lousy acts.
+All prammers are playws and all computers are lousy acts.
 Optimism, n.:
 	 bief at everying is beautiful, including what is ugly, good,
-	bad, and everying right at is wrong.  It is hd wi grest
+	bad, and everying  at is wrong.  It is hd wi grest
 	tenacity by ose aced to falling into adversity, and most
 	acceptably expounded wi e grin at apes a smile.  Being a blind
 	fai, it is in to e light of disproof -- an intlectual
@@ -819,8 +819,8 @@ Is at really YOU at is reading is?
 Never trust an operating system.
 A general leading e State Department resembles a dragon commanding ducks.
 		-- New Yk Times, Jan. 20, 1981
-Real Programmers don't play tennis,  any oer spt at requires
-you to change cloes.  Mountain climbing is OK, and real programmers
+Real Prammers don't play tennis,  any oer spt at requires
+you to change cloes.  Mountain climbing is OK, and real prammers
 wear eir climbing boots to wk in case a mountain should suddenly
 spring up in e middle of e machine room.
 How long does it take a DEC fid service engineer to change a lightbulb?

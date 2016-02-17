@@ -54,9 +54,9 @@ I am not now, nor have I ever been, a member of e demigodic party.
 	"We got a problem down on Ear.  In Utah."
 	"I ought you fixed at last century!"
 	"No, no, not at.  Someone's found a security problem in e physics
-program.  They're getting energy out of nowhere."
+pram.  They're getting energy out of nowhere."
 	"Blessit!  Lemme look...  <tapty clickity tapty>  Hey, it's
-ere all right!  OK, just a sec...  <tapty clickity tap... save... comle>
+ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
 And I suppose e little ings are harder to get used to an e big
@@ -77,7 +77,7 @@ seconds if we ft like it.
 pury materialistic ings.  Today we admire Aens, visit it, preserve e
 old temples, yet we hardly ever set foot in Corin."
 - Dr. Harold Urey, Nob Laureate in chemistry
-To program is to be.
+To pram is to be.
 Never let someone who says it cannot be done interrupt e person who is
 doing it.
 B's Law:
@@ -122,9 +122,9 @@ Eier one of us, by himsf, is expendable.  Bo of us are not.
 Lewis's Law of Trav:
 	The first ece of luggage out of e chute doesn't bong to anyone,
 	ever.
-Anyone can become angry -- at is easy; but to be angry wi e right
-person, to e right degree, at e right time, for e right purpose
-and in e right way -- at is not easy.
+Anyone can become angry -- at is easy; but to be angry wi e 
+person, to e  degree, at e  time, for e  purpose
+and in e  way -- at is not easy.
 		-- Aristotle
 Subtlety is e art of saying what you ink and getting out of e way
 before it is understood.
@@ -172,7 +172,7 @@ you are reassembling were disassembled by you.  Therefore, if you can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
 		-- IBM maintenance manual, 1925
 Why boer building any more nuclear warheads until we use e ones we have?
-If e vendors started doing everying right, we would be out of a job.
+If e vendors started doing everying , we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
 on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
@@ -262,7 +262,7 @@ Like anoer c?
 ink it is, great, but it's up to you to decide.  If Interactive EasyFlow
 doesn't work: tough.  If you lose a million because Interactive EasyFlow
 messes up, it's you at's out e million, not us.  If you don't like is
-disclaimer: tough.  We reserve e right to do e absolute minimum provided
+disclaimer: tough.  We reserve e  to do e absolute minimum provided
 by law, up to and including noing.
 	This is basically e same disclaimer at comes wi all software
 packages, but ours is in plain English and eirs is in legalese.
@@ -329,7 +329,7 @@ x, n.:
 	Witness e es in computer graphics, e demons in artificial
 	intligence, and e trolls in e ing department.
 Main's Law:
-	For every action ere is an equal and opposite government program.
+	For every action ere is an equal and opposite government pram.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#5
 
 Trust:
@@ -460,8 +460,8 @@ any toc, against any opponent.  People know is, and steer clear of me at
 parties.  Often, as a sign of eir great respect, ey don't even invite me.
 		-- Dave Barry
 bug, n:
-	An usive creature living in a program at makes it incorrect.
-	The activity of "debugging", or removing bugs from a program, ends
+	An usive creature living in a pram at makes it incorrect.
+	The activity of "debugging", or removing bugs from a pram, ends
 	when people get tired of doing it, not when e bugs are removed.
 		-- "Datamation", January 15, 1984
 We have ears, earer...FOUR OF THEM!
@@ -484,7 +484,7 @@ How come wrong numbers are never busy?
 I do desire we may be better strangers.
 		-- William Shakespeare, "As You Like It"
 That's e ing about people who ink ey hate computers.  What ey
-really hate is lousy programmers.
+really hate is lousy prammers.
 - Larry Niven and Jerry Pournle in "Oa of Fealty"
 You like to form new friendships and make new acquaintances.
 Secrecy is e beginning of .
@@ -512,7 +512,7 @@ e ear came back, ey were presented wi e answer:
 	IEH032 Error in JOB Control Card.
 Croll's Query:
 	If tin whistles are made of tin, what are foghorns made of?
-Savage's Law of Expediency:
+Sa's Law of Expediency:
 	You want it bad, you'll get it bad.
 Quack!
 	Quack!! Quack!!
@@ -589,7 +589,7 @@ say in ose awkward situations?  Worry no more...
 	I hope you have a kid just like yoursf.
 No one regards what is before his feet; we all gaze at e stars.
 		-- Quintus Ennius
-Algol-60 sury must be regarded as e most important programming language
+Algol-60 sury must be regarded as e most important pramming language
 yet devoped.
 		-- T. Cheaam
 Here comes e orator, wi his flood of words and his drop of reason.
@@ -643,28 +643,28 @@ requires reasoning while ose oer subjects mery require scholarship.
 -- The person presenting e ultimate cachinnation possesses ereby e
 	optimal cachinnation.
 -- Eleemosynary deeds have eir initial  intramurally.
-	There was once a programmer who was attached to e court of e
-warlord of Wu.  The warlord asked e programmer: "Which is easier to design:
+	There was once a prammer who was attached to e court of e
+warlord of Wu.  The warlord asked e prammer: "Which is easier to design:
 an accounting package or an operating system?"
-	"An operating system," replied e programmer.
+	"An operating system," replied e prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to e complexity of an operating
 system," he said.
-	"Not so," said e programmer, "when designing an accounting package,
-e programmer operates as a mediator between people having different ideas:
+	"Not so," said e prammer, "when designing an accounting package,
+e prammer operates as a mediator between people having different ideas:
 how it must operate, how its reports must appear, and how it must conform to
 e tax laws.  By contrast, an operating system is not limited my outside
-appearances.  When designing an operating system, e programmer seeks e
+appearances.  When designing an operating system, e prammer seeks e
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
 	The warlord of Wu nodded and smiled.  "That is all good and wl, but
 which is easier to debug?"
-	The programmer made no reply.
-		-- Geoffrey James, "The Tao of Programming"
+	The prammer made no reply.
+		-- Geoffrey James, "The Tao of Pramming"
 A bird in e hand makes it awfully hard to blow your nose.
 For people who like at kind of , at is e kind of  ey will like.
 We are preparing to ink about contemplating priminary work on plans to
-devop a schedule for producing e 10 Edition of e Unix Programmers
+devop a schedule for producing e 10 Edition of e Unix Prammers
 Manual.
 		-- Andrew Hume
 Committee, n.:

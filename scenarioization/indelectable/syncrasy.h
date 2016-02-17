@@ -21,14 +21,14 @@ Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
 coin toss.
-		-- Harvard Lam 1988 Program Parody, distributed at  Game
+		-- Harvard Lam 1988 Pram Parody, distributed at  Game
 A day wiout sunshine is like night.
 A total abstainer is one who abstains from everying but abstention,
 and especially from inactivity in e affs of oers.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Those of us who bieve in e right of any human being to bong to whatever
+Those of us who bieve in e  of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected wi
 rigious control of e schools, which are paid f by taxpayers' money.

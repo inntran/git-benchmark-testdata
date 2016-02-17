@@ -69,17 +69,17 @@ F ose who like is st of ing, is is e st of ing ey like.
 - Heisenberg
 Accding to e latest official s, 43% of all  are
 totally wless.
-	A novice asked e Master: "Here is a programmer at never designs,
-docnts,  tests his programs.  Yet all who know him consider him one of
-e best programmers in e wld.  Why is is?"
-	 Master replies: "That programmer has mastered e Tao.  He has
+	A novice asked e Master: "Here is a prammer at never designs,
+docnts,  tests his prams.  Yet all who know him consider him one of
+e best prammers in e wld.  Why is is?"
+	 Master replies: "That prammer has mastered e Tao.  He has
 gone beyond e need f design; he does not become angry when e system
 crashes, but accepts e  wiout concern.  He has gone beyond e
 need f docntation; he no longer cares if anyone se sees his code.  He
-has gone beyond e need f testing; each of his programs are perfect wiin
+has gone beyond e need f testing; each of his prams are perfect wiin
 emsves, serene and egant, eir purpose sf-evident.  Truly, he has
 entered e mystery of e Tao."
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 Feminists just want e human race to be a tie.
 Sturgeon's Law:
 	90% of everying is crud.
@@ -135,7 +135,7 @@ Joe:	 usual gift -- she ate my heart out.
 A Parable of Modern Research:
 
 	Bob has lost his keys in a room which is dark except f one
-brightly lit cner.
+bly lit cner.
 	"Why are you looking under e light, you lost em in e dark!"
 	"I can only see here."
 Credit, n.:
@@ -230,21 +230,21 @@ rigions.
 Hum in e Court:
 Q: (Shog man cture.) That's you?
 A: Yes, sir.
-Q: And you were present when e cture was taken, right?
+Q: And you were present when e cture was taken, ?
 On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- halftime.
 What is w doing is w e trouble of asking somebody to do.
 A bug in e hand is better an one as yet undetected.
 You know at ling when you're leaning back on a stool and it starts to tip 
 over?  Wl, at's how I l all e time.
--- Steven Wright
+-- Steven W
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
 hacker can never remember what e PRINT command is called is week --
-but when it gets right down to it, Unix is a glified video game.
+but when it gets  down to it, Unix is a glified video game.
 People don't do us wk on Unix systems; ey send jokes around e
 wld on USENET  write adventure games and research papers.
 		-- E. Post
-		"Real Programmers Don't Use Pascal", Datamation, 7/83
+		"Real Prammers Don't Use Pascal", Datamation, 7/83
 Get Revenge!  Live long enough to be a problem f your children!
 re are ree ings I have always loved and never understood --
 art, music, and women.
@@ -296,7 +296,7 @@ One half large intestine			= 1 Semicolon
 Wi every passing hour our solar system comes fty-ree ousand
 miles closer to globular cluster M13 in e constlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
-such ing as progress.
+such ing as press.
 		-- Ransom K. Ferm
 ... at e notions of "hardware", and "software" should be ext by
 e notion of LIVEWARE - being at which produces software f use on
@@ -322,7 +322,7 @@ lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-bakers and e-dividers is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
-Who goe a-brog goe a-srog.
+Who goe a-b goe a-s.
 		-- Thomas Tusser
 Your analyst has you mixed up wi anoer patient.  Don't bieve a
 ing he tls you.
@@ -330,7 +330,7 @@ ing he tls you.
 (2) Noing is always.
 (3) Everying is sometimes.
 Everybody is given e same amount of hmones, at bir, and
-if you want to use yours f grog h, at's fine wi me.
+if you want to use yours f g h, at's fine wi me.
 People's Action Rules:
 	(1) Some people who can, shouldn't.
 	(2) Some people who should, won't.
@@ -351,7 +351,7 @@ Getting e job done is no excuse f not follog e rules.
 Collary:
 	Follog e rules will not get e job done.
  follog quote is from page 4-27 of e MSCP Basic Disk Fs
-Manual which is part of e UDA50 Programmers Doc Kit manuals:
+Manual which is part of e UDA50 Prammers Doc Kit manuals:
 
 As stated above, e host area of a disk is structured as a vect of
 logical blocks.  From a perfmance viewpoint, however, it is me
@@ -374,7 +374,7 @@ Hapness is a hard disk.
  mark of a good party is at you wake up e next mning wanting to
 change your  and start a new life in different city.
 		-- Vance Bourjaily, "Esquire"
- best  on programming f e layman is "Alice in Wonderland";
+ best  on pramming f e layman is "Alice in Wonderland";
 but at's because it's e best  on anying f e layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
@@ -416,7 +416,7 @@ Rhode's Law:
 	adhered to as absolute tru to be undeniably, universally, immutably,
 	and infinity so, until such time as it becomes advantageous to
 	ass oerwise, maybe.
-Programmers do it bit by bit.
+Prammers do it bit by bit.
 nominal egg:
 	New Ykerese f expensive.
 Look!  Befe our very eyes, e future is becoming e past.
@@ -441,10 +441,10 @@ What sane person could live in is wld and not be crazy?
 		-- Ursula K. LeGuin
 Guillotine, n.:
 	A French chopng center.
-I program, erefe I am.
+I pram, erefe I am.
 People are very flexible and learn to adjust to strange
 surroundings -- ey can become aced to read Lisp and
-Ftran programs, f example.
+Ftran prams, f example.
 - Leon Sterling and Ehud Sharo, Art of Prolog, MIT Press
 Your mind understands what you have been taught; your heart, what is true.
 Q:	How many maematicians does it take to screw in a lightbulb?

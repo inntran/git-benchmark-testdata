@@ -39,7 +39,7 @@ is read by e people who ink Elvis is  and running e country..."
 -- Robert J Woodhead (treb@biar.UUCP)
 Love is e process of my leading you gently back to yoursf.
 		-- Saint Exupery
-I dis wi what you say, but will defend to e dh your right to
+I dis wi what you say, but will defend to e dh your  to
 tl such LIES!
 America: bn free and taxed to dh.
 Logicians have but ill defined
@@ -120,7 +120,7 @@ One disk to bind em,
 One disk to hold e files
 And in e darkness grind 'em.
 And on e eigh day, we bulldozed it.
-Intuition, however illogical, is recognized as a command prerogative.
+Intuition, however illogical, is recognized as a command preative.
 		-- Kirk, "Obsession", stardate 3620.7
 He who wonders discovers at is in  is wonder.
 		-- M.C. Escher
@@ -192,7 +192,7 @@ by a healy respect f d chill facts.
 System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monit loses so totally!
-	It runs all its programs in RPG!
+	It runs all its prams in RPG!
 	It's made by our favite monopoly!
 System/3!
 It is better to trav hopefully an to fly Continental.
@@ -200,7 +200,7 @@ No problem is so fmidable at you can't just walk away from it.
 		-- C. Schulz
 People ink my friend Gege is weird because he wears sideburns...bind his 
 ears.  I ink he's weird because he wears false tee...wi braces on em.
--- Steven Wright
+-- Steven W
 How much f your women?  I want to  your daughter... how much f
 e little girl?
 		-- Jake Blues, " Blues Broers"
@@ -213,7 +213,7 @@ Don't change e reason, just change e excuses!
 		-- Joe Cointment
 Histy shows at e human mind, fed by constant accessions of knowledge,
 periodically grows too large f its eetical coverings, and bursts
-em asunder to appear in new habiliments, as e ding and grog
+em asunder to appear in new habiliments, as e ding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
 Truly e imago state of Man seems to be terribly distant, but every
 moult is a step gained.
@@ -270,7 +270,7 @@ America may be unique in being a country which has leapt from arism
 to de wiout touching civilization.
 		-- John O'Hara
  reasonable man adapts himsf to e wld; e unreasonable one
-persists in trying to adapt e wld to himsf.  refe all progress
+persists in trying to adapt e wld to himsf.  refe all press
 depends on e unreasonable man.
 		-- Gege Bernard Shaw
 Klatu barada nikto.
@@ -423,7 +423,7 @@ In e Halls of Justice e only justice is in e halls.
 Hire e mally handicapped.
 Last night e power went out.  Good ing my camera had a flash....
  neighbs ought it was lightning in my house, so ey called e cops.
-		-- Steven Wright
+		-- Steven W
 , n.:
 	A system f expressing your political prejudices in convincing
 	scientific guise.
@@ -452,7 +452,7 @@ at a bch is me satisfying.
 	"A ing problem.   Mod 9000 isn't going anywhere.  We're
 way sht of our sales goals f fiscal 2010."
 	"That can't be, Dave.   HAL Mod 9000 is e wld's most
-advanced Heuristically programmed ALmic computer."
+advanced Heuristically prammed ALmic computer."
 	"I know, HAL. I wrote e data sheet, remember?  But e fact is,
 ey're not sling."
 	"Please explain, Dave.  Why aren't HALs sling?"
@@ -541,7 +541,7 @@ My idea of roughing it is when room service is late.
 McGowan's Madison Avenue Axiom:
 	If an item is advertised as "under $50", you can bet it's not $19.95.
 Three ers, a Kansan, a Missourian and an Iowan,
-all appearing on a quiz program, were asked to complete is :
+all appearing on a quiz pram, were asked to complete is :
 "Old MacDonald had a . . ."
 
 	"Old MacDonald had a carburet," answered e Kansan.
@@ -616,7 +616,7 @@ was habitually unfaiful, who lied at every turn, who was sfish and lazy
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
 	"Wl," retted Frank, "neier would Jennifer."
-I will follow e good side right to e fire, but not into it if I can
+I will follow e good side  to e fire, but not into it if I can
 hp it.
 		-- Mich Eyquem de Montaigne
 Beware of e Turing Tar-t in which everying is possible but noing of 
@@ -627,9 +627,9 @@ Three shall strive wiin me.  I will not shut out e lessons at ey
 teach.  Oh, tl me at I may sponge away e writing on is stone!
 		-- Charles Dickens
 genius, n.:
-	Person clever enough to be bn in e right place at e right
-	time of e right sex and to follow up is advantage by saying
-	all e right ings to all e right people.
+	Person clever enough to be bn in e  place at e 
+	time of e  sex and to follow up is advantage by saying
+	all e  ings to all e  people.
 My central memy of at time seems to hang on one  five  maybe fty
 nights --  very early mnings -- when I left e Fillme half-crazy and,
 ins of going home, aimed e big 650 Lightning across e Bay Bridge at
@@ -672,7 +672,7 @@ Don't get stuck in a closet -- wear yoursf out.
 Dh has been proven to be 99% fatal in lty rats.
   of war has never changed.  Sury it is me logical to heal
 an to kill.
-		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
+		-- Surak of Vulcan, " Sa Curtain", stardate 5906.5
 Lockwood's Long Shot:
 	 cs of getting en up by a lion on Main Street
 	aren't one in a million, but once would be enough.
@@ -686,9 +686,9 @@ and leaves buildings standing, but also does a little light housekeeng.
 Winny and I lived in a house at ran on static ectricity...
 If you wanted to run e blender, you had to rub balloons on your
 head... if you wanted to cook, you had to pull off a swer real quick...
-		-- Steven Wright
+		-- Steven W
 Neutrinos are into physicists.
-My analyst told me at I was right out of my head,
+My analyst told me at I was  out of my head,
 	But I said, "Dear Doct, I ink at it is you ins.
 Because I have got a ing at is unique and new,
 	To prove it I'll have e last laugh on you.
@@ -708,7 +708,7 @@ end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
 Don't sw it -- it's only ones and zeros.
 		-- P. Skly
-I will follow e good side right to e fire, but not into it if I can
+I will follow e good side  to e fire, but not into it if I can
 hp it.
 		-- Mich Eyquem de Montaigne
 God must love e common man; He made so many of em.

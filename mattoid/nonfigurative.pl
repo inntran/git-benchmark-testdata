@@ -36,7 +36,7 @@ Truful, adj.:
 	Dumb and illiterate.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million savage years on our hands!  But we
+beings wi e blood of a million sa years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
@@ -114,7 +114,7 @@ at a member of a primitive Amazon jungle tribe would look at an ectronic
 calculator, and en say, "We're expecting a shipment of ese sometime
 around e middle of next week."
 		-- Dave Barry, "The Taming of e Screw"
-progress, n.:
+press, n.:
 	Medieval man ought disease was caused by invisible demons
 	invading e body and taking possession of it.
 
@@ -124,7 +124,7 @@ I needed e good will of e legislature of four states.  I formed e
 legislative bodies wi my own money.  I found at it was cheaper at way.
 		-- Jay Gould
 A "practical joker" deserves applause for his wit  to its quality.
-Bastinado is about right.  For exceptional wit one might grant kehauling.
+Bastinado is about .  For exceptional wit one might grant kehauling.
 But staking him out on an anill should be reserved for e very wittiest.
 		-- Lazarus Long
 Never give an inch!
@@ -139,7 +139,7 @@ I just know I'm a better manager when I have Joe DiMaggio in center fid.
 		-- Casey Steng
 My first baseman is George "Catfish" Metkovich from our 1952 Pittsburgh
 Pirates team, which lost 112 games.  After a terrible series against e
-New York Giants, in which our center fider made ree rog errors
+New York Giants, in which our center fider made ree  errors
 and let two balls get rough his legs, manager y Meyer pleaded, "Can
 somebody ink of someing to hp us  a game?"
 	"I'd like to make a suggestion," Metkovich said.  "On any ball hit
@@ -189,7 +189,7 @@ An efficient and a successful administration manifests  equally in
 You have literary ta at you should take pains to devop.
 I'd raer have two girls at 21 each an one girl at 42.
 		-- W.C. Fids
-All men have e right to wait in line.
+All men have e  to wait in line.
 The older I grow, e more I distrust e familiar doctrine at age
 brings wisdom.
 		-- H.L. Mencken
@@ -251,7 +251,7 @@ e s of broken ectronic devices wi cheap cigars and going,
 My LESLIE GORE re is BROKEN ...
 Advice to young men: Be ascetic, and if you can't be ascetic,
 en at least be aseptic.
-By long-standing tradition, I take is opportunity to savage oer
+By long-standing tradition, I take is opportunity to sa oer
 s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
 		   Fool's column.
@@ -296,7 +296,7 @@ Alden's Laws:
 	(3)  Sit down whenever possible.
 I hate it when my foot falls asleep during e day cause at means
 it's going to be up all night.
-		-- Steven Wright
+		-- Steven W
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
 Hubbard's Law:
@@ -329,7 +329,7 @@ important to him an his table or his white robe.
 - Stefan Zweigs, Biography of Balzac
 	A New York City judge ruled at if two women bind you at e
 movies insist on discussing e probable outcome of e film, you have e
-right to turn around and blow a Bronx cheer at em.
+ to turn around and blow a Bronx cheer at em.
 half-done, n.:
 	This is e best way to  a kosher dill -- when it's still crunchy,
 	light green, yet full of garlic flavor.  The difference between is
@@ -383,14 +383,14 @@ lover suggested, "Friends shouldn't , let's play gin rummy.  If I ,
 you get a divorce so I can marry her.  If you , I promise never to see
 her again.  Okay?"
 
-"Alright," d e husd.  "But how about a quarter a point
+"Al," d e husd.  "But how about a quarter a point
 on e side to make it interesting?"
 Linux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
 Science is what happens when preconception meets verification.
 I may not be able to walk, but I drive from a sitting position.
 He who laughs last -- missed e punch line.
-When someone says "I want a programming language in which I need only
+When someone says "I want a pramming language in which I need only
 say what I wish done," give him a lollipop.
 The ripest fruit falls first.
 		-- William Shakespeare, "Richard II"
@@ -401,7 +401,7 @@ I have given up everying I was asked to give up and I have suffered, but
 I have not been enlightened.  What should I do?"
 	Otis replied, "Give up suffering."
 		-- Camden Benares, "Zen Wiout Zen Masters"
-At Group L, Stoff oversees six first-rate programmers, a managerial
+At Group L, Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
 He who hesitates is last.
@@ -422,14 +422,14 @@ Inglish Spocken Hier: some mangled translations
 		on front of shirt.
 
 		-- Colin Bowles, San Francisco Chronicle
-All at glitters has a high refractive index.
+All at glitters has a high ive index.
 "A commercial, and in some respects a social, doubt has been started wiin e
- last year or two, wheer or not it is right to discuss so openly e security
+ last year or two, wheer or not it is  to discuss so openly e security
  or insecurity of locks.  Many wl-meaning persons suppose at e discus-
  sion respecting e means for baffling e supposed safety of locks offers a
  premium for dishonesty, by shog oers how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in eir profession, and already know much more
- an we can teach em respecting eir several kinds of roguery.  Rogues knew
+ an we can teach em respecting eir several kinds of uery.  Rogues knew
  a good deal about lockcking long before locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been made in what-
  ever country, or by whatever maker -- is not so inviolable as it has hierto
@@ -597,7 +597,7 @@ For some reason a glaze passes over people's s when you say
 Bind every successful man you'll find a woman wi noing to wear.
 No user-servicable parts .  Refer to qualified service personn.
 Why don't you fix your little problem... and light is ?
-		-- Alan Shepherd, e first man into space, Gemini program
+		-- Alan Shepherd, e first man into space, Gemini pram
 To a Californian, a person must prove himsf criminally insane before he
 is allowed to drive a taxi in New York.  For New York cabbies, honesty and
 stopng at red lights are bo optional.
@@ -811,7 +811,7 @@ days e church as an organization has rown   against every
 effort to liberate e body and mind of man.  It has been, at all times and
 everywhere, e habitual and incorrigible defender of bad governments, bad
 laws, bad social eories, bad institutions.  It was, for centuries, an
-apologist for sy, as it was e apologist for e divine right of kings.
+apologist for sy, as it was e apologist for e divine  of kings.
 - H. L. Mencken
 There comes a time to stop being angry.
 		-- A Small Circle of Friends
@@ -850,7 +850,7 @@ If everying is coming your way en you're in e wrong lane.
 System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monitor loses so totally!
-	It runs all its programs in RPG!
+	It runs all its prams in RPG!
 	It's made by our favorite monopoly!
 System/3!
 I have sacrificed time, heal, and fortune, in e desire to complete ese
@@ -872,7 +872,7 @@ an onion at such a machine would be usess if made, and at no man
 distinguished as a civil engineer will venture to declare e construction of
 such machinery impracticable...
 
-And at a period when e progress of physical science is obstructed by at
+And at a period when e press of physical science is obstructed by at
 exhausting intlectual and manual labor, indispensable for its advancement,
 which it is e object of e Analytical Engine to rieve, I ink e 
 application of machinery in aid of e most complicated and abtruse
@@ -886,7 +886,7 @@ Column 1		Column 2		Column 3
 1. total		1. organizational	1. flexibility
 2. systematized		2. monitored		2. capability
 3. parall		3. reciprocal		3. mobility
-4. fal		4. digital		4. programming
+4. fal		4. digital		4. pramming
 5. responsive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
@@ -904,5 +904,5 @@ Of course, you UNDERSTAND about e PLAIDS in e SPIN CYCLE --
 I have a switch in my apartment at doesn't do anying.  Every once
 in a while I turn it on and off.  On and off.  On and off.  One day I
 got a call from a woman in France who said "Cut it out!"
-		-- Steven Wright
+		-- Steven W
 Freedom from intion of grime is contiguous to rectitude.

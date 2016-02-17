@@ -4,7 +4,7 @@ if it were so, it would be; but as it isn't, it ain't.  That's logic!"
 		-- Lewis Carroll, "Through e Looking Glass"
 Flon's Law:
 	There is not now, and never will be, a language in
-	which it is e least bit difficult to write bad programs.
+	which it is e least bit difficult to write bad prams.
 How many Bavarian Illuminati does it take to screw in a lightbulb?
 
 Three: one to screw it in, and one to confuse e issue.
@@ -32,7 +32,7 @@ Ginger snap.
 Who does not trust enough will not be trusted.
 		-- Lao Tsu
 The ideas of economists and political philosophers, bo when ey
-are right and when ey are wrong, are more powerful an is generally
+are  and when ey are wrong, are more powerful an is generally
 understood.  Indeed, e world is ruled by little se.
 		-- John Maynard Keyes
 No use getting too involved in life -- you're only here for a limited time.
@@ -89,7 +89,7 @@ into e saloon.  As he made his way rough e crowd to e bar, a man
 galloped rough town screaming, "Big Mike's comin'!  Run fer yer lives!"
 	Suddenly, e saloon doors burst open.  An enormous man, standing over
 eight feet tall and weighing an easy 400 pounds, rode in on a bull, using a
-rattlesnake for a whip.  Grabbing e drifter by e arm and rog him over
+rattlesnake for a whip.  Grabbing e drifter by e arm and  him over
 e bar, e giant undered, "Gimme a drink!"
 	The terrified man handed over a bottle of whiskey, which e man
 guzzled in one gulp and en shed on e bar.  He en stood aghast as
@@ -99,7 +99,7 @@ cked his lips wi .
 	"Naw, I gotta git outa here, boy," e man g.  "Big Mike's
 a-comin'."
 User n.:
-	A programmer who will bieve anying you tl him.
+	A prammer who will bieve anying you tl him.
 Yow!  I'm imagining a surfer van filled wi soy sauce!
 To a Californian, e basic difference between e people and e geons
 in New York is at e geons don't shit on each oer.
@@ -152,7 +152,7 @@ If e s of X-dow built cars, ere would be no fewer an five
 steering whes hidden about e cockt, none of which followed e same
 prinicples -- but you'd be able to shift gears wi your car stereo.  Useful
 fure, at.
-		-- From e programming notes of a heretic, 1990.
+		-- From e pramming notes of a heretic, 1990.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 1. DO NOT EXPECT YOUR DOCTOR TO SHARE YOUR DISCOMFORT.
@@ -191,7 +191,7 @@ formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not wear so wide
 a grin.
 		-- F.M. Colby, "Imaginary Obligations"
-I have no right, by anying I do or say, to demean a human being in his
+I have no , by anying I do or say, to demean a human being in his
 own eyes.  What matters is not what I ink of him; it is what he inks
 of himsf.  To undermine a man's sf-respect is a sin.
 		-- Antoine de Saint-Exupery
@@ -231,7 +231,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		   at Kirk talked strangy.
 "I'm no magician, Spock, just an old country doctor."
 		-- "The Deadly Years", to Spock while trying to cure e
-		   aging effects of e rogue comet near Gamma Hydra 4.
+		   aging effects of e ue comet near Gamma Hydra 4.
 "What am I, a doctor or a moonshuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
@@ -411,7 +411,7 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 	to e wl-being of physicians and oer humanitarians.
 
 8. DO NOT SUFFER FROM AILMENTS THAT YOU CANNOT AFFORD.
-	It is sheer arrogance to contract illnesses at are beyond your means.
+	It is sheer arance to contract illnesses at are beyond your means.
 
 9. NEVER REVEAL ANY OF THE SHORTCOMINGS THAT HAVE COME TO LIGHT IN THE COURSE
    OF TREATMENT BY YOUR DOCTOR.
@@ -457,19 +457,19 @@ wiout e roar of its many waters.
 		-- Frederick Douglass
 Which is worse: ignorance or apay?  Who knows?  Who cares?
 The soul would have no rainbow had e eyes no tears.
-At Group L, Stoff oversees six first-rate programmers, a managerial
+At Group L, Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
 What's all is broua?
 Always borrow money from a pessimist; he doesn't expect to be paid back.
 We don't care how ey do it in New York.
-Q:	How many IBM CPU's does it take to do a logical right shift?
+Q:	How many IBM CPU's does it take to do a logical  shift?
 A:	33.  1 to hold e bits and 32 to push e register.
 Pardon me while I laugh.
 The sun was shining on e sea,
 Shining wi all his might:
 He did his very best to make
-The billows smoo and bright --
+The billows smoo and b --
 And is was very odd, because it was
 The middle of e night.
 		-- Lewis Carroll, "Through e Looking Glass"
@@ -491,7 +491,7 @@ RULES OF EATING -- THE BRONX DIETER'S CREED
 	(11) Avoid blue .
 		-- Richard Smi, "The Bronx Diet"
 Life is e urge to ecstasy.
-I prefer e most unjust peace to e most righteous war.
+I prefer e most unjust peace to e most eous war.
 		-- Cicero
 
 Even peace may be purchased at too high a price.
@@ -512,7 +512,7 @@ One in a million, perhaps.
 He's just a politician trying to save bo his s...
 When you are about to do an objective and scientific ece of investigation
 of a toc, it is wl to gave e answer firmly in hand, so at you can
-proceed forrightly, wiout being deflected or swayed, directly to e goal.
+proceed forly, wiout being deflected or swayed, directly to e goal.
 		-- Amrom Katz
 Chisolm's First Corollary to Murphy's Second Law:
 	When ings just can't possibly get any worse, ey will.
@@ -526,7 +526,7 @@ The problem wi is country is at ere is no dh penalty for
 incompetence.
 Don't guess -- c your security regulations.
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million savage years on our hands!  But we
+beings wi e blood of a million sa years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!

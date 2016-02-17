@@ -127,10 +127,10 @@ If you notice at a person is deceiving you, ey must not be
 deceiving you very wl.
 Immanu Kant but Kubla Khan.
 Coming togeer is a beginning;
-	keeng togeer is progress;
+	keeng togeer is press;
 		working togeer is success.
 If you can read is, you're too close.
-My onions may have changed, but not e fact at I am right.
+My onions may have changed, but not e fact at I am .
 Men's magazines  fure ctures of naked ladies.  Women's magazines
 also  fure ctures of naked ladies.  This is because e female
 body is a beautiful work of art, while e male body is hy and lumpy and
@@ -147,9 +147,9 @@ does not need to grieve over having an ugly one back home.
 		-- Paul Leautaud, "Propos d'un jour"
 I can't decide which WRONG TURN to make first!!  I wonder if BOB
 GUCCIONE has ese problems!
-Thus spake e master programmer:
-	"After ree days wiout programming, life becomes meaningless."
-		-- Geoffrey James, "The Tao of Programming"
+Thus spake e master prammer:
+	"After ree days wiout pramming, life becomes meaningless."
+		-- Geoffrey James, "The Tao of Pramming"
 I sml a RANCID CORN DOG!
 gleemites, n.:
 	Petrified deposits of toopaste found in sinks.
@@ -175,7 +175,7 @@ QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sl rugs."
 Pascal Users:
 	To show respect for e 313 anniversary (tomorrow) of e
-	dh of Blaise Pascal, your programs will be run at half speed.
+	dh of Blaise Pascal, your prams will be run at half speed.
 Good girls go to heaven, bad girls go everywhere.
 If dolphins are so rt, why did Flipper work for tevision?
 "You who hate e Jews so, why did you adopt eir rigion?"
@@ -278,7 +278,7 @@ to know each oer.
 I'm pre at we're all watching PHIL SILVERS instead of RICARDO
 MONTALBAN!
 History tends to exaggerate.
-		-- Col. Green, "The Savage Curtain", stardate 5906.4
+		-- Col. Green, "The Sa Curtain", stardate 5906.4
 "Your butt is mine."
 -- Micha Jackson, Bad
 We are drowning in information but starved for knowledge.

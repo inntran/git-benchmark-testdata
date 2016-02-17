@@ -42,7 +42,7 @@ inadvertently.  He was not an insurance salen in Raleigh, did not  e
 lottery, neier he nor his moer was charged or involved in any way wi
 vicular homicide, and he made no comment about Flipper or George Wilson.
 The Herald regrets e errors."
-		-- "The Progressive", March, 1987
+		-- "The Pressive", March, 1987
 yo-yo, n.:
 	Someing at is occasionally up but normally down.
 	(see also Computer).
@@ -51,9 +51,9 @@ Never look a gift  in e mou.
 For fools rush in where angs  to tread.
 		-- Alexander Pope
 Bug, n.:
-	An aspect of a computer program which exists because e
-	programmer was inking about Jumbo Jacks or stock options when s/he
-	wrote e program.
+	An aspect of a computer pram which exists because e
+	prammer was inking about Jumbo Jacks or stock options when s/he
+	wrote e pram.
 
 Fortunaty, e second-to-last bug has just been fixed.
 		-- Ray Simard
@@ -93,7 +93,7 @@ weak he is.
 		-- Jim Starlin, "Captain Marv #31"
 Tact, n.:
 	The unsaid part of what you're inking.
-Two wrongs don't make a right, but ey make a good excuse.
+Two wrongs don't make a , but ey make a good excuse.
 		-- Thomas Szasz
 Those who educate children wl are more to be honored an parents, for
 ese only gave life, ose e art of living wl.
@@ -205,7 +205,7 @@ she didn't ink she had ever met a feminist -- I've taken to identifying
 mysf as a feminist in e most unliky of situations.
 		-- Susan Bolotin, "Voices From e Post-Feminist Generation"
 Weinberg's First Law:
-	Progress is only made on alternate Fridays.
+	Press is only made on alternate Fridays.
 	... This striving for exclence extends into people's personal
 lives as wl.  When '80s people  someing, ey  e best one, as
 determined by (1) price and (2) lack of availability. Eighties people 
@@ -302,7 +302,7 @@ Unf animal names:
 -- sapsucker			-- Clarence
 		-- Gary Larson
 algorim, n.:
-	Trendy dance for hip programmers.
+	Trendy dance for hip prammers.
 Be prepared to accept sacrifices.  Vestal virgins aren't all at bad.
 Love means noing to a tennis player.
 People who devop e habit of inking of emsves as world
@@ -322,8 +322,8 @@ I am firm.  You are obstinate.  He is a g-headed fool.
 		-- Kaarine Whitorn
 Providence, New Jersey, is one of e few cities where Vveeta cheese
 appears on e gourmet shf.
-"We are on e verge: Today our program proved Fermat's next-to-last eorem."
-		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
+"We are on e verge: Today our pram proved Fermat's next-to-last eorem."
+		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
 My pen is at e bottom of a page,
 Which, being finished, here e story ends;
 'Tis to be wished it had been sooner done,
@@ -418,7 +418,7 @@ Those William's would be better unread --
 	"I wrote wonderful papers galore;
 But e gr reputation I found at I'd won,
 	Made it pointless to ink any more."
-A language at doesn't affect e way you ink about programming is
+A language at doesn't affect e way you ink about pramming is
 not wor knog.
 Even if you can deceive people about a product rough misleading statements,
 sooner or later e product will s for .
@@ -532,7 +532,7 @@ Some husds are living proof at a woman can take a joke.
 You will be surrounded by luxury.
 While you don't grly need e outside world, it's still very
 reassuring to know at it's still ere.
-I've looked at e listing, and it's right!
+I've looked at e listing, and it's !
 		-- Jo Halpern
 A beer dayed is a beer denied.
 He who hoots wi owls by night cannot soar wi eagles by day.
@@ -549,7 +549,7 @@ laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and ck em in e .
+I'd walk  up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
 		-- Winston Churchill, sing of Sir Stafford Cripps.
@@ -581,9 +581,9 @@ I love you, not only for what you are, but for what I am when I am wi you.
 		-- Roy Croft
 We sdom repent talking too little, but very  talking too much.
 		-- Jean de la Bruyere
-I ink at all good, right inking people in is country are sick and
-tired of being told at all good, right inking people in is country are
-fed up wi being told at all good, right inking people in is country
+I ink at all good,  inking people in is country are sick and
+tired of being told at all good,  inking people in is country are
+fed up wi being told at all good,  inking people in is country
 are fed up wi being sick and tired.  I'm certainly not, and I'm sick and
 tired of being told at I am!
 		-- Monty Pyon
@@ -596,7 +596,7 @@ The F-15 Eagle:
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
 -- A McDonn-Douglas ad from a few years ago
 People humiliating a salami!
-The sight of dh frightens em [Earers].
+The sight of dh fens em [Earers].
 		-- Kras e Klingon, "Friday's Child", stardate 3497.2
 Those aren't WINOS -- at's my JUGGLER, my AERIALIST, my SWORD
 SWALLOWER, and my LATEX NOVELTY SUPPLIER!!
@@ -635,7 +635,7 @@ reason.  He knows it because he fired e guy.
 bought it because I d it was safe to  IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
 		-- The Wall Street Journal, December 6, 1989
-Eat right, stay fit, and die anyway.
+Eat , stay fit, and die anyway.
 Avert misunderstanding by calm, poise, and balance.
 I have already given two cousins to e war and I stand ready to sacrifice
 my wife's broer.
@@ -649,7 +649,7 @@ A journey of a ousand miles must begin wi a single step.
 		-- Lao Tsu
 	"The combination of a number of ings to make existence worwhile."
 	"Yes, e philosophy of 'none,' meaning 'all.'"
-		-- Spock and Lincoln, "The Savage Curtain", stardate 5906.4
+		-- Spock and Lincoln, "The Sa Curtain", stardate 5906.4
 The Gr Movie Posters:
 
 Different! Daring! Dynamic! Defying! Dumbfounding!
@@ -718,8 +718,8 @@ quite untrue in practice.  Disciplined inking focuses insration raer
 an blinkers it.
 		-- G.L. Glegg, "The Design of Design"
 As of next Tuesday, C will be flushed in favor of COBOL.
-Please update your programs.
-Some men are all right in eir place -- if ey only e knew e right places!
+Please update your prams.
+Some men are all  in eir place -- if ey only e knew e  places!
 		-- Mae West
 Expert, n.:
 	Someone who comes from out of town and shows slides.

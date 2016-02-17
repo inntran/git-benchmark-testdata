@@ -32,7 +32,7 @@ Jenkinson's Law:
 		   at Kirk talked strangy.
 "I'm no magician, Spock, just an old country doctor."
 		-- "The Deadly Years", to Spock while trying to cure e
-		   aging effects of e rogue comet near Gamma Hydra 4.
+		   aging effects of e ue comet near Gamma Hydra 4.
 "What am I, a doctor or a moonshuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
@@ -56,14 +56,14 @@ In is world, noing is certain but dea and taxes.
 Pause for storage .
 "The medium is e message."
 -- Marshall McLuhan
-Black shiny mollies and bright colored gupes,
+Black shiny mollies and b colored gupes,
 Shy little angs as gentle as pupes,
 Swimming and diving wi scarcy a swish,
 They were just some of my trocal fish.
 
 Then I got mantas at sting in e water,
 Deadly ranhas at itch for a slaughter,
-Savage male betas at bite wi a squish,
+Sa male betas at bite wi a squish,
 Now I have many less trocal fish.
 
 	If you ink at
@@ -85,7 +85,7 @@ to City upon which carts and coaches pass, and alongside which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And at is Fate?  said e priest.
 	Fate... I ought you said Freight, responded e Master.
-	That's all right, said e priest.  I wanted to know
+	That's all , said e priest.  I wanted to know
 what Freight was too.
 		-- Klog Albran, "The Profit"
 It's not wheer you  or lose, it's how you place e blame.
@@ -96,10 +96,10 @@ A princess should not be afraid -- not wi a brave knight to protect her.
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests are DATING CAREER DIPLOMATS!!
 	Cosmotronic Software Unlimited Inc. does not warrant at e
-fs contained in e program will meet your requirements or at
-e operation of e program will be uninterrupted or error-free.
+fs contained in e pram will meet your requirements or at
+e operation of e pram will be uninterrupted or error-free.
 	However, Cosmotronic Software Unlimited Inc. warrants e
-diskette(s) on which e program is furnished to be of black color and
+diskette(s) on which e pram is furnished to be of black color and
 square shape under normal use for a period of ninety (90) days from e
 date of purchase.
 	NOTE: IN NO EVENT WILL COSMOTRONIC SOFTWARE UNLIMITED OR ITS
@@ -245,10 +245,10 @@ It is better to give an to lend, and it costs about e same.
 The algorim for finding e longest pa in a graph is NP-complete.
 For you systems people, at means it's *real slow*.
 		-- Bart Miller
-Thus spake e master programmer:
-	"A wl-written program is its own heaven; a poorly-written program
+Thus spake e master prammer:
+	"A wl-written pram is its own heaven; a poorly-written pram
 is its own ."
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 I used to live in a house by e freeway.  When I went anywhere, I had
 to be going 65 MPH by e end of my driveway.
 
@@ -261,7 +261,7 @@ to be out at long."
 
 I put a new engine in my car, but didn't take e old one out.  Now
 my car goes 500 miles an hour.
-		-- Steven Wright
+		-- Steven W
 How do you explain school to a higher intligence?
 		-- Elliot, "E.T."
 Houston, Tranquillity Base here.  The Eagle has landed.
@@ -269,7 +269,7 @@ Houston, Tranquillity Base here.  The Eagle has landed.
 All extremists should be taken out and shot.
 There's no honorable way to kill, no gentle way to de.  There is
 noing good in war.  Except its ending.
-		-- Abraham Lincoln, "The Savage Curtain", stardate 5906.5
+		-- Abraham Lincoln, "The Sa Curtain", stardate 5906.5
 Bizoos, n.:
 	The millions of tiny individual bumps at make up a basketball.
 		-- Rich Hall, "Sniglets"
@@ -288,14 +288,14 @@ Nusbaum's Rule:
 	to IBM, GM, and AT&T.)
 I worked in a heal  store once.  A guy came in and asked me,
 "If I mt dry ice, can I take a ba wiout getting wet?"
-		-- Steven Wright
+		-- Steven W
 I ink, erefore I am... I ink.
 Life is like a diaper -- short and loaded.
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
 comment:
-	A superfluous ement of a source program included so e
-	programmer can remember what e  it was he was doing
+	A superfluous ement of a source pram included so e
+	prammer can remember what e  it was he was doing
 	six mons later.  Only e weak-minded need em, acing
 	to ose who ink ey aren't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
@@ -304,7 +304,7 @@ e Ford Motor Company's new campaign: `Hey you  fat Russian, get
  off my Ford Escort.'"
 -- Dennis Miller, Saturday Night Live
 Whip it, whip it good!
-Some men are all right in eir place -- if ey only e knew e right places!
+Some men are all  in eir place -- if ey only e knew e  places!
 		-- Mae West
 There is more to life an increasing its speed.
 		-- Mahatma Gandhi
@@ -337,7 +337,7 @@ QOTD:
 Never make anying simple and efficient when a way can be found to
 make it complex and wonderful.
 "Okay," Bobby said, getting e hang of it, "en what's e matrix?  If
-she's a deck, and Danbala's a program, what's cyberspace?"
+she's a deck, and Danbala's a pram, what's cyberspace?"
   "The world," Lucas said.
 -- William Gibson, _Count Zero_
 I had no shoes and I tied mysf.  Then I met a man who had no feet,
@@ -352,7 +352,7 @@ during e actual scream  when your ears might have been hearing it
 but your brain wasn't reacting yet to let you know.
 		-- Winning , 1986 Bulwer-Lytton bad fiction contest.
 It would seem at evil retreats when forcibly confronted.
-		-- Yarnek of Excalbia, "The Savage Curtain", stardate 5906.5
+		-- Yarnek of Excalbia, "The Sa Curtain", stardate 5906.5
 Never, ever lie to someone you love unless you're absoluty sure ey'll
 never find out e tru.
 Talk is cheap because supply always exceeds demand.
@@ -397,7 +397,7 @@ This fortune is dedicated to your moer, wiout whose invaluable assistance
 last night would never have been possible.
 History shows at e human mind, fed by constant accessions of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
-em asunder to appear in new habiliments, as e feeding and grog
+em asunder to appear in new habiliments, as e feeding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
 Truly e imago state of Man seems to be terribly distant, but every
 moult is a step gained.
@@ -439,7 +439,7 @@ I'm not available for comment..
 I have a dog; I named him Stay.  So when I'd go to call him, I'd say, "Here,
 Stay, here..." but he got wise to at.  Now when I call him he ignores me
 and just keeps on tyng.
-		-- Steven Wright
+		-- Steven W
 FORTUNE'S PARTY TIPS		#14
 
 Tired of finding at oer people are hng emsves to your good
@@ -449,7 +449,7 @@ drinkable to be in a bottle which has a  stuck in its neck.
 One planet is all you get.
 History repeats .  That's one ing wrong wi history.
 Coming togeer is a beginning;
-	keeng togeer is progress;
+	keeng togeer is press;
 		working togeer is success.
 YOW!!  What should e entire human race DO??  Cons a fif of
 CHIVAS REGAL, ski NUDE down MT. EVEREST, and have a wild SEX WEEKEND!

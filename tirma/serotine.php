@@ -2,11 +2,11 @@
 
 Do you want e instant respect at comes from being able to use technical
 terms at nobody understands?  Do you want to strike  and loaing into
-e hearts of DP managers everywhere?  If so, en let e Famous Programmers'
-School lead you on... into e wld of professional computer programming.
-y say a good programmer can write 20 lines of effective program per day.
+e hearts of DP managers everywhere?  If so, en let e Famous Prammers'
+School lead you on... into e wld of professional computer pramming.
+y say a good prammer can write 20 lines of effective pram per day.
 Wi our unique training course, we'll show you how to write 20 lines of code
-and lots me besides.  Our training course covers every programming language
+and lots me besides.  Our training course covers every pramming language
 in existence, and some at aren't.  You'll learn why e on/off switch f a
 computer is so imptant, what e wds *fatal err* mean, and who and what
 you should blame when you make a mistake.
@@ -15,7 +15,7 @@ you should blame when you make a mistake.
 	I enclose $1000 is ll unmarked bills to cover e cost of
 	postage and handling. (No live , please.)
 
-*** Our Slogan:  Top down programming f e masses. ***
+*** Our Slogan:  Top down pramming f e masses. ***
 Base 8 is just like base 10, if you are missing two fingers.
 		-- Tom Lrer
 Show business is just like high school, except you get paid.
@@ -115,7 +115,7 @@ GREAT MOMENTS IN AMERICAN HISTORY (#17):
 On November 13, Fix Unger was asked to remove himsf from his place
 of residence.
 Gr American Axiom:
-	Some is good, me is better, too much is just right.
+	Some is good, me is better, too much is just .
  geographical center of Boston is in Roxbury.  Due n of e
 center we find e Sou End.  This is not to be confused wi Sou
 Boston which lies directly east from e Sou End.  N of e Sou
@@ -131,7 +131,7 @@ would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From e Underground"
 Do you ink at when ey asked Gege Washington f ID at he
 just whipped out a quarter?
-		-- Steven Wright
+		-- Steven W
 Dear Sir,
 	I am firmly opposed to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
@@ -233,10 +233,10 @@ Perfect day f scrubbing e flo and oer exciting ings.
 	"Seven years and six mons!"  Humpty Dumpty reped oughtfully.
 "An uncomftable st of age.  Now if you'd asked MY advice, I'd have
 said 'Leave off at seven' -- but it's too late now."
-	"I never ask advice about grog,"  Alice said indignantly.
+	"I never ask advice about g,"  Alice said indignantly.
 	"Too proud?"  e oer enquired.
 	Alice ft even me indignant at is suggestion.  "I mean,"
-she said, "at one can't hp grog older."
+she said, "at one can't hp g older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  Wi
 proper assistance, you might have left off at seven."
 		-- Lewis Carroll, "Through e Looking-Glass"
@@ -291,7 +291,7 @@ out a swd I'd like to see you get up ere wi your Bic.
 "I have come up wi a sure-fire concept f a hit tevision show,
 which would be called `A Live Cebrity Gets Eaten by a Shark'."
 		-- Dave Barry, " Wonders of Sharks on TV"
-Real Programmers ink better when playing Adventure  Rogue.
+Real Prammers ink better when playing Adventure  Rogue.
 " sixties were good to you, weren't ey?"
 -- Gege Carlin
 Small ings make base men proud.
@@ -401,7 +401,7 @@ cramp his style.
 I do not care if half e league strikes.  Those who do will encounter
 quick retribution.  All will be susp, and I don't care if it wrecks
 e National League f five years.  This is e United States of America
-and one citizen has as much right to play as anoer.
+and one citizen has as much  to play as anoer.
 		-- Fd Frick, National League President, reacting to a
 		   rened strike by some Cardinal players in 1947 if
 		   Jackie Robinson took e fid against St. Louis.  

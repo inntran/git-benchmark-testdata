@@ -13,7 +13,7 @@ ruthless in punishing little thieves.
 		-- Diogenes
 "We don't care.  We don't have to.  We're the Phone Company."
 How many retured bricklayers from FLORIDA are out purchasing PENCIL
-SHARPENERS right NOW??
+SHARPENERS  NOW??
 Love, which is quickly kindled in a gentle heart,
 	seized this one for the fair form
 	that was taken from me-and the way of it afficts me still.
@@ -35,7 +35,7 @@ tadpole.  Coke -- it's the real wax-fattened mare.  Not bad, but broad
 satiric vistas do not open up.
 		-- John Carrol, The San Francisco Chronicle
 italic, adj:
-	Slanted to the right to emphasize key phrases.  Unique to
+	Slanted to the  to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, the same phrases
 	are often slanted to the left.
 "Turn on, tune up, rock out."
@@ -50,7 +50,7 @@ The sinners are much more fun!
 		-- Billy Jo, "Only The Good Die Young"
 Life is like bein' on a mule team.  Unless you're the lead mule, all the
 scenery looks about the same.
-If I could drop dead right now, I'd be the happiest man alive!
+If I could drop dead  now, I'd be the happiest man alive!
 		-- Samu Goldwyn
 	The FIELD GUIDE to NORTH AMERICAN MALES
 
@@ -78,7 +78,7 @@ And I *can't*bieve* it, all the Cheetos are gone,
 	It's just ONE OF THOSE DAYS!
 		-- Weird Al Yankovic, "One of Those Days"
 We're happy little Vegemites,
-	As bright as bright can be.
+	As b as b can be.
 We all all enjoy our Vegemite
 	For breakfast, lunch and tea.
 If you only have a hammer, you tend to see every problem as a nail.
@@ -99,7 +99,7 @@ twve driving lessons at a cost of L300.  She set the new re while
 driving triumphantly through a set of red traffic lights in Wakefid,
 Yorkshire.  Disappointingly, she passed at the fortieth attempt (3 August
 1970) but eight years later she showed some of her old magic when she was
-reported as saying that she still didn't like doing right-hand turns.
+reported as saying that she still didn't like doing -hand turns.
 		-- Stephen Pile, "The Book of Heroic Failures"
 It is difficult to legislate morality in the absence of moral legislators.
 "The Street finds its own uses for technology."
@@ -152,7 +152,7 @@ take full responsibility for you.
 At the end of your life there'll be a good rest, and no further activities
 are scheduled.
 Wl, my terminal's locked up, and I ain't got any Mail,
-	And I can't recall the last time that my program didn't fail;
+	And I can't recall the last time that my pram didn't fail;
 I've got stacks in my structs, I've got arrays in my queues,
 	I've got the : Segmentation violation -- Core dumped blues.
 
@@ -193,13 +193,13 @@ The Following Subsume All Physical and Human Laws:
 	(4) You can't win them all, but you sure as hl can lose them all.
 By failing to prepare, you are preparing to fail.
 	In the beginning was the Tao.  The Tao gave birth to Space and Time.
-Therefore, Space and Time are the Yin and Yang of programming.
+Therefore, Space and Time are the Yin and Yang of pramming.
 
-	Programmers that do not comprehend the Tao are always running out of
-time and space for their programs.  Programmers that comprehend the Tao always
+	Prammers that do not comprehend the Tao are always running out of
+time and space for their prams.  Prammers that comprehend the Tao always
 have enough time and space to accomplish their goals.
 	How could it be otherwise?
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
  and I got mixed up with a tevision show -- or as we call it back
 east here: TV -- a clever contraction derived from the words Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
@@ -290,7 +290,7 @@ Accident, n.:
 	A condition in which presence of mind is good, but absence of
 	body is better.
 		-- Foolish Dictionary
-There is never time to do it right, but always time to do it over.
+There is never time to do it , but always time to do it over.
 Everywhere I look I see NEGATIVITY and ASPHALT ...
 There are two jazz musicians who are great buddies.  They hang out and play
 together for years, virtually inseparable.  Unfortunaty, one of them is
@@ -314,7 +314,7 @@ I have *never* heard them sound better.  They are *wailing* up here."
 A government that is big enough to give you all you want is big enough
 to take it all away.
 		-- Barry Goldwater
-"Unibus timeout fatal trap program lost sorry"
+"Unibus timeout fatal trap pram lost sorry"
 - An error message printed by DEC's RSTS operating system for the PDP-11
 The only certainty is that nothing is certain.
 		-- Pliny the Elder
@@ -335,7 +335,7 @@ Americans' greatest fear is that America will turn out to have been a
 phenomenon, not a civilization.
 		-- Shirley Hazzard, "Transit of Venus"
 Are we on STRIKE yet?
-All men have the right to wait in line.
+All men have the  to wait in line.
 Some changes are so slow, you don't notice them.  Others are so fast,
 they don't notice you.
 Yow!  Now we can become alcoholics!
@@ -385,7 +385,7 @@ Two friends were out drinking when suddenly one lurched backward off his
 barstool and lay motionless on the floor.
 	"One thing about Jim," the other said to the bartender, "he sure
 knows when to stop."
-"The trouble with doing something right the first time is that nobody 
+"The trouble with doing something  the first time is that nobody 
 appreciates how difficult it was."
 -- Walt West
 It's a lot of fun being alive ... I wonder if my bed is made?!?
@@ -414,7 +414,7 @@ A quantity of particles saline.
 Q:	How many hardware engineers does it take to change a lightbulb?
 A:	None.  We'll fix it in software.
 
-Q:	How many system programmers does it take to change a light bulb?
+Q:	How many system prammers does it take to change a light bulb?
 A:	None.  The application can work around it.
 
 Q:	How many software engineers does it take to change a lightbulb?
@@ -447,7 +447,7 @@ the Reagan administration, as part of the same policy under which it
 recently sold Ylowstone National Park to Wayne Newton, has "deregulated"
 the airline industry.  What this means for you, the consumer, is that the
 airlines are no longer required to follow any rules whatsoever.  They can
-show snuff movies.  They can charge for oxygen.  They can hire pilots right
+show snuff movies.  They can charge for oxygen.  They can hire pilots 
 out of Vending Machine Refill Person School.  They can conserve fu by
 ejecting husky passengers over water.  They can ram competing planes in
 mid-air.  These innovations have resulted in tremendous cost savings which
@@ -478,7 +478,7 @@ years of tame animals, but in the million years of wild animals, because man
 is and will always be a wild animal.
 -- Charles Galton Darwin
 Mind your own business, then you don't mind mine.
-SCCS, the source mot!  Programs check in and never check out!
+SCCS, the source mot!  Prams check in and never check out!
 		-- Ken Thompson
 I'd rather have two girls at 21 each than one girl at 42.
 		-- W.C. Fids
@@ -501,7 +501,7 @@ the following questions:
 	(3) Would a longer life be worthwhile if it had to be lived as
 	    prescribed ... without French-fried onion rings, pizza with
 	    double cheese, or the occasional Mai-Tai?  (Remember, living
-	    right doesn't really make you live longer, it just *seems* like
+	     doesn't really make you live longer, it just *seems* like
 	    longer.)
 
 That, and another piece of coffee cake, should do the trick.
@@ -546,7 +546,7 @@ Fortune finishes the great quotations, #6
 	"But, soft!  What light through yonder window breaks?"
 	It's nothing, honey.  Go back to sleep.
 Those parts of the system that you can hit with a hammer (not advised)
-are called hardware; those program instructions that you can only curse
+are called hardware; those pram instructions that you can only curse
 at are called software.
 		-- Levitating Trains and Kamikaze Genes: Technological
 		   Literacy for the 1990's.

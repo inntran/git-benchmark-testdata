@@ -120,7 +120,7 @@ really want to know.
 under e kilt, everying's in perfect workin' !"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
-nor flesh-and-blood.  Persons... have opportunities, not rights, which ey
+nor flesh-and-blood.  Persons... have opportunities, not s, which ey
 use or do not use.
 		-- Lazarus Long
 The llest worm will turn being trodden on.

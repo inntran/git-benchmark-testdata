@@ -14,7 +14,7 @@ them complety, even molding the keypads.
 		-- Isaac Auerbach, IEEE "Computer", Nov. 1979
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nla vaba;
-i borogovi eran tutti mimanti
+i boovi eran tutti mimanti
 	e la moma radeva fuorigraba.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
@@ -37,7 +37,7 @@ holding bags of popcorn.  We were both holding bottles of juice.  But only
 *__he* had a lollipop.
 	He asked his mother, "Why doesn't HE have a lollipop?"
 	Her reply: "He can have a lollipop any time he wants to.  That's
-what it means to be a programmer."
+what it means to be a prammer."
 Yesterday I was a dog.  Today I'm a dog.  Tomorrow I'll probably still
 be a dog. Sigh!  There's so little hope for advancement.
 		-- Snoopy
@@ -62,7 +62,7 @@ exceptional ability in that particular fid."
 Youth.  It's a wonder that anyone ever outgrows it.
 The meek shall inherit the earth; but by that time there won't be
 anything left worth inheriting.
-`When you say "I wrote a program that crashed Windows", people just s at
+`When you say "I wrote a pram that crashed Windows", people just s at
 you blankly and say "Hey, I got those with the system, *for free*".'
 (By Linus Torvalds)
 "Can't you just gesture hypnotically and make him disappear?"
@@ -88,7 +88,7 @@ Lay off the muses, it's a very tough dollar.
 		-- S.J. Perman
 Creativity in living is not without its attendant difficulties, for
 peculiarity breeds contempt. And the unfortunate thing about being
-ahead of your time when people finally realize you were right, they'll
+ahead of your time when people finally realize you were , they'll
 say it was obvious all along.
 		-- Alan Ashley-Pitt
 Electricity is actually made up of extremy tiny particles, called
@@ -151,7 +151,7 @@ very exciting.  Why not give it one more try based on the approach I've out-
 lined and see if you can come up with something ."  Our final award for
 courageous holding action in the fid of industry goes to supervisor, R.S.,
 [...] for her unyiding grip on "I don't care if they fire me, I've been
-arguing for a new approach for YEARS but are we SURE that this is the right
+arguing for a new approach for YEARS but are we SURE that this is the 
 time--"  I would like to conclude this meeting with a verse written specially
 for our prospectus by our founding president fifty years ago -- and now, as
 then, fully expressive of the emotion most close to all our hearts --
@@ -199,9 +199,9 @@ LOGO for the Dead lets you continue your computing activities from
 The package includes a unique tecommunications feature which lets you
 turn your TRS-80 into an ectronic Ouija board.  Then, using Logo's
 graphics capabilities, you can work with a friend or rative on this
-side of the Great Beyond to write programs.  The software requires that
+side of the Great Beyond to write prams.  The software requires that
 your body be hardwired to an analog-to-digital converter, which is then
-interd to your computer.  A special terminal (very terminal) program
+interd to your computer.  A special terminal (very terminal) pram
 lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
@@ -215,8 +215,8 @@ The great secret in life ... [is] not to open your letters for a fortnight.
 At the expiration of that period you will find that nearly all of them have
 answered themsves.
 		-- Arthur Binstead
-"(The Chief Programmer)  defines the functional and performance
- specifications, designs the program, codes it, tests it, and writes its
+"(The Chief Prammer)  defines the functional and performance
+ specifications, designs the pram, codes it, tests it, and writes its
  documentation... He needs great talent, ten years experience and
  considerable systems and applications knowledge, whether in applied
  mathematics, business data handling, or whatever."
@@ -297,7 +297,7 @@ after we've been home a long while.
 You probably wouldn't worry about what people think of you if you could
 know how sdom they do.
 		-- Olin Miller.
-'Tis the dream of each programmer,
+'Tis the dream of each prammer,
 Before his life is done,
 To write three lines of APL,
 And make the damn things run.
@@ -316,7 +316,7 @@ the water, it's still the same.  The ship is yours ... you can fe her
 ... and the stars are still there.
 		-- Kirk, "The Ultimate Computer", stardate 4729.4
 Oh, so there you are!
-Hmmm ... an arrogant bouquet with a subtle suggestion of POLYVINYL
+Hmmm ... an arant bouquet with a subtle suggestion of POLYVINYL
 CHLORIDE ...
 	If the Tao is great, then the operating system is great.  If the
 operating system is great, then the compiler is great.  If the compiler
@@ -329,8 +329,8 @@ languages.
 	Each language has its purpose, however humble.  Each language
 expresses the Yin and Yang of software.  Each language has its place within
 the Tao.
-	But do not program in COBOL if you can avoid it.
-		-- Geoffrey James, "The Tao of Programming"
+	But do not pram in COBOL if you can avoid it.
+		-- Geoffrey James, "The Tao of Pramming"
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I
 If at first you don't succeed, quit; don't be a nut about success.
@@ -349,9 +349,9 @@ Certainly the game is rigged.
 Don't let that stop you; if you don't bet, you can't win.
 		-- Robert Heinlein, "Time Enough For Love"
 QOTD:
-	"My life is a soap opera, but who gets the movie rights?"
+	"My life is a soap opera, but who gets the movie s?"
 Don't plan any hasty moves.  You'll be evicted soon anyway.
-If God had intended Man to program, we'd be born with serial I/O ports.
+If God had intended Man to pram, we'd be born with serial I/O ports.
 What is the difference between a Turing machine and the modern computer?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its .
@@ -379,12 +379,12 @@ The heart has its reasons which reason knows nothing of.
 It is wise to keep in mind that neither success nor failure is ever final.
 		-- Roger Babson
 Whom the gods wish to de they first call promising.
-"You are old," said the youth, "and your programs don't run,
+"You are old," said the youth, "and your prams don't run,
 	And there isn't one language you like;
 Yet of useful suggestions for hp you have none --
 	Have you thought about taking a hike?"
 
-"Since I never write programs," his father replied,
+"Since I never write prams," his father replied,
 	"Every language looks equally bad;
 Yet the people keep paying to read all my books
 	And don't realize that they've been had."
@@ -408,10 +408,10 @@ Laty it occurs to me
 What a long strange trip it's been.
 		-- The Grateful Dead, "American Beauty"
 Art is the tree of life.  Science is the tree of death.
-Thus spake the master programmer:
+Thus spake the master prammer:
 	"Without the wind, the grass does not move.  Without software,
 	hardware is usess."
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 It's clever, but is it art?
 Staff meeting in the conference room in 3 minutes.
 The man on tops walks a lony street; the "chain" of command is often a noose.
@@ -420,7 +420,7 @@ You shall judge of a man by his foes as wl as by his friends.
 Be prepared to accept sacrifices.  Vestal virgins aren't all that bad.
 "Mind if I smoke?"
 	"Yes, I'd like to see that, does it come out of your ears or what?"
-Any given program will expand to fill available memory.
+Any given pram will expand to fill available memory.
 modem, adj.:
 	Up-to-date, new-fangled, as in "Thoroughly Modem Millie."  An
 	unfortunate byproduct of kerning.
@@ -476,10 +476,10 @@ A:	Fifteen.  One to do it, and fourteen to write document number
 	consists of sequences of non-blank characters separated by blanks".
 Wiker's Law:
 	Government expands to absorb revenue and then some.
-There is never time to do it right, but always time to do it over.
+There is never time to do it , but always time to do it over.
 After all, it is only the mediocre who are always at their best.
 		-- Jean Giraudoux
-Real Programs don't use shared text.  Otherwise, how can they use functions
+Real Prams don't use shared text.  Otherwise, how can they use functions
 for scratch space after they are finished calling them?
 What is now proved was once only imagin'd.
 		-- William Blake
@@ -496,7 +496,7 @@ How unusual!
 A good USENET motto would be:
  a. "Together, a strong community."
  b. "Computers R Us."
- c. "I'm sick of programming, I think I'll just screw around for a while on 
+ c. "I'm sick of pramming, I think I'll just screw around for a while on 
      company time."
 -- A Sane Man
 "I prefer the blunted cudgs of the followers of the Serpent God."
@@ -514,13 +514,13 @@ Lacks your clean vocity.		We're system untounged-
 
 Theses and papers 			DRAW Plots and TEXage
 And code in a queue			Have been biding their time,
-Dover, oh Dover,			With LISP code and programs,
+Dover, oh Dover,			With LISP code and prams,
 We've been waiting for you.		And this crufty rhyme.
 
 Dover, oh Dover,		Dover, oh Dover, arisen from dead.
 We wcome you back,		Dover, oh Dover, awoken from bed.
 Though still you may jam,	Dover, oh Dover, wcome back to the Lab.
-You're on the right track.	Dover, oh Dover, we've missed your clean
+You're on the  track.	Dover, oh Dover, we've missed your clean
 					hand...
 	How do you insult a lawyer?
 	You might as wl not even try.  Consider: of all the highly
@@ -572,7 +572,7 @@ check.  And also the wife who wants him home by five, of course.
 "Never  facts; if you do, you'll never get up in the morning."
 -- Marlo Thomas
 Abandon the search for Truth; settle for a good fantasy.
-If you do something right once, someone will ask you to do it again.
+If you do something  once, someone will ask you to do it again.
 The first sign of maturity is the discovery that the volume knob also turns to 
 the left.
 Nasrudin was carrying home a piece of liver and the recipe for liver pie.
@@ -602,7 +602,7 @@ intervene: it would form a cabinet-lev Department of Holiday Gift-Giving,
 which would spend billions and billions of tax dollars to buy Barbie dolls
 and ectronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
-should go along with the Holiday Program.  This means you should get a large
+should go along with the Holiday Pram.  This means you should get a large
 sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
 Nezvannyi gost'--khuzhe tatarina.
@@ -631,7 +631,7 @@ I wish a robot would get ected president.  That way, when he came to town,
 we could all take a shot at him and not fe too bad.
 		-- Jack Handley
 "Okay," Bobby said, getting the hang of it, "then what's the matrix?  If
-she's a deck, and Danbala's a program, what's cyberspace?"
+she's a deck, and Danbala's a pram, what's cyberspace?"
   "The world," Lucas said.
 -- William Gibson, _Count Zero_
 Notes for a ballet, "The Spl": ... Suddenly Sigmund hears the flutter of
@@ -684,19 +684,19 @@ All through the day how the hours rush by,
 	You sit in the park and you watch the grass die.
 		-- John Denver, "Saturday Night in Toledo Ohio"
 APL is a mistake, carried through to perfection.  It is the language of the
-future for the programming techniques of the past: it creates a new generation
+future for the pramming techniques of the past: it creates a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
 You may my glories and my state dispose,
 But not my griefs; still am I king of those.
 		-- William Shakespeare, "Richard II"
-"Do not lose your knowledge that man's proper estate is an upright posture,
+"Do not lose your knowledge that man's proper estate is an up posture,
 an intransigent mind, and a step that travs unlimited roads."
 -- John Galt, in Ayn Rand's _Atlas Shrugged_
-Issawi's Laws of Progress:
-	The Course of Progress:
+Issawi's Laws of Press:
+	The Course of Press:
 		Most things get steadily worse.
-	The Path of Progress:
+	The Path of Press:
 		A short is the longest distance between two points.
 Love is not enough, but it sure hps.
 It is the quality rather than the quantity that matters.
@@ -707,7 +707,7 @@ and be sad.
 Malek's Law:
 	Any simple idea will be worded in the most complicated way.
 Our OS who art in CPU, UNIX be thy name.
-	Thy programs run, thy syscalls done,
+	Thy prams run, thy syscalls done,
 	In kern as it is in user!
 Of all the animals, the boy is the most unmanageable.
 		-- Plato
@@ -765,7 +765,7 @@ The sun never sets on those who ride into it.
 		-- RKO
 If money can't buy happiness, I guess you'll just have to rent it.
 To update Voltaire, "I may kill all msgs from you, but I'll fight for 
-your right to post it, and I'll let it reside on my disks". 
+your  to post it, and I'll let it reside on my disks". 
 -- Doug Thompson (doug@isishq.FIDONET.ORG)
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
@@ -827,6 +827,6 @@ When pleasure remains, does it remain a pleasure?
 I'd probably settle for a vampire if he were romantic enough.
 Couldn't be any worse than some of the rationships I've had.
 		-- Brenda Starr
-In every non-trivial program there is at least one bug.
+In every non-trivial pram there is at least one bug.
 A wise man can see more from the bottom of a wl than a fool can from a
 mountain top.

@@ -7,11 +7,11 @@ You have a deep appreciation of e arts and music.
 The human brain is a wonderful ing.  It starts working e moment
 you are born, and never stops until you stand up to s in public.
 		-- Sir George Jess
-The connection between e language in which we ink/program and e problems
+The connection between e language in which we ink/pram and e problems
 and solutions we can  is very close.  For is reason restricting
-language s wi e intent of iminating programmer errors is at best
+language s wi e intent of iminating prammer errors is at best
 dangerous.
-- Bjarne Stroustrup in "The C++ Programming Language"
+- Bjarne Stroustrup in "The C++ Pramming Language"
 The Great Movie Posters:
 
 They hungered for her treasure!  And died for her pleasure!
@@ -28,7 +28,7 @@ This nov is not to be tossed lightly aside, but to be hurled wi great force.
 		-- Doroy Parker
 An evil mind is a great comfort.
 Democracy is e recurrent suscion at more an half of e people
-are right more an half of e time.
+are  more an half of e time.
 		-- E. B. White
 The time was e 19 of May, 1780.  The place was Hartford, Connecti.
 The day has gone down in New England history as a terrible foretaste of
@@ -329,7 +329,7 @@ not going to church on Sunday.
 Old Grandad is dead but his srits live on.
 People ink my friend George is weird because he wears sideburns...bind his 
 ears.  I ink he's weird because he wears false tee...wi braces on em.
--- Steven Wright
+-- Steven W
 Man has never reconciled himsf to e ten commandments.
 Ralph's Observation:
 	It is a mistake to let any mechanical object realise at you
@@ -413,7 +413,7 @@ Fortune's graffito of e week (or maybe even mon):
 		You want I should type?
 Beware of Bigfoot!
 Shirley MacLaine died today in a freak psychic collision today.  Two freaks
-in a van  [Oh no!!  It's e Copyright Police!!]  Her aura-charred body was
+in a van  [Oh no!!  It's e Copy Police!!]  Her aura-charred body was
 laid to rest after a eulogy by Jackie Collins, flow member of SAFE [Society
 of Asinine Fe Entertainers].  Excerpted from some of his more quotable
 comments:

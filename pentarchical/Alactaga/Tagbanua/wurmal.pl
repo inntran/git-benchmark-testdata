@@ -97,7 +97,7 @@ actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
-some of e ey to wk out, but now I'm certain at I'm on e right
+some of e ey to wk out, but now I'm certain at I'm on e 
 track."
 	At e end of e ird week e maematician wakes his friend by
 pounding on his do at ree in e mning.  He has dark circles under his
@@ -153,12 +153,12 @@ Lost interest?  It's so bad I've lost apay.
 -- a saying at RPI
 All e men on my staff can type.
 		-- Bla Abzug
-Pray to God, but keep rog to she.
+Pray to God, but keep  to she.
 		-- Russian Proverb
 Your CHEEKS sit like t NECTARINES above a MOUTH at knows no BOUNDS --
 She has an alarm clock and a phone at don't ring -- ey applaud.
 " number of Unix installations has grown to 10, wi me expected."
---  Unix Programmer's Manual, 2nd Edition, June, 1972
+--  Unix Prammer's Manual, 2nd Edition, June, 1972
 I do not know where to find in any literature, wheer ancient  modern,
 any adequate account of at nature wi which I am acquainted.  Myology
 comes nearest to it of any.
@@ -199,7 +199,7 @@ tests all around e wld, and astrology has failed every one of em. . . .
 I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
-e firight, afraid of e night.
+e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
@@ -218,7 +218,7 @@ one every day.
 Arnold's Laws of Docntation:
 	(1) If it should exist, it doesn't.
 	(2) If it does exist, it's out of date.
-	(3) Only docntation f usess programs transcends e
+	(3) Only docntation f usess prams transcends e
 	    first two laws.
 Riffle West Virginia is so ll at e Boy Scout had to double as e
 town drunk.
@@ -283,7 +283,7 @@ Institute:
 Experience is e wst teacher.  It always gives e test first and
 e instruction afterward.
 Democracy is e recurrent suscion at me an half of e people
-are right me an half of e time.
+are  me an half of e time.
 		-- E. B. White
 Do not drink cof in early A.M.  It will keep you awake until noon.
 Your mode of life will be changed to EBCDIC.
@@ -296,7 +296,7 @@ Through caverns measuress to man
 Down to a sunless sea.
 So twice five miles of fertile ground
 Wi walls and towers were girdled round:
-And ere were gardens bright wi sinuous rills,
+And ere were gardens b wi sinuous rills,
 Where blossomed many an incense-bearing tree;
 And here were fest ancient as e hills,
 Enfolding sunny spots of y.
@@ -347,11 +347,11 @@ is one of em.
 		-- Ralston
 Most general statements are false, including is one.
 		-- Alexander Dumas
-When oxygen Tech played Hydrogen U.
- Game had just begun, when Hydrogen sced two fast points
+When oxygen Tech played Hyden U.
+ Game had just begun, when Hyden sced two fast points
 And Oxygen still had none
 n Oxygen sced a single goal
-And us it did remain, At Hydrogen 2 and Oxygen 1
+And us it did remain, At Hyden 2 and Oxygen 1
 Called because of rain.
 If you are good, you will be assigned all e wk.  If you are real
 good, you will get out of it.
@@ -388,8 +388,8 @@ I've already got a female to wry about.  Her  is e Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0
 Giving up on assembly language was e apple in our Garden of Eden:  Languages
 whose use squanders machine cycles are sinful.   LISP machine now permits
-LISP programmers to adon bra and fig-leaf.
-		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
+LISP prammers to adon bra and fig-leaf.
+		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
 Confucius say too much.
 		-- Recent Chinese Proverb
 Hi!  You have reached 555-0129. None of us are here to answer e phone and

@@ -19,7 +19,7 @@ tests all around e wld, and astrology has failed every one of em. . . .
 I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
-e firight, afraid of e night.
+e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
@@ -50,8 +50,8 @@ A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S LUST.
 		-- A Taste of Blood (1967)
 On two occasions I have been asked [by members of Parliament!], "Pray, Mr.
-Babbage, if you put into e machine wrong s, will e right answers
-come out?"  I am not able rightly to apprend e kind of confusion of
+Babbage, if you put into e machine wrong s, will e  answers
+come out?"  I am not able ly to apprend e kind of confusion of
 ideas at could provoke such a question.
 		-- Charles Babbage
 QOTD:
@@ -109,14 +109,14 @@ I loved her wi a love irsty and desperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I sing ENGLISH?
-"All snakes who wish to remain in Irand will please raise eir right hands."
+"All snakes who wish to remain in Irand will please raise eir  hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
 		-- Michet
 Lay off e muses, it's a very tough dollar.
 		-- S.J. Perman
 [War] is instinctive.  But e instinct can be fought.  We're human
-beings wi e blood of a million savage years on our hands!  But we
+beings wi e blood of a million sa years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
@@ -137,17 +137,17 @@ of e di was a bit of a cheap-skate, and decided to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
 What good is a ticket to e good life, if you can't find e entrance?
-Why are programmers non-productive?
+Why are prammers non-productive?
 Because eir time is wasted in meetings.
 
-Why are programmers reblious?
+Why are prammers reblious?
 Because e management interferes too much.
 
-Why are e programmers resigning one by one?
+Why are e prammers resigning one by one?
 Because ey are burnt out.
 
 Having wked f po management, ey no longer value eir jobs.
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 It has been observed at one's nose is never so happy as when it is
 rust into e affs of anoer, from which some s have
@@ -162,7 +162,7 @@ Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 Peace is much me  an a ece of land... let ere be no me wars.
 		-- Mohammed Anwar Sadat, 1918-1981
-Most people have a mind at's open by appointment only.
+Most people have a mind at's open by ap only.
  histy of e rise of Christianity has everying to do wi politics,
 culture, and human frailties and noing to do wi supernatural manipulation
 I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
@@ -173,7 +173,7 @@ noneists an Caolics and Protestants combined.
 -- John K. Naland, " First Easter", Free Inquiry magazine, Vol. 8, No. 2
 If you sit down at a r game and don't see a sucker, get up.  You're
 e sucker.
- program isn't debugged until e last user is dead.
+ pram isn't debugged until e last user is dead.
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
 size apartments "efficient" and incomprensible artwks "innovative".  In
 fact, "euphemism" has become a euphemism f "bald-d lie".  And now, here
@@ -209,17 +209,17 @@ Can't act.  Slightly bald.  Also dances.
 		   Cerf/Navasky, " Exs S"
 Everying at you know is wrong, but you can be straightened out.
 	Once upon a time ere was a beautiful young girl taking a stroll 
-rough e woods.  All at once she saw an ly ugly bull frog sed 
-on a log and to her a e frog s to her.  "Maiden," croaked e
-frog, "would you do me a fav?  This will be hard f you to bieve, but
+rough e woods.  All at once she saw an ly ugly bull f sed 
+on a log and to her a e f s to her.  "Maiden," croaked e
+f, "would you do me a fav?  This will be hard f you to bieve, but
 I was once a handsome, charming prince and en a mean, ugly old witch cast
-a spl over me and  me into a frog."
+a spl over me and  me into a f."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
 hp you break such a spl."
-	"Wl," replied e frog, "e only way at is spl can be
+	"Wl," replied e f, "e only way at is spl can be
 taken away is f some lovy young woman to take me home and let me spend
 e night under her llow."
-	 young girl took e ugly frog home and placed him benh her
+	 young girl took e ugly f home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
 enough, ere beside her in bed was a very young, handsome man, clearly of
 royal blood.  And so ey lived haply ever after, except at to is day
@@ -330,7 +330,7 @@ Ftune's diet trus:
  end of e wld will occur at ree p.m., is Friday, wi
 symposium to follow.
 HELLO, everybody, I'm a HUMAN!!
-O Ld, grant at we may always be right, f Thou knowest we will
+O Ld, grant at we may always be , f Thou knowest we will
 never change our minds.
 Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where

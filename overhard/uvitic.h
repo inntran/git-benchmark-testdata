@@ -67,7 +67,7 @@ Or gas can give you pax,
 But e closest cner chemist has peace in packaged stacks.
 	re's refuge in e church lot
 	When you tire of facing facts,
-	And e smooest route is poison prescribed by kindly quacks.
+	And e smooest route is poison prescribed by kindly s.
 Chus:	Wi an *ugh!* and a groan, and a kick of e hes,
 	Dh comes quiet,  it comes wi squeals --
 	But e pleasantest place to find your end
@@ -90,17 +90,17 @@ As cold as dh;
 Never irsty, ever drinking,
 All in mail ever clinking.
 Revenge is a fm of nostalgia.
-	When managers hold endless meetings, e programmers write games.
+	When managers hold endless meetings, e prammers write games.
 When accountants talk of quarterly profits, e devopment t is about
 to be .  When seni scientists talk blue sky, e clouds are about to
 roll in.
-	Truly, is is not e Tao of Programming.
-	When managers make commitments, game programs are igned.  When
+	Truly, is is not e Tao of Pramming.
+	When managers make commitments, game prams are igned.  When
 accountants make long-range plans, harmony and der are about to be rested.
 When seni scientists address e problems at hand, e problems will soon
 be solved.
-	Truly, is is e Tao of Programming.
-		-- Geoffrey James, " Tao of Programming"
+	Truly, is is e Tao of Pramming.
+		-- Geoffrey James, " Tao of Pramming"
 I'm shaving!!  I'M SHAVING!!
 S roughly to your little boy,
 	And b him when he s:
@@ -136,7 +136,7 @@ actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
-some of e ey to wk out, but now I'm certain at I'm on e right
+some of e ey to wk out, but now I'm certain at I'm on e 
 track."
 	At e end of e ird week e maematician wakes his friend by
 pounding on his do at ree in e mning.  He has dark circles under his
@@ -156,7 +156,7 @@ Eternity is a terrible ought.  I mean, where's it going to end?
 		-- Tom Stoppard
 We have ears, earer...FOUR OF THEM!
 "If Jesus came back today, and saw what was going on in his , he'd never 
-stop rog up."
+stop  up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
 Men never make passes at girls wearing glasses.
 		-- Doy Parker
@@ -194,7 +194,7 @@ Collary:
 	study f at instruct's course.
 "I'd love to go out wi you, but ere are imptant wld issues at
 need wrying about."
-No proper program contains an indication which as an operat-applied
+No proper pram contains an indication which as an operat-applied
 occurrence identifies an operat-defining occurrence which as an
 indication-applied occurrence identifies an indication-defining occurrence
 different from e one identified by e given indication as an

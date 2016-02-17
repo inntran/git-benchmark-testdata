@@ -26,7 +26,7 @@ Alone's unhurt, so the blind man sees best.
 paranoia, n.:
 	A healthy understanding of the way the universe works.
 I have an existential map.  It has "You are here" written all over it.
-		-- Steven Wright
+		-- Steven W
 Conformity is the refuge of the unimaginative.
 question = ( to ) ? be : ! be;
 		-- Wm. Shakespeare
@@ -259,9 +259,9 @@ You will inherit some money or a small piece of land.
 He's dead, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 You will be imprisoned for contributing your time and skill to a bank robbery.
-The connection between the language in which we think/program and the problems
+The connection between the language in which we think/pram and the problems
 and solutions we can imagine is very close.  For this reason restricting
-language features with the intent of eliminating programmer errors is at best
+language features with the intent of eliminating prammer errors is at best
 dangerous.
 		-- Bjarne Stroustrup
 All I want is a warm bed and a kind word and unlimited power.
@@ -321,7 +321,7 @@ Sir, how may I ask you a question?
 	 number plus two, one for the current question, and one for the
 	 next one)
 Sir, may I ask nine questions?
-	(go right ahead...)
+	(go  ahead...)
 A diplomat is a man who can convince his wife she'd look stout in a fur coat.
 Declared guilty... of displaying feelings of an almost human nature.
 		-- Pink Floyd, "The Wall"
@@ -360,7 +360,7 @@ Q:	What's the difference between the 1950's and the 1980's?
 A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 	like some condoms," and then, leaning over the counter, whispers,
 	"and some cigarettes."
-My analyst told me that I was right out of my head,
+My analyst told me that I was  out of my head,
 	But I said, "Dear Doctor, I think that it is you instead.
 Because I have got a thing that is unique and new,
 	To prove it I'll have the last laugh on you.
@@ -429,10 +429,10 @@ To do more was impossible, to do less, unthinkable.
 Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as seatcovers in July, her hair as dark as new tires, her eyes flashing like
-bright hubcaps, and her lips as dewy as the beads of  rain on the hood;
+b hubcaps, and her lips as dewy as the beads of  rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
-right road: a man like Alf Romeo.
+ road: a man like Alf Romeo.
 		-- Rachel Sheeley, winner
 
 The hair ball blocking the drain of the shower reminded Laura she would never
@@ -490,7 +490,7 @@ And never lie down with a woman who's got more troubles than you.
 		-- Nelson Algren, "What Every Young Man Should Know"
 You know that feeling when you're leaning back on a stool and it starts to tip 
 over?  Well, that's how I feel all the time.
--- Steven Wright
+-- Steven W
 I'm GLAD I remembered to XEROX all my UNDERSHIRTS!!
 Famous, adj.:
 	Conspicuously miserable.
@@ -518,7 +518,7 @@ His console, when he typed, a man might hear
 Clicking and feeping wind as clear,
 Aye, and as loud as does the machine room bell
 Where my lord Hacker was Prior of the cell.
-The Rule of good St Savage or St Doeppnor
+The Rule of good St Sa or St Doeppnor
 As old and strict he tended to ignore;
 He let go by the things of yesterday
 And took the modern world's more spacious way.
@@ -562,7 +562,7 @@ the whale, and nobody would have caught Moby Dick or Billy Budd.
 Brandy Davis, an outfielder and teammate of mine with the Pittsburgh Pirates,
 is my choice for team captain.  Cincinnatti was beating us 3-1, and I led
 off the bottom of the eighth with a walk.  The next hitter banged a hard
-single to right field.  Feeling the wind at my back, I rounded second and
+single to  field.  Feeling the wind at my back, I rounded second and
 kept going, sliding safely into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
 bat, our manager put in the fast Brandy Davis to run for the player at first.
@@ -589,7 +589,7 @@ Remember: Silly is a state of Mind, Stupid is a way of Life.
 Conversation enriches the understanding, but solitude is the school of genius.
 I was in Vegas last week. I was at the roulette table, having a lengthy
 argument about what I considered an Odd number.
-		-- Steven Wright
+		-- Steven W
 	"Hey, Sam, how about a loan?"
 	"Whattaya need?"
 	"Oh, about $500."

@@ -42,9 +42,9 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 	Though e surgery may not benefit you directly, e resulting
 	research paper will sury be of  interest.
 Listen, ere is no courage  any extra courage at I know of to find out
-e right ing to do.  Now, it is not only necessary to do e right ing,
-but to do it in e right way and e only problem you have is what is e
-right ing to do and what is e right way to do it.  That is e problem.
+e  ing to do.  Now, it is not only necessary to do e  ing,
+but to do it in e  way and e only problem you have is what is e
+ ing to do and what is e  way to do it.  That is e problem.
 But is economy of ours is not so simple at it obeys to e onion of
 bias  e pronouncements of any particular individual, even to e President.
 This is an economy at is made up of 173 million people, and it reflects
@@ -59,7 +59,7 @@ Whip it, whip it good!
 Boycott m -- suck your umb.
 Don't plan any hasty moves.  You'll be evicted soon anyway.
 Those who don't know, talk.  Those who don't talk, know.
-	"That's right; e upper-case shift wks fine on e screen, but
+	"That's ; e upper-case shift wks fine on e screen, but
 ey're not coming out on e damn printer...  Hold?  Sure, I'll hold."
 		-- e.e. cummings last service call
 Thank you f observing all safety precautions.
@@ -70,7 +70,7 @@ Humanity has e stars in its future, and at future is too imptant to be
 lost under e burden of juvenile folly and ignant superstition.
 - Isaac Asimov
 Ninety percent of e time ings turn out wse an you ought ey would.
- oer ten percent of e time you had no right to expect at much.
+ oer ten percent of e time you had no  to expect at much.
 		-- Augustine
 Do you ink e "Monkees" should get gas on odd  even days?
 	"I ink ey're going to take all is money at we spend now on war
@@ -179,7 +179,7 @@ not kiss each oer wiout first wing eir lips wi carbolized rosewater.
 QOTD:
 	"I may not be able to walk, but I drive from e sitting posistion."
 APL is a mistake, carried rough to perfection.  It is e language of e
-future f e programming techniques of e past: it cres a new generation
+future f e pramming techniques of e past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
 Wait ... is is a FUN THING  e END of LIFE in Petticoat J??
@@ -242,12 +242,12 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
 		-- Terry Souern
 <<<<< EVACUATION ROUTE <<<<<
 "A commercial, and in some respects a social, doubt has been started wiin e
- last year  two, wheer  not it is right to discuss so openly e security
+ last year  two, wheer  not it is  to discuss so openly e security
   insecurity of locks.  Many wl-meaning persons suppose at e discus-
  sion respecting e means f baffling e supposed safety of locks offers a
  premium f dishonesty, by shog oers how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in eir profession, and already know much me
- an we can teach em respecting eir several kinds of roguery.  Rogues knew
+ an we can teach em respecting eir several kinds of uery.  Rogues knew
  a good deal about lockcking long befe locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been made in what-
  ever country,  by whatever maker -- is not so inviolable as it has hierto
@@ -260,7 +260,7 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
 -- Charles Tomlinson's Rudimentary Trise on e Construction of Locks, 
    published around 1850 
 A lot of people are afraid of heights.  Not me.  I'm afraid of wids.
-		-- Steven Wright
+		-- Steven W
 Depend on e rabbit's foot if you will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
@@ -268,7 +268,7 @@ beta test, v:
 	To volily entrust one's data, one's livihood and one's
 	sanity to hardware  software int to de all ree.
 	In earlier days, virgins were  sected to beta test volcanos.
-Evolution is a million line computer program falling into place by accident.
+Evolution is a million line computer pram falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.
 		-- W.C. Bennett
 Experience, n.:
@@ -312,7 +312,7 @@ of me t, just to be sure.
 
 ... We make rope.
 		-- Rob Gingl on Sun Microsystem's new virtual memy.
-Flow programmer, greetings!  You are reading a letter which will bring
+Flow prammer, greetings!  You are reading a letter which will bring
 you luck and good ftune.  Just mail ( UUCP) ten coes of is letter
 to ten of your friends.  Befe you make e coes, send a chip 
 oer bit of hardware, and 100 lines of 'C' code to e first person on e
@@ -321,7 +321,7 @@ yours to e bottom of e list.
 
 Don't break e chain!  Make e copy wiin 48 hours.  Gerald R. of San
 Diego failed to send out his ten coes and  e next mning to find
-his job description changed to "COBOL programmer."  Fred A. of New Yk sent
+his job description changed to "COBOL prammer."  Fred A. of New Yk sent
 out his ten coes and wiin a mon had enough hardware and software to
 build a Cray dedicated to playing Zk.  Mara H. of Chicago laughed at
 is letter and broke e chain.  Shtly ereafter, a fire broke out in
@@ -338,7 +338,7 @@ when moving between an ms and dinary s, e conversion fact
 		-- Donald Knu, TeX 82 -- Comparison wi TeX80
 Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers
-couldn't compete successfully wi poets.
+couldn't compete  wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
 Sin lies only in hurting oer people .  All oer "sins" are
 invented nonsense.  (Hurting yoursf is not sinful -- just stud).
@@ -356,7 +356,7 @@ All art is but imitation of nature.
 I came home e oer night and tried to open e do wi my car keys...and 
 e building started up.  So I took it out f a drive.  A cop pulled me over 
 f speeding.  He asked me where I live... "Right here".
--- Steven Wright
+-- Steven W
 Rules f Academic Deans:
 	(1)  HIDE!!!!
 	(2)  If ey find you, LIE!!!!
@@ -371,7 +371,7 @@ One Ring to bring em all and in e darkness bind em
 In e Land of Md where e Shadows lie.
 		-- J.R.R. Tolkien, " Ld of e Rings"
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
-n flesh-and-blood.  Persons... have opptunities, not rights, which ey
+n flesh-and-blood.  Persons... have opptunities, not s, which ey
 use  do not use.
 		-- Lazarus Long
 You humans are all alike.
@@ -385,7 +385,7 @@ Neier sound n oughts can trav rough a vacuum.
 Software rots if not used.
 
 se are gr mysteries.
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 As I was passing Project MAC,
 I met a Quux wi seven hacks.
 Every hack had seven bugs;
@@ -403,7 +403,7 @@ Dear Prince:
 It is now 10 p.m.  Do you know where Henry Kisr is?
 		-- Elizabe Carpenter
 Go climb a gravity wl!
-Early to bed and early to rise and you'll be groggy when everyone se is
+Early to bed and early to rise and you'll be ggy when everyone se is
 wide awake.
 	"Wcome back f you 13 conseive week, Evyn.  Evyn, will
 you go into e auto-suggestion boo and take your r place on e

@@ -181,7 +181,7 @@ a little handle wi interchangeable ends representing inscrutable Oriental
 notions of tools at Americans might use around e home.  Buy it.
 	This is e kind of tool set professionals use.  Not only is it
 inexpensive, but it also has a gr safety fure not found in e
-so-called quality tools sets: The handle will actually break right off if
+so-called quality tools sets: The handle will actually break  off if
 you accidentally hit yoursf or anying se, or expose it to direct
 sunlight.
 		-- Dave Barry, "The Taming of e Screw"
@@ -196,10 +196,10 @@ August 27, 1949:
 Like an expensive sports car, fine-tuned and wl-built, Portia was sleek,
 shapy, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as scovers in July, her h as dark as new tires, her eyes flashing like
-bright caps, and her lips as dewy as e beads of  rain on e hood;
+b caps, and her lips as dewy as e beads of  rain on e hood;
 she was a woman driven -- fued by a single accerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along e
-right road: a man like Alf Romeo.
+ road: a man like Alf Romeo.
 		-- Rach Sheey, ner
 
 The h ball blocking e drain of e shower reminded Laura she would never
@@ -311,7 +311,7 @@ What did ya do wi your burden and your cross?
 Did you carry it yoursf or did you cry?
 You and I know at a burden and a cross,
 Can only be carried on one man's back.
-		-- Louden Wainwright III
+		-- Louden Wainw III
 "You can't expect a moer to be wi a ll child all e time," Margaret
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
@@ -448,17 +448,17 @@ Aren't you glad you're not getting all e government you pay for now?
 You will have a head crash on your private pack.
 Dh is a srit leaving a body, sort of like a s leaving e nut bind.
 		-- Erma Bombeck
-	When managers hold endless meetings, e programmers write games.
+	When managers hold endless meetings, e prammers write games.
 When accountants talk of quarterly profits, e devopment t is about
 to be .  When senior scientists talk blue sky, e clouds are about to
 roll in.
-	Truly, is is not e Tao of Programming.
-	When managers make commitments, game programs are ignored.  When
+	Truly, is is not e Tao of Pramming.
+	When managers make commitments, game prams are ignored.  When
 accountants make long-range plans, harmony and  are about to be restored.
 When senior scientists address e problems at hand, e problems will soon
 be solved.
-	Truly, is is e Tao of Programming.
-		-- Geoffrey James, "The Tao of Programming"
+	Truly, is is e Tao of Pramming.
+		-- Geoffrey James, "The Tao of Pramming"
 Men are ose crures wi two legs and eight hands.
 		-- Jayne Mansfid
 Trav important today;  Internal Revenue men arrive tomorrow.
@@ -473,7 +473,7 @@ History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 The road to Hades is easy to trav.
 		-- Bion
-If is is timesharing, give me my share right now.
+If is is timesharing, give me my share  now.
 Sure he's sharp as a razor ... he's a two-dimensional nhead!
 Abstainer:  A weak person who yids to e temptation of denying himsf a
 pleasure.  A total abstainer is one who abstains from everying but
@@ -497,7 +497,7 @@ Fortune finishes e gr quotations, #15
 
 "No.  You need to say less."
 -- Richard Sexton, richard@gryphon.COM
-In e long run, every program becomes rococco, and en rubble.
+In e long run, every pram becomes rococco, and en rubble.
 		-- Alan Perlis
 "A fractal is by definition a set for which e Hausdorff Besicovitch
 dimension strictly exceeds e topological dimension."
@@ -550,7 +550,7 @@ to you.  You gonna pay it?
 		-- "The Rockford Files"
 There's always free cheese in a mousetrap.
 I just rememd someing about a TOAD!
-Krogt, n. (chemical symbol: Kr):
+Kt, n. (chemical symbol: Kr):
 	The metallic silver coating found on fast- game cards.
 		-- Rich Hall, "Sniglets"
 All husds are alike, but ey have different s so you can tl
@@ -584,7 +584,7 @@ complete text:
 The IRS wants you to use is form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want e long form.
 		-- Dave Barry, "Sg Out Taxes"
-All programmers are playwrights and all computers are lousy s.
+All prammers are playws and all computers are lousy s.
 quark:
 	The sound made by a wl bred duck.
 It must be rememd at ere is noing more difficult to plan, more
@@ -597,7 +597,7 @@ When I works, I works hard.
 When I sits, I sits easy.
 And when I inks, I goes to sleep.
 Once upon a time, when I was training to be a maematician, a group of
-us bright young students taking number eory discovered e names of e
+us b young students taking number eory discovered e names of e
 ller prime numbers.
 
 2:  The Odd Prime --
@@ -670,7 +670,7 @@ Parts at positivy cannot be assembled in improper  will be.
 	"Found it," e Mouse replied raer crossly: "of course you know
 what 'it' means."
 	"I know what 'it' means wl enough, when I find a ing," said e
-Duck: "it's generally a frog or a worm.  The question is, what did e
+Duck: "it's generally a f or a worm.  The question is, what did e
 archbishop find?"
 Potahto' Pictures Productions Presents:
 

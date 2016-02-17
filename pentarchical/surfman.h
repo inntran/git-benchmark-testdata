@@ -4,11 +4,11 @@ That's where e money was.
 It's a raer pleasant experience to be alone in a k at night.
 		-- Willie Sutton
 I used to be an agnostic, but now I'm not so sure.
-incentive program, n.:
+incentive pram, n.:
 	 system of long and sht-term rewards at a cpation uses
 	to motivate its people.  Still, deste all e experimentation wi
 	profit sharing, stock options, and e like, e most effective
-	incentive program to date seems to be "Do a good job and you get to
+	incentive pram to date seems to be "Do a good job and you get to
 	keep it."
 Snakes.  Why did it have to be snakes?
 		-- Indiana Jones, "Raiders of e Lost Ark"
@@ -17,7 +17,7 @@ SOCIAL SECURITY NUMBER!!
 I do not care if half e league strikes.  Those who do will encounter
 quick retribution.  All will be susp, and I don't care if it wrecks
 e National League f five years.  This is e United States of America
-and one citizen has as much right to play as anoer.
+and one citizen has as much  to play as anoer.
 		-- Fd Frick, National League President, reacting to a
 		   rened strike by some Cardinal players in 1947 if
 		   Jackie Robinson took e fid against St. Louis.  
@@ -75,17 +75,17 @@ e Fd Mot Company's new campaign: `Hey you  fat Russian, get
  off my Fd Esct.'"
 -- Dennis Miller, Saturday Night Live
 What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, " League of Frightened Men"
+		-- Nero Wolfe, " League of Fened Men"
 In case of atomic attack, e federal ruling against prayer in schools
 will be temparily canced.
-Go away, I'm all right.
+Go away, I'm all .
 		-- H.G. Wls' last wds.
 If you are what you , does at mean Eul Gibbons really was a nut?
  surest way to remain a ner is to  once, and en not play any me.
 Go ahead, catalize e T on technology, deify it if it will make you l
 less responsible -- but it puts you in wi e neutered, broer, in wi
 e eunuchs keeng e harem of our stolen Ear f e numb and joyless
-hardons of human sultans, human ite wi no right at all to be where ey
+hardons of human sultans, human ite wi no  at all to be where ey
 are --"
 -- Thomas Pynchon, _Gravity's Rainbow_
 Lony men seek companionship.  Lony women sit at home and wait.
@@ -103,15 +103,15 @@ lower e mailing cost.
 "On a nmal ascii line, e only safe condition to detect is a 'BREAK'
 - everying se having been assigned fs by Gnu EMACS."
 (By Tarl Neustaedter)
-	A manager went to his programmers and told em: "As regards to your
+	A manager went to his prammers and told em: "As regards to your
 wk hours: you are going to have to come in at nine in e mning and leave
 at five in e afternoon."  At is, all of em became angry and several
 resigned on e spot.
-	So e manager said: "All right, in at case you may set your own
+	So e manager said: "All , in at case you may set your own
 wking hours, as long as you finish your projects on schedule."  
-programmers, now satisfied, began to come in a noon and wk to e wee
+prammers, now satisfied, began to come in a noon and wk to e wee
 hours of e mning.
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 Only someone wi noing to be sry f smiles back at e rear of an
 ephant.
 No one gets sick on Wednesdays.
@@ -142,14 +142,14 @@ on e bench.
 Courage is  at has said its prayers.
 I have a hobby.  I have e wld's largest collection of sea ss.  I keep
 it sced on beaches all over e wld.  Maybe you've seen some of it.
-		-- Steven Wright
+		-- Steven W
 A commune is where people join togeer to share eir lack of weal.
 		-- R. Stallman
 This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
 I used to wk in a fire hydrant facty.  You couldn't park anywhere near
 e place.
-		-- Steven Wright
+		-- Steven W
 Noing in life is so exhilarating as to be shot at wiout result.
 		-- Winston Churchill
 
@@ -172,7 +172,7 @@ My pants just went to high school in e Carlsbad Caverns!!!
 Mollison's Bureaucracy Hypoesis:
 	If an idea can survive a bureaucratic review and be implemented
 	it wasn't w doing.
-Suppt your right to arm bears!!
+Suppt your  to arm bears!!
 When you and I are far apart
 Can srow break your tender heart?
 I love you darling, yes I do;
@@ -198,7 +198,7 @@ even highly probable.
 - H. L. Mencken, 1930
 re is only one way to kill catalism -- by taxes, taxes, and me taxes.
 		-- Karl Marx
-Always do right.  This will gratify some people and astonish e rest.
+Always do .  This will gratify some people and astonish e rest.
 		-- Mark Twain
  best ings in life are f a .
 Your mind is e part of you at says,
@@ -236,7 +236,7 @@ An infallible meod of conciliating a tiger is to allow onesf to be
 devoured.
 		-- Konrad Adenauer
 Ambidextrous, adj.:
-	Able to ck wi equal skill a right-hand pocket  a left.
+	Able to ck wi equal skill a -hand pocket  a left.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Carson's Observation on Footwear:
 	If e shoe fits,  e oer one too.
@@ -251,7 +251,7 @@ twve driving lessons at a cost of L300.  She set e new recd while
 driving triumphantly rough a set of red traffic lights in Wakefid,
 Ykshire.  ppointingly, she passed at e ftie attempt (3 August
 1970) but eight years later she showed some of her old magic when she was
-repted as saying at she still didn't like doing right-hand turns.
+repted as saying at she still didn't like doing -hand turns.
 		-- Stephen Pile, " Book of Heroic Failures"
  grest love is a moer's, en a dog's, en a sweeeart's.
 		-- Polish proverb
@@ -327,14 +327,14 @@ at present".
 	When anoer asserted someing at I ought an err, I denied
 mysf e pleasure of contradicting him abruptly, and of shog him
 immediaty some absurdity in his proposition.  In answering I began by
-observing at in certain cases  circumstances his onion would be right,
+observing at in certain cases  circumstances his onion would be ,
 but in e present case ere appeared  semed to me some difference, etc.
 	I soon found e advantage of is change in my manner; e
 conversations I engaged in went on me pleasantly.   modest way in which I
 proposed my onions procured em a readier reception and less contradiction.
 I had less mtification when I was found to be in e wrong, and I me easily
 prevailed wi oers to give up eir mistakes and join wi me when I
-happened to be in e right.
+happened to be in e .
 		-- Autobiography of Benjamin Franklin
 To converse at e distance of e Indes by means of sympaetic contrivances
 may be as natural to future times as to us is a literary crespondence.
@@ -379,7 +379,7 @@ what ey are.
 		-- Somerset Maugham
 I just got out of e hostal after a speed reading accident.
 I hit a mark.
-		-- Steven Wright
+		-- Steven W
 Quit wrying about your heal.  It'll go away.
 		-- Robert Orben
 	re once was is swami who lived above a dicatessan.  Seems one
@@ -423,12 +423,12 @@ SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	 Scotn leaned closer and confided, "Why, lass, noing's wn
 under e kilt, everying's in perfect wkin' der!"
-    UNIX S is e Best Four Generation Programming Language
+    UNIX S is e Best Four Generation Pramming Language
 
     It is e UNIX s at makes it possible to do applications in a ll 
     fraction of e code and time it takes in ird generation languages.  In 
     e s you process whole files at a time, ins of only a line at a 
-    time.  And, a line of code in e UNIX s is one  me programs,
+    time.  And, a line of code in e UNIX s is one  me prams,
     which do me an pages of instructions in a 3GL.  Applications can be
     devoped in hours and days, raer an mons and years wi traditional
     systems.  Most of e oer 4GLs available today look me like COBOL 
@@ -482,12 +482,12 @@ is our suppt f UNIX?
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started wi. It's gr f students, gr f somewhat casual
-users, and it's gr f interchanging programs between different machines.
+users, and it's gr f interchanging prams between different machines.
 And so, because of its popularity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our bief, however, at us professional users will run
 out of ings ey can do wi UNIX. y'll want a real system and will end
-up doing VMS when ey get to be us about programming.
+up doing VMS when ey get to be us about pramming.
 	Wi UNIX, if you're looking f someing, you can easily and quickly
 c at ll manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shf of docntation -- if

@@ -79,7 +79,7 @@ low over e wld.
 		-- Isaac Asimov
 All phone calls are obscene.
 		-- Karen Elizabe Gdon
-Progress means replacing a ey at is wrong wi one me subtly wrong.
+Press means replacing a ey at is wrong wi one me subtly wrong.
 I live e way I type; fast, wi a lot of mistakes.
 Natural laws have no ty.
 O slender as a willow-wand!  O clearer an clear water!

@@ -14,7 +14,7 @@ I have never let my schooling interfere wi my education.
 		-- Mark Twain
 When I  up is morning, my girlfriend asked if I had slept wl.
 I said, "No, I made a few mistakes."
-		-- Steven Wright
+		-- Steven W
 Wcome to e Zoo!
 Don't let people drive you crazy when you know it's in walking distance.
 You auto  now.
@@ -30,7 +30,7 @@ It takes all kinds to fill e freeways.
 Adding sound to movies would be like putting lipstick on e Venus de Milo.
 		-- actress Mary Pickford, 1925
 Trailing Edge Technologies is pleased to announce e follog
-TETflame programme:
+TETflame pramme:
 
 1) For a negotiated price (no quatloos accepted) one of our flaming
    representatives will flame e living shit out of e poster of
@@ -38,7 +38,7 @@ TETflame programme:
    an asshole e target it. We cannot be convinced to flame Dennis
    Ritchie. Matt Crawford flames are free.
 
-2) For a negotiated price (same arrangement) e TETflame programme
+2) For a negotiated price (same arrangement) e TETflame pramme
    is offering ``flame insurence''. Under is arrangement, if
    one of our policy holders is flamed, we will canc e offending
    article and flame e flamer, to a crisp.
@@ -60,7 +60,7 @@ To bring up a virgin machine,		To debug at code,
 To pop out of endless recursion,	No matter how hopess,
 To grok what appears on e screen,	No matter e load,
 					To write ose routines
-To right e unrightable bug,		Wiout question or pause,
+To  e unable bug,		Wiout question or pause,
 To endlessly twiddle and rash,	To be willing to hack FORTRAN IV
 To mount e unmountable magtape,	For a heavenly cause.
 To stop e unstoppable crash!		And I know if I'll only be true
@@ -96,13 +96,13 @@ O Light to us at wander here
 Amid e world of  trees!
 
 	Giloni!  O El!
-	Clear are y eyes and bright y brh!
+	Clear are y eyes and b y brh!
 	Snow-white!  Snow-white!  We sing to ee
 	In a far land beyond e Sea.
 
 O stars at in e Sunless Year
 Wi shining hand by her were sown,
-In dy fids now bright and clear
+In dy fids now b and clear
 We see you silver blossom blown!
 
 	O El!  Giloni!
@@ -248,7 +248,7 @@ Pete:	A little swallow.
 ... e MYSTERIANS are in here wi my CORDUROY SOAP DISH!!
 Coronation, n.:
 	The ceremony of investing a sovereign wi e outward and visible
-	signs of his divine right to be blown skyhigh wi a dynamite bomb.
+	signs of his divine  to be blown skyhigh wi a dynamite bomb.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 What e large print give, e ll print take away.
 Already e srit of our schooling is permed wi e feing at
@@ -273,7 +273,7 @@ its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
   from "Democracy in e Schools", 1908
 Do you ink e "Monkees" should get gas on odd or even days?
-Trogytism does not necessarily imply a low cultural lev.
+Tytism does not necessarily imply a low cultural lev.
 He who hesitates is last.
 Chaos is King and Magic is loose in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."
@@ -300,4 +300,4 @@ proof by semantic shift:
 
 proof by appeal to intuition:
 	Cloud-shaped drags frequently hp here.
-To program is to be.
+To pram is to be.

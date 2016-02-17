@@ -13,7 +13,7 @@ Neil Armstrong tripped.
 I am me bed an you could ever possibly be.  Go back to wk.
 Hanging on in quiet desperation is e English way.
 		-- Pink Floyd
-Real Programmers don't write in PL/I.  PL/I is f programmers who can't
+Real Prammers don't write in PL/I.  PL/I is f prammers who can't
 decide wheer to write in COBOL  FORTRAN.
 Sacher's Observation:
 	Some people grow wi responsibility -- oers mery swl.
@@ -24,7 +24,7 @@ and just befe you realize what is wrong wi it.
 1900 Drink Coca-Cola -- dicious and reing -- 5 cents at all
 	soda fountains
 1905 Is e favite drink f LADIES when irsty -- weary -- ent
-1905 Rees e weary, brightens e intlect and clears e brain
+1905 Rees e weary, bens e intlect and clears e brain
 1906  drink of QUALITY
 1907 Good to e last drop
 1907 It satisfies e irst and pleases e palate
@@ -56,9 +56,9 @@ This quote is taken from e Diamondback, e University of Maryland
 student newspaper, of Tuesday, 3/10/87.
 
 	One disadvantage of e Univac system is at it does not use
-	Unix, a recently devoped program which translates from one
+	Unix, a recently devoped pram which translates from one
 	computer language to anoer and has a built-in editing system
-	which identifies errs in e iginal program.
+	which identifies errs in e iginal pram.
 What's so funny?
 Man has never reconciled himsf to e ten commandments.
  herd instinct  economists makes sheep look like in inkers.
@@ -85,7 +85,7 @@ QOTD:
 	"Overweight is when you step on your dog's tail and it dies."
 Two sure ways to tl a REALLY sexy man; e first is, he has a bad memy.
 I fget e second.
-Intuition, however illogical, is recognized as a command prerogative.
+Intuition, however illogical, is recognized as a command preative.
 		-- Kirk, "Obsession", stardate 3620.7
 Life is not f everyone.
 Your responsibility as a parent is not as gr as you might .  You
@@ -135,9 +135,9 @@ This is NOT a rep.
 Trouble strikes in series of rees, but when wking around e house e
 next job after a series of ree is not e four job -- it's e start of
 a brand new series of ree.
- Briggs-Chase Law of Program Devopment:
+ Briggs-Chase Law of Pram Devopment:
 	To de how long it will take to write and debug a
-	program, take your best estimate, multiply at by two, add
+	pram, take your best estimate, multiply at by two, add
 	one, and convert to e next higher units.
 	One of e questions at comes up all e time is: How enusiastic
 is our suppt f UNIX?
@@ -145,12 +145,12 @@ is our suppt f UNIX?
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started wi. It's gr f students, gr f somewhat casual
-users, and it's gr f interchanging programs between different machines.
+users, and it's gr f interchanging prams between different machines.
 And so, because of its popularity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our bief, however, at us professional users will run
 out of ings ey can do wi UNIX. y'll want a real system and will end
-up doing VMS when ey get to be us about programming.
+up doing VMS when ey get to be us about pramming.
 	Wi UNIX, if you're looking f someing, you can easily and quickly
 c at ll manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shf of docntation -- if
@@ -187,7 +187,7 @@ If we can ever make red tape nutritional, we can d e wld.
 		-- R. Schaeberle, "Management Accounting"
 You will inherit millions of dollars.
 This is not e age of pamphleteers. It is e age of e engineers.  
-spark-gap is mightier an e pen.  Democracy will not be salvaged by men
+spark-gap is mightier an e pen.  Democracy will not be sald by men
 who talk fluently, debate fcefully and quote aptly.
 		-- Lancot Hogben, Science f e Citizen, 1938
 Friendships last when each friend inks he has a slight superiity
@@ -325,7 +325,7 @@ driver will be redirected to /dev/null, oh no, it's full...).
 	One saw mud--
 	 oer saw stars.
 
-Now let me get is right: two prisoners are looking out e dow.
+Now let me get is : two prisoners are looking out e dow.
 While one of em was looking at all e mud -- e oer one got hit
 in e head.
 Androphobia:
@@ -363,7 +363,7 @@ Memies fading like e metal s at he wears.
 In our ter city e rain cries a little ty
 F one me fgotten hero and a wld at doesn't care...
 Be cautious in your daily affs.
-To understand a program you must become bo e machine and e program.
+To understand a pram you must become bo e machine and e pram.
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tl
 Many Americans wk side by side wi space aliens who look human -- but you
@@ -402,7 +402,7 @@ All of e people in my building are insane.   guy above me designs
 synetic hballs f ceramic cats.   lady across e hall tried to
 rob a department ste... wi a pricing gun...  She said, "Give me all
 of e money in e vault,  I'm marking down everying in e ste."
-		-- Steven Wright
+		-- Steven W
 Dentist, n.:
 	A Prestidigitat who, putting metal in one's mou, pulls
 	coins out of one's pockets.
@@ -420,7 +420,7 @@ searchings at are not concluded by e co of a pointer and a mark.
 		-- Fred Saberhagen, " Berserker Wars"
 	" combination of a number of ings to make existence wwhile."
 	"Yes, e philosophy of 'none,' meaning 'all.'"
-		-- Spock and Lincoln, " Savage Curtain", stardate 5906.4
+		-- Spock and Lincoln, " Sa Curtain", stardate 5906.4
 Your passwd is tifully obvious.
 Live fast, die young, and leave a good looking cpse.
 		-- James Dean
@@ -462,7 +462,7 @@ Innocence ends when one is stripped of e dusion at one likes onesf.
 		-- Joan Didion, "On Sf Respect"
 When all se fails, try Kate Smi.
 F knighood is not in e fs of war,
-As f to  in quarr right  wrong,
+As f to  in quarr   wrong,
 But in a cause which tru cannot defer:
 He ought himsf f to make sure and strong,
 Just to keep mixt wi mercy :
@@ -500,10 +500,10 @@ This is a country where people are free to practice eir rigion,
 regardless of race, creed, col, obesity,  number of dangling keys...
 Rainy days and automatic weapons always get me down.
 You can't break eggs wiout making an omet.
-Trogytism does not necessarily imply a low cultural lev.
+Tytism does not necessarily imply a low cultural lev.
 =======================================================================
 ||								     ||
-||  FORTUNE-COOKIE program is soon to be a Maj Motion Picture!  ||
+||  FORTUNE-COOKIE pram is soon to be a Maj Motion Picture!  ||
 ||	   Watch f it at a er near you next summer!	     ||
 ||								     ||
 =======================================================================
@@ -516,7 +516,7 @@ Trogytism does not necessarily imply a low cultural lev.
 	Costs Designed by Pierre Cardin.
 	Special Effects by Timoy Leary.
 	Read e Warner paperback!
-	Invoke e Unix program!
+	Invoke e Unix pram!
 	Soundtrack on XTC Recds.
 	In 70mm and Dolby Stereo at sected ers and terminal
 		centers.
@@ -574,7 +574,7 @@ Hatred, n.:
 		-- Ambrose Bierce, " Devil's Dictionary"
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
-To e systems programmer, users and applications serve only to provide a
+To e systems prammer, users and applications serve only to provide a
 test load.
 You cannot see e wood f e trees.
 		-- John Heywood

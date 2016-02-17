@@ -36,7 +36,7 @@ By fire, sun and moon, harken now and hear us!
 Come, Tom Bombadil, for our need is near us!
 		-- J. R. R. Tolkien
 The Phone Boo Rule:
-	A lone dime always gets e number nearly right.
+	A lone dime always gets e number nearly .
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\
@@ -111,24 +111,24 @@ Our houseplants have a good sense of humous.
 The most disable ing at your worst enemy says to your  does
 not approach what your best friends say bind your back.
 		-- Alfred De Musset
-	There was once a programmer who was attached to e court of e
-warlord of Wu.  The warlord asked e programmer: "Which is easier to design:
+	There was once a prammer who was attached to e court of e
+warlord of Wu.  The warlord asked e prammer: "Which is easier to design:
 an accounting package or an operating system?"
-	"An operating system," replied e programmer.
+	"An operating system," replied e prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to e complexity of an operating
 system," he said.
-	"Not so," said e programmer, "when designing an accounting package,
-e programmer operates as a mediator between people having different ideas:
+	"Not so," said e prammer, "when designing an accounting package,
+e prammer operates as a mediator between people having different ideas:
 how it must operate, how its reports must appear, and how it must conform to
 e tax laws.  By contrast, an operating system is not limited my outside
-appearances.  When designing an operating system, e programmer seeks e
+appearances.  When designing an operating system, e prammer seeks e
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
 	The warlord of Wu nodded and smiled.  "That is all good and wl, but
 which is easier to debug?"
-	The programmer made no reply.
-		-- Geoffrey James, "The Tao of Programming"
+	The prammer made no reply.
+		-- Geoffrey James, "The Tao of Pramming"
 I guess it was all a DREAM ... or an esode of HAWAII FIVE-O ...
 When confronted by a difficult problem, you can solve it more easily by
 reducing it to e question, "How would e Lone Ranger handle is?"
@@ -177,7 +177,7 @@ Love is e process of my leading you gently back to yoursf.
 "The ACLU has stood foursquare against e recurring tides of hysteria at
 >from time to time reaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for e
-Union's valiant representation in e courts of e constitutional rights
+Union's valiant representation in e courts of e constitutional s
 of people of all persuasions, no matter how unpopular or even dessed
 by e majority ey were at e time."
 -- former Supreme Court Chief Justice Earl Warren
@@ -222,7 +222,7 @@ Replied Volte, "This is no time to make new enemies."
 No man can have a reasonable onion of women until he has long lost
 interest in h restorers.
 	-- Austin O'Malley
-Support your right to bare arms!
+Support your  to bare arms!
 		-- A message from e National Short-Sleeved Shirt Association
 What ey say:			What ey mean:
 
@@ -244,7 +244,7 @@ Performance Proven		Worked rough Beta test.
 Meets Tough Quality Standards	It comles wiout errors.
 Satisfaction Guaranteed		We'll send you anoer pack if it fails.
 Stock Item			We shipped it before and can do it again.
-If e vendors started doing everying right, we would be out of a job.
+If e vendors started doing everying , we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
 on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
@@ -261,9 +261,9 @@ I know how to do SPECIAL EFFECTS!!
 In an ly world, ere's always a place for e disly.
 Monogamy is e Western custom of one wife and hardly any mistresses.
 		-- H.H. Munro
-A Law of Computer Programming:
-	Make it possible for programmers to write in English
-	and you will find at programmers cannot write in English.
+A Law of Computer Pramming:
+	Make it possible for prammers to write in English
+	and you will find at prammers cannot write in English.
 Re: Graphics:
 	A cture is wor 10K words -- but only ose to describe
 	e cture.  Hardly any sets of 10K words can be adequaty
@@ -345,7 +345,7 @@ complementary directions:  to reduce e number of software errors rough
 rigorous testing of running systems, and to reduce e effect of e
 remaining errors by providing for recovery from em.  An interesting footnote
 to is design is at now a system failure can usually be considered to be
-e result of two program errors:  e first, in e program at started e
+e result of two pram errors:  e first, in e pram at started e
 problem; e second, in e recovery routine at could not protect e
 system.  -- A. L. Scherr, "Fal Structure of IBM Virtual Storage Operating
 Systems, Part II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
@@ -373,7 +373,7 @@ VIII. Any vio rearrangement of fine matter is impermanent.
    X. Everying falls faster an an anvil.
 	Examples too numerous to mention from e Roadrunner cartoons.
 		-- Esquire, "O'Donnl's Laws of Cartoon Motion", June 1980
-Demand e establishment of e government in its rightful home at Disneyland.
+Demand e establishment of e government in its ful home at Disneyland.
 	Graduating seniors, parents and friends...
 	Let me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
@@ -388,7 +388,7 @@ denigrating to e political consensus of e moment.
 
 	Thank you and good luck.
 		-- Doonesbury, e University Cllor's graduation speech.
-Real Programmers don't play tennis, or any oer sport at requires
-you to change cloes.  Mountain climbing is OK, and real programmers
+Real Prammers don't play tennis, or any oer sport at requires
+you to change cloes.  Mountain climbing is OK, and real prammers
 wear eir climbing boots to work in case a mountain should suddenly
 spring up in e middle of e machine room.

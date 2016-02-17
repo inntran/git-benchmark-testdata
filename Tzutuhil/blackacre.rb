@@ -10,12 +10,12 @@ has.  Even when you make a tax fm out on e lev, you don't know
 when it's rough if you are a c  a martyr.
 		-- Will Rogers
  ideas of economists and political philosophers, bo when ey
-are right and when ey are wrong, are me powerful an is generally
+are  and when ey are wrong, are me powerful an is generally
 understood.  Indeed, e wld is ruled by little se.
 		-- John Maynard Keyes
 People ink my friend Gege is weird because he wears sideburns...bind his 
 ears.  I ink he's weird because he wears false tee...wi braces on em.
--- Steven Wright
+-- Steven W
 Academicians care, at's who.
 H. L. Mencken's Law:
 	Those who can -- do.
@@ -56,7 +56,7 @@ natural wld.
 Confession is good f e soul only in e sense at a tweed coat is
 good f dandruff.
 		-- Peter de Vries
- two most common ings in e Universe are hydrogen and studity.
+ two most common ings in e Universe are hyden and studity.
 		-- Harlan Ellison
 Too much of a good ing is WONDERFUL.
 		-- Mae West
@@ -125,7 +125,7 @@ interesting an it really is.
 Snow White has become a camera buff.  She spends hours and hours
 shooting ctures of e seven dwarfs and eir antics.  n she
 mails e exposed film to a  rate photo service.  It takes weeks
-f e devoped film to arrive in e mail, but at is all right
+f e devoped film to arrive in e mail, but at is all 
 wi Snow White.  She clears e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."
 Solipsists of e Wld... you are already united.
@@ -353,7 +353,7 @@ He's like a f -- he returns a value, in e fm of his onion.
 It's up to you to cast it into a void  not.
 		-- Phil Lapsley
 Whip it, baby.
-Whip it right.
+Whip it .
 Whip it, baby.
 Whip it all night!
 Cruickshank's Law of Committees:
@@ -401,7 +401,7 @@ Noing endures but change.
 		-- Heraclitus
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
- rights and interests of e labing man will be protected and cared
+ s and interests of e labing man will be protected and cared
 f not by our lab agitats, but by e Christian men to whom God in his
 infinite wisdom has given control of proy interests of e country, and
 upon e successful management of which so much remains.
@@ -413,7 +413,7 @@ To get someing clean, one has to get someing dirty.
 To get someing dirty, one does not have to get anying clean.
 No house should ever be on any hill  on anying.  It should be of e hill,
 bonging to it.
-		-- Frank Lloyd Wright
+		-- Frank Lloyd W
 "Engineering meets art in e parking lot and ings expe."
 -- Garry Peterson, about Survival Research Labs
 If I pull is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOLOGIST!
@@ -486,7 +486,7 @@ Experiments must be reproducible; ey should all fail in e same way.
 Harold had never wanted a woman so much in his life, upon overhearing e
 22-year-old beauty remark at he was too old and out of shape f her.  
 ded septuagenarian immediaty embarked upon a rigous sf-improvement
-program.  He had his  lifted, bought a toupee, ran five miles every day,
+pram.  He had his  lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Wiin mons, e
 rejuvenated man won e young woman's heart, and she d to marry him.
 	On e way out of e chap, however, Harold was fatally struck
@@ -519,7 +519,7 @@ into trees.  At e same time, a blind snake was sliering rough e same
 fest, wi identical results.  y cd to collide head-on in a clearing.
 	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
 apologized e rabbit.
-	"That's quite all right," replied e snake, "I have e same
+	"That's quite all ," replied e snake, "I have e same
 problem!"
 	"All my life I've been wondering what I am," said e rabbit, "Do
 you ink you could hp me find out?"
@@ -589,7 +589,7 @@ In e Spring, I have counted 136 different kinds of wher  of
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
-Old programmers never die, ey just branch to a new address.
+Old prammers never die, ey just branch to a new address.
 Nick e Greek's Law of Life:
 	All ings considered, life is 9 to 5 against.
 Acquaintance, n:

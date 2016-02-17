@@ -9,8 +9,8 @@ In selling the computer			The Druids were entrepreneurs,
 IBM has their strategem			And they built a granite box
 Which steadily grows acuter,		It tracked the moon, warned of monsoons,
 And Honeywell competes like Hell,	And forecast the equinox
-But the story's missing link		Their price was right, their future
-Is the system old at Stonemenge sold		bright,
+But the story's missing link		Their price was , their future
+Is the system old at Stonemenge sold		b,
 By the firm of Druids, Inc.		The prototype was sold;
 					From Stonehenge site their bits and byte
 					Would ship for Celtic gold.
@@ -33,7 +33,7 @@ and cajoled, but to no avail.  Sam said the plan would never pay off.
 Finally the company president called Sam into his office.
 	"Sam," he said, "here's a copy of the new pension plan and here's
 a pen.  I want you to sign the papers.  I'm sorry, but if you don't sign,
-you're fired.  As of right now."
+you're fired.  As of  now."
 	Sam signed the papers immediately.
 	"Now," said the president, "would you mind telling me why you
 couldn't have signed earlier?"
@@ -119,7 +119,7 @@ offer more plausible alternatives.
    Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 After Goliath's defeat, giants ceased to command respect.
 - Freeman Dyson
-Don't steal; thou'lt never thus compete successfully in business.  Cheat.
+Don't steal; thou'lt never thus compete  in business.  Cheat.
 		-- Ambrose Bierce
 It is wrong always, everywhere and for everyone to believe anything upon
 insufficient evidence.
@@ -282,7 +282,7 @@ Yes, it is written.  Good shall always destroy evil.
 Spreading peanut butter reminds me of opera!!  I wonder why?
 Between infinite and short there is a big difference.
 		-- G.H. Gonnet
-The more we disagree, the more chance there is that at least one of us is right.
+The more we disagree, the more chance there is that at least one of us is .
 The Seventh Edition licensing procedures are, I suppose, still in effect, 
 though I doubt that tapes are available from AT&T.  At any rate, whatever 
 restrictions the license imposes still exist.  These restrictions were and 
@@ -339,7 +339,7 @@ Please stand for the National Anthem:
 Thank you.  You may resume your seat.
 Are we on STRIKE yet?
 "Rights" is a fictional abstraction.  No one has "Rights", neither machines
-nor flesh-and-blood.  Persons... have opportunities, not rights, which they
+nor flesh-and-blood.  Persons... have opportunities, not s, which they
 use or do not use.
 		-- Lazarus Long
 And I alone am returned to wag the tail.
@@ -354,7 +354,7 @@ If you want to make God laugh, tell him about your plans.
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfield.
 Men of peace usually are [brave].
-		-- Spock, "The Savage Curtain", stardate 5906.5
+		-- Spock, "The Sa Curtain", stardate 5906.5
 Another good night not to sleep in a eucalyptus tree.
 When in doubt, tell the truth.
 		-- Mark Twain
@@ -461,20 +461,20 @@ I trust the first lion he meets will do his duty.
 Things worth having are worth cheating for.
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
-		-- Steven Wright
+		-- Steven W
 	*** STUDENT SUCCESSES ***
 
 Many of our students have gone on to achieve great success in all fields of
-programming.  One former student developed the concept of the personalized
+pramming.  One former student developed the concept of the personalized
 form letter.  Does the phrase, "Dear Mr.(insert name), You may already be a
 winner!," sound familiar?  Another student writes "After only five lessons I
-sold a "My Most Unforgettable Program" article to Corrosive Computing magazine.
+sold a "My Most Unforgettable Pram" article to Corrosive Computing magazine.
 Another of our graduates writes, "I recently completed a database-management
-program for my department manager.  My program touched him so deeply that he
-was speechless.  He told me later that he had never seen such a program in
-his entire career.  Thank you, Famous Programmers' school; only you could
+pram for my department manager.  My pram touched him so deeply that he
+was speechless.  He told me later that he had never seen such a pram in
+his entire career.  Thank you, Famous Prammers' school; only you could
 have made this possible."  Send for our introductory brochure which explains
-in vague detail the operation of the Famous Programmers' School, and you'll
+in vague detail the operation of the Famous Prammers' School, and you'll
 be eligible to win a possible chance to enter a drawing, the winner of which
 can vie for a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the morning.
@@ -522,12 +522,12 @@ intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
 which would spend billions and billions of tax dollars to buy Barbie dolls
 and electronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
-should go along with the Holiday Program.  This means you should get a large
+should go along with the Holiday Pram.  This means you should get a large
 sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
 Virtue would go far if vanity did not keep it company.
 		-- La Rochefoucauld
-All progress is based upon a universal innate desire of every organism
+All press is based upon a universal innate desire of every organism
 to live beyond its income.
 		-- Samuel Butler, "Notebooks"
 Dear Emily:
@@ -669,7 +669,7 @@ one can learn."
 		-- Edward Kasner and James R. Newman
 When we understand knowledge-based systems, it will be as before --
 except our fingertips will have been singed.
-		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
+		-- Epigrams in Pramming, ACM SIGPLAN Sept. 1982
 Bare feet magnetize sharp metal objects so they point upward from the
 floor -- especially in the dark.
 Never face facts; if you do you'll never get up in the morning.
@@ -829,7 +829,7 @@ Changing husbands/wives is only changing troubles.
 		-- Kathleen Norris
 To err is human, but when the eraser wears out before the pencil,
 you're overdoing it a little.
-Operating-system software is the program that orchestrates all the basic
+Operating-system software is the pram that orchestrates all the basic
 functions of a computer.
 - The Wall Street Journal, Tuesday, September 15, 1987, page 40
 Try to find the real tense of the report you are reading:  Was it done, is
@@ -883,9 +883,9 @@ is itself the one hope for salvation.
 The first half of our lives is ruined by our parents and the second half
 by our children.
 		-- Clarence Darrow
-The typical page layout program is nothing more than an electronic
+The typical page layout pram is nothing more than an electronic
 light table for cutting and pasting documents.
-Things will be bright in P.M.  A cop will shine a light in your face.
+Things will be b in P.M.  A cop will shine a light in your face.
 I was born in a Hostess Cupcake factory before the sexual revolution!
 You need more time; and you probably always will.
 Colvard's Logical Premises:

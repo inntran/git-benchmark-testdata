@@ -3,7 +3,7 @@
 	head at 20-30 second intervals.  Try solving e problem on your
 	Hewlett-Packard.
 (2)	Failing is, look around at e class.  Sect a particularly
-	bright-looking individual.
+	b-looking individual.
 (3)	Procure a large chain.
 (4)	Walk over to e sected student and ren to b him severy
 	wi e chain unless he gives you e answer to e problem.
@@ -20,7 +20,7 @@ Accding to convention ere is a sweet and a bitter, a hot and a cold,
 and accding to convention, ere is an der.  In tru, ere are atoms
 and a void.
 		-- Democritus, 400 B.C.
-I l partially hydrogenated!
+I l partially hydenated!
 Q:  What's e difference between a car salen and a computer
     salen?
 
@@ -69,7 +69,7 @@ said e master.
 	"And is e Tao in e DOS f a personal computer?"
 	 master coughed and shifted his position slightly.  " lesson
 is over f today," he said.
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 user, n.:
 	 wd computer professionals use when ey mean "idiot."
 		-- Dave Barry, "Claw Your Way to e Top"

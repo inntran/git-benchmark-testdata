@@ -33,7 +33,7 @@ in a car, probing into unfamiliar cners.  She is not required to know how
 to drive but she will certainly be expected to read e road map while her
 husd drives, and if she can't,  if she's abnmally slow in giving him
 hp, she's bound to cause trouble.  refe, you'd ink at colleges
-which train e bright young women who're going to marry e bright young
+which train e b young women who're going to marry e b young
 men who are going to own e Cadillacs at roar back and f across is
 continent would teach e girls to read maps.  None do. y teach a hundred
 oer usess ings, but never a wd about e one at will cause e
@@ -66,7 +66,7 @@ DC	Divide and Conquer
 DMPK	De Memy Protect Key
 DO	Divide and Overflow
 EMPC	Emulate Pocket Calculat
-EPI	Exee Programmer Immediaty
+EPI	Exee Prammer Immediaty
 EROS	Erase Read Only Stage
 EXCE	Exee Customer Engineer
 HCF	Halt and Catch Fire
@@ -115,7 +115,7 @@ effect on non-Linux systems, especially when done by a privileged user.
 He drawe out e read of his verbosity finer an e staple of his
 argnt.
 		-- William Shakespeare, "Love's Labour's Lost"
-	A master programmer passed a novice programmer one day.   master
+	A master prammer passed a novice prammer one day.   master
 noted e novice's preoccupation wi a hand-hd computer game.  "Excuse me",
 he said, "may I examine it?"
 	 novice bolted to attention and handed e device to e master.
@@ -127,7 +127,7 @@ human."
 mysterious setting?"
 	 master dropped e device to e ground and crushed it under foot.
 And suddenly e novice was enlightened.
-		-- Geoffrey James, " Tao of Programming"
+		-- Geoffrey James, " Tao of Pramming"
 Reply hazy, ask again later.
 Now I'm concentrating on a specific tank battle toward e end of Wld War II!
 "It was a virgin fest, a place where e Hand of Man had never set foot."
@@ -152,7 +152,7 @@ Column 1		Column 2		Column 3
 1. total		1. ganizational	1. flexibility
 2. systematized		2. monited		2. capability
 3. parall		3. reciprocal		3. mobility
-4. f		4. digital		4. programming
+4. f		4. digital		4. pramming
 5. responsive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
@@ -185,7 +185,7 @@ Run, Code, RUN!
 I have a dog; I d him Stay.  So when I'd go to call him, I'd say, "Here,
 Stay, here..." but he got wise to at.  Now when I call him he ignes me
 and just keeps on tyng.
-		-- Steven Wright
+		-- Steven W
 Sum quod eris.
  first version always gets rown away.
 Lieberman's Law:
@@ -339,7 +339,7 @@ Lewis's Law of Trav:
 Yow!  Is my fallout shter termite proof?
 "Out of register space (ugh)"
 -- vi
-All e simple programs have been written.
+All e simple prams have been written.
 Burke's Postulates:
 	Anying is possible if you don't know what you are talking about.
 	Don't cre a problem f which you do not have e answer.
@@ -419,16 +419,16 @@ Let not e sands of time get in your lunch.
 	*** STUDENT SUCCESSES ***
 
 Many of our students have gone on to achieve gr success in all fids of
-programming.  One fmer student devoped e concept of e personalized
+pramming.  One fmer student devoped e concept of e personalized
 fm letter.  Does e phrase, "Dear Mr.(insert ), You may already be a
 ner!," sound familiar?  Anoer student writes "After only five lessons I
-sold a "My Most Unfgettable Program" article to Crosive Computing magazine.
+sold a "My Most Unfgettable Pram" article to Crosive Computing magazine.
 Anoer of our graduates writes, "I recently completed a datse-management
-program f my department manager.  My program touched him so deeply at he
-was speechless.  He told me later at he had never seen such a program in
-his entire career.  Thank you, Famous Programmers' school; only you could
+pram f my department manager.  My pram touched him so deeply at he
+was speechless.  He told me later at he had never seen such a pram in
+his entire career.  Thank you, Famous Prammers' school; only you could
 have made is possible."  Send f our introducty brochure which explains
-in vague detail e operation of e Famous Programmers' School, and you'll
+in vague detail e operation of e Famous Prammers' School, and you'll
 be igible to  a possible c to enter a drag, e ner of which
 can vie f a set of free steak knives.  If you don't do it now, you'll hate
 yoursf in e mning.

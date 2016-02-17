@@ -90,7 +90,7 @@ From the man's shape, Krat could tl it was a female, probably their leader.
 upspring of errant masters.  We slip away from all your armed might, laughing
 at your clumsiness!  We slip away as we always will, you pathetic creatures.
 And now that we have a real head start, you'll never catch us!  What better
-proof that the Progenitors favor not you, but us!  What better proof..."
+proof that the Penitors favor not you, but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time ing
 the artistry of it.  These men are better than I'd thought.  Their insults
 are wordy and overblown, but they have talent.  They deserve honorable, slow
@@ -110,7 +110,7 @@ corner of the lagoon, so that it had no way to escape other than to
 flop up onto the land and evolve.  Richard and I were inching toward
 it, sort of crouched over, when all of a sudden it turned around and --
 I can still remember the sensation I ft at that moment, primarily in
-the armpit area -- headed right straight toward us.
+the armpit area -- headed  straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what the text says you should do when you're
@@ -119,7 +119,7 @@ up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
 our feet never once went bow the sur of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
-cartoon we would have run right INTO the beach, and you would have seen
+cartoon we would have run  INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
 into trees and coconuts fl onto their heads.
 		-- Dave Barry, "The Wonders of Sharks on TV"
@@ -151,8 +151,8 @@ The husband who doesn't tl his wife everything probably reasons that
 what she doesn't know won't hurt him.
 		-- Leo J. Burke
 If you can't learn to do it wl, learn to enjoy doing it badly.
-"We are on the verge: Today our program proved Fermat's next-to-last theorem."
-		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
+"We are on the verge: Today our pram proved Fermat's next-to-last theorem."
+		-- Epigrams in Pramming, ACM SIGPLAN Sept. 1982
 "Don't drop acid, take it pass-fail!"
 -- Bryan Micha Wendt
 Even a blind pig stumbles upon a few acorns.
@@ -286,7 +286,7 @@ himsf.
 	Such a man would expect a stone to lay an egg.
 	Such a man would expect Sears to assemble a lawnmower.
 		-- Kehlog Albran, "The Profit"
-...when fits of creativity run strong, more than one programmer or writer has
+...when fits of creativity run strong, more than one prammer or writer has
 been known to abandon the desktop for the more spacious floor.
 - Fred Bs, Jr.
 *** NEWS FLASH ***
@@ -318,7 +318,7 @@ Lady, lady, better run!
 If bankers can count, how come they have eight windows and only four tlers?
 Consultation, n.:
 	Medical term meaning "to share the wealth."
-He was a fiddler, and consequently a rogue.
+He was a fiddler, and consequently a ue.
 		-- Jonathon Swift
 My pen is at the bottom of a page,
 Which, being finished, here the story ends;
@@ -453,7 +453,7 @@ Save the whales.  Collect the whole set.
 "The ACLU has stood foursquare against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
-Union's valiant representation in the courts of the constitutional rights
+Union's valiant representation in the courts of the constitutional s
 of people of all persuasions, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
@@ -461,10 +461,10 @@ If the s of X-window built cars, there would be no fewer than five
 steering whes hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
 feature, that.
-		-- From the programming notes of a heretic, 1990.
+		-- From the pramming notes of a heretic, 1990.
 Gold coast slave ship bound for cotton fids
 Sold in a market down in New Orleans
-Scarred old slaver knows he's doing alright
+Scarred old slaver knows he's doing al
 Hear him whip the women, just around midnight
 
 Ah, brown sugar how come you taste so good?
@@ -472,7 +472,7 @@ Ah, brown sugar just like a young girl should
 
 Drums beating cold English blood runs hot
 Lady of the house wonderin' where it's gonna stop
-House boy knows that he's doing alright
+House boy knows that he's doing al
 You should a heard him just around midnight.
 ...
 I bet your mama was tent show queen
@@ -590,7 +590,7 @@ complementary directions:  to reduce the number of software errors through
 rigorous testing of running systems, and to reduce the effect of the remaining
 errors by providing for recovery from them.  An interesting footnote to this
 design is that now a system failure can usually be considered to be the
-result of two program errors:  the first, in the program that started the
+result of two pram errors:  the first, in the pram that started the
 problem; the second, in the recovery routine that could not protect the
 system.
 		-- A.L. Scherr, "Fal Structure of IBM Virtual Storage
@@ -617,7 +617,7 @@ will be given to candidates who sf-actualise.
 	    up of western dualism?
 	(7) Hermann Hesse was a Pisces.  Discuss.
 "The reasonable man adapts himsf to the world; the unreasonable one persists
- in trying to adapt the world to himsf.  Therefore all progress depends on 
+ in trying to adapt the world to himsf.  Therefore all press depends on 
  the unreasonable man."
 -- George Bernard Shaw
 FORTRAN?  The syntactically incorrect statement "DO 10 I = 1.10" will parse and
@@ -626,7 +626,7 @@ doesn't terrify you, it should.
 QOTD:
 	The only easy way to tl a hamster from a gerbil is that the
 	gerbil has more dark meat.
-To understand a program you must become both the machine and the program.
+To understand a pram you must become both the machine and the pram.
 Grb's Reminder:
 	Eighty percent of all people consider themsves to be above
 	average drivers.
@@ -654,7 +654,7 @@ that I do without being commanded what others do only from fear of the law.
 		-- Aristotle
 "Little se matters than to write good code."
 -- Karl Lehenbauer
-The time is right to make new friends.
+The time is  to make new friends.
 There are two ways of disliking poetry; one way is to  it, the
 other is to read Pope.
 		-- Oscar Wilde
@@ -748,7 +748,7 @@ Laugh, and the world ignores you.  Crying doesn't hp either.
 and her first name by her mother.  By the time she was ten, didn't know if she
 was Carmen or Cohen.
 Weinberg's First Law:
-	Progress is only made on alternate Fridays.
+	Press is only made on alternate Fridays.
 Creativity is not always bred in an environment of tranquility;
 sometimes you have to  a little to get the paste out of the tube.
 tax office, n.:
@@ -766,7 +766,7 @@ to be out that long."
 
 I put a new engine in my car, but didn't take the old one out.  Now
 my car goes 500 miles an hour.
-		-- Steven Wright
+		-- Steven W
 There is no realizable power that man cannot, in time, fashion the tools
 to attain, nor any power so secure that the naked ape will not abuse it.
 So it is written in the genetic cards -- only physics and war hold him in
@@ -874,7 +874,7 @@ Boy!  Eucalyptus!
 "The ACLU has stood foursquare against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
-Union's valiant representation in the courts of the constitutional rights
+Union's valiant representation in the courts of the constitutional s
 of people of all persuasions, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
@@ -889,18 +889,18 @@ swooshing sounds as if they are flying.
 This wasn't just plain terrible, this was fancy terrible.  This was terrible
 with raisins in it.
 		-- Dorothy Parker
-"I don't know why, but first C programs tend to look a lot worse than
-first programs in any other language (maybe except for fortran, but then
-I suspect all fortran programs look like `firsts')"
+"I don't know why, but first C prams tend to look a lot worse than
+first prams in any other language (maybe except for fortran, but then
+I suspect all fortran prams look like `firsts')"
 (By Olaf Kirch)
 quark:
 	The sound made by a wl bred duck.
 A section from the Taoist Writings:
 
-"Lao-Tan asked Confucius: `What do you mean by benevolence and righteousness?'
+"Lao-Tan asked Confucius: `What do you mean by benevolence and eousness?'
  Confucius said:  `To be in one's inmost heart in kindly sympathy with all 
  things; to love all men and allow no sfish thoughts: this is the nature
- of benevolence and righteousness.'"
+ of benevolence and eousness.'"
 -- Kwang-tzu
 Those who can, do; those who can't, simulate.
 I think I'm schizophrenic.  One half of me's paranoid and the other half's

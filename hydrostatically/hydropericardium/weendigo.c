@@ -17,7 +17,7 @@ precision and flexibility may be just as disf in nov,
 wl-defined ones.  Those who admire e massive, rigid bone structures
 of dinosaurs should remember at jlyfish still enjoy eir very
 secure ecological niche.
-		-- Beau Sheil, "Power Tools f Programmers"
+		-- Beau Sheil, "Power Tools f Prammers"
   is an island, sur by whatever it is at surrounds
 s.
 DYSLEXICS OF THE WORLD, UNTIE!
@@ -167,7 +167,7 @@ n I will *___and* I won't see you in Schrodinger's zoo.
 You will not be ected to public office is year.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
-		-- Steven Wright
+		-- Steven W
 Those who bieve at ey bieve in God, but wiout passion in eir
 hearts, wiout anguish in mind, wiout ty, wiout doubt,
 wiout an ement of desp even in eir consolation, bieve only
@@ -189,11 +189,11 @@ publisher shot.
 tool wiout training  understanding is even me wrong f computing an
 it is f oer tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
- connection between e language in which we ink/program and e problems
+ connection between e language in which we ink/pram and e problems
 and solutions we can  is very close.  F is reason ing
-language fures wi e intent of iminating programmer errs is at best
+language fures wi e intent of iminating prammer errs is at best
 dangerous.
-- Bjarne Stroustrup in " C++ Programming Language"
+- Bjarne Stroustrup in " C++ Pramming Language"
 re is a gr discovery still to be made in Literature: at of
 paying literary men by e quantity ey do NOT write.
 Two friends were out drinking when suddenly one lurched backward off his 
@@ -220,12 +220,12 @@ I like eir dicacy, I like eir vivacity, and I like eir silence.
 		-- u Johnson
  Army needs leaders e way a foot needs a big toe.
 		--  
-To understand a program you must become bo e machine and e program.
+To understand a pram you must become bo e machine and e pram.
 TRANSACTION CANCELLED - FARECARD RETURNED
 ...is is an awesome sight.   entire reb resistance buried under six
 million hardbound coes of " Naked Lunch."
 -  Firesign ater
-"All language s are arrogant.  Goes wi e territy..."
+"All language s are arant.  Goes wi e territy..."
 (By Larry Wall)
 This Ftune Examined By INSPECTOR NO. 2-14
 He at composes himsf is wiser an he at composes a .
@@ -244,7 +244,7 @@ X dows:
 	Ignance is our most imptant resource.
 	Complex nonsolutions to simple nonproblems.
 	Built to fall apart.
-	Nullifying centuries of progress.
+	Nullifying centuries of press.
 	Falling to new deps of inefficiency.
 	 last ing you need.
 	 defacto substandard.
@@ -288,11 +288,11 @@ Hamlet, I : v : 95   William Shakespeare
 A young man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a jewry-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
-	"No problem," her companion replied, rog a brick rough e
+	"No problem," her companion replied,  a brick rough e
 dow and grabbing e ring.
 	A few blocks later, e woman  a full-leng sable coat.  "What
 I'd give to own at," she said, sighing.
-	"No problem," he said, rog a brick rough e dow and grabbing
+	"No problem," he said,  a brick rough e dow and grabbing
 e coat.
 	Finally, turning f home, ey passed a car dealership.  "Boy, I'd do
 anying f one of ose Rolls-Royces," she said.
@@ -341,7 +341,7 @@ raucously at is is true and at is false.  But ere are no certainties.
 If I ft any me SOPHISTICATED I would DIE of EMBARRASSMENT!
 A bird in e hand is w what it will bring.
 Is it weird in here,  is it just me?
-		-- Steven Wright
+		-- Steven W
 "He flung himsf on his hse and rode madly off in all directions."
 Ftune's Real-Life Courtroom Quote #37:
 
@@ -466,7 +466,7 @@ It depends on how many bad ones he brought wi him.
 Fats Loves Madyn.
 Q:	How many surrealists does it take to change a light bulb?
 A:	Two, one to hold e giraffe, and e oer to fill e batub
-	wi brightly coled machine tools.
+	wi bly coled machine tools.
 
 	[Surrealist jokes just aren't my cup of fur.  Ed.]
 Everying in is  may be wrong.
@@ -496,13 +496,13 @@ most of em are trash.
 Gr srits have always encountered vio opposition from mediocre minds.
 		-- Albert Einstein
 
-y laughed at Einstein.  y laughed at e Wright Broers.  But ey
+y laughed at Einstein.  y laughed at e W Broers.  But ey
 also laughed at Bozo e Clown.
 		-- Carl Sagan
 System restarting, wait...
 F ee e wonder-wking ear puts f sweet flowers.
 		-- Titus Lucretius Carus
-APL is a natural extension of assembler language programming;
+APL is a natural extension of assembler language pramming;
 ...and is best f educational purposes.
 		-- A. Perlis
 Let us go en you and I
@@ -622,7 +622,7 @@ glutaminylprolylmeionyllysylalanylalanylreonylarginylserine, n.:
 		-- Mrs. Byrne's Dictionary of Unusual, Obscure, and
 		   Preposterous Wds
 "When in doubt, print 'em out."
--- Karl's Programming Proverb 0x7
+-- Karl's Pramming Proverb 0x7
 I truly wish I could be a gr surgeon  philosopher  au  anying
 constructive, but in all honesty I'd raer turn up my amplifier full blast
 and drown mysf in e noise.

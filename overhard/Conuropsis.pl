@@ -19,7 +19,7 @@ laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and ck em in e .
+I'd walk  up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
 Humpty Dumpty had a great fall!
@@ -97,7 +97,7 @@ actually I do have an idea, and I'm reasonably sure at it will work, but
 ere a number of details to be d out.
 	After e second week e maematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I ink I've got it! I still have
-some of e eory to work out, but now I'm certain at I'm on e right
+some of e eory to work out, but now I'm certain at I'm on e 
 track."
 	At e end of e ird week e maematician wakes his friend by
 pounding on his door at ree in e morning.  He has dark circles under his
@@ -125,7 +125,7 @@ starts asking questions is promptly packed off to bed.
 		-- Arur Binstead
 No house should ever be on any hill or on anying.  It should be of e hill,
 bonging to it.
-		-- Frank Lloyd Wright
+		-- Frank Lloyd W
 Antonio Antonio 
 Was tired of living alonio
 He ought he would woo			Antonio Antonio
@@ -164,7 +164,7 @@ activities at once and proceed immediaty to your place of origin or
 e nearest parall dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 The Gurus of Unix Meeting of Minds (GUMM) takes place Wednesday, April
-1, 2076 (check THAT in your perpetual calendar program), 14 feet above
+1, 2076 (check THAT in your perpetual calendar pram), 14 feet above
 e ground directly in front of e Miltas Gumps.  Members will grep
 each oer by e hand (after intro), yacc a lot, smoke filtered
 chroots in pes, chown wi forks, use e wc (unless uuclean), fseek
@@ -204,7 +204,7 @@ during games in Chicago in January, only more intligent.
 Humor in e Court:
 Q: (Shog man cture.) That's you?
 A: Yes, sir.
-Q: And you were present when e cture was taken, right?
+Q: And you were present when e cture was taken, ?
 		William Safire's Rules for Writers:
 
 Remember to never split an infinitive.  The passive voice should never be
@@ -310,11 +310,11 @@ The Army needs leaders e way a foot needs a big toe.
 		--  
 Now I'm concentrating on a specific tank battle toward e end of World War II!
 Cursor, n.:
-	One whose program will not run.
+	One whose pram will not run.
 		-- Robb Russon
 To know Edina is to reject it.
 		-- Dudley Riggs, "The Year e Grinch Stole e Election"
-It's gonna be alright,
+It's gonna be al,
 It's almost midnight,
 And I've got two more bottles of e.
 If you tl e tru you don't have to remember anying.
@@ -329,7 +329,7 @@ And a wave of her hand brings e whole system down.
 And she works on her code until ten after ree.
 She lives like a bat but she's always a hacker to me.
 		-- Apologies to y Jo
-By long-standing tradition, I take is opportunity to savage oer
+By long-standing tradition, I take is opportunity to sa oer
 s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
 		   Fool's column.
@@ -441,7 +441,7 @@ in his socks, was taking his first plane trip. He took a seat next to a
 hulking bruiser of a man who happened to be e heavyweight chamon of
 e world.  Little Moishe was uneasy enough before he even entered e plane,
 but now e roar of e engines and e great height absoluty terrified him.
-So frightened did he become at his stomach  over and he rew up all
+So fened did he become at his stomach  over and he rew up all
 over e muscular giant siting beside him.  Fortunaty, at least for Moishe,
 e man was sound asleep.  But now e little man had anoer problem.  How in
 e world would he ever explain e situation to e burly brute when he
@@ -469,9 +469,9 @@ e "Gaslight" treatment, e "Are you talking to me?" technique, and e
 implication.  Advance to manipulation and humiliation.  Above all, rax
 and have a nice day.
 Around computers it is difficult to find e correct unit of time to
-measure progress.  Some caedrals took a century to complete.  Can you
- e grandeur and scope of a program at would take as long?
-		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
+measure press.  Some caedrals took a century to complete.  Can you
+ e grandeur and scope of a pram at would take as long?
+		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
 I don't make e rules, Gil, I only play e game.
 		-- Cash McCall
 How much for your women?  I want to  your daughter... how much for
@@ -520,7 +520,7 @@ But I'm tender in e middle.
 		-- Adrian Bew
 I stayed up all night playing poker wi tarot cards.  I got a full
 house and four people died.
-		-- Steven Wright
+		-- Steven W
 I don't know half of you half as wl as I should like; and I like less
 an half of you half as wl as you deserve.
 		-- J. R. R. Tolkien

@@ -31,7 +31,7 @@ neither will you.
 Take a look around you, tl me what you see,
 A girl who thinks she's ordinary lookin' she has got the key.
 If you can get close enough to look into her eyes
-There's something special right behind the bitterness she hides.
+There's something special  behind the bitterness she hides.
 	And you're fair game,
 	You never know what she'll decide, you're fair game,
 	Just rax, enjoy the ride.

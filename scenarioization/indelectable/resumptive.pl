@@ -48,7 +48,7 @@ Baruch's Observation:
 	If all you have is a hammer, everything looks like a nail.
 Kilroe hic erat!
 To be intoxicated is to feel sophisticated but not be able to say it.
-No man's ambition has a right to stand in the way of performing a simple
+No man's ambition has a  to stand in the way of performing a simple
 act of justice.
 		-- John Altgeld
 To converse at the distance of the Indes by means of sympathetic contrivances
@@ -143,9 +143,9 @@ Time is but the stream I go a-fishing in.
 		-- Henry David Thoreau
 An exotic journey in downtown Newark is in your future.
 Around computers it is difficult to find the correct unit of time to
-measure progress.  Some cathedrals took a century to complete.  Can you
-imagine the grandeur and scope of a program that would take as long?
-		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
+measure press.  Some cathedrals took a century to complete.  Can you
+imagine the grandeur and scope of a pram that would take as long?
+		-- Epigrams in Pramming, ACM SIGPLAN Sept. 1982
 I am two with nature.
 		-- Woody Allen
 Anyone who has attended a USENIX conference in a fancy hotel can tell you
@@ -160,7 +160,7 @@ Xerox never comes up with anything original.
 System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monitor loses so totally!
-	It runs all its programs in RPG!
+	It runs all its prams in RPG!
 	It's made by our favorite monopoly!
 System/3!
 Either I'm dead or my watch has stopped.
@@ -178,7 +178,7 @@ I'd LOVE to, but ...
 	-- I'm going downtown to try on some gloves.
 	-- I have to check the ness dates on my dairy products.
 	-- I'm going down to the bakery to watch the buns rise.
-	-- I have an appointment with a cuticle specialist.
+	-- I have an ap with a cuticle specialist.
 	-- I have some really hard words to look up.
 	-- I've got a Friends of the Lowly Rutabaga meeting.
 	-- I promised to help a friend fold road maps.
@@ -245,7 +245,7 @@ Landru! Guide us!
 		-- A Beta 3-oid, "The Return of the Archons", stardate 3157.4
 QOTD:
 	My mother was the travel agent for guilt trips.
-I thought my people would grow tired of killing.  But you were right,
+I thought my people would grow tired of killing.  But you were ,
 they see it is easier than trading.  And it has its pleasures.  I feel
 it myself.  Like the hunt, but with richer rewards.
 		-- Apella, "A Private Little War", stardate 4211.8
@@ -267,7 +267,7 @@ Truth has always been found to promote the best interests of mankind...
 - Percy Bysshe Shelley
 The tree in which the sap is stagnant remains fruitless.
 		-- Hosea Ballou
-Never frighten a small man -- he'll kill you.
+Never fen a small man -- he'll kill you.
 There's nothing like good food, good wine, and a bad girl.
 Gauls! We have nothing to fear; except perhaps that the sky may fall on
 our heads tomorrow.  But as we all know, tomorrow never comes!!
@@ -307,7 +307,7 @@ their warm-up jackets			the guys were my friends
 I didn't get one			Yet it hurt me all year
 Only the regular team			to wear that blue jacket
 got these jackets, and			among all those green ones
-surely not a manager			Even now, forty years after,
+su not a manager			Even now, forty years after,
 					I still recall that jacket
 					and the memory goes on hurting.
 		-- Bart Lanier Safford III, "An Obscured Radiance"
@@ -323,7 +323,7 @@ Battlecruiser!"
 - Filthy Rich and Catflap, 1986.
 We ARE as gods and might as well get good at it.
 		-- Whole Earth Catalog
-Computer programs expand so as to fill the core available.
+Computer prams expand so as to fill the core available.
 To be is to be related.
 		-- C.J. Keyser.
 Don't confuse things that need action with those that take care of themselves.

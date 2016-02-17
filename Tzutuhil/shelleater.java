@@ -69,9 +69,9 @@ Declaration not for that, but for future use.
 		--  Abraham Lincoln
 I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
-Put a rogue in the limight and he will act like an honest man.
+Put a ue in the limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
-When you're dining out and you suspect something's wrong, you're probably right.
+When you're dining out and you suspect something's wrong, you're probably .
 A businessman is a hybrid of a dancer and a calculator.
 		-- Paul Valery
 	"Are you police officers?"
@@ -120,9 +120,9 @@ Consider the following axioms carefully:
 	and
 	"Everything's better with Blue Bonnet on it."
 What happens if one spreads Blue Bonnet margarine on a Ritz cracker?  The
-thought is frightening.  Is this how God came into being?  Try not to
+thought is fening.  Is this how God came into being?  Try not to
 consider the fact that "Things go better with Coke".
-Don't steal; thou'lt never thus compete successfully in business.  Cheat.
+Don't steal; thou'lt never thus compete  in business.  Cheat.
 		-- Ambrose Bierce
 Reclaimer, spare that tree!
 Take not a single bit!
@@ -143,7 +143,7 @@ rationship that exists, people have to seek a way to survive.  If you
 really care about the person, you do what's necessary, or that's the end.
 For the first time, I found that I really could change, and the qualities
 I most admired in mysf I gave up.  I stopped being loud and bossy ...
-Oh, all right.  I was still loud and bossy, but only behind his back.
+Oh, all .  I was still loud and bossy, but only behind his back.
 		-- Kate Hepburn, on Tracy and Hepburn
 "Just Say No."   - Nancy Reagan
 
@@ -296,7 +296,7 @@ December, August, and February.
 Brandy Davis, an outfider and teammate of mine with the Pittsburgh Pirates,
 is my choice for team captain.  Cincinnatti was beating us 3-1, and I led
 off the bottom of the eighth with a walk.  The next hitter banged a hard
-single to right fid.  Feing the wind at my back, I rounded second and
+single to  fid.  Feing the wind at my back, I rounded second and
 kept going, sliding safy into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
 bat, our manager put in the fast Brandy Davis to run for the player at first.
@@ -315,7 +315,7 @@ Had scrambled eggs for breakfast again!
 A rolling disk gathers no MOS.
 You have Egyptian flu: you're going to be a mummy.
 "After I asked him what he meant, he replied that freedom consisted of
-the unimpeded right to get rich, to use his ability, no matter what the
+the unimpeded  to get rich, to use his ability, no matter what the
 cost to others, to win advancement."
 		-- Norman Thomas
 Statistics means never having to say you're certain.
@@ -345,7 +345,7 @@ And the big blue sky.
 You'd better smile when they watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
 I got this powdered water -- now I don't know what to add.
-		-- Steven Wright
+		-- Steven W
 	While riding in a train between London and Birmingham, a woman
 inquired of Oscar Wilde, "You don't mind if I smoke, do you?"
 	Wilde gave her a sidong glance and replied, "I don't mind if

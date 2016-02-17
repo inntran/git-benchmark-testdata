@@ -3,7 +3,7 @@ to a building as being maintenance
 		-- Jim Hning
 Warp 7 -- It's a law we can live wi.
 Three ers, a Kansan, a Missourian and an Iowan,
-all appearing on a quiz program, were asked to complete is :
+all appearing on a quiz pram, were asked to complete is :
 "Old MacDonald had a . . ."
 
 	"Old MacDonald had a carburet," answered e Kansan.
@@ -28,7 +28,7 @@ Life is cheap, but e accessies can kill you.
 "I'd love to go out wi you, but I never go out on days at end in `Y.'"
 Memy fault -- brain fried
 I have a ey at it's impossible to prove anying, but I can't prove it.
-... If I had heart failure right now, I couldn't be a me ftunate man!!
+... If I had heart failure  now, I couldn't be a me ftunate man!!
 Expect a letter from a friend who will ask a fav of you.
 Magary's Principle:
 	When ere is a public outcry to  deadwood and fat from any
@@ -90,7 +90,7 @@ tests all around e wld, and astrology has failed every one of em. . . .
 I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
-e firight, afraid of e night.
+e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
@@ -132,7 +132,7 @@ Of all men's miseries, e bitterest is is:
 	Experience varies directly wi equipment ruined.
 Leave no stone un.
 		-- Eurides
-"Life begins when you can spend your spare time programming ins of
+"Life begins when you can spend your spare time pramming ins of
 watching tevision."
 -- Cal Keegan
 Be in.  Insult a rich rative today.
@@ -312,7 +312,7 @@ I never have to go upsts.
 
 I just bought a microwave fireplace... You can spend an evening in
 front of it in only eight minutes.
-		-- Steven Wright
+		-- Steven W
 And e silence came surging softly backwards
 When e plunging hooves were gone...
 		-- Walter de La Mare, " Listeners"
@@ -325,7 +325,7 @@ A.  Wl, a gal down e road had had several of her children by Dr. Cherney,
     and said he was really good.
 Confmity is e refuge of e unimaginative.
 A failure will not appear until a unit has passed final inspection.
-Early to bed and early to rise and you'll be groggy when everyone se is
+Early to bed and early to rise and you'll be ggy when everyone se is
 wide awake.
 New England Life, of course.  Why do you ask?
 Conway's Law:

@@ -1,7 +1,7 @@
-Oh, I am a C programmer and I'm okay
+Oh, I am a C prammer and I'm okay
 	I muck with indices and structs all day
 And when it works, I shout hoo-ray
-	Oh, I am a C programmer and I'm okay
+	Oh, I am a C prammer and I'm okay
 Young men, hear an old man to whom old men hearkened when he was young.
 		-- Augustus Caesar
 Not me, guy. I read the Bash man page each day like a Jehovah's Witness reads
@@ -21,7 +21,7 @@ enough to give you presents they make at school.
 		-- Robert Byrne
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
-		-- Steven Wright
+		-- Steven W
 101 USES FOR A DEAD MICROPROCESSOR
 	(1)  Scarecrow for centipedes
 	(2)  Dead cat brush
@@ -38,7 +38,7 @@ it's going to be up all night.
 	(100) Killer velcro
 	(101) Currency
 What does it mean if there is no fortune for you?
-O Lord, grant that we may always be right, for Thou knowest we will
+O Lord, grant that we may always be , for Thou knowest we will
 never change our minds.
 OS/2 must die!
 It is well known that *things* from undesirable universes are always seeking
@@ -47,7 +47,7 @@ buses and closer to the shops.
 		-- Terry Pratchett, "The Light Fantastic"
 Yow!  Are you the self-frying president?
 First Rule of History:
-	History doesn't repeat itself -- historians merely repeat each other.
+	History doesn't repeat itself -- historians me repeat each other.
 Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.
 		-- Richard Bach, "Illusions"
@@ -168,22 +168,22 @@ You can't hug a child with nuclear arms.
 Always draw your curves, then plot your reading.
 			Pittsburgh Driver's Test
 
-(7) The car directly in front of you has a flashing right tail light
+(7) The car directly in front of you has a flashing  tail light
     but a steady left tail light.  This means
 
 	(a) one of the tail lights is broken; you should blow your horn
 	    to call the problem to the driver's attention.
-	(b) the driver is signaling a right turn.
+	(b) the driver is signaling a  turn.
 	(c) the driver is signaling a left turn.
 	(d) the driver is from out of town.
 
 The correct answer is (d).  Tail lights are used in some foreign
 countries to signal turns.
 In God we trust; all else we walk through.
-Thus spake the master programmer:
-	"You can demonstrate a program for a corporate executive, but you
+Thus spake the master prammer:
+	"You can demonstrate a pram for a corporate executive, but you
 	can't make him computer literate."
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 The evolution of the human race will not be accomplished in the ten thousand
 years of tame animals, but in the million years of wild animals, because man
 is and will always be a wild animal.
@@ -205,7 +205,7 @@ proper assistance, you might have left off at seven."
 A real gentleman never takes bases unless he really has to.
 		-- Overheard in an algebra lecture.
 Fog Lamps, n.:
-	Excessively (often obnoxiously) bright lamps mounted on the fronts
+	Excessively (often obnoxiously) b lamps mounted on the fronts
 	of automobiles; used on dry, clear nights to indicate that the
 	driver's brain is in a fog.  See also "Idiot Lights".
 The moss on the tree does not fear the talons of the hawk.
@@ -222,7 +222,7 @@ lion with a will of iron.
 When you are in it up to your ears, keep your mouth shut.
 Wishing without work is like fishing without bait.
 		-- Frank Tyger
-"Cogito ergo I'm right and you're wrong."
+"Cogito ergo I'm  and you're wrong."
 		-- Blair Houghton
 Some people live life in the fast lane.  You're in oncoming traffic.
 Leibowitz's Rule:
@@ -379,14 +379,14 @@ at present".
 	When another asserted something that I thought an error, I denied
 myself the pleasure of contradicting him abruptly, and of showing him
 immediately some absurdity in his proposition.  In answering I began by
-observing that in certain cases or circumstances his opinion would be right,
+observing that in certain cases or circumstances his opinion would be ,
 but in the present case there appeared or semed to me some difference, etc.
 	I soon found the advantage of this change in my manner; the
 conversations I engaged in went on more pleasantly.  The modest way in which I
 proposed my opinions procured them a readier reception and less contradiction.
 I had less mortification when I was found to be in the wrong, and I more easily
 prevailed with others to give up their mistakes and join with me when I
-happened to be in the right.
+happened to be in the .
 		-- Autobiography of Benjamin Franklin
 Aleph-null bottles of beer on the wall,
 Aleph-null bottles of beer,
@@ -425,7 +425,7 @@ hospitals, insane asylums, etc., so that leaves 12,000 to do the work.
 so that leaves just 2 people to carry the load. That is you and me, and
 brother, I'm getting tired of doing everything myself!
 How many retured bricklayers from FLORIDA are out purchasing PENCIL
-SHARPENERS right NOW??
+SHARPENERS  NOW??
 Standards are different for all things, so the standard set by man is by
 no means the only 'certain' standard.  If you mistake what is relative for
 something certain, you have strayed far from the ultimate truth.

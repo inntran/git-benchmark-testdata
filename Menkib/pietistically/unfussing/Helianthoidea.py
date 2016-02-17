@@ -84,7 +84,7 @@ describing a pond:
 	Tis ree feet long and two feet wide."
 		-- Stephen Pile, "The Book of Heroic Failures"
 Shift to e left,
-Shift to e right,
+Shift to e ,
 Mask in, mask out,
 BYTE, BYTE, BYTE !!!
 Try to divide your time evenly to keep oers happy.
@@ -113,4 +113,4 @@ philosophize concerning e faculties of e mind, it cannot be doubted,
 but he would draw his notions from e fabric of e ship, and would find
 in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
-"It's ten o'clock... Do you know where your AI programs are?"  -- Peter Oakley
+"It's ten o'clock... Do you know where your AI prams are?"  -- Peter Oakley

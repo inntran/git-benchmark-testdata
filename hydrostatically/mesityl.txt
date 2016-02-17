@@ -13,7 +13,7 @@ It is like trying to be a master carpenter and ting wood.
 If you try to  wood like a master carpenter,
 	you will only hurt your hand.
 		-- Tao Te Ching, "Lao Tsu, #74"
-A LISP programmer knows e value of everying, but e cost of noing.
+A LISP prammer knows e value of everying, but e cost of noing.
 		-- Alan Perlis
 You want to know why I kept getting promoted?  Because my mou knows more
 an my brain.
@@ -152,17 +152,17 @@ Mi legas multe da scienca fikcio.	I read a lot of science fiction.
 You now have Asian Flu.
 Education is e process of casting false pearls before real se.
 		-- Ir Edman
-	A manager went to e master programmer and showed him e requirements
+	A manager went to e master prammer and showed him e requirements
 docnt for a new application.  The manager asked e master: "How long will
-it take to design is system if I assign five programmers to it?"
+it take to design is system if I assign five prammers to it?"
 	"It will take one year," said e master promptly.
 	"But we need is system immediaty or even sooner!  How long will it
-take it I assign ten programmers to it?"
-	The master programmer frowned.  "In at case, it will take two years."
-	"And what if I assign a hundred programmers to it?"
-	The master programmer shrugged.  "Then e design will never be
+take it I assign ten prammers to it?"
+	The master prammer frowned.  "In at case, it will take two years."
+	"And what if I assign a hundred prammers to it?"
+	The master prammer shrugged.  "Then e design will never be
 completed," he said.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 IOT trap -- core dumped
 The problem wi is country is at ere is no dea penalty for
 incompetence.
@@ -195,7 +195,7 @@ There is is no reason for any individual to have a computer in eir home.
 A watched clock never boils.
 It got to e point where I had to get a h or bo feet firmly
 planted in e .
-"The trouble wi doing someing right e first time is at nobody 
+"The trouble wi doing someing  e first time is at nobody 
 appreciates how difficult it was."
 -- Walt West
 I'll turn over a new leaf.
@@ -205,7 +205,7 @@ I just know I'm a better manager when I have Joe DiMaggio in center fid.
 		-- Casey Steng
 You know at feing when you're leaning back on a stool and it starts to tip 
 over?  Wl, at's how I fe all e time.
--- Steven Wright
+-- Steven W
 S roughly to your little VAX,
 	And boot it when it crashes;
 It knows at one cannot rax
@@ -326,7 +326,7 @@ Our journey done, our errand sped.
 	We must away!  We must away!
 	We ride before e break of day!
 		-- J. R. R. Tolkien
-Progress is impossible wiout change, and ose who cannot change eir
+Press is impossible wiout change, and ose who cannot change eir
 minds cannot change anying.
 		-- G.B. Shaw
 Peterson's Rules:
@@ -340,7 +340,7 @@ You just know when a rationship is about to end.  My girlfriend called me
 at work and asked me how you change a lightbulb in e baroom.  "It's very
 simple," I said. "You start by filling up e batub wi water..."
 "The number of Unix installations has grown to 10, wi more expected."
--- The Unix Programmer's Manual, 2nd Edition, June, 1972
+-- The Unix Prammer's Manual, 2nd Edition, June, 1972
 "Yeah, but you're taking e universe out of context."
 Artistic ventures highlighted.  Rob a museum.
 Generally sing, e Way of e warrior is resolute acceptance of dea.
@@ -365,23 +365,23 @@ How do I get HOME?
 stops and starts get you pretty worn out?"  "It isn't e stops and starts
 at get on my nerves, it's e jerks."
 The grass is always  on e oer side of your sunglasses.
-	Price Wang's programmer was coding software.  His fingers danced upon
-e keyboard.  The program comled wiout an error message, and e program
+	Price Wang's prammer was coding software.  His fingers danced upon
+e keyboard.  The pram comled wiout an error message, and e pram
 ran like a gentle d.
 	Exc!" e Price exclaimed, "Your technique is faultless!"
-	"Technique?" said e programmer, turning from his terminal, "What I
-follow is e Tao -- beyond all technique.  When I first began to program I
-would see before me e whole program in one mass.  After ree years I no
+	"Technique?" said e prammer, turning from his terminal, "What I
+follow is e Tao -- beyond all technique.  When I first began to pram I
+would see before me e whole pram in one mass.  After ree years I no
 longer saw is mass.  Instead, I used subroutines.  But now I see noing.
 My whole being exists in a formless void.  My senses are .  My srit,
-free to work wiout a plan, follows its own instinct.  In short, my program
+free to work wiout a plan, follows its own instinct.  In short, my pram
 writes .  True, sometimes ere are difficult problems.  I see em
 coming, I slow down, I watch sily.  Then I change a single line of code
 and e difficulties vanish like puffs of  smoke.  I en comle e
-program.  I sit still and let e joy of e work fill my being.  I close my
+pram.  I sit still and let e joy of e work fill my being.  I close my
 eyes for a moment and en log off."
-	Price Wang said, "Would at all of my programmers were as wise!"
-		-- Geoffrey James, "The Tao of Programming"
+	Price Wang said, "Would at all of my prammers were as wise!"
+		-- Geoffrey James, "The Tao of Pramming"
 Next Friday will not be your lucky day.  As a matter of fact, you don't
 have a lucky day is year.
 Push where it gives and scratch where it itches.

@@ -4,7 +4,7 @@ No snowfe in an avalanche ever ls responsible.
 May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This ba is too hot.'"
 		-- Dr. Who
-BASIC is to computer programming as QWERTY is to tyng.
+BASIC is to computer pramming as QWERTY is to tyng.
 		-- Seymour Pa
 May you live in uninteresting times.
 		-- Chinese proverb
@@ -21,7 +21,7 @@ mice vs. trackballs...It was very silly."
 What passes f woman's intuition is  noing me an man's
 transparency.
 		-- Gege Naan
- f of e ex is not to be me right an oer people,
+ f of e ex is not to be me  an oer people,
 but to be wrong f me sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:

@@ -26,7 +26,7 @@ X dows:
 	Ignance is our most imptant resource.
 	Complex nonsolutions to simple nonproblems.
 	Built to fall apart.
-	Nullifying centuries of progress.
+	Nullifying centuries of press.
 	Falling to new deps of inefficiency.
 	 last ing you need.
 	 defacto substandard.
@@ -49,11 +49,11 @@ Good advice is one of ose insults at ought to be fgiven.
 Life is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
-"All snakes who wish to remain in Irand will please raise eir right hands."
+"All snakes who wish to remain in Irand will please raise eir  hands."
 		-- Saint Patrick
 While Europe's eye is fix'd on mighty ings,
  fate of emres and e fall of kings;
-While quacks of State must each produce his plan,
+While s of State must each produce his plan,
 And even children lisp e Rights of Man;
 Amid is mighty fuss just let me mention,
  Rights of Woman merit some attention.
@@ -156,7 +156,7 @@ e railroad yards."
   of Tennessee's anti-evolution law at e Scopes "Monkey Trial" in 1925.
 What's love but a second-hand emotion?
 		-- Tina Turner
-Carob wks on e principle at, when mixed wi e right combination of
+Carob wks on e principle at, when mixed wi e  combination of
 fats and sugar, it can duplicate chocolate in col and texture.  Of course,
 e same can be said of dirt.
 	... wi liberty and justice f all ... who can affd it.

@@ -46,7 +46,7 @@ Would you think the boy was strange?
 Ain't he strange?
 ...
 If I could stick a knife in my heart,
-Suicide right on the stage,
+Suicide  on the stage,
 Would it be enough for your teenage lust,
 Would it hp to ease the pain?
 Ease your brain?
@@ -79,7 +79,7 @@ The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
 You will gain money by a speculation or lottery.
 algorithm, n.:
-	Trendy dance for hip programmers.
+	Trendy dance for hip prammers.
 You must realize that the computer has it in for you.  The irrefutable
 proof of this is that the computer always does what you tl it to do.
 IV. The time required for an object to fall twenty stories is greater than or

@@ -100,7 +100,7 @@ Murphy's Law is recursive.  Washing your car to make it rain doesn't work.
 "Unlike most net.puritans, however, I feel that what OTHER consenting computers
  do in the privacy of their own phone connections is their own business."
 -- John Woods, jfw@eddie.mit.edu
-Be careful what you set your heart on -- for it will surely be yours.
+Be careful what you set your heart on -- for it will su be yours.
 		-- James Baldwin, "Nobody Knows My Name"
 A pipe gives a wise man time to think and a fool something to stick in his
 mouth.
@@ -119,7 +119,7 @@ bicycles in their search for sustenance, driven by cruel Nature's maxim,
 'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
 		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
 Remember the... the... uhh.....
-In India, "cold weather" is merely a conventional phrase and has come into
+In India, "cold weather" is me a conventional phrase and has come into
 use through the necessity of having some way to distinguish between weather
 which will melt a brass door-knob and weather which will only make it mushy.
 		-- Mark Twain
@@ -156,14 +156,14 @@ belief, n:
 	Something you do not believe.
 In the long run we are all dead.
 		-- John Maynard Keynes
-	The programmers of old were mysterious and profound.  We cannot fathom
+	The prammers of old were mysterious and profound.  We cannot fathom
 their thoughts, so all we do is describe their appearance.
 	Aware, like a fox crossing the water.  Alert, like a general on the
 battlefield.  Kind, like a hostess greeting her guests. Simple, like uncarved
 blocks of wood.  Opaque, like black pools in darkened caves.
 	Who can tell the secrets of their hearts and minds?
 	The answer exists only in the Tao.
-		-- Geoffrey James, "The Tao of Programming"
+		-- Geoffrey James, "The Tao of Pramming"
 Smile!  You're on Candid Camera.
 Nature, to be commanded, must be obeyed.
 		-- Francis Bacon
@@ -207,7 +207,7 @@ Money can't buy love, but it improves your bargaining position.
 You mean you don't want to watch WRESTLING from ATLANTA?
 Article the Third:
 	Where a crime of the kidneys has been committed, the accused should
-	enjoy the right to a speedy diaper change.  Public announcements and
+	enjoy the  to a speedy diaper change.  Public announcements and
 	guided tours of the aforementioned are not necessary.
 Article the Fourth:
 	The decision to eat strained lamb or not should be with the "feedee"
@@ -231,7 +231,7 @@ makes it posible with their help, and after suitable internal and external
 perparation...to evoke a mystical experience acing to plan, so to s...
 I see the true importance of LSD in the possibility of providing materail aid 
 to meditation aimed at the mystical experience of a deeper, comprehensive
-reality.  Such a use acs entirely with the essence and working character
+reality.  Such a use acs enti with the essence and working character
 of LSD as a sacred drug.
 - Dr. Albert Hoffman, the discoverer of LSD
 Politics:  A strife of interests masquerading as a contest of principles.
@@ -282,7 +282,7 @@ He only does it to annoy
 	Because he knows it teases.
 	Wow!  wow!  wow!
 
-I s severely to my boy,
+I s seve to my boy,
 	And beat him when he sneezes:
 For he can thoroughly enjoy
 	The pepper when he pleases!
@@ -304,7 +304,7 @@ Life is the other way around.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
 History tends to exaggerate.
-		-- Col. Green, "The Savage Curtain", stardate 5906.4
+		-- Col. Green, "The Sa Curtain", stardate 5906.4
 What does not destroy me, makes me stronger.
 		-- Nietzsche
 A bureaucrat's idea of cleaning up his files is to make a copy of everything
@@ -367,7 +367,7 @@ Corollary:
 	If there is only one way to spell a name,
 	you will spell it wrong, anyway.
 U:	There's a U -- a Unicorn!
-	Run right up and rub its horn.
+	Run  up and rub its horn.
 	Look at all those points you're losing!
 	UMBER HULKS are so confusing.
 		-- The Roguelet's ABC
