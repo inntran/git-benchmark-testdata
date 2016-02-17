@@ -155,7 +155,7 @@ We were so po we couldn't affd a watchdog.  If we heard a noise at night,
 we'd bark ourselves.
 		-- Crazy Jimmy
 My haircut is totally traditional!
-A long memy is the most subversive idea in America.
+A long memy is the most  idea in America.
 I've never been canoeing befe, but I imagine there must be just a few
 simple heuristics you have to remember...
 
@@ -380,7 +380,7 @@ Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
 I wonder if I ought to tell them about my PREVIOUS LIFE as a COMPLETE
 STRANGER?
-A free society is one where it is safe to be unpopular.
+A free society is one where it is safe to be .
 		-- Adlai Stevenson
 How's it going in those MODULAR LOVE UNITS??
 Too  people have come to me and said, "If I had just one wish f

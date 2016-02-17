@@ -299,9 +299,9 @@ But Puff trapped the exception, and grew from naught again!
 	(refrain)
 Refrain:
 	Puff the fractal dragon was written in C,
-	And frolicked while processes switched in mainframe memory.
+	And frolicked while processes switched in mainframe ry.
 	Puff the fractal dragon was written in C,
-	And frolicked while processes switched in mainframe memory.
+	And frolicked while processes switched in mainframe ry.
 Being asked solicitously about the state of her health was becoming bothersome
 to the pregnant woman at the cocktail party.  And yet another guest went over
 and inquired, "Well, how are you feeling these days?"

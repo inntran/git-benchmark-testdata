@@ -225,7 +225,7 @@ town drunk.
 Bridge ahead.  Pay troll.
  Kean War must have been fun.
 A husd is what is left of the lover after the nerve has been extracted.
-		-- Helen Rowland
+		-- Helen 
 If in doubt, mumble.
 I didn't know he was dead; I thought he was British.
 ... Our second completely true news item was sent to me by Mr. H. Boyce

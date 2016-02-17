@@ -126,7 +126,7 @@ What is research but a blind date with knowledge?
 Beware of Bigfoot!
  best man f the job is  a woman.
 A husd is what is left of the lover after the nerve has been extracted.
-		-- Helen Rowland
+		-- Helen 
 Never kick a man, unless he's down.
 Please stand f the National Anthem:
 

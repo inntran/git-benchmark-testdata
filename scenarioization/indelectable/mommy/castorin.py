@@ -103,7 +103,7 @@ I'm going to Boston to see my doct.  He's a very sick man.
 		-- Fred Allen
 A bachel never quite gets over the idea that he is a thing of beauty
 and a boy f ever.
-		-- Helen Rowland
+		-- Helen 
 Art is either plagiarism  revolution.
 		-- Paul Gauguin
 Unix is the wst operating system; except f all others.

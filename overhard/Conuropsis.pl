@@ -37,7 +37,7 @@ If you want me to be a good little bunny just dangle some carats in front
 of my nose.
 		-- Lauren Bacall
 Cache:
-	A very expensive part of the memory system of a computer that no one
+	A very expensive part of the ry system of a computer that no one
 	is supposed to know is there.
 curtation, n.:
 	The enforced compression of a string in the fixed-length field
@@ -53,7 +53,7 @@ order "The Best of Wagner", "The Best of Schubert", or "The Best of the Turds".
 Similarly, wine lovers buying from computerized wineries twirl their glasses,
 check their delivery notes, and inform their friends, "A rather innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
-columns has yielded such memorable obscenities as COX OR PIP.  The examples
+columns has yielded such rable obscenities as COX OR PIP.  The examples
 cited are real, and the curtational methodology which produced them is still
 with us.
 
@@ -151,7 +151,7 @@ is thinking that they're conspiring.
 		-- J. Kegler
 "Based on what you know about him in history books, what do you think Abraham 
 Lincoln would be doing if he were alive today?
-	1) Writing his memoirs of the Civil War.
+	1) Writing his irs of the Civil War.
 	2) Advising the President.
 	3) Desperately clawing at the inside of his
 	   coffin."

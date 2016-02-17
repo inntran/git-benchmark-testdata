@@ -800,7 +800,7 @@ Ruth, but after the oldest daughter of President Grover Cleveland.
 Onward through the fog.
 Today is what happened to yesterday.
 One man's folly is another man's wife.
-		-- Helen Rowland
+		-- Helen 
 So you see Antonio, why wry about one little ce dump, eh?  In reality
 all ce dumps happen at the same instant, so the ce dump you will have
 tomrow, why, it already happened.  You see, it's just a little universal

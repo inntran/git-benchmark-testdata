@@ -284,7 +284,7 @@ What is worth doing is worth the trouble of asking somebody to do.
 Why my thoughts are my own, when they are in, but when they are out they
 are another's.
 		 -- Susanna Martin, executed for witchcraft, 1681
-This will be a memorable month -- no matter how hard you try to forget it.
+This will be a rable month -- no matter how hard you try to forget it.
 As the trials of life continue to take their toll, remember that there
 is always a future in Computer Maintenance.
 		-- National Lampoon, "Deteriorata"

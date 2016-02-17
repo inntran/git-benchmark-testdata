@@ -23,7 +23,7 @@ step closer to Intel's slugfest with the CPU curve that is aymptotically
 approaching a real machine, perhaps an int has been implemented as 32 bits by
 some Unix vends...?
 -- Derek Terveer
-Blinding speed can compensate f a lot of deficiencies.
+Blinding speed can compen f a lot of deficiencies.
 		-- David Nichols
 Anyone stupid enough to be caught by the police is probably guilty.
 	Home centers are designed f the do-it-yourselfer who's willing to

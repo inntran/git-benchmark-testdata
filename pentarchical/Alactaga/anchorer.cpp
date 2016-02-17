@@ -8,7 +8,7 @@ It's multiple choice time...
 	b: What two computers engage in befe they interface.
 	c: Ridiculous.
 Misery loves company, but company does not reciprocate.
-Uncompensated overtime?  Just Say No.
+Uncompend overtime?  Just Say No.
 Neil Armstrong tripped.
 I am me bed than you could ever possibly be.  Go back to wk.
 Hanging on in quiet desperation is the English way.

@@ -111,7 +111,7 @@ A.  Oral.
 Q.  How old are you?
 A.  Oral.
 "Love your country but never trust its government."
--- from a hand-painted road sign in central Pennsylvania
+-- from a hand-painted road sign in central Pennnia
 Waiter:	"Tea or coffee, gentlemen?"
 1st er: "I'll have tea."
 2nd er: "Me, too -- and be sure the glass is clean!"

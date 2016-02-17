@@ -215,7 +215,7 @@ for postage and 30 cents for storage.
 In matters of principle, stand like a rock;
 in matters of taste, swim with the current.
 		-- Thomas Jefferson
-In Columbia, Pennsylvania, it is against the law for a pilot to tickle
+In Columbia, Pennnia, it is against the law for a pilot to tickle
 a female flying student under her chin with a fher duster in order
 to get her attention.
 Save gas, don't  beans.

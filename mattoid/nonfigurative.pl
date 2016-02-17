@@ -317,7 +317,7 @@ met a blonde named Circe on the streetcar, and didn't come back for 20 years.
 Given my druthers, I'd druther not.
 What you see is from outside yourself, and may come, or not, but is beyond
 your control.  But your  is yours, and yours alone, like your voice, or
-your fingers, or your memory, and therefore yours to control.  If you feel
+your fingers, or your ry, and therefore yours to control.  If you feel
 powerless over your , you have not yet admitted that it is yours, to do
 with as you will.
 		-- Marion Zimmer Bradley, "Stormqueen"
@@ -494,7 +494,7 @@ alongside Mr. Percival Pollard, the distinguished critic.
 occur to me that you really might not wish the public to know who wrote it."
 -- Ambrose Bierce
 Is this really happening?
-I love ROCK 'N ROLL!  I memorized the all WORDS to "WIPE-OUT" in
+I love ROCK 'N ROLL!  I rized the all WORDS to "WIPE-OUT" in
 1965!!
 Dh to all fanatics!
 If you look like your driver's license photo -- see a doctor.

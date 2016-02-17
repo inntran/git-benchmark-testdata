@@ -169,7 +169,7 @@ one will have the remotest idea of what you're talking about," says Broughton,
 Many mental processes admit of being roughly measured.  F instance,
 the degree to which people are bed, by counting the number of their
 fidgets. I not infrequently tried this method at the meetings of the
-Royal Geographical Society, f even there dull memoirs are occasionally
+Royal Geographical Society, f even there dull irs are occasionally
 read.  [...]   use of a watch attracts attention, so I reckon time
 by the number of my brhings, of which there are 15 in a minute.  y
 are not counted mentally, but are punctuated by pressing with 15 fingers

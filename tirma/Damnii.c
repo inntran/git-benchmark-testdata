@@ -7,7 +7,7 @@ Know how to save 5 drowning lawyers?
 -- No?
 
 GOOD!
-memo, n.:
+, n.:
 	An interoffice communication too  written more for the benefit
 	of the person who sends it than the person who receives it.
 A Smith & Wesson bs four aces.
@@ -250,7 +250,7 @@ How do I get HOME?
 When does later become never?
 "Based on what you know about him in history books, what do you think Abraham 
 Lincoln would be doing if he were alive today?
-	1) Writing his memoirs of the Civil War.
+	1) Writing his irs of the Civil War.
 	2) Advising the President.
 	3) Desperately clawing at the  of his
 	   coffin."

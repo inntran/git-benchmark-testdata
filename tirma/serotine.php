@@ -259,7 +259,7 @@ I  quote myself; it adds spice to my conversation.
 		-- G. B. Shaw
 In this wld some people are going to like me and some are not.  So, I may
 as well be me.  n I know if someone likes me, they like me.
-Blinding speed can compensate f a lot of deficiencies.
+Blinding speed can compen f a lot of deficiencies.
 		-- David Nichols
 Q:	Why did the astrophysicist der three hamburgers?
 A:	Because he was hungry.

@@ -413,7 +413,7 @@ Send your questions to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 There is no comfort without pain; thus we define salvation through suffering.
 		-- Cato
 You are magnetic in your bearing.
-memo, n.:
+, n.:
 	An interoffice communication too often written more for the benefit
 	of the person who sends it than the person who receives it.
 Abou Ben Adhem (may his tribe increase!)

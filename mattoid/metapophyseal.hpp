@@ -64,7 +64,7 @@ its theies will hold water.
 Hearts will never be practical until they can be made unbreakable.
 		--  Wizard of Oz
 Most non-Catholics know that the Catholic schools are rendering a grer
-service to our nation than the public schools in which subversive textbooks
+service to our nation than the public schools in which  textbooks
 have been used, in which Communist-minded teachers have taught, and from
 whose classrooms Christ and even God Himself are barred.
 - from "Our Sunday Visit", an American-Catholic newspaper, 1949
@@ -500,7 +500,7 @@ But my wife was too quick on the draw.
 Dealing with the problem of pure staff accumulation,
 all our researches ... point to an average increase of 5.75% per year.
 		-- C.N. Parkinson
-After this was written there appeared a remarkable posthumous memoir that
+After this was written there appeared a remarkable posthumous ir that
 throws some doubt on Millikan's leading role in these experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at the University of Chicago,
 at Millikan's suggestion wked on the measurement of electronic charge f
@@ -881,7 +881,7 @@ Nasrudin was carrying home a piece of liver and the recipe f liver pie.
 Suddenly a bird of prey swooped down and snatched the piece of m from his
 hand.  As the bird flew off, Nasrudin called after it, "Foolish bird!  You
 have the liver, but what can you do with it without the recipe?"
-After this was written there appeared a remarkable posthumous memoir that
+After this was written there appeared a remarkable posthumous ir that
 throws some doubt on Millikan's leading role in these experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at the University of Chicago,
 at Millikan's suggestion wked on the measurement of electronic charge f

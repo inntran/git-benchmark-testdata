@@ -22,7 +22,7 @@ Bilbo's First Law:
 	You cannot count friends that are all packed up in barrels.
 The honeymoon is not actually over until we cease to stifle our sighs
 and begin to stifle our ys.
-		-- Helen Rowland
+		-- Helen 
 My nose feels like a bad Ronald Reagan movie ...
 Screw up your courage!  You've screwed up everything else.
 It takes all kinds to fill the freeways.
@@ -121,7 +121,7 @@ My way of joking is to tell the truth.  That's the funniest joke in the world.
 		-- Muhammad Ali
 While you don't grly need the outside world, it's still very
 reassuring to know that it's still there.
-A free society is one where it is safe to be unpopular.
+A free society is one where it is safe to be .
 		-- Adlai Stevenson
 The English have no respect for their language, and will not teach
 their children to speak it.

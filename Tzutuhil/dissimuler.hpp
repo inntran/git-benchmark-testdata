@@ -136,7 +136,7 @@ Leave no stone unturned.
 watching television."
 -- Cal Keegan
 Be independent.  Insult a rich relative today.
-You can make it illegal, but you can't make it unpopular.
+You can make it illegal, but you can't make it .
 After any salary raise, you will have less money at the end of the
 month than you did befe.
 "...you might as well skip the Xmas celebration completely, and ins
