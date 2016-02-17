@@ -87,7 +87,7 @@ until it gets in the air, hop on, jump off when it hits the ground again.
 Then they grab the plane again, push it back into the air, hop on, et
 cetera.
 Economics is extremely useful as a form of employment for economists.
-		-- John Kenneth Galbraith
+		-- John Ken Galbraith
 A man's best friend is his dogma.
 The hardest part of climbing the ladder of success is getting through
 the crowd at the bottom.

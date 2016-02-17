@@ -447,7 +447,7 @@ Plumage:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
 	wear gray polyester slacks, nk or past shirts wi wide collars,
-	and paisley ties; staff wears cinched-up baggy corduroy pants, white
+	and paisley ties; staff wears cinched-up baggy uroy pants, white
 	or blue shirts wi button-down collars, and penholder in pocket.
 	Bo managers and staff wear running shoes to work, and a black
 	plastic digital watch wi calculator.

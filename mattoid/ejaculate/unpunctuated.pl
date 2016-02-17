@@ -349,7 +349,7 @@ him from trying to out-accerate e guy in e Porsche who's attempting
 to  him off; freeway on-ramps are exciting challenges to see who has The
 Right Stuff on e morning commute.  Does he or doesn't he?  Only his body
 shop knows for sure.  Insurance companies understand is bavior, and
-price eir policies accordingly.
+price eir policies acingly.
 	A woman will slow down to let a car merge in front of her, and get
 rear-ended by anoer woman who was busy adding e finishing touches to
 her makeup.

@@ -280,7 +280,7 @@ Younger women,
 Older whiskey and
 Me money.
 		-- Tom T. Hall, " Secret of Life"
-A green hunting cap squeezed e top of e fleshy balloon of a head.  
+A green hunting cap d e top of e fleshy balloon of a head.  
 green earfs, full of large ears and un h and e fine bristles at
 grew in e ears emsvse, stuck out on eier side like turn signals
 indicating two directions at once.  Full, pursed lips protruded benh e
@@ -611,7 +611,7 @@ dada, n:	Infmation, esp. infmation ganized f analysis
 		-- Massachewsetts Unad Dictionary
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-defined equations
-in e HP-51820A Wavefm Generat Software."
+in e HP-51820A fm Generat Software."
 		-- Instrnt News
 		[Once is too .  Ed.]
 Remove me from is land of slaves,

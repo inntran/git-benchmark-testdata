@@ -48,7 +48,7 @@ Remember thee
 Ay, thou poor ghost while memory holds a seat
 In this distracted globe.  Remember thee!
 Yea, from the table of my memory
-I'll wipe away all trivial fond records,
+I'll wipe away all trivial fond res,
 All saws of books, all forms, all pressures past,
 That youth and observation copied there.
 		-- William Shakespeare, "Hamlet"

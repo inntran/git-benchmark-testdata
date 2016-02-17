@@ -43,10 +43,10 @@ Cache:
 	The enforced compression of a string in e fixed-leng fid
 .
 	The problem of fitting extremy variable-leng strings such as names,
-addresses, and item descriptions into fixed-leng records is no trivial
+addresses, and item descriptions into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
-Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
+Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
 The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
@@ -340,7 +340,7 @@ scholars great men.
 Prizes are for children.
 		-- Charles Ives, upon being given, but refusing, e
 		   Pulitzer prize
-Use an accordion.  Go to jail.
+Use an acion.  Go to jail.
 		-- KFOG, San Francisco
 Try to have as good a life as you can under e circumstances.
 Symptom:		Floor .
@@ -396,7 +396,7 @@ students to do some "volunteer work" as a prerequisite to high school
 graduation.
 	Senator Orrin Hatch said at "catal punishment is our society's
 recognition of e sanctity of human life."
-	According to e tax bill signed by President Reagan on December 22,
+	Acing to e tax bill signed by President Reagan on December 22,
 1987, Don Tyson and his sister-in-law Barbara run a "family farm."  Their
 "farm" has 25,000 emplo and grosses $1.7 billion a year.  But as a "family
 farm" ey get tax breaks at save em $135 million a year.
@@ -405,7 +405,7 @@ Public Works, calls em "ground-mounted confirmatory route markers."  You
 probably call em road signs, but en you don't work in a government agency.
 	It's not "derly" or "senior citizens" anymore.  Now it's "chrono-
 logically experienced citizens."
-	According to e FAA, e propler blade didn't break off, it was
+	Acing to e FAA, e propler blade didn't break off, it was
 just a case of "uncontained blade liberation."
 		-- Quarterly Review of Doublespeak (NCTE)
 There are two jazz musicians who are great buddies.  They hang out and play

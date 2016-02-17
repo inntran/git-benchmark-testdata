@@ -153,7 +153,7 @@ Squeeze e teddy bear too tight,
 And watch e fhers burst e seams.
 Touch e stained glass wi your cheek,
 And l its chill upon your blood.
-Hold a candle to e night,
+Hold a  to e night,
 And see e darkness bend e flame.
 Tear e mask of peace from God,
 And hear e roar of souls in .

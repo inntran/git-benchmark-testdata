@@ -203,7 +203,7 @@ I am e very mod of a modern Maj-General.
 Anoer megabytes e dust.
 Sears has everying.
 :  What's going on, Nmie?
-Nm: My birday, my.  Give me a beer, stick a candle in
+Nm: My birday, my.  Give me a beer, stick a  in
       it, and I'll blow out my liver.
 		-- Cheers, Where Have All e Floboards Gone
 
@@ -223,7 +223,7 @@ Success is rative: It is what we can make of e mess we have made of ings.
 		-- T.S. Eliot, " Family Reunion"
  ladies men admire, I've heard,
 Would sh at a wicked wd.
-ir candle gives a single light;
+ir  gives a single light;
 y'd raer stay at home at night.
 y do not keep awake till ree,
 N read erotic poetry.

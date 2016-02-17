@@ -135,7 +135,7 @@ There is no sincerer love an e love of .
 If only God would give me some clear sign!  Like making a large deposit
 in my name at a Swiss k.
 		-- Woody Allen, "Wiout Fhers"
-... but as records of courts and justice are admissible, it can easily be
+... but as res of courts and justice are admissible, it can easily be
 proved at powerful and malevo magicians once existed and were a scourge
 to mankind.  The evidence (including confession) upon which certain women 
 were convicted of witchcraft and exeed was wiout a flaw; it is still 

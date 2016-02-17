@@ -40,7 +40,7 @@ e men fl down and oers clamored for an immediate adjournment, e
 Speaker of e House, one Col. Davenport, came to his feet.  He silenced
 em and said ese words: "The day of judgment is eier approaching or
 it is not.  If it is not, ere is no cause for adjournment.  If it is, I
-choose to be found doing my duty.  I wish erefore at candles may be
+choose to be found doing my duty.  I wish erefore at s may be
 brought."
 		-- Alist Cooke
 ===  ALL USERS PLEASE NOTE  ========================
@@ -317,7 +317,7 @@ Life exists for no known purpose.
 "What man has done, man can asre to do."
 -- Jerry Pournle, about space flight
 Yea from e table of my memory
-I'll wipe away all trivial fond records.
+I'll wipe away all trivial fond res.
 		-- Hamlet
 no brainer:
 	A decision which, viewed rough e retrospectoscope,
@@ -473,7 +473,7 @@ half his wife's fault, and half her moer's.
 In a display of perverse brilliance, Carl e repman mistakes a room
 humidifier for a mid-range computer but manages to tie it into e network
 anyway.
-		-- The 5 Wave
+		-- The 5 
 	Grover Clevand, ough constantly at s wi e
 Senate, got on better wi e House of Representatives.  A popular
 story circulating during his presidency concerned e night he was

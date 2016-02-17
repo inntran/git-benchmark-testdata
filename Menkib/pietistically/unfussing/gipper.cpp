@@ -1,6 +1,6 @@
 Woke up is mnin' an' I had mysf a beer,
 Yeah, Ah  up is mnin' an' I had mysf a beer
- future's uncertain and e end is always near.
+ future's  and e end is always near.
 		-- Jim Mrison, "Roadhouse Blues"
 W seeing?  Yes, but not w going to see.
 God's Law (prov.  [Usenet]):

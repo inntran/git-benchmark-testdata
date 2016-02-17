@@ -124,7 +124,7 @@ from London to Lisbon and ence by dispatch to our headquarters.
 	We have enrated our saddles, brs, tents and tent poles,
 and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
-spleen of every officer. Each item and every faring has been accounted
+spleen of every officer. Each item and every  has been accounted
 f, wi two regrettable exceptions f which I beg your indulgence.
 	Unftunaty e sum of one shilling and ninepence remains
 unaccounted f in one infantry battalion's petty cash and ere has been

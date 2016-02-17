@@ -286,7 +286,7 @@ We are drowning in information but starved for knowledge.
 We are sorry.  We cannot complete your call as dialed.  Please c
 e number and dial again or ask your operator for assistance.
 
-This is a recording.
+This is a reing.
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we are terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent

@@ -108,7 +108,7 @@ would destroy the whole point of it."
 		-- Thomas Pynchon, "The Crying of Lot 49"
 Pushing 40 is exercise enough.
 We don't like their sound.  Groups of guitars are on the way out.
-		-- Decca Recording Company, turning down the Beatles, 1962
+		-- Decca Reing Company, turning down the Beatles, 1962
 I am a man: nothing human is alien to me.
 		-- Publius Terentius Afer (Terence)
 Money will say more in one moment than the most eloquent lover can in years.

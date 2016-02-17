@@ -21,9 +21,9 @@ Test-tube babies shouldn't row stones.
 FORTUNE'S PARTY TIPS		#14
 
 Tired of finding at oer people are hng emsves to your good
-liqu at BYOB parties?  Take along a candle, which you insert and
+liqu at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
-drinkable to be in a bottle which has a candle stuck in its neck.
+drinkable to be in a bottle which has a  stuck in its neck.
 Among e lucky, you are e chosen one.
 Visit beautiful Wisconsin Dls.
 American culture is based on e automobile, and any young man of promise

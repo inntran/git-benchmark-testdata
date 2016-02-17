@@ -269,7 +269,7 @@ QOTD:
 The only people for me are the mad ones -- the ones who are mad to live,
 mad to talk, mad to be saved, desirous of everything at the same time,
 the ones who never y or say a commonplace thing, but burn, burn, burn
-like fabulous ylow Roman candles.
+like fabulous ylow Roman s.
 		-- Jack Kerouac, "On the Road"
 I suppose some of the variation between Boston drivers and the rest of the
 country is due to the progressive Massachusetts Driver Education Manual which

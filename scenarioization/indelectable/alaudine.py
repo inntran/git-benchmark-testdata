@@ -474,7 +474,7 @@ In the Halls of Justice the only justice is in the halls.
 Identify your visitor.
 Every man is apt to form his notions of things difficult to be apprehended,
 or less familiar, from their analogy to things which are more familiar.
-Thus, if a man bred to the seafaring life, and accustomed to think and talk
+Thus, if a man bred to the sea life, and accustomed to think and talk
 only of matters rating to navigation, enters into discourse upon any other
 subject; it is wl known, that the language and the notions proper to his
 own profession are infused into every subject, and all things are measured

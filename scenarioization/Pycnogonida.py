@@ -40,7 +40,7 @@ couldn't have signed earlier?"
 	"Well, sir," replied Sam, "nobody explained it to me quite so
 clearly before."
 Economics is extremely useful as a form of employment for economists.
-		-- John Kenneth Galbraith
+		-- John Ken Galbraith
 If God is One, what is bad?
 		-- Charles Manson
 -- Scintillate, scintillate, asteroid minikin.
@@ -140,7 +140,7 @@ I want a name when I lose.
 They call Alabama the Crimson Tide,
 Call me Deacon Blues.
 		-- Becker and Fagan, "Deacon Blues"
-I always turn to the sports pages first, which record people's accomplishments.
+I always turn to the sports pages first, which re people's accomplishments.
 The front page has nothing but man's failures.
 		-- Chief Justice Earl Warren
 Don't get mad, get even.
@@ -235,7 +235,7 @@ the men fell down and others clamored for an immediate adjournment, the
 Speaker of the House, one Col. Davenport, came to his feet.  He silenced
 them and said these words: "The day of judgment is either approaching or
 it is not.  If it is not, there is no cause for adjournment.  If it is, I
-choose to be found doing my duty.  I wish therefore that candles may be
+choose to be found doing my duty.  I wish therefore that s may be
 brought."
 		-- Alistair Cooke
 Only the hypocrite is really rotten to the core.
@@ -391,7 +391,7 @@ I am the very model of a modern Major-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
 "In regards to Oral Roberts' claim that God told him that he would die unless he
  received $20 million by March, God's lawyers have stated that their client has
- not spoken with Roberts for several years.  Off the record, God has stated that
+ not spoken with Roberts for several years.  Off the re, God has stated that
  "If I had wanted to ice the little toad, I would have done it a long time ago."
 -- Dennis Miller, SNL News
 To be is to do.
@@ -497,12 +497,12 @@ is concerned.
 A prominent broadcaster, on a big-game safari in Africa, was taken to a
 watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and described the scene into his
-tape recorder, he saw two gnus grazing peacefully. So preoccupied were
+tape reer, he saw two gnus grazing peacefully. So preoccupied were
 they that they failed to observe the approach of a pride of lions led
 by two magnificent specimens, obviously the leaders. The lions charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
-emerged and the radioman recorded on his tape: "Well, that's the end of
+emerged and the radioman reed on his tape: "Well, that's the end of
 the gnus and here, once again, are the head lions."
 A woman was in love with fourteen soldiers.  It was clearly platoonic.
 This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
@@ -542,7 +542,7 @@ replies without annoying newsreaders getting in the way.  Do the same when
 summarizing a vote.
 		-- Emily Postnews Answers Your Questions on Netiquette
 The hearing ear is always found close to the speaking tongue, a custom
-whereof the memory of man runneth not howsomever to the contrary, nohow.
+whereof the memory of man run not howsomever to the contrary, nohow.
 Up against the net, redneck mother,
 Mother who has raised your son so well;
 He's seventeen and hackin' on a Macintosh,
@@ -712,7 +712,7 @@ who are not known to have been sworn in any sense.  Under the rules of
 evidence as they now exist in this country, no single assertion in the
 Bible has in its support any evidence admissible in a court of law...
 
-But as records of courts of justice are admissible, it can easily be proved
+But as res of courts of justice are admissible, it can easily be proved
 that powerful and malevolent magicians once existed and were a scourge to
 mankind.  The evidence (including confession) upon which certain women
 were convicted of witchcraft and executed was without a flaw; it is still

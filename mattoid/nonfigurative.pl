@@ -1,6 +1,6 @@
 The ladies men admire, I've heard,
 Would sh at a wicked word.
-Their candle gives a single light;
+Their  gives a single light;
 They'd raer stay at home at night.
 They do not keep awake till ree,
 Nor read erotic poetry.
@@ -248,7 +248,7 @@ service centers," which in fact consist of two men named Lester poking at
 e s of broken ectronic devices wi cheap cigars and going,
 "Lookit all em WIRES in ere!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
-My LESLIE GORE record is BROKEN ...
+My LESLIE GORE re is BROKEN ...
 Advice to young men: Be ascetic, and if you can't be ascetic,
 en at least be aseptic.
 By long-standing tradition, I take is opportunity to savage oer
@@ -596,7 +596,7 @@ For some reason a glaze passes over people's s when you say
 		-- Sandra Gotlieb, wife of e Canadian ambassador to e U.S.
 Bind every successful man you'll find a woman wi noing to wear.
 No user-servicable parts .  Refer to qualified service personn.
-Why don't you fix your little problem... and light is candle?
+Why don't you fix your little problem... and light is ?
 		-- Alan Shepherd, e first man into space, Gemini program
 To a Californian, a person must prove himsf criminally insane before he
 is allowed to drive a taxi in New York.  For New York cabbies, honesty and
@@ -740,12 +740,12 @@ Had scrambled eggs for breakfast again!
 I can't mate in captivity.
 		-- Gloria Steinem, on why she has never married.
 There are ree schools of magic.  One:  State a tautology, en ring e
-changes on its corollaries; at's philosophy.  Two:  Record many facts.
+changes on its corollaries; at's philosophy.  Two:  Re many facts.
 Try to find a pattern.  Then make a wrong guess at e next fact; at's
 science.  Three:  Be aware at you live in a malevo Universe controlled
 by Murphy's Law, sometimes offset by Brewster's F; at's engineering.
 :  What's going on, Normie?
-Norm: My birday, my.  Give me a beer, stick a candle in
+Norm: My birday, my.  Give me a beer, stick a  in
       it, and I'll blow out my liver.
 		-- Cheers, Where Have All e Floorboards Gone
 

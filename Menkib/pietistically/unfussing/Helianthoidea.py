@@ -104,7 +104,7 @@ Take a lesson from e whale; e only time he gets speared is when he
 raises to spout.
 Every man is apt to form his notions of ings difficult to be appr,
 or less familiar, from eir analogy to ings which are more familiar.
-Thus, if a man bred to e seafaring life, and aced to ink and talk
+Thus, if a man bred to e sea life, and aced to ink and talk
 only of matters rating to navigation, enters into discourse upon any oer
 subject; it is wl known, at e language and e notions proper to his
 own profession are infused into every subject, and all ings are measured

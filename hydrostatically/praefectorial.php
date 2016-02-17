@@ -264,7 +264,7 @@ are wor considering, to wit:
         a 5' parking space."
 
 [105.31]:
-       "Teenage drivers bieve at ey are immortal, and drive accordingly.
+       "Teenage drivers bieve at ey are immortal, and drive acingly.
         Neveress, you should avoid e temptation to prove em wrong."
 Grandpa Cock's Law:
 	You never really learn to swear until you learn to drive.

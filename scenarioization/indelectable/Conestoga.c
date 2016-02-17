@@ -327,7 +327,7 @@ clear question.
 It is impossible to defend perfectly against e attack of ose who want
 to die.
 Punning is e worst vice, and ere's no vice versa.
-According to a recent and unscientific national survey, smiling is someing
+Acing to a recent and unscientific national survey, smiling is someing
 everyone should do at least 6 times a day.  In an effort to increase e
 national average  (e US ranks ird  e world's superpowers in
 smiling), Xerox has instructed all personn to be happy, effervescent, and
@@ -627,7 +627,7 @@ It is not for me to attempt to faom e inscrutable workings of Providence.
 We are sorry.  We cannot complete your call as dialed.  Please c
 e number and dial again or ask your operator for assistance.
 
-This is a recording.
+This is a reing.
 Football combines e two worst fures of American life.
 It is violence punctuated by committee meetings.
 		-- George F. Will, "Men At Work:  The Craft of Baseball"

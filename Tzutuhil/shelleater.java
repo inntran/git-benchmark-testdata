@@ -196,7 +196,7 @@ mundane to bother with.  "I'm flame proof" might (and has) become
 put lipses, but neither do I capitalize something that wasn't capitalized
 before the . "I don't think that the Church of Ubizmo is a wonderful
 place" would turn into "the Church of Ubizmo is a wonderful place".  Imagine
-the posting as a tape-recording of the poster's thoughts.  If I can set
+the posting as a tape-reing of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
 I don't put lipses in.  And by the way, I love using this mechanism for
 turning things around.  If you think something stinks, say so - don't say you

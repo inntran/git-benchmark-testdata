@@ -175,7 +175,7 @@ With your head up and your eyes open,
 With the grace of a woman, not the grief of a child,
 And you learn to build all your roads
 On today because tomorrow's ground
-Is too uncertain.  And futures have
+Is too .  And futures have
 A way of falling down in midflight,
 After a while you learn that even sunshine burns if you get too much.
 So you plant your own garden and decorate your own soul, instead of waiting
@@ -750,7 +750,7 @@ was Carmen or Cohen.
 Weinberg's First Law:
 	Progress is only made on alternate Fridays.
 Creativity is not always bred in an environment of tranquility;
-sometimes you have to squeeze a little to get the paste out of the tube.
+sometimes you have to  a little to get the paste out of the tube.
 tax office, n.:
 	Den of inequity.
 I fear explanations explanatory of things explained.

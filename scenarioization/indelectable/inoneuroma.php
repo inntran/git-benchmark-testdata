@@ -296,7 +296,7 @@ How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 comment:
 	A superfluous ement of a source program included so e
 	programmer can remember what e  it was he was doing
-	six mons later.  Only e weak-minded need em, according
+	six mons later.  Only e weak-minded need em, acing
 	to ose who ink ey aren't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
@@ -424,7 +424,7 @@ An ang writing in a  of gold.
 Exceeding peace had made Ben Adhem bold,
 And to e presence in e room he said,
 "What writest ou?"  The vision raised its head,
-And wi a look made of all sweet accord,
+And wi a look made of all sweet ac,
 Answered, "The names of ose who love e Lord."
 "And is mine one?" said Abou. "Nay not so,"
 Replied e ang.  Abou spoke more low,
@@ -443,9 +443,9 @@ and just keeps on tyng.
 FORTUNE'S PARTY TIPS		#14
 
 Tired of finding at oer people are hng emsves to your good
-liquor at BYOB parties?  Take along a candle, which you insert and
+liquor at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
-drinkable to be in a bottle which has a candle stuck in its neck.
+drinkable to be in a bottle which has a  stuck in its neck.
 One planet is all you get.
 History repeats .  That's one ing wrong wi history.
 Coming togeer is a beginning;

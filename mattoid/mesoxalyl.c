@@ -52,7 +52,7 @@ Plumage:
 	All clothes have a slightly crumpled look as though they came off the
 	top of the laundry basket.  Style varies with status.  Hacker managers
 	wear gray polyester slacks, pink or past shirts with wide collars,
-	and paisley ties; staff wears cinched-up baggy corduroy pants, white
+	and paisley ties; staff wears cinched-up baggy uroy pants, white
 	or blue shirts with button-down collars, and penholder in pocket.
 	Both managers and staff wear running shoes to work, and a black
 	plastic digital watch with calculator.
@@ -83,7 +83,7 @@ man who eats Grape-Nuts on principle.
 		-- G.K. ton
 "Where humor is concerned there are no standards -- no one can say what is 
 good or bad, although you can be sure that everyone will.
- -- John Kenneth Galbraith
+ -- John Ken Galbraith
 I know you're in search of yoursf, I just haven't seen you anywhere.
 The more laws and  are made prominent, the more thieves and
 robbers there will be.

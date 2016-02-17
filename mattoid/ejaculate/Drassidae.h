@@ -240,7 +240,7 @@ Your files are now being encrypted and rown into e bit bucket.
 EOF
 On e eigh day, God cred FORTRAN.
 	... This striving f exclence extends into people's personal
-The notion of a "record" is an obsolete remnant of e days of e 80-column
+The notion of a "re" is an obsolete remnant of e days of e 80-column
 lives as wl.  When '80s people  someing, ey  e best one, as
 ded by (1) price and (2) lack of availability. Eighties people 
 impted dental floss.  y  gourmet baking soda.  If an '80s couple

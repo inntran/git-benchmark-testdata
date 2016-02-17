@@ -385,7 +385,7 @@ A free society is one where it is safe to be .
 How's it going in ose MODULAR LOVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-defined equations
-in e HP-51820A Wavefm Generat Software."
+in e HP-51820A fm Generat Software."
 		-- Instrnt News
 		[Once is too .  Ed.]
 When you know absoluty noing about e toc, make your fecast by

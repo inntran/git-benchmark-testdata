@@ -363,7 +363,7 @@ A man in love is incomplete until he is married.  Then he is finished.
 VIII. Any vio rearrangement of fine matter is impermanent.
 	Cartoon cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
-	accordion-pleated, sndled, or disassembled, but ey cannot be
+	acion-pleated, sndled, or disassembled, but ey cannot be
 	deed.  After a few moments of blinking sf ty, ey reinflate,
 	ongate, snap back, or solidify.
   IX. For every vengeance ere is an equal and opposite revengeance.

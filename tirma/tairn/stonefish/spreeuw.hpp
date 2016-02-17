@@ -228,10 +228,10 @@ Call the convenient toll-free "IRS Taxpayer Complaint Hot Line Number":
 The characteristic property of hallucinogens, to suspend the boundaries between
 the experiencing self and the outer world in an ecstatic, emotional experience,
 makes it posible with their help, and after suitable internal and external
-perparation...to evoke a mystical experience according to plan, so to speak...
+perparation...to evoke a mystical experience acing to plan, so to speak...
 I see the true importance of LSD in the possibility of providing materail aid 
 to meditation aimed at the mystical experience of a deeper, comprehensive
-reality.  Such a use accords entirely with the essence and working character
+reality.  Such a use acs entirely with the essence and working character
 of LSD as a sacred drug.
 - Dr. Albert Hoffman, the discoverer of LSD
 Politics:  A strife of interests masquerading as a contest of principles.

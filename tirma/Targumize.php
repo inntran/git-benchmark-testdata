@@ -8,7 +8,7 @@ reads, "In the Nuts (unground), (other than ground nuts) Order, the expression
 nuts shall have reference to such nuts, other than ground nuts, as would
 but for this amending Order not qualify as nuts (unground) (other than ground
 nuts) by reason of their being nuts (unground)."
-		-- Guiness Book of World Records, 1973
+		-- Guiness Book of World Res, 1973
 Toto, I don't think we're in Kansas anymore.
 		-- Judy Garland, "Wizard of Oz"
 There's such a thing as too much point on a pencil.
@@ -146,7 +146,7 @@ Finagle's Tenth Law:
 	No matter what the result someone is always eager to misinterpret it.
 
 Finagle's Eleventh Law:
-	No matter what occurs, someone believes it happened according to
+	No matter what occurs, someone believes it happened acing to
 	his pet theory.
 A Thaum is the basic unit of magical strength.  It has been universally
 established as the amount of magic needed to create one small white pigeon

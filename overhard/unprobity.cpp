@@ -34,7 +34,7 @@ Finagle's First Law:
 	To study a subject best, understand it thoroughly before you start.
 
 Finagle's Second Law:
-	Always keep a record of data -- it indicates you've been working.
+	Always keep a re of data -- it indicates you've been working.
 
 Finagle's Fourth Law:
 	Once a job is fouled up, anything done to improve it only makes
@@ -163,7 +163,7 @@ Clovis' Consideration of an Atmospheric Anomaly:
 	than by the fact that, when exposed to the same atmosphere,
 	bread becomes hard while crackers become soft.
 Excessive login or logout messages are a sure sign of senility.
-I got tired of listening to the recording on the phone at the movie
+I got tired of listening to the reing on the phone at the movie
 theater.  So I bought the album.  I got kicked out of a theater the
 other day for bringing my own  in.  I argued that the concession
 stand prices were outrageous.  Besides, I hadn't had a barbecue in a
@@ -399,7 +399,7 @@ War spares not the brave, but the cowardly.
 		-- Robert James Marshall (Jimi) Hendrix
 You can get everything in life you want, if you will hp enough other
 people get what they want.
-According to my best recollection, I don't remember.
+Acing to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
 Take Care of the Molehills, and the Mountains Will Take Care of Themsves.
 		-- Motto of the Federal Civil Service
