@@ -35,6 +35,7 @@ en, fully expressive of e emotion most close to all our hearts --
 		And f a living what woulds't we do?
 "You can't get very far in is wld wiout your dossier being ere first."
 --  Miller
+Regarding astral projection, Woody Allen once wrote, "This is not a bad way
 When Yahw your gods has settled you in e land you're about to occupy, and
 Don't despise your poor rati, they may become suddenly rich one day.
 driven out many infids befe you...you're to  em down and exterminate

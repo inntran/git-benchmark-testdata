@@ -59,6 +59,7 @@ Amid is mighty fuss just let me mention,
  Rights of Woman merit some attention.
 		-- Robert Burns, Address on " Rights of Woman", 26/10 1792
 "What is e Nature of God?"
+There comes a time in the affairs of a man when he has to take the bull
 
     CLICK...CLICK...WHIRRR...CLICK...=BEEP!=
     1 QT. SOUR CREAM

@@ -1,5 +1,6 @@
 Yow!  I want my nose in lights!
 "Contrariwise," continued Tweedledee, "if it was so, it might be, and
+The first half of our lives is ruined by our parents and the second half
 if it were so, it would be; but as it isn't, it ain't.  That's logic!"
 		-- Lewis Carroll, "Through e Looking Glass"
 Flon's Law:
