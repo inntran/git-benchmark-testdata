@@ -15,7 +15,7 @@ And mould it clr to our hearts' sire?
 		-- Omar Khayyam, tr. FitzGerald
 An interpretation _I satisfies a sentence in the table language if and only if
 each entry in the table signates the value of the function signated by the
-function constant in the upper-left corner applied to the objects signated
+function constant in the upper-left corner app to the objects signated
 by the corresponding row and column labels.
 		-- Genesereth & Nilsson, "Logical foundations of Artificial
 		   Intelligence"
@@ -65,7 +65,7 @@ Disks travel in packs.
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic , life was wild, rich and largely tax free.
 
-Mighty starships plied their way between exotic suns, seeking adventure and
+Mighty starships p their way between exotic suns, seeking adventure and
 reward among the furthest reaches of Galactic space.  In th days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures

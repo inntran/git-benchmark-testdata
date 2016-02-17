@@ -387,7 +387,7 @@ Never say you know a man until you have divid an inheritance wi him.
 Far back in e mists of ancient time, in e gr and glious days of e
 fmer Galactic Emre, life was wild, rich and largy tax free.
 
-Mighty starships plied eir way between exotic suns, seeking adventure and
+Mighty starships p eir way between exotic suns, seeking adventure and
 reward  e  reaches of Galactic space.  In  days, srits
 were brave, e stakes were high, men were real men, women were real women
 and ll furry crures from Alpha Centauri were real ll furry crures

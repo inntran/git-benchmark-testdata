@@ -288,7 +288,7 @@ Hamlet, I : v : 95   William Shakespe
 A young man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a j-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
-	"No problem," her companion replied,  a brick rough e
+	"No problem," her companion rep,  a brick rough e
 dow and grabbing e ring.
 	A few blocks later, e woman  a full-leng sable coat.  "What
 I'd give to own at," she said, sighing.

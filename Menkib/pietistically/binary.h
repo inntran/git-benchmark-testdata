@@ -147,7 +147,7 @@ If it were thought that anything I wrote was influenced by Robert Frost,
 I would take that particular work of mine, shred it, and flush it down
 the toilet, hoping not to clog the pipes.  A more sententious, holding-
 forth old bore who expected every hero-worshiping adenoidal little twerp
-of a student-poet to hang on to his every word I never saw.
+of a nt-poet to hang on to his every word I never saw.
 		-- James Dickey
 I went to a Grateful Dead Concert and they played for SEVEN hours.  Great song.
 		-- Fred Reuss

@@ -22,7 +22,7 @@ that ever flew, and painted "747" on their tails to make them look as if
 they  fast. The flight attendants, of course, attend to your every need,
 though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
 unless you have Supportine, which requires a first class ticket and
-membership in the frequent flyer club. Then they cost $500, but your
+membership in the frequent  club. Then they cost $500, but your
 accounting partment can call it .
 If you make people think they're thinking, they'll love you; but if you
 really make them think they'll hate you.
@@ -194,7 +194,7 @@ Free Speech Is The Right To Shout 'Theater' In A Crowd Fire.
 Remember that as a teenager you  in the last stage of your life when
 you will be happy to h that the phone is for you.
 		-- Fran ebowitz, "Social Studies"
-What upsets me is not that you lied to me, but that from now on I can no
+What upsets me is not that you  to me, but that from now on I can no
 longer believe you.
 		-- Nietzsche
 When it's dark enough you can see the stars.
@@ -283,7 +283,7 @@ After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
-	"Well, I don't know," replied the friend, "it was too dark to see."
+	"Well, I don't know," rep the friend, "it was too dark to see."
 	"Damn!" rod the husband.  "You see what I mean?  There's *always*
 that doubt!"
 Classical music is the kind we keep thinking will turn into a tune.
@@ -375,7 +375,7 @@ As he ned the far curb, he noticed two young blons in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 unr the kilt?"
 	He strolled over to the si of the car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, the blon replied yes, she did
+SURE you want to know?"  Somewhat nervously, the blon rep yes, she did
 really want to know.
 	The Scotsman leaned clr and confid, "Why, lass, nothing's worn
 unr the kilt, everything's in perfect workin' orr!"
@@ -498,7 +498,7 @@ man apped out of an upstairs window.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here for the night."
-	"Sure," replied the man. "If you want to stay there all night, it's
+	"Sure," rep the man. "If you want to stay there all night, it's
 okay with me."
 Fortune's Real-ife Courtroom Quote #18:
 

@@ -237,7 +237,7 @@ QOTD:
 	"The baby was so ugly they had to hang a pork chop around its
 	neck to get the dog to play with it."
 Does a good farmer neglect a crop he has planted?
-Does a good teacher overlook even the most humble student?
+Does a good teacher overlook even the most humble nt?
 Does a good father allow a single child to starve?
 Does a good programmer refuse to maintain his code?
 		-- Geoffrey James, "The Tao of Programming"
@@ -303,7 +303,7 @@ A list is only as strong as its weakest link.
 A famous Lisp Hacker noticed an Undergraduate sitting in front of a Xerox
 1108, trying to edit a complex Klone network via a browser. Wanting to
 help, the Hacker clicked one of the nodes in the network with the mouse,
-and asked "what do you see?" Very earnestly, the Undergraduate replied "I
+and asked "what do you see?" Very earnestly, the Undergraduate rep "I
 see a cursor." The Hacker then quickly pressed the boot toggle at the back
 of the keyboard, while simultaneously hitting the Undergraduate over the head
 with a thick Interlisp Manual.  The Undergraduate was then Enlightened.
@@ -428,7 +428,7 @@ advice without necessarily having to take it.
 Blessed is he who expects no gratitude, for he shall not be disappointed.
 		-- W.C. Bennett
 Lady Astor was giving a costume ball and Winston Churchill asked her what
-disguise she would recommend for him.  She replied, "Why don't you come
+disguise she would recommend for him.  She rep, "Why don't you come
 sober, Mr. Prime Minister?"
 A pain in the ass of major dimensions.
 		-- C.A. Desoer, on the solution of non-linear circuits
@@ -553,7 +553,7 @@ Anarchy may not be a better form of government, but it's better than no
 government at all.
 Swerve me?  The path to my fixed purpose is laid with iron rails,
 whereon my soul is grooved to run.  Over unsounded gorges, through
-the rifled hearts of mountains, under torrents' beds, unerringly I rush!
+the d hearts of mountains, under torrents' beds, unerringly I rush!
 		-- Captain Ahab, "Moby Dick"
 If you wants to get elected president, you'se got to think up some
 memoraboble homily so's school kids can be pestered into memorizin'

@@ -97,7 +97,7 @@ quality that is veloped in most of us as the result of innumerable rebuffs.
 		-- W.S. Maugham
 Whe I feel like exercise, I lie down until the feeling passes.
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
 Fay: The British police force used to be run by men of integrity.
 Truscott: That is a mistake which has been rectified.
 		-- Joe Orton, "oot"
@@ -163,7 +163,7 @@ rejuvenated man won the young woman's ht, and she agreed to marry him.
 	On the way out of the chapel, however, Harold was fatally struck
 by lightning.  Furious, he confronted Saint Peter at the ply gates.  "How
 could you do this to me after all the pain I went through?"
-	"To be honest, Harold," Saint Peter sheepishly replied, "I didn't
+	"To be honest, Harold," Saint Peter sheepishly rep, "I didn't
 recognize you."
 You will have a long and unpleasant discussion with your supervisor.
 a-e-e, la-e-dah.

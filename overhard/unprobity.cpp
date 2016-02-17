@@ -311,7 +311,7 @@ It isn't necessary to have ratives in Kansas City in  to be
 unhappy.
 		-- Groucho Marx
 The person who marries for money usually ns every penny of it.
-Fifth aw of Applied Terror:
+Fifth aw of App Terror:
 	If you  given an open- exam, you will forget your .
 
 Corollary:
@@ -492,7 +492,7 @@ Cruty to Yoursf.  Apply within.
 	There was once a prammer who was attached to the court of the
 warlord of Wu.  The warlord asked the prammer: "Which is easier to sign:
 an accounting package or an operating system?"
-	"An operating system," replied the prammer.
+	"An operating system," rep the prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to the complexity of an operating
 system," he said.

@@ -83,13 +83,13 @@ oncoming train.
  two  llama, he's a beast
 And I will bet my silk pyjama
 re isn't any ree  lllama.
-		-- O. Nash, to which a fire chief replied at occasionally
+		-- O. Nash, to which a fire chief rep at occasionally
 		his partment respond to someing like a "ree  lllama."
 It's a funny ing at when a woman hasn't got anying
 on  to wry about, she goes off and gets married.
 This login session: $13.76, but f you $11.88.
  last time somebody said, "I find I can write much better wi a wd
-process.", I replied, "y used to say e same ing about drugs."
+process.", I rep, "y used to say e same ing about drugs."
 		-- Roy Blount, Jr.
 "Fce is but might," e teacher said--
 "That finition's just."
@@ -534,7 +534,7 @@ man apped out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said e traver, "and I want to know if you
 would let me stay here f e night."
-	"Sure," replied e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If you want to stay ere all night, it's
 okay wi me."
 A fox is a wolf who sends flowers.
 		-- Ru Weston
@@ -614,7 +614,7 @@ I do sire we may be better strangers.
 Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 	Friends were surprised, ined, when Frank and Jennifer broke eir 
 engagement, but Frank had a ready explanation: "Would you marry someone who 
-was habitually unfaiful, who lied at every turn, who was sfish and lazy 
+was habitually unfaiful, who  at every turn, who was sfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
 	"Wl," retted Frank, "neier would Jennifer."

@@ -170,7 +170,7 @@ sufficient for some applications; wisdom is need as well.  Accordingly,
 we have veloped a new approach to artificial intelligence which we call 
 "wisdom engineering".  As a test of our ias, we have written IMMANUEL, a 
 wisdom based system for the task domain of western philosophical thought.  
-IMMANUEL was supplied initially with 200 wisdom units which contained wisdom 
+IMMANUEL was supp initially with 200 wisdom units which contained wisdom 
 about such elementary concepts as mind, matter, being, nothingness, and so 
 forth.  IMMANUEL was then allowed to run freely, guid by the heuristic 
 rules contained in its heterarchically organized meta wisdom base.  IMMANUEL 
@@ -335,7 +335,7 @@ I've never been drunk, but often I've been overserved.
 		-- George Gobel
 It was all so different before everything changed.
 The SAME WAVE keeps coming in and COLLAPSING like a rayon MUU-MUU ...
-Advertisements contain the only truths to be relied on in a newspaper.
+Advertisements contain the only truths to be re on in a newspaper.
 		-- Thomas Jefferson
 People seem to enjoy things more when they know a lot of other people
 have been left out on the pleasure.

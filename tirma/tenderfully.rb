@@ -281,7 +281,7 @@ what's more, he felt really good about himself.
 	So on the next Monday, when Big John once again got on the bus
 and said "Big John doesn't pay!," the driver stood up, glared back at the
 passenger, and screamed, "And why not?"
-	With a surprised look on his face, Big John replied, "Big John has a
+	With a surprised look on his face, Big John rep, "Big John has a
 bus pass."
 There is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
@@ -623,7 +623,7 @@ There are no winners in life, only survivors.
 feet, we'll have 6 more weeks of Pro football."
 -- Chuck Newcombe
 Please come home with me ... I have Tylenol!!
-Chemistry is applied theology.
+Chemistry is app theology.
 		-- Augustus Stanley Owsley III
 Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
 are not the person involved.

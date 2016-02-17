@@ -377,7 +377,7 @@ Now at I have my "APPE", I comprend COST ACCOUNTING!!
 "How do you know she is a unicorn?" Molly mand.  "And why were you afraid
 to let her touch you?  I saw you.  You were afraid of her."
 	"I doubt at I will fe like talking for very long," e cat
-replied wiout rancor.  "I would not waste time in foolishness if I were 
+rep wiout rancor.  "I would not waste time in foolishness if I were 
 you.  As to your first question, no cat out of its first fur can ever be
 ceived by appances.  Unlike human beings, who enjoy em.  As for your
 second question --"  Here he faltered, and sudnly became very interested

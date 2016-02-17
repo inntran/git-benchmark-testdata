@@ -200,7 +200,7 @@ good guys lost.  Everybody knows the fight was fixed: the poor stay
 poor, the rich get rich.  That's how it goes.  Everybody knows.
 
 Everybody knows that the boat is leaking.  Everybody knows the captain
-lied.  Everybody got this broken feeling like their father or their dog
+.  Everybody got this broken feeling like their father or their dog
 just died.
 
 Everybody talking to their pockets.  Everybody wants a box of chocolates
@@ -284,7 +284,7 @@ his neighbour notice it.
 		-- Trygve Lie
 Yes, but every time I try to see things your way, I get a headache.
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
 Absence makes the heart grow fonr.
 		-- Sextus Aurelius
 To know Edina is to reject it.
@@ -317,7 +317,7 @@ How can there be an upgra, with no cryin'?
 An Apple's MOS memory don't use no core!
 A building that's perfect, it has no flaw!
 A program with GOTOs, it has no end!
-I lied about the upgra, with no cryin'!
+I  about the upgra, with no cryin'!
 My analyst told me that I was right out of my head,
 	But I said, "Dear Doctor, I think that it is you instead.
 Because I have got a thing that is unique and new,
@@ -347,11 +347,11 @@ This will be a memorable month -- no matter how hard you try to forget it.
 Heaven.  As he passed through the Gates, he paused a moment in thought,
 and turned to God and said, "A new creature called Man, I hear, is soon
 to be created."
-	"This is true," He replied.
+	"This is true," He rep.
 	"He will need laws," said the Demon slyly.
 	"What!  You, his appointed Enemy for all Time!  You ask for the
 right to make his laws?"
-	"Oh, no!"  Satan replied, "I ask only that he be allowed to
+	"Oh, no!"  Satan rep, "I ask only that he be allowed to
 make his own."
 	It was so granted.
 		-- Ambrose Bierce, "The Devil's Dictionary"

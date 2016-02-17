@@ -97,7 +97,7 @@ And to the presence in the room he said,
 And with a look ma of all sweet accord,
 Answered, "The names of those who love the Lord."
 "And is mine one?" said Abou. "Nay not so,"
-Replied the angel.  Abou spoke more low,
+Rep the angel.  Abou spoke more low,
 But cheerly still; and said, "I pray thee then,
 Write me as one that loves his fellow-men."
 The angel wrote, and vanished.  The next night
@@ -199,8 +199,8 @@ Hofstadter's Law:
 "Don't worry about people stealing your ias.	 If your ias are any good, 
 you'll have to ram them down people's throats."
  -- Howard Aiken
-NOTE: No warranties, either express or implied, are hereby given. All
-software is supplied as is, without guarantee.  The user assumes all
+NOTE: No warranties, either express or imp, are hereby given. All
+software is supp as is, without guarantee.  The user assumes all
 responsibility for damages resulting from the use of these features,
 including, but not limited to, frustration, disgust, system abends, disk
 head-crashes, general malfeasance, floods, fires, shark attack, nerve
@@ -409,7 +409,7 @@ Coach: What's the story, Norm?
 Norm:  Thirsty guy walks into a bar.  You finish it.
 		-- Cheers, Endless Slumper
 	"Any news from the Presint on a successor?" he asked hopefully.
-	"None," Anita replied.  "She's having great difficulty finding someone
+	"None," Anita rep.  "She's having great difficulty finding someone
 qualified who is willing to accept the post."
 	"Then I stay," said Dr. Fresh.  "I'm not good for much, but I
 can at least make a cision."
@@ -534,7 +534,7 @@ After being reported missing a day or two later, rangers found two bears,
 one a male, one a female, looking suspiciously overstuffed.  They killed
 the female, autopsied her, and sure enough, found the German and the Pole.
 	"What do you think?" said the the first ranger.
-	"The Czech is in the male," replied the second.
+	"The Czech is in the male," rep the second.
 If any man wishes to be humbled and mortified, let him become presint
 of Harvard.
 		-- Edward Holyoke

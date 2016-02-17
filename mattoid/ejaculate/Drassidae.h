@@ -216,7 +216,7 @@ I was once a handsome, charming prince and en a mean, ugly old witch cast
 a spl over me and  me into a f."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
 hp you break such a spl."
-	"Wl," replied e f, "e only way at is spl can be
+	"Wl," rep e f, "e only way at is spl can be
 taken away is f some lovy young woman to take me home and let me spend
 e night unr her llow."
 	 young girl took e ugly f home and placed him benh her
@@ -281,7 +281,7 @@ Ftune's graffito of e week ( maybe even mon):
 One of e wst of my many faults is at I'm too critical of mysf.
 Dr. ivingston?
 Dr. ivingston I. Pres?
-Ever wonred about e igins of e term "bugs" as applied to computer
+Ever wonred about e igins of e term "bugs" as app to computer
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-y-old captain, who is still on active duty, was a oneer in 
 computer technology during Wld War II.  At e C.W. Post Center of ong

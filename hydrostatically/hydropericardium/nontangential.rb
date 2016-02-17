@@ -218,7 +218,7 @@ answered themsves.
 "(The Chief Prammer)  fines the functional and performance
  specificati, signs the pram, cos it, tests it, and writes its
  documentation... He needs great talent, ten ys experience and
- cirable systems and applicati knowledge, whether in applied
+ cirable systems and applicati knowledge, whether in app
  mathematics, business data handling, or whatever."
 -- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
@@ -384,7 +384,7 @@ Whom the gods wish to  they first call promising.
 Yet of useful suggesti for hp you have none --
 	Have you thought about taking a hike?"
 
-"Since I  write prams," his father replied,
+"Since I  write prams," his father rep,
 	"Every language looks equally bad;
 Yet the people keep paying to read all my books
 	And don't realize that they've been had."
@@ -649,7 +649,7 @@ A professor is one who talks in someone se's sleep.
 You worry too much about your job.  Stop it.  You  not paid enough to worry.
 A Scholar asked his Master, "Master, would you advise me of a proper
 vocation?"
-	The Master replied, "Some men can n their keep with the power of
+	The Master rep, "Some men can n their keep with the power of
 their minds.  Others must use thier strong backs, legs and hands.  This is
 the same in nature as it is with man.  Some animals acquire their  easily,
 such as rabbits, hogs and goats.  Other animals must fiercy struggle for
@@ -795,7 +795,7 @@ To cry `Hold, hold!'
 ma his section, the stoneter asked him what inscription he
 would like on it.  "Here lies an honest man and a lawyer," respond the
 lawyer.
-	"Sorry, but I can't do that," replied the stoneter.  "In this
+	"Sorry, but I can't do that," rep the stoneter.  "In this
 state, it's against the law to bury two people in the same grave.  However,
 I could put ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.

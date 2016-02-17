@@ -185,7 +185,7 @@ Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 She missed an invaluable opptunity to give him a look at you could
 have poured on a waffle ...
-Four aw of Applied Terr:
+Four aw of App Terr:
 	 night befe e English Histy mid-term, your Biology
 	instruct will assign 200 pages on planaria.
 
@@ -194,11 +194,11 @@ Collary:
 	study f at instruct's course.
 "I'd love to go out wi you, but ere  imptant wld issues at
 need wrying about."
-No proper pram contains an indication which as an operat-applied
+No proper pram contains an indication which as an operat-app
 occurrence intifies an operat-fining occurrence which as an
-indication-applied occurrence intifies an indication-fining occurrence
+indication-app occurrence intifies an indication-fining occurrence
 different from e one intified by e given indication as an
-indication-applied occurrence.
+indication-app occurrence.
 		-- AGO 68 Rept
 When it's dark enough you can see e stars.
 		-- Ralph Waldo Emerson,
@@ -216,7 +216,7 @@ whouse."
 ater at day she went to y's house and rang e bl.  y's faer
 answered e do.   teacher explained what his son had said and mand
 an explanation.
-	y's faer replied, "Wl, I'm really an attney.  But how do
+	y's faer rep, "Wl, I'm really an attney.  But how do
 you explain a ing like at to a seven-y-old child?"
 Cir wl e propti of ings.  It is better to be a young June-bug
 an an old bird of paradise.

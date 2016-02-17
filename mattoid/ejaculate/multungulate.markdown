@@ -712,7 +712,7 @@ But none was as great as
 -- Jane Wagner
 HUMAN REPLICAS  inserted into VATS of NUTRITIONAL YEAST ...
 Real softw engineers don't bug programs, they verify correctness.
-This process doesn't necessarily involve execution of anything on a
+This process doesn't necessarily involve  of anything on a
 computer, except perhaps a Correctness Verification Aid package.
 "If you want to travel around the world and be invited to speak at a lot
 of different places, just write a Unix operating system."

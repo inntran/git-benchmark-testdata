@@ -102,7 +102,7 @@ Darling, only the good die young!
 Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
-	circuitously proven, rived, implied, inferred, induced, ducted,
+	circuitously proven, rived, imp, inferred, induced, ducted,
 	estimated, or scientifically guessed, it will always for the purpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
@@ -158,7 +158,7 @@ After being reported missing a day or two later, rangers found two bears,
 one a male, one a female, looking suspiciously overstuffed.  They killed
 the female, autopsied her, and sure enough, found the German and the Pole.
 	"What do you think?" said the the first ranger.
-	"The Czech is in the male," replied the second.
+	"The Czech is in the male," rep the second.
 Tan me hi when I'm ad, Fred,
 Tan me hi when I'm ad.
 So we tanned his hi when he died, Cly,
@@ -238,7 +238,7 @@ restrictive in scope than alt.cyberpunk.
 much larger than all others.  It towers above its competition like a giant
 among dwarfs.  Any one of its divisions could comprise an entire business.
 Why is this so?"
-	The master replied, "Why do you ask such foolish questions?  That
+	The master rep, "Why do you ask such foolish questions?  That
 company is large because it is so large.  If it only ma hardware, nobody
 would buy it.  If it only maintained systems, people would treat it like a
 servant.  But because it combines all of these things, people think it one

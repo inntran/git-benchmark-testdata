@@ -59,7 +59,7 @@ After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
-	"Well, I don't know," replied the friend, "it was too dark to see."
+	"Well, I don't know," rep the friend, "it was too dark to see."
 	"Damn!" rod the husband.  "You see what I mean?  There's *always*
 that doubt!"
 The secret of success is sincerity.  Once you can fake that, you've got

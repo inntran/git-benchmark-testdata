@@ -74,7 +74,7 @@ don't think.
 		-- The mayor of Tucson, Arizona, 1989
 A Scholar asked his Master, "Master, would you advise me of a proper
 vocation?"
-	The Master replied, "Some men can earn their keep with the power of
+	The Master rep, "Some men can earn their keep with the power of
 their minds.  Others must use thier strong backs, legs and hands.  This is
 the same in nature as it is with man.  Some animals acquire their food easily,
 such as rabbits, hogs and goats.  Other animals must fiercely struggle for
@@ -181,7 +181,7 @@ Nature always sis with the hidn flaw.
 ma his selection, the stonecutter asked him what inscription he
 would like on it.  "Here lies an honest man and a lawyer," respond the
 lawyer.
-	"Sorry, but I can't do that," replied the stonecutter.  "In this
+	"Sorry, but I can't do that," rep the stonecutter.  "In this
 state, it's against the law to bury two people in the same grave.  However,
 I could put ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.
@@ -361,7 +361,7 @@ optimist, n.:
 
 	A pessimist asked God for relief.
 	"Ah, you wish me to restore your hope and cheerfulness," said God.
-	"No," replied the petitioner, "I wish you to create something that
+	"No," rep the petitioner, "I wish you to create something that
 would justify them."
 	"The world is all created," said God, "but you have overlooked
 something -- the mortality of the optimist."

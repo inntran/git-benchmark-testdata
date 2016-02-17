@@ -339,7 +339,7 @@ at would scribe a quantity at would ddle and ddle, but
 quite reach zero.  Histically, he was mery trying to wk out his
 mtgage.  Anoer versatile equation also emerged, one which would fine
 a f at would continue to grow, but  reach unity.  This equation
-can be applied to charging capacits, over-damped springs, and e human
+can be app to charging capacits, over-damped springs, and e human
 race in general.
  hater of proy and of government takes c to have his warranty
 ed recd, and e  written against fame and lning has e
@@ -470,7 +470,7 @@ And no quarr a knight ought to take
 But f a tru,  f e common's sake.
 		-- Stephen Hawes
 When one woman was asked how long she had been going to symphony concerts,
-she paused to calculate and replied, "Fty-seven ys -- and I find I mind
+she paused to calculate and rep, "Fty-seven ys -- and I find I mind
 it less and less."
 		-- ouise Andrews Kent
 re's ll choice in rotten apples.

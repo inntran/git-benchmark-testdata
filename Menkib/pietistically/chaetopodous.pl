@@ -392,7 +392,7 @@ Tip of the Day:
 	Never fry bacon in the nu.
 
 	[Correction: always fry bacon in the nu; you'll ln not to burn it]
-Exclent day for drinking heavily.  Spike the office water cooler.
+Exclent day for drinking heavily.  Spike the office water .
 'Mounten' wird fuer drei Dinge benutzt: 'Aufsitzen' auf Pfer, 'einklinken'
 von Festplatten in Dateisysteme, und, nun, 'besteigen' beim Sex.
 (Christa Keil in a German posting: "Mounting is used for three things:

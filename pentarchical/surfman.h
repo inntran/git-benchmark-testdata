@@ -419,7 +419,7 @@ As he ned e far curb, he noticed two young blons in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's wn
 unr e kilt?"
 	He strolled over to e si of e car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, e blon replied yes, she did
+SURE you want to know?"  Somewhat nervously, e blon rep yes, she did
 really want to know.
 	 Scotn leaned clr and confid, "Why, lass, noing's wn
 unr e kilt, everying's in perfect wkin' r!"

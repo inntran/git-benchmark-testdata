@@ -81,7 +81,7 @@ should I do?"
 	"Well," answered Mike, "The first thing you've got to do is look
 like a Texan.  That means you have to dress right.  The second thing
 you've got to do is speak in a southern drawl."
-	"Thanks, Mike, I'll give it a try," replied the New Yorker.
+	"Thanks, Mike, I'll give it a try," rep the New Yorker.
 	A few weeks passed and the New Yorker saunters into a store dressed
 in a ten-gallon hat, cowboy boots, Levi jeans and a bandanna.  "Hey, there,
 pardner, I'd like some beef, not too rare, and some of them fresh biscuits,"

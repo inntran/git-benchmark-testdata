@@ -399,7 +399,7 @@ gr number of teachers and I have given up a gr number of pleasures.
 I have fasted, been cibate and stayed awake nights seeking enlightenment.
 I have given up everying I was asked to give up and I have suffered, but
 I have not been enlightened.  What should I do?"
-	Otis replied, "Give up suffering."
+	Otis rep, "Give up suffering."
 		-- Camn Bens, "Zen Wiout Zen Masters"
 At Group , Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
@@ -447,7 +447,7 @@ to a motion may not be am.  However, a substie for an amendment to
 and amendment to a motion may be adopted and e substie may be am.
 		-- The Montana legislature's contribution to e English
 		language.
-Monogamy is e Western  of one wife and hardly any mistresses.
+Monogamy is e Western  of one wife and hardly any es.
 		-- H.H. Munro
 Which is worse: ignorance or apay?  Who knows?  Who cs?
 Most of our lives  about proving someing, eier to oursves or to
@@ -491,7 +491,7 @@ alongsi Mr. Percival Pollard, e distinguished critic.
  published anonymously, but you can hardly be ignorant of its auorship.
  Yet in revieg it you s of it as e work of e Idiot of e Century.
  Do you ink at f criticism?"
-   "I am very sorry, sir," replied e critic, amiably, "but it did not
+   "I am very sorry, sir," rep e critic, amiably, "but it did not
 occur to me at you really might not wish e public to know who wrote it."
 -- Ambr Bierce
 Is is really happening?
@@ -800,7 +800,7 @@ million hardbound coes of "The Naked unch."
 - The Firesign Ther
 When we jumped into Sicily, e units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two col, a major, ree captains,
-two lieutenants, and one rifleman, and we secured e .  Never in e
+two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
 The tru is at  eology, like every oer eology, is not only

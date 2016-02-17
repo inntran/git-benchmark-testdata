@@ -52,13 +52,13 @@ You got to be very careful if you don't know where you're going,
 because you might not get there.
 		-- Yogi Berra
 The Least Successful Executions
-	History has furnished us with two executioners worthy of attention.
+	History has furnished us with two ers worthy of attention.
 The first performed in Sydney in Australia.  In 1803 three attempts were
 ma to hang a Mr. Joseph Samuels.  On the first two of these the rope
 snapped, while on the third Mr. Samuels just hung there peacefully until he
 and everyone else got bored.  Since he had proved unsusceptible to capital
 punishment, he was reprieved.
-	The most important British executioner was Mr. James Berry who
+	The most important British er was Mr. James Berry who
 tried three times in 1885 to hang Mr. John Lee at Exeter Jail, but on each
 occasion failed to get the trap door open.
 	In recognition of this achievement, the Home Secretary commuted
@@ -391,7 +391,7 @@ Incision is the true basis for flexibility.
 	A musician of more ambition than talent composed an elegy at
 the ath of composer Edward MacDowell.  She played the elegy for the
 pianist Josef Hoffman, then asked his opinion.  "Well, it's quite
-nice," he replied, but don't you think it would be better if..."
+nice," he rep, but don't you think it would be better if..."
 	"If what?" asked the composer.
 	"If ... if you had died and MacDowell had written the elegy?"
 Brooke's Law:

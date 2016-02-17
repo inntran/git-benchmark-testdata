@@ -328,13 +328,13 @@ Calculating Engines.  I have also clined several offers of great personal
 advantage to myself.  But, notwithstanding the sacrifice of these advantages
 for the purpose of maturing an engine of almost intellectual power, and after
 expending from my own private fortune a larger sum than the government of
-England has spent on that machine, the execution of which it only commenced,
+England has spent on that machine, the  of which it only commenced,
 I have received neither an acknowledgement of my labors, not even the offer
 of those honors or rewards which are allowed to fall within the reach of men
 who vote themselves to purely scientific investigations...  
 
 If the work upon which I have bestowed so much time and thought were a mere
-triumph over mechanical difficulties, or simply curious, or if the execution
+triumph over mechanical difficulties, or simply curious, or if the 
 of such engines were of doubtful practicability or utility, some justification
 might be found for the course which has been taken; but I venture to assert
 that no mathematician who has a reputation to lose will ever publicly express
@@ -387,7 +387,7 @@ A memorandum is written not to inform the rear, but to protect the writer.
 Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
-	circuitously proven, rived, implied, inferred, induced, ducted,
+	circuitously proven, rived, imp, inferred, induced, ducted,
 	estimated, or scientifically guessed, it will always for the purpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
@@ -637,7 +637,7 @@ intimidation.  They used torment.  They used torture.  They used finks.
 They used cops.  They used search and seizure.  They used fallaron.  They
 used betterment incentives.  They used finger prints.  They used the
 bertillion system.  They used cunning.  They used guile.  They used treachery.
-They used Raoul-Mitgong but he wasn't much help.  They used applied physics.
+They used Raoul-Mitgong but he wasn't much help.  They used app physics.
 They used techniques of criminology.  And what the hell, they caught him.
 		-- Harlan Ellison, "Repent, Harlequin, said the Tick-Tock Man"
 America's best buy for a quarter is a telephone call to the right person.

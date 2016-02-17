@@ -227,7 +227,7 @@ went to s wi him.
 stunts inquired.
 	"It is", Kyogen answered.
 	"Tl us", said a friend, "how do you l?"
-	"As miserable as ever", replied e enlightened Kyogen.
+	"As miserable as ever", rep e enlightened Kyogen.
 Nature is by and large to be found out of dos, a location where,
 it cannot be argued, ere   enough comftable chs.
 		-- Fran ebowitz
@@ -399,7 +399,7 @@ power tools.
  two  llama, he's a beast
 And I will bet my silk pyjama
 re isn't any ree  lllama.
-		-- O. Nash, to which a fire chief replied at occasionally
+		-- O. Nash, to which a fire chief rep at occasionally
 		his partment respond to someing like a "ree  lllama."
 We've tried each snning space mote
 And reckoned its true w:

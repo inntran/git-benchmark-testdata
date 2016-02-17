@@ -52,7 +52,7 @@ good guys lost.  Everybody knows the fight was fixed: the poor stay
 poor, the rich get rich.  That's how it goes.  Everybody knows.
 
 Everybody knows that the boat is leaking.  Everybody knows the captain
-lied.  Everybody got this broken feeling like their father or their dog
+.  Everybody got this broken feeling like their father or their dog
 just died.
 
 Everybody talking to their pockets.  Everybody wants a box of chocolates

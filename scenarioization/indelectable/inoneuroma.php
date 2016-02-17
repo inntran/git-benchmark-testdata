@@ -427,7 +427,7 @@ And to e presence in e room he said,
 And wi a look ma of all sweet ac,
 Answered, "The names of  who love e ord."
 "And is mine one?" said Abou. "Nay not so,"
-Replied e ang.  Abou spoke more low,
+Rep e ang.  Abou spoke more low,
 But cheerly still; and said, "I pray ee en,
 Write me as one at loves his flow-men."
 The ang wrote, and vhed.  The next night

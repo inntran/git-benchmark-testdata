@@ -25,7 +25,7 @@ man apped out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said e traver, "and I want to know if you
 would let me stay here for e night."
-	"Sure," replied e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If you want to stay ere all night, it's
 okay wi me."
 Expansion means complexity; and complexity cay.
 There is noing new except what has been forgotten.
@@ -288,9 +288,9 @@ Mosty:
 	aw of it.
 		-- Oliver Herford
 "I ought at you said you were 20 ys old!"
-"As a prammer, yes," she replied,
+"As a prammer, yes," she rep,
 "And you claimed to be very n two meters tall!"
-"You said you were blon, but you lied!"
+"You said you were blon, but you !"
 Oh, she was a hacker and he was one, too,
 They had so much in common, you'd say.
 They exchanged jokes and poems, and clever new hacks,

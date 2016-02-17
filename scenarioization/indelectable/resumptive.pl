@@ -10,7 +10,7 @@ the data Stack, and the instructi they called Co.  And there was
 evening and there was morning, one interrupt.
 		-- Rico Tudor, "The Story of Creation or, The Myth of Urk"
 ife is both difficult and time cuming.
-	"The best thing for being sad," replied Merlin, beginning to puff
+	"The best thing for being sad," rep Merlin, beginning to puff
 and blow, "is to ln something.  That's the only thing that  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
 night listening to the disorr of your veins, you may miss your only love,

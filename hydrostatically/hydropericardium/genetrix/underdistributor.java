@@ -664,7 +664,7 @@ woon legs exeing a magnificent series of backflips and cartwhes.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
 	"That's quite a pig you have there, sir" said the salen. 
-	"Sure is, son," the farmer replied.  "Why, two ys ago, my daughter
+	"Sure is, son," the farmer rep.  "Why, two ys ago, my daughter
 was swimming in the lake and bumped her head and damned n drowned, but that
 pig swam out and dragged her back to shore."
 	"Amazing!"  the salen exlaimed.

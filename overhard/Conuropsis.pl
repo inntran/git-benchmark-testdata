@@ -275,7 +275,7 @@ Keep your laws off my body!
 I'm having a MID-WEEK CRISIS!
 Don't let your ss become too quo!
 	"But Huey, you PROMISED!"
-	"Tl 'em I lied."
+	"Tl 'em I ."
 Flattery will get you everywhere.
 aw of Sective Gravity:
 	An object will fall so as to do e most damage.
@@ -366,12 +366,12 @@ If everybody mind eir own business, e world would go around a al faster.
 If you don't go to oer men's funerals ey won't go to yours.
 		-- Clnce Day
 A priest advised Volte on his a bed to renounce e vil. 
-Replied Volte, "This is no time to make new enemies."
+Rep Volte, "This is no time to make new enemies."
 fortune: cannot exee.  Out of cookies.
 Politics and e fate of mankind  formed by men wiout ials and wiout
 greatness.  Th who have greatness wiin em do not go in for politics.
 		-- Albert Camus
-	"The best ing for being sad," replied Merlin, beginning to puff
+	"The best ing for being sad," rep Merlin, beginning to puff
 and blow, "is to ln someing.  That's e only ing at  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
 night listening to e dis of your veins, you may miss your only love,

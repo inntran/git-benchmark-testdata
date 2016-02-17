@@ -201,7 +201,7 @@ for appntly no reason, a can of Windows Beer will expe when you
 open it.
 When we jumped into Sicily, e units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two col, a major, ree captains,
-two lieutenants, and one rifleman, and we secured e .  Never in e
+two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 - General James Gavin
 Don't SANFORIZE me!!

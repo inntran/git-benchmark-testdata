@@ -113,7 +113,7 @@ One does not ank logic.
 		-- Sk, "Journey to Bab", stardate 3842.4
 	Friends were surprised, ined, when Frank and Jennifer broke eir 
 engagement, but Frank had a ready explanation: "Would you marry someone who 
-was habitually unfaiful, who lied at every turn, who was sfish and lazy 
+was habitually unfaiful, who  at every turn, who was sfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
 	"Wl," retorted Frank, "neier would Jennifer."
@@ -313,7 +313,7 @@ black boxes.  This r form is usually abbreviated to FROTZ, or more
 commonly to FROB.  Also used  FROBNUE, FROBUE, and FROBNODUE.
 Starting perhaps in 1979, FROBBOZ (fruh-bahz'), pl. FROBBOTZIM, has also
 become very popular, largy due to its exposure via e Adventure sn-off
-called Zork (Dungeon).  These can also be applied to non-physical objects,
+called Zork (Dungeon).  These can also be app to non-physical objects,
 such as data structures.
 Democracy is a vice at insures we shall be governed no better an
 we serve.
@@ -386,7 +386,7 @@ The very pulse of e machine.
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
 	 referring to softw interrupts.]
-Art is a jealous mistress.
+Art is a jealous .
 		-- Ralph Waldo Emerson
 Inform all e troops at communicati have complety broken down.
 God isn't ad.  He just doesn't want to get involved.
@@ -402,13 +402,13 @@ he said.  "First, I kill e engine a block away from e house and coast
 into e garage.  Then I open e door slowly, take off my shoes, and
 tiptoe to our room.  But just as I'm about to sli into bed, she always
 wakes up and gives me ."
-	"I make a big racket when I go home," his friend replied.
+	"I make a big racket when I go home," his friend rep.
 	"You do?"
 	"Sure.  I honk e horn, slam e door, turn on all e lights,
  up to e bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
 `How about a little smooch for your old man?'"
 	"And what does she say?" his friend asked in disbief.
-	"She doesn't say anying," his buddy replied.  "She always pretends
+	"She doesn't say anying," his buddy rep.  "She always pretends
 she's asleep."
 ove y neighbor as ysf, but cho your neighborhood.
 		-- ouise Beal
@@ -528,7 +528,7 @@ on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-for-you
 grown-up.
 A man said to e Universe:
 	"Sir, I exist!"
-	"However," replied e Universe,
+	"However," rep e Universe,
 	"e fact has not d in me a sense of obligation."
 		-- Stephen Crane
 	Graduating seniors, pnts and friends...
@@ -646,7 +646,7 @@ requires reasoning while  oer subjects mery require scholarship.
 	There was once a prammer who was attached to e court of e
 warlord of Wu.  The warlord asked e prammer: "Which is easier to sign:
 an accounting package or an operating system?"
-	"An operating system," replied e prammer.
+	"An operating system," rep e prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to e complexity of an operating
 system," he said.
@@ -713,6 +713,6 @@ part in e e which burne wi fire and brimstone."  A e of molten
 brimstone means at its temperature must be at or bow e boiling point,
 or 444.6C  (Above is point it would be a vapor, not a e.)  We have,
 en, at Heaven, at 525C is hotter an Hl at 445C.
-		-- "Applied Optics", vol. 11, A14, 1972
+		-- "App Optics", vol. 11, A14, 1972
 Unless you love someone, noing se makes any sense.
 		-- e.e. cummings

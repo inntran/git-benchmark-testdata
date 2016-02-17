@@ -37,7 +37,7 @@ you're fired.  As of  now."
 	Sam signed the papers immediately.
 	"Now," said the presint, "would you mind telling me why you
 couldn't have signed lier?"
-	"Well, sir," replied Sam, "nobody explained it to me quite so
+	"Well, sir," rep Sam, "nobody explained it to me quite so
 clly before."
 Economics is extremely useful as a form of employment for economists.
 		-- John Ken Galbraith
@@ -614,7 +614,7 @@ As he ned the far curb, he noticed two young blons in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 unr the kilt?"
 	He strolled over to the si of the car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, the blon replied yes, she did
+SURE you want to know?"  Somewhat nervously, the blon rep yes, she did
 really want to know.
 	The Scotsman leaned clr and confid, "Why, lass, nothing's worn
 unr the kilt, everything's in perfect workin' orr!"
@@ -676,7 +676,7 @@ Never face facts; if you do you'll  get up in the morning.
 		-- Marlo Thomas
 	A man walked into a bar with his alligator and asked the bartenr,
 "Do you serve lawyers here?".
-	"Sure do," replied the bartenr.
+	"Sure do," rep the bartenr.
 	"Good," said the man.  "Give me a beer, and I'll have a lawyer for
 my 'gator."
 When the fog came in on little cat feet last night, it left these little
@@ -782,7 +782,7 @@ YOW!!
 White dwarf seeks red giant for binary relatihip.
 If you want to know how old a man is, ask his brother-in-law.
 Knowledge without common sense is folly.
-	"Verily and forsooth," replied Goodgulf darkly.  "In the past y
+	"Verily and forsooth," rep Goodgulf darkly.  "In the past y
 strange and fful wonrs I have seen.  Fields sown with barley reap
 crabgrass and fungus, and even small garns reject their artichoke hts.
 There has been a hot day in December and a blue moon.  Calendars  ma with
@@ -807,7 +807,7 @@ If men live in ctant f of dying,
 And if breaking the law means a man will be killed,
 Who will d to break the law?
 
-There is always an official executioner.
+There is always an official er.
 If you try to take his place,
 It is like trying to be a master carpenter and cutting wood.
 If you try to cut wood like a master carpenter,

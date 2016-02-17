@@ -108,7 +108,7 @@ man apped out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said e traver, "and I want to know if you
 would let me stay here f e night."
-	"Sure," replied e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If you want to stay ere all night, it's
 okay wi me."
 Don't everyone ank me at once!
 		-- Han Solo
@@ -141,7 +141,7 @@ it has been used to commit a murr.
 (3)	A slow pup is a lazy dog.
 
 QED: A sheet of paper is a lazy dog.
-		-- Willard Espy, "An Almanac of Wds at Play"
+		-- Willard E, "An Almanac of Wds at Play"
 Be cful when a loop exits to e same place from si and bottom.
 I've always cired statesmen to be me expendable an soldiers.
  English country gentleman gallong after a fox -- e unsable

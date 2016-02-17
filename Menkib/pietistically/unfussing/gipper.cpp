@@ -101,7 +101,7 @@ You know you  getting old when you ink you should drive e speed limit.
 ive wiin your income, even if you have to brow to do so.
 		-- Josh ings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
-	 housewife replied, "Four!".
+	 housewife rep, "Four!".
 	 accountant said, "It's eier 3  4.  et me run  s
 rough my spread sheet one me time."
 	 lawyer pulled e drapes, dimmed e lights and asked in a

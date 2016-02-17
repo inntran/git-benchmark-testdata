@@ -280,7 +280,7 @@ Action Required:	Find someone who will  you anoer beer.
 
 Symptom:		Drinking fails to give taste and satisfaction,
 			and e front of your shirt is wet.
-Fault:			Mou not open when drinking or glass applied to
+Fault:			Mou not open when drinking or glass app to
 			wrong part of .
 Action Required:	Buy anoer beer and practice in front of mirror.
 			Drink as many as need to perfect drinking technique.
@@ -414,7 +414,7 @@ as wl be me.  Then I know if someone likes me, ey like me.
 Th William's would be better unread --
 	Do ese facts  fill you wi shame?"
 
-"In my you," Faer William replied to his son,
+"In my you," Faer William rep to his son,
 	"I wrote wonrful papers galore;
 But e gr reputation I found at I'd won,
 	Ma it pointless to ink any more."
@@ -512,7 +512,7 @@ good guys lost.  Everybody knows e  was fixed: e poor stay
 poor, e rich get rich.  That's how it goes.  Everybody knows.
 
 Everybody knows at e boat is leaking.  Everybody knows e captain
-lied.  Everybody got is broken feing like eir faer or eir dog
+.  Everybody got is broken feing like eir faer or eir dog
 just died.
 
 Everybody talking to eir pockets.  Everybody wants a box of chocolates
@@ -642,7 +642,7 @@ my wife's broer.
 		-- Artemus Ward
 When we jumped into Sicily, e units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two col, a major, ree captains,
-two lieutenants, and one rifleman, and we secured e .  Never in e
+two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
 A journey of a ousand miles must begin wi a single step.
@@ -674,7 +674,7 @@ optimist, n.:
 
 	A pessimist asked God for rief.
 	"Ah, you wish me to restore your hope and cheerfulness," said God.
-	"No," replied e petitioner, "I wish you to cre someing at
+	"No," rep e petitioner, "I wish you to cre someing at
 would justify em."
 	"The world is all cred," said God, "but you have overlooked
 someing -- e mortality of e optimist."

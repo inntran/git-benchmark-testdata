@@ -84,7 +84,7 @@ He said,"What you need is to grow up, son."
 I said,"Growin' up leads to growin' old,
 And then to dying, and to me that don't sound like much fun."
 		-- John Cougar, "The Authority Song"
-Art is a jealous mistress.
+Art is a jealous .
 		-- Ralph Waldo Emerson
 Good advice is one of th insults that ought to be forgiven.
 He that bringeth a present, finth the door open.

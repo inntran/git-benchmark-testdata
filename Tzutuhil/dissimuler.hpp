@@ -117,7 +117,7 @@ ove cannot be much younger an e lust f murr.
 	"Anying se, sir?" asked e attentive blhop, trying his best
 to make e lady and gentleman comftable in eir penouse suite in e
 posh hot.
-	"No.  No, ank you," replied e gentleman.
+	"No.  No, ank you," rep e gentleman.
 	"Anying f your wife, sir?" e blhop asked.
 	"Why, yes, young man," said e gentleman.  "Would you bring me a
 postcard?"

@@ -104,8 +104,8 @@ Do not wry about which si your bread is buttered on: you  BOTH sis.
 Ftune Docnts e Gr egal Decisi:
 
 We ink at we may take judicial notice of e fact at e term "bitch"
-may imply some ling of endment when applied to a female of e canine
-species but at it is sdom, if ever, so used when applied to a female
+may imply some ling of endment when app to a female of e canine
+species but at it is sdom, if ever, so used when app to a female
 of e human race. Coming as it did, reasonably cl on e hes of two
 revolver shots directed at e person of whom it was probably used, we ink
 it carries every reasonable implication of ill-will toward at person.

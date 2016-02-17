@@ -120,7 +120,7 @@ Conscience makes egotists of us all.
 "How do you know she is a unicorn?" Molly mand.  "And why were you afraid
 to let her touch you?  I saw you.  You were afraid of her."
 	"I doubt that I will feel like talking for very long," the cat
-replied without rancor.  "I would not waste time in foolishness if I were 
+rep without rancor.  "I would not waste time in foolishness if I were 
 you.  As to your first question, no cat out of its first fur can ever be
 ceived by appearances.  Unlike human beings, who enjoy them.  As for your
 second question --"  Here he faltered, and sudnly became very interested
@@ -385,7 +385,7 @@ said, "So will you."
 And miles to go before I sleep.
 		-- Robert Frost
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
-	The housewife replied, "Four!".
+	The housewife rep, "Four!".
 	The accountant said, "It's either 3 or 4.  Let me run th figures
 through my spread sheet one more time."
 	The lawyer pulled the drapes, dimmed the lights and asked in a
@@ -503,7 +503,7 @@ experimentalist, he would try to fly the aircraft.
 	He sat down at the controls and tried to figure them out.  The sirens
 got lour and lour.  Armed men surround the jet.  The would be pilot's
 friends  out, "Please, please take off now!!!  Hurry!!!"
-	The experimentalist calmly replied, "Have patience.  I'm just a simple
+	The experimentalist calmly rep, "Have patience.  I'm just a simple
 pole in a complex plane."
 A boss with no humor is like a job that's no fun.
 I'm always looking for a new ia that will be more productive than its cost.

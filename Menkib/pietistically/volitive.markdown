@@ -16,7 +16,7 @@ Away, lad, lie away, canny lad O!
 Don't panic.
 Reed by a brief blackout, I got to my feet and went next door.
 -- Martin Amis, _Money_
-Exc day for drinking heavily.  Ske e office water cooler.
+Exc day for drinking heavily.  Ske e office water .
 The University of California Statistics Department; where mean is normal,
 and viation standard.
 Reality does not exist -- yet.

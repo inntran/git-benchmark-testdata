@@ -14,7 +14,7 @@ ief who was to be exeed.  As he was taken away he ma a bargain wi
 e king: in one y he would teach e king's favorite  to sing
 hymns.  The oer prisoners watched e ief singing to e  and
 laughed.  "You will not succeed," ey told him.  "No one can."
-	To which e ief replied, "I have a y, and who knows what might
+	To which e ief rep, "I have a y, and who knows what might
 happen in at time.  The king might die.  The  might die.  I might die.
 And perhaps e  will ln to sing.
 		-- "The Mote in God's Eye", Niven and Pournle
@@ -651,7 +651,7 @@ to do.
 To  love is to  life, and  who  life  already ree
 parts ad.
 		-- Bertrand Russl
-Four aw of Applied Terror:
+Four aw of App Terror:
 	The night before e English History mid-term, your Biology
 	instructor will assign 200 pages on planaria.
 
@@ -667,7 +667,7 @@ I cir a new vice or technology to have been culturally accepted when
 it has been used to commit a murr.
 		-- M. Gallaher
 Parts at positivy cannot be assembled in improper  will be.
-	"Found it," e Mouse replied raer crossly: "of course you know
+	"Found it," e Mouse rep raer crossly: "of course you know
 what 'it' means."
 	"I know what 'it' means wl enough, when I find a ing," said e
 Duck: "it's generally a f or a worm.  The question is, what did e

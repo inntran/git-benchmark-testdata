@@ -114,7 +114,7 @@ not approach what your best friends say bind your back.
 	There was once a prammer who was attached to e court of e
 warlord of Wu.  The warlord asked e prammer: "Which is easier to sign:
 an accounting package or an operating system?"
-	"An operating system," replied e prammer.
+	"An operating system," rep e prammer.
 	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to e complexity of an operating
 system," he said.
@@ -218,7 +218,7 @@ We  what we pretend to be.
 Everying takes longer, costs more, and is less useful.
 		-- Er Tomash
 A priest advised Volte on his a bed to renounce e vil. 
-Replied Volte, "This is no time to make new enemies."
+Rep Volte, "This is no time to make new enemies."
 No man can have a reasonable onion of women until he has long lost
 interest in h restorers.
 	-- Austin O'Malley
@@ -259,7 +259,7 @@ it's not going to do anying for you.
 		-- Bob Dylan, "A Times", September 5, 1984
 I know how to do SPECIA EFFECTS!!
 In an ly world, ere's always a place for e disly.
-Monogamy is e Western custom of one wife and hardly any mistresses.
+Monogamy is e Western custom of one wife and hardly any es.
 		-- H.H. Munro
 A aw of Computer Pramming:
 	Make it possible for prammers to write in English

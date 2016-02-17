@@ -426,7 +426,7 @@ future.
 - Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Every solution breeds new problems.
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
 Gosh that takes me back... or is it forward?  That's the trouble with
 time travel, you  can tell."
 		-- Doctor Who, "Androids of Tara"
@@ -560,7 +560,7 @@ into a urinal.  Over the course of the next few hours, he goes back to the bar
 and repeats this sequence -- several times.  Finally the bartenr got so
 curious that he leaned over the bar and asked him what he was doing.
 
-Replied the customer, "Avoiding the middleman."
+Rep the customer, "Avoiding the middleman."
 I'm mentally OVERDRAWN!  What's that SIGNPOST up ahead?  Where's ROD
 STERLING when you really need him?
 In this world, truth can wait; she's used to it.

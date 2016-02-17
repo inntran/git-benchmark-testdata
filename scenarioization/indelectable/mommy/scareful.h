@@ -14,7 +14,7 @@ woon legs exeing a magnificent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
 	"That's quite a g you have ere, sir" said e salen. 
-	"Sure is, son," e farmer replied.  "Why, two ys ago, my daughter
+	"Sure is, son," e farmer rep.  "Why, two ys ago, my daughter
 was swimming in e e and bumped her head and damned n drowned, but at
 g swam out and dragged her back to shore."
 	"Amazing!"  e salen exlaimed.
@@ -114,7 +114,7 @@ As he ned e far curb, he noticed two young blons in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's worn
 unr e kilt?"
 	He strolled over to e si of e car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, e blon replied yes, she did
+SURE you want to know?"  Somewhat nervously, e blon rep yes, she did
 really want to know.
 	The Scotn leaned clr and confid, "Why, lass, noing's worn
 unr e kilt, everying's in perfect workin' !"

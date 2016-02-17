@@ -334,8 +334,8 @@ of functi performed by private citizens.
 Fortune Documents the Great egal Decisi:
 
 We think that we may take judicial notice of the fact that the term "bitch"
-may imply some feeling of endment when applied to a female of the canine
-species but that it is seldom, if ever, so used when applied to a female
+may imply some feeling of endment when app to a female of the canine
+species but that it is seldom, if ever, so used when app to a female
 of the human race. Coming as it did, reasonably cl on the heels of two
 revolver shots directed at the person of whom it was probably used, we think
 it carries every reasonable implication of ill-will toward that person.

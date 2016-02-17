@@ -407,7 +407,7 @@ If men live in constant fear of dying,
 And if breaking the law means a man will be killed,
 Who will dare to break the law?
 
-There is always an official executioner.
+There is always an official er.
 If you try to take his place,
 It is like trying to be a master carpenter and cutting wood.
 If you try to cut wood like a master carpenter,
@@ -478,7 +478,7 @@ whose lips became frozen to his lock in 1979 while blowing warm air on it.
 	"I got down on my knees to breathe into the lock.  Somehow my lips
 got stuck fast."
 	While he was in the posture, an old lady passed an inquired if he
-was all right.  "Alra?  Igmmlptk", he replied at which point she ran away.
+was all right.  "Alra?  Igmmlptk", he rep at which point she ran away.
 	"I tried to tell her what had happened, but it came out sort of...
 muffled," explained Mr. Rowlands, a pottery signer.
 	He was trapped for twenty minutes ("I felt a bit foolish") until
@@ -615,7 +615,7 @@ the wrong joke."
 Grabel's Law:
 	2 is not equal to 3 -- not even for large values of 2.
 When one woman was asked how long she had been going to symphony concerts,
-she paused to calculate and replied, "Forty-seven years -- and I find I mind
+she paused to calculate and rep, "Forty-seven years -- and I find I mind
 it less and less."
 		-- Louise Andrews Kent
 Electricity is actually ma up of extremely tiny particles, called

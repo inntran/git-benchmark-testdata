@@ -342,7 +342,7 @@ The shortest distance between any two puns is a straight line.
 Biology is the only science in which multiplication means the same thing
 as division.
 Humor in the Court:
-Q: So, after the anesthesia, when you came out of it, what did you observe
+Q: So, after the , when you came out of it, what did you observe
    with respect to your scalp?
 A: I didn't see my scalp the whole time I was in the hospital.
 Q: It was covered?
@@ -385,8 +385,8 @@ of Acamics because he was concerned about his players' mental abilities.
 unbelieving an.  At this point, one of his players happened to enter
 the an's office.  "et me show you what I mean", said Sherrill, and he
 told the player to run over to his office to see if he was in.  "OK, Coach",
-the player replied, and was off.  "See what I mean?" Sherrill asked.
-"Yeah", replied the an.  "He could have just picked up this phone and
+the player rep, and was off.  "See what I mean?" Sherrill asked.
+"Yeah", rep the an.  "He could have just picked up this phone and
 called you from here."
 The one sure way to make a lazy man look respectable is to put a fishing
 rod in his hand.

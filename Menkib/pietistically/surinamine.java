@@ -26,7 +26,7 @@ Is is really happening?
 an interesting role f an act."
 -- Dolph undgren, "act"
 When one woman was asked how long she had been going to symphony concerts,
-she paused to calculate and replied, "Fty-seven ys -- and I find I mind
+she paused to calculate and rep, "Fty-seven ys -- and I find I mind
 it less and less."
 		-- ouise Andrews Kent
 Bondage maybe, discipline !
@@ -94,7 +94,7 @@ Action Required:	Go stand next to nest dog.  After a while complain
 			to e owner about its lack of house training and
 			mand a beer as compensation.
 		-- Bar Troubleshooting
-What upsets me is not at you lied to me, but at from now on I can no
+What upsets me is not at you  to me, but at from now on I can no
 longer bieve you.
 		-- Nietzsche
 Wiout fools ere would be no wisdom.
@@ -408,7 +408,7 @@ What's all is broua?
 Rho's aw:
 	When any , law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, emrically, 
-	circuitously proven, rived, implied, inferred, d, ,
+	circuitously proven, rived, imp, inferred, d, ,
 	estimated,  scily guessed, it will always f e purp
 	of convenience, expediency, political advantage, material gain, 
 	personal comft,  any combination of e above,  none of e

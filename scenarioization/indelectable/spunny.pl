@@ -302,7 +302,7 @@ I ask nothing but sincerity.  If they come out of habit, they become tiresome.
 A young man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a jewelry-store window.  "Wow, I'd sure love to
 have that!" she gushed.
-	"No problem," her companion replied, throwing a brick through the
+	"No problem," her companion rep, throwing a brick through the
 window and grabbing the ring.
 	A few blocks later, the woman admired a full-length sable coat.  "What
 I'd give to own that," she said, sighing.

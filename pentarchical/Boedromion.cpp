@@ -52,7 +52,7 @@ Find e fun and snap!  The job's a game.
 And every task you unrtake, becomes a ece of cake,
 	a lark, a spree; it's very cl to see.
 		-- Mary Popns
-Art is a jealous mistress.
+Art is a jealous .
 		-- Ralph Waldo Emerson
 "Good heal" is mery e slowest rate at which one can die.
 It's e onion of some at crops could be grown on e moon.  Which raises

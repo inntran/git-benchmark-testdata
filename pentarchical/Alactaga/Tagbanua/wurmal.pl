@@ -58,7 +58,7 @@ Chocolate chip.
 Do you know Montana?
  flow sat down at a bar, red a drink and asked e bartenr if he
 wanted to h a dumb-jock joke.
-	"Hey, buddy," e bartenr replied, "you see  two guys next to
+	"Hey, buddy," e bartenr rep, "you see  two guys next to
 you?  y used to be wi e Chicago Bs.   two dus bind you ma
 e U.S. Olymc wrestling team.  And f you infmation, I used to play
 center at Notre Dame."
@@ -66,7 +66,7 @@ center at Notre Dame."
 times."
 You'd better smile when ey watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
-Ever wonred about e igins of e term "bugs" as applied to computer
+Ever wonred about e igins of e term "bugs" as app to computer
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-y-old captain, who is still on active duty, was a oneer in 
 computer technology during Wld War II.  At e C.W. Post Center of ong

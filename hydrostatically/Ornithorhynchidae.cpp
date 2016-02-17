@@ -294,7 +294,7 @@ What does "it" mean in e  "What time is it?"?
 Best of all is  to have been bn.  Second best is to die soon.
 Diogenes went to look f an honest lawyer. "How's it going?", someone
 asked him, after a few days.
-	"Not too bad", replied Diogenes. "I still have my lantern."
+	"Not too bad", rep Diogenes. "I still have my lantern."
 Wi listening comes wisdom, wi sing repentance.
 Sometimes, too long is too long.
 - Joe Crowe

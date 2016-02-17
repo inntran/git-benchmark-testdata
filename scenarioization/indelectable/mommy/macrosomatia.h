@@ -31,8 +31,8 @@ Hildebrant's Principle:
 Fortune Documents the Great Legal Decisions:
 
 We think that we may take judicial notice of the fact that the term "bitch"
-may imply some feeling of endearment when applied to a female of the canine
-species but that it is seldom, if ever, so used when applied to a female
+may imply some feeling of endearment when app to a female of the canine
+species but that it is seldom, if ever, so used when app to a female
 of the human race. Coming as it did, reasonably close on the heels of two
 revolver shots directed at the person of whom it was probably used, we think
 it carries every reasonable implication of ill-will toward that person.
@@ -84,6 +84,6 @@ Factorials were someone's attempt to make math LOOK exciting.
 The surest sign that a man is in love is when he divorces his wife.
 "Indecision is the basis of flexibility"
 -- button at a Science Fiction convention.
-The Public is merely a multiplied "me."
+The Public is merely a multip "me."
 		-- Mark Twain
 If you had any brains, you'd be dangerous.

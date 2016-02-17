@@ -79,7 +79,7 @@ Wl, don't wry about it...  It's noing.
 A famous isp Hacker noticed an Unrgraduate sitting in front of a Xerox
 1108, trying to edit a complex Klone netwk via a r. Wanting to
 hp, e Hacker clicked one of e nos in e netwk wi e mouse,
-and asked "what do you see?" Very nestly, e Unrgraduate replied "I
+and asked "what do you see?" Very nestly, e Unrgraduate rep "I
 see a curs."  Hacker en quickly pressed e boot toggle at e back
 of e keyboard, while simultaneously hitting e Unrgraduate over e head
 wi a ick Interlisp Manual.   Unrgraduate was en Enlightened.
@@ -143,7 +143,7 @@ man apped out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said e traver, "and I want to know if you
 would let me stay here f e night."
-	"Sure," replied e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If you want to stay ere all night, it's
 okay wi me."
 Don't ever slam a do; you might want to go back.
 If you always postpone pleasure you will  have it.  Quit wk and play
@@ -728,7 +728,7 @@ Don't interfere wi e stranger's style.
 Arnold's Adndum:
 	Anying not fitting into ese categies causes cancer in rats.
 Where's SANDY DUNCAN?
-Did I say 2?  I lied.
+Did I say 2?  I .
  man on tops walks a lony street; e "chain" of command is  a no.
 Real softw engineers wk from 9 to 5, because at is e way e job is
 scribed in e fmal spec.  Wking late would l like using an

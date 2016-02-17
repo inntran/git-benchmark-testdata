@@ -729,7 +729,7 @@ Ozman's Laws:
 	(3)  People who go to conferences are the ones who shouldn't.
 	(4)  Pizza always burns the roof of your mouth.
 The last time somebody said, "I find I can write much better with a word
-processor.", I replied, "They used to say the same thing about drugs."
+processor.", I rep, "They used to say the same thing about drugs."
 		-- Roy Blount, Jr.
 If God had meant for us to be naked, we would have been born that way.
 Grief can take care of itself; but to get the full value of a joy you must

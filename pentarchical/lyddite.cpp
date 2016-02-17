@@ -167,7 +167,7 @@ the Bo Peep Cleaners by mistake.  I don't know why they gave me men's
 shirts but they're going back.
 		-- "The Rockford Files"
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
 After Goliath's feat, giants ceased to command respect.
 - Freeman Dyson
 ife is like bein' on a mule team.  Unless you're the lead mule, all the
@@ -194,7 +194,7 @@ went to speak with him.
 stunts inquired.
 	"It is", Kyogen answered.
 	"Tell us", said a friend, "how do you feel?"
-	"As miserable as ever", replied the enlightened Kyogen.
+	"As miserable as ever", rep the enlightened Kyogen.
 grasshopotomaus:
 	A creature that can leap to tremendous heights... once.
 Remember, in 2039, MOUSSE & PASTA will be available ONY by prescription!!
@@ -310,7 +310,7 @@ into a urinal.  Over the course of the next few hours, he goes back to the bar
 and repeats this sequence -- several times.  Finally the bartenr got so
 curious that he leaned over the bar and asked him what he was doing.
 
-Replied the customer, "Avoiding the middleman."
+Rep the customer, "Avoiding the middleman."
 "He's the kind of man for the times that need the kind of man he is ..."
 Flee at once, all is discovered.
 Cahn's Axiom:

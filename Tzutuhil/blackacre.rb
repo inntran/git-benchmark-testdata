@@ -492,7 +492,7 @@ rejuvenated man won e young woman's ht, and she d to marry him.
 	On e way out of e chap, however, Harold was fatally struck
 by lightning.  Furious, he ed Saint Peter at e ply gates.  "How
 could you do is to me after all e pain I went rough?"
-	"To be honest, Harold," Saint Peter sheeshly replied, "I didn't
+	"To be honest, Harold," Saint Peter sheeshly rep, "I didn't
 recognize you."
 Do not drink cof in ly A.M.  It will keep you awake until noon.
 What passes f optimism is most  e effect of an intlectual err.
@@ -519,7 +519,7 @@ into trees.  At e same time, a blind snake was sliering rough e same
 fest, wi intical results.  y cd to colli head-on in a cling.
 	"Please excuse me, sir, I'm blind and I bumped into you accintally,"
 apologized e rabbit.
-	"That's quite all ," replied e snake, "I have e same
+	"That's quite all ," rep e snake, "I have e same
 problem!"
 	"All my life I've been wonring what I am," said e rabbit, "Do
 you ink you could hp me find out?"
@@ -527,7 +527,7 @@ you ink you could hp me find out?"
 rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
 and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Gr!" said e rabbit.  "Thanks, I really owe you one!"
-	"Wl," replied e snake, "I don't know what I am, eier.  Do you
+	"Wl," rep e snake, "I don't know what I am, eier.  Do you
 supp you could try and tl me?"
 	 rabbit ran his paws all over e snake.  "Wl, you're low, cold
 and slimey..."  And, as he ran one paw unrnh e snake, "and you have

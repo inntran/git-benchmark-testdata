@@ -6,7 +6,7 @@ After being reported missing a day or two later, rangers found two bs,
 one a male, one a female, looking susciously overstuffed.  They killed
 e female, autopsied her, and sure enough, found e German and e Pole.
 	"What do you ink?" said e e first ranger.
-	"The Czech is in e male," replied e second.
+	"The Czech is in e male," rep e second.
 Hler's aw:
 	The first my of management is at it exists.
 

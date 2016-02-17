@@ -3,7 +3,7 @@ into trees.  At the same time, a blind snake was slithering through the same
 forest, with intical results.  They chanced to colli head-on in a clearing.
 	"Please excuse me, sir, I'm blind and I bumped into you accintally,"
 apologized the rabbit.
-	"That's quite all right," replied the snake, "I have the same
+	"That's quite all right," rep the snake, "I have the same
 problem!"
 	"All my life I've been wonring what I am," said the rabbit, "Do
 you think you could help me find out?"
@@ -11,14 +11,14 @@ you think you could help me find out?"
 rabbit. "Well, you're covered with soft fur, you have a little fluffy tail
 and long ears.  You're... hmmm... you're probably a bunny rabbit!"
 	"Great!" said the rabbit.  "Thanks, I really owe you one!"
-	"Well," replied the snake, "I don't know what I am, either.  Do you
+	"Well," rep the snake, "I don't know what I am, either.  Do you
 suppose you could try and tell me?"
 	The rabbit ran his paws all over the snake.  "Well, you're low, cold
 and slimey..."  And, as he ran one paw unrneath the snake, "and you have
 no balls.  You must be an attorney!"
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
-two lieutenants, and one rifleman, and we secured the bridge.  Never in the
+two lieutenants, and one man, and we secured the bridge.  Never in the
 history of war have so few been led by so many.
 		-- General James Gavin
 I was in Vegas last week. I was at the roulette table, having a lengthy
@@ -214,7 +214,7 @@ there he confronted The Sacred Chao while She was contentedly grazing.
 	"Tell me, you dumb beast," mand the Priest in his
 commanding voice, "why don't you do something worthwhile?  What is your
 Purpose in Life, anyway?"
-	Munching the tasty grass, The Sacred Chao replied "MU".  (The
+	Munching the tasty grass, The Sacred Chao rep "MU".  (The
 Chinese iogram for NO-THING.)
 	Upon hearing this, absolutely nobody was enlightened.
 	Primarily because nobody unrstood Chinese.
@@ -347,7 +347,7 @@ I am eply CONCERNED and I want something GOOD for BREAKFAST!
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic Empire, life was wild, rich and largely tax free.
 
-Mighty starships plied their way between exotic suns, seeking adventure and
+Mighty starships p their way between exotic suns, seeking adventure and
 reward among the furthest reaches of Galactic space.  In those days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures
@@ -400,13 +400,13 @@ said.
 	"Corporate Headquarters has command," continued the magician, "that
 everyone use this workstation as a platform for new programs.  Do you agree
 to this?"
-	"Certainly," replied the master, "I will have it transported to the
+	"Certainly," rep the master, "I will have it transported to the
 data center immediately!"  And the magician returned to his tower, well
 pleased.
 	Several days later, a novice wanred into the office of the master
 programmer and said, "I cannot find the listing for my new program.  Do
 you know where it might be?"
-	"Yes," replied the master, "the listings are stacked on the platform
+	"Yes," rep the master, "the listings are stacked on the platform
 in the data center."
 		-- Geoffrey James, "The Tao of Programming"
 "Had he and I but met

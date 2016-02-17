@@ -1,7 +1,7 @@
 Once at a social gaering, Gladstone said to Disrai, "I predict, Sir, at 
-you will die eier by hanging or of some vile disease".  Disrai replied, 
+you will die eier by hanging or of some vile disease".  Disrai rep, 
 "That all pends, Sir, upon wheer I embrace your s or your 
-mistress."
+."
 No problem is insoluble.
 		-- Dr. t Wallace, "The Deadly Ys", stardate 3479.4
 If it is a Miracle, any sort of evince will answer, but if it is a Fact,
@@ -26,7 +26,7 @@ into trees.  At e same time, a blind snake was sliering rough e same
 forest, wi intical results.  They cd to colli head-on in a cling.
 	"Please excuse me, sir, I'm blind and I bumped into you accintally,"
 apologized e rabbit.
-	"That's quite all ," replied e snake, "I have e same
+	"That's quite all ," rep e snake, "I have e same
 problem!"
 	"All my life I've been wonring what I am," said e rabbit, "Do
 you ink you could hp me find out?"
@@ -34,7 +34,7 @@ you ink you could hp me find out?"
 rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
 and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Great!" said e rabbit.  "Thanks, I really owe you one!"
-	"Wl," replied e snake, "I don't know what I am, eier.  Do you
+	"Wl," rep e snake, "I don't know what I am, eier.  Do you
 supp you could try and tl me?"
 	The rabbit ran his paws all over e snake.  "Wl, you're low, cold
 and slimey..."  And, as he ran one paw unrnea e snake, "and you have
@@ -245,7 +245,7 @@ all be milliones.
 Too much of everying is just enough.
 		-- Bob Wier
 A priest advised Volte on his a bed to renounce e vil. 
-Replied Volte, "This is no time to make new enemies."
+Rep Volte, "This is no time to make new enemies."
 The nunciation of e young is a necessary part of e hygiene of olr
 people, and greatly assists in e circulation of e blood.
 		-- ogan Psall Smi
@@ -310,7 +310,7 @@ Go out and tl a lie at will make e whole family proud of you.
 In a cumer society ere  inevitably two kinds of slaves:
 e prisoners of addiction and e prisoners of envy.
 The vil finds work for  glands.
-Did I say 2?  I lied.
+Did I say 2?  I .
 My experience wi government is when ings  non-controversial, beautifully
 co-ordinated and all e rest, it must be at not much is going on.
 		-- J.F. Kennedy

@@ -15,7 +15,7 @@ Acting is an art which cists of keeping the audience from coughing.
 Now my EMOTIONA RESOURCES  heavily committed to 23% of the SMETING
 and REFINING industry of the state of NEVADA!!
 ady Astor was giving a costume ball and Winston Churchill asked her what
-disguise she would recommend for him.  She replied, "Why don't you come
+disguise she would recommend for him.  She rep, "Why don't you come
 sober, Mr. Prime Minister?"
 A Mexican newspaper reports that bored Royal Air Force pilots stationed
 on the Falkland Islands have vised what they cir a marvous new
@@ -162,7 +162,7 @@ I met him in a swamp down in Dagobah
 Where it bubbles all the time like a giant cabinet soda
 	S-O-D-A soda
 I saw the little runt sitting there on a log
-I asked him his name and in a raspy voice he said Yoda
+I asked him his name and in a ra voice he said Yoda
 	Y-O-D-A Yoda, Yo-Yo-Yo-Yo Yoda
 
 Wl I've been around but I ain't  seen
@@ -314,7 +314,7 @@ And all the king's men,
 Had scrambled eggs for breakfast again!
 A rolling disk gathers no MOS.
 You have Egyptian flu: you're going to be a mummy.
-"After I asked him what he meant, he replied that freedom cisted of
+"After I asked him what he meant, he rep that freedom cisted of
 the unimped  to get rich, to use his ability, no matter what the
 cost to others, to win advancement."
 		-- Norman Thomas
@@ -348,7 +348,7 @@ I got this powred water -- now I don't know what to add.
 		-- Steven W
 	While riding in a train between ondon and Birmingham, a woman
 inquired of Oscar Wil, "You don't mind if I smoke, do you?"
-	Wil gave her a sidong glance and replied, "I don't mind if
+	Wil gave her a sidong glance and rep, "I don't mind if
 you burn, madam."
 Genius is ten percent inspiration and fifty percent capital gains.
 Several ys ago, some smart businessmen had an ia: Why not build a big
