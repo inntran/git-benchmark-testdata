@@ -56,7 +56,7 @@ To find a friend one must cl one eye; to keep him -- two.
 	When David Schwartz left university in 1972, he set up Rent-a-wreck
 as a joke.  Being a natural prankster, he acquired a fleet of b-up
 shabby, wreckages waiting f e scrap heap in Califnia.
-	He put on a cap and looked fward to watching people's s as he
+	He t on a cap and looked fward to watching people's s as he
 con em round e choice of bumperless, nted junkmobiles.
 	To his lasting surprise ere was an insatiable mand f em and
 he now has 26 riving branches all over America.  "People like driving

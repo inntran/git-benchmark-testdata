@@ -3,13 +3,13 @@
 Do you want e instant respect at comes from being able to use technical
 terms at nobody unrstands?  Do you want to strike  and loaing into
 e hts of DP managers everywhere?  If so, en let e Famous Prammers'
- lead you on... into e wld of professional computer pramming.
+ lead you on... into e wld of professional comter pramming.
 y say a good prammer can write 20 lines of effective pram per day.
 Wi our unique training course, we'll show you how to write 20 lines of co
 and lots me besis.  Our training course covers every pramming language
 in existence, and some at n't.  You'll ln why e on/off switch f a
-computer is so imptant, what e wds *fatal err* mean, and who and what
-you should blame when you make a mistake.
+comter is so imptant, what e wds *fatal err* mean, and who and what
+you should blame when you  a mistake.
 
 	Yes, I want e brochure scribing is incredible offer.
 	I encl $1000 is ll unmarked bills to cover e cost of
@@ -56,7 +56,7 @@ XVI:
 I ought ere was someing fishy about e butler.  Probably a Pisces,
 wking f scale.
 		-- Firesign atre, " Furer Adventures of Nick Danger"
- herd instinct  economists makes sheep look like in inkers.
+ herd instinct  economists s sheep look like in inkers.
 You can ln many ings from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
@@ -105,10 +105,10 @@ it has its light si.  It's st of like cosmic duct tape.
 Do not read is ftune unr penalty of law.
 Violats will be pred.
 (Penal Co sec. 2.3.2 (II.a.))
-"We want to cre puppets at pull eir own strings."
+"We want to cre ppets at ll eir own strings."
 -- Ann 
 
-"Would is make em ettes?"
+"Would is  em ettes?"
 -- Jeff Dail
 GREAT MOMENTS IN AMERICAN HISTORY (#17):
 
@@ -123,7 +123,7 @@ End is East Boston and souwest of East Boston is e N End.
 A countryman between two lawyers is like a fish between two cats.
 		-- Ben Franklin
  Goln Rule of Arts and Sciences:
-	He who has e gold makes e rules.
+	He who has e gold s e rules.
 A man would still do someing out of sheer perversity - he would cre
 struction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
@@ -134,7 +134,7 @@ just whipped out a quarter?
 		-- Steven W
 D Sir,
 	I am firmly oppd to e spread of microchips eier to e home 
-to e office,  We have me an enough of em foisted upon us in public
+to e office,  We have me an enough of em foisted upon us in blic
 places.  y  a disgusting Americm, and can only result in e farmers
 being fced to grow ller potatoes, which in turn will cause massive un-
 employment in e already severy pressed agricultural industry.
@@ -142,7 +142,7 @@ employment in e already severy pressed agricultural industry.
 	Capt. Quinton D'Arcy, J.P.
 	Sevenoaks
 		-- etters To  Edit,  Times of ondon
-"It's not just a computer -- it's your ass."
+"It's not just a comter -- it's your ass."
 		-- Cal Keegan
 Just remember, wherever you go, ere you .
 		-- Buckaroo Bonzai
@@ -180,7 +180,7 @@ Hen sond of ruccus saed, "Hwaet [d]e e?"
 Graben sheold strang ond swich-blaed scharp
 Sond fe to fyht [d]e grimlic foe.
 "Me," Godsylla saed, "mac [d]e minsemete."
-Heo cwyc geten heold wi[p] faemed half-nson
+Heo cwyc geten heold wi[p] faemed h-nson
 Ond flyng him lic frisbe bac to fen.
 Beowulf bly up to meaddae bar,
 Saed, "Ne foe ben mie faersom cung-fu."
@@ -190,7 +190,7 @@ Real softw engineers don't like e ia of some inexplicable and
 greasy hardw several aisles  at may stop wking at any
 moment.  y have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  y would like personal
-computers (you know no one's going to trip over someing and kill your
+comters (you know no one's going to trip over someing and kill your
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Crectness Verification Aid packages.
  individual choice of garnishment of a burger can be an imptant
@@ -199,7 +199,7 @@ imptant ing to people.
 		-- Donald N. Smi, presint of Burger King
 A day wiout sunshine is like a day wiout ange juice.
 Try to get all of your posumous medals in advance.
-A ckup wi ree guys in it pulls into e lumber yard.  One of e men
+A ckup wi ree guys in it lls into e lumber yard.  One of e men
 gets out and goes into e office.
 	"I need some four-by-two's," he says.
 	"You must mean two-by-four's" replies e clerk.
@@ -286,7 +286,7 @@ Juall's aw on Nice Guys:
 British education is probably e best in e wld, if you can survive
 it.  If you can't ere is noing left f you but e diplomatic cps.
 		-- Peter Ustinov
-If you ink e pen is mightier an e swd, e next time someone pulls
+If you ink e pen is mightier an e swd, e next time someone lls
 out a swd I'd like to see you get up ere wi your Bic.
 "I have come up wi a sure-fire concept f a hit tevision show,
 which would be called `A ive Cebrity Gets Eaten by a Shark'."
@@ -294,9 +294,9 @@ which would be called `A ive Cebrity Gets Eaten by a Shark'."
 Real Prammers ink better when playing Adventure  Rogue.
 " sixties were good to you, weren't ey?"
 -- Gege Carlin
-Small ings make base men proud.
+Small ings  base men proud.
 		-- William Shakespe, "Henry VI"
-What's a cult?  It just means not enough people to make a minity.
+What's a cult?  It just means not enough people to  a minity.
 		-- Robert Altman
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock befe entering a ladies room!
@@ -331,13 +331,13 @@ I have a rock garn.  ast week ree of em died.
 		-- Richard Diran
 Some people need a good iinary cure f eir painful iinary ailment.
 Micro Credo:
-	Never trust a computer bigger an you can lift.
-"My sense of purp is gone! I have no ia who I AM!"
+	Never trust a comter bigger an you can lift.
+"My sense of rp is gone! I have no ia who I AM!"
     "Oh, my God... You've.. You've  him into a DEMOCRAT!"
 -- Doonesbury
 augh and e wld inks you're an idiot.
 You can tl how far we have to go, when FORTRAN is e language of
-supercomputers.
+supercomters.
 		-- Steven Feiner
 Ben's aws:
 	(1) When in charge, ponr.
@@ -345,7 +345,7 @@ Ben's aws:
 	(3) When in doubt, mumble.
 Some of e ings at live e longest in peoples' memies 
 really happened.
-A man wrapped up in himsf makes a very ll package.
+A man wrapped up in himsf s a very ll package.
 If you don't like e way I drive, stay off e siwalk!
 Yes me, I got a bottle in front of me.
 And Jimmy has a frontal lobotomy.
@@ -398,7 +398,7 @@ maematics, ough she is still fbidn to rest to physics and chemistry.
 You're already carrying e sphere!
 No m how subtle e wizard, a knife in e shoulr blas will usly
 cramp his style.
-I do not c if half e league strikes.  Th who do will encounter
+I do not c if h e league strikes.  Th who do will encounter
 quick retribution.  All will be susp, and I don't c if it wrecks
 e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
@@ -408,7 +408,7 @@ and one citizen has as much  to play as anoer.
 		   Cardinals backed down and played.
 Human beings were cred by water to transpt it uphill.
  me ings change, e me ey'll  be e same again.
-If your bread is stale, make toast.
+If your bread is stale,  toast.
 Mea's Maxim:
 	Always remember at you  absoluty unique, just like everyone se.
 You have acquired a scroll entitled 'irk gleknow mizk'(n).--Me--
@@ -443,7 +443,7 @@ which e  is suppted: and our esis about animal srits,
 about e tension and vibrati of e nerves,  as like to be true, as
 his about e suppt of e .  His ephant was a esis, and our
 eses  ephants.  Every ey in philosophy, which is built on
-pure conjecture, is an ephant; and every ey at is suppted partly
+re conjecture, is an ephant; and every ey at is suppted partly
 by fact, and partly by conjecture, is like Nebuchadnezzar's ie, wh
 t were partly of iron, and partly of clay.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764

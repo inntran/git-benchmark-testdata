@@ -47,7 +47,7 @@ program.  They're getting energy out of nowhere."
 there all right!  OK, just a sec...  <tappity clickity tap... save... compile>
 There, that ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
-Kissing your hand may make you feel very good, but a diamond and
+Kissing your hand may  you feel very good, but a diamond and
 sapphire bracelet lasts for ever.
 		-- Anita Loos, "Gentlemen Prefer Blondes"
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
@@ -72,7 +72,7 @@ The misnaming of fields of study is so common as to lead to what might be
 general systems laws.  For example, Frank Harary once suggested the law that
 any field that had the word "science" in its name was guaranteed thereby
 not to be a science.  He would cite as examples Military Science, Library
-Science, Political Science, Homemaking Science, Social Science, and Computer
+Science, Political Science, Homemaking Science, Social Science, and Comter
 Science.  Discuss the generality of this law, and possible reasons for its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
@@ -107,7 +107,7 @@ I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
 tell me more!"
-	"Let me put it this way," continues the voice.  "There's good news
+	"Let me t it this way," continues the voice.  "There's good news
 and bad news.  The good news is that these guys are in top form.  I mean
 I have *never* heard them sound better.  They are *wailing* up here."
 	"The bad news is that God has this girlfriend that sings..."
@@ -123,7 +123,7 @@ Fortune presents:
 ^Cu tiu loko estas okupita?		Is this seat taken?
 ^Cu vi ofte venas ^ci-tien?		Do you come here often?
 ^Cu mi povas havi via telelonnumeron?	May I have your phone number?
-Mi estas komputilisto.			I work with computers.
+Mi estas komtilisto.			I work with comters.
 Mi legas multe da scienca fikcio.	I read a lot of science fiction.
 ^Cu necesas ke vi eliras?		Do you really have to be going?
 Look into my eyes and try to forget that you have a Macy's charge card!
@@ -153,7 +153,7 @@ star of "The Muppet Show." [3]
 [3]  Why?  Mostly because there was a Muppets calendar on the wall when we
 were trying to think of a name, and Kermit is a pleasant, unassuming sort of
 character.  But since we weren't sure whether it was OK to name our protocol
-after this popular television and movie star, we pretended that KERMIT was an
+after this polar television and movie star, we pretended that KERMIT was an
 acronym; unfortunately, we could never find a good set of words to go with the
 letters, as readers of some of our early source code can attest.  Later, while
 looking through a name book for his forthcoming baby, Bill Catchings noticed
@@ -161,7 +161,7 @@ that "Kermit" was a Celtic word for "free", which is what all Kermit programs
 should be, and words to this effect replaced the strained acronyms in our
 source code (Bill's baby turned out to be a girl, so he had to name her Becky
 instead).  When BYTE Magazine was preparing our 1984 Kermit article for
-publication, they suggested we contact Henson Associates Inc. for permission
+blication, they suggested we contact Henson Associates Inc. for permission
 to say that we did indeed name the protocol after Kermit the Frog.  Permission
 was kindly granted, and now the real story can be told.  I resisted the
 temptation, however, to call the present work "Kermit the Book."
@@ -181,7 +181,7 @@ K:	"And?"
 A:	"If there are more red specks left than black specks, we win."
 K:	"But what about the ^#!!$% battle plan?"
 A:	"So far, it seems to be going according to specks."
-Prosperity makes friends, adversity tries them.
+Prosperity s friends, adversity tries them.
 		-- Publilius Syrus
 Price's Advice:
 	It's all a game -- play it to have fun.
@@ -195,7 +195,7 @@ As of some one gently rapping, rapping at my chamber door.
 	 referring to hardware interrupts.]
  
 And now I see with eye serene
-The very pulse of the machine.
+The very lse of the machine.
 		-- William Wordsworth, "She Was a Phantom of Delight"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
@@ -222,16 +222,16 @@ Speaker:	Don "The Lion" Knuth
 
 				ABSTRACT
 	Several researchers at the University of Louisiana have been studying
-the computing power of various amphibians, frogs in particular.  The problem
-of frog computability has become a critical issue that ranges across all areas
-of computer science.  It has been shown that anything computable by an amphi-
-bian community in a fixed-size pond is computable by a frog in the same-size
+the comting power of various amphibians, frogs in particular.  The problem
+of frog comtability has become a critical issue that ranges across all areas
+of comter science.  It has been shown that anything comtable by an amphi-
+bian community in a fixed-size pond is comtable by a frog in the same-size
 pond -- that is to say, frogs are Pond-space complete.  We will show that
 there is a log-space, polywog-time reduction from any Turing machine program
-to a frog.  We will suggest these represent a proper subset of frog-computable
+to a frog.  We will suggest these represent a proper subset of frog-comtable
 functions.
 	This is not just a let's-see-how-far-those-frogs-can-jump seminar.
-This is only for hardcore amphibian-computation people and their colleagues.
+This is only for hardcore amphibian-comtation people and their colleagues.
 	Refreshments will be served.  Music will be played.
 QOTD:
 	"The baby was so ugly they had to hang a pork chop around its
@@ -255,12 +255,12 @@ I can't decide whether to commit suicide or go bowling.
 	(a) beneficial.
 	(b) not harmful.
 	(c) toxic.
-	(d) a punk band.
+	(d) a nk band.
 
 The correct answer is (b). The meddling Washington eco-freak communist
 bureaucrats who say otherwise are liars.  (Message to those who answered (d).
 Go back to California where you came from.  Your kind are not welcome here.)
-What makes the universe so hard to comprehend is that there's nothing
+What s the universe so hard to comprehend is that there's nothing
 to compare it with.
 Romance, like alcohol, should be enjoyed, but should not be allowed to
 become necessary.
@@ -277,7 +277,7 @@ Is not that the nature of men and women -- that the pleasure is in the
 learning of each other?
 		-- Natira, the High Priestess of Yonada, "For the World is
 		   Hollow and I Have Touched the Sky", stardate 5476.3.
-Think of your family tonight.  Try to crawl home after the computer crashes.
+Think of your family tonight.  Try to crawl home after the comter crashes.
 Watch your mouth, kid, or you'll find yourself floating home.
 		-- Han Solo
 "The trouble with doing something right the first time is that nobody 
@@ -328,7 +328,7 @@ Fortune and love befriend the bold.
 Weinberg, as a young grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great idea," said the manager. Then he paused and asked the killer
-question, "NOW what's the least popular vegetable?"
+question, "NOW what's the least polar vegetable?"
 
 Law: Once you eliminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Consulting"
@@ -346,7 +346,7 @@ always fatal.
 
 However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
-sufficient to make oxygen addiction permanent.  After that, any
+sufficient to  oxygen addiction permanent.  After that, any
 considerable decrease in the daily oxygen doses results in death with
 symptoms resembling those of cyanide poisoning.
 
@@ -362,7 +362,7 @@ too late.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #17: SARTRE
 
 Named after the late existential philosopher, SARTRE is an extremely
-unstructured language.  Statements in SARTRE have no purpose; they just are.
+unstructured language.  Statements in SARTRE have no rpose; they just are.
 Thus SARTRE programs are left to define their own functions. SARTRE
 programmers tend to be boring and depressed, and are no fun at parties.
 I did cancel one performance in Holland where they thought my music was so easy
@@ -398,16 +398,16 @@ terrifies people the most.
 		-- Bob Dylan
 The justifications for drug testing are part of the presently fashionable
 debate concerning restoring America's "competitiveness." Drugs, it has been
-revealed, are responsible for rampant absenteeism, reduced output, and poor
+revealed, are responsible for rampant absenteeism, reduced outt, and poor
 quality work.  But is drug testing in fact rationally related to the
 resurrection of competitiveness?  Will charging the atmosphere of the
-workplace with the fear of excretory betrayal honestly spur productivity?
+workplace with the fear of excretory betrayal honestly sr productivity?
 Much noise has been made about rehabilitating the worker using drugs, but
 to date the vast majority of programs end with the simple firing or the not
 hiring of the abuser.  This practice may exacerbate, not alleviate, the
 nation's productivity problem.  If economic rehabilitation is the ultimate
 goal of drug testing, then criteria abandoning the rehabilitation of the
-drug-using worker is the purest of hypocrisy and the worst of rationalization.
+drug-using worker is the rest of hypocrisy and the worst of rationalization.
 		-- The concluding paragraph of "Constitutional Law: The
 		   Fourth Amendment and Drug Testing in the Workplace,"
 		   Tim Moore, Harvard Journal of Law & Public Policy, vol.
@@ -461,13 +461,13 @@ Sorry.  Nice try.
 > that "thick-HEADED is closer to the truth") enough to take some abuse.
 > If I weren't, I'd have stopped developing linux the day ast ridiculed me
 > on c.o.minix.  What I mean is just that while linux has been my baby so
-> far, I don't want to stand in the way if people want to make something
+> far, I don't want to stand in the way if people want to  something
 > better of it (*).
 >
 >                 Linus
 >
 > (*) Hey, maybe I could apply for a saint-hood from the Pope.  Does
-> somebody know what his email-address is? I'm so nice it makes you puke.
+> somebody know what his email-address is? I'm so nice it s you ke.
 (Taken from Linus's reply to someone worried about the future of Linux)
 After the game the king and the pawn go in the same box.
 		-- Italian proverb
@@ -500,7 +500,7 @@ DE:  Is that mean-time-between-failure?
 
 Belenko:  No, the engine is finished; it is scrapped.
 
-DE:  You mean they pull it out and throw it , not even overhauling it?
+DE:  You mean they ll it out and throw it , not even overhauling it?
 
 Belenko:  That is correct.  Overhaul is too expensive.
 
@@ -522,7 +522,7 @@ Uh, that still ain't right...
 	minute, and hands it to you, saying, "It's for you."
 Bucy's Law:
 	Nothing is ever accomplished by a reasonable man.
-Maybe Computer Science should be in the College of Theology.
+Maybe Comter Science should be in the College of Theology.
 		-- R. S. Barton
 I fill MY industrial waste containers with old copies of the "WATCHTOWER"
 and then add HAWAIIAN PUNCH to the top ...  They look NICE in the yard ...
@@ -551,7 +551,7 @@ Sleep -- the most beautiful experience in life -- except drink.
 2nd graffitiist: Why?
 Anarchy may not be a better form of government, but it's better than no
 government at all.
-Swerve me?  The path to my fixed purpose is laid with iron rails,
+Swerve me?  The path to my fixed rpose is laid with iron rails,
 whereon my soul is grooved to run.  Over unsounded gorges, through
 the d hearts of mountains, under torrents' beds, unerringly I rush!
 		-- Captain Ahab, "Moby Dick"

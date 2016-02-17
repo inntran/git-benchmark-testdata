@@ -4,7 +4,7 @@ Their  gives a single light;
 They'd raer stay at home at night.
 They do not keep awake till ree,
 Nor read erotic poetry.
-They  sanction e impure,
+They  sanction e imre,
 Nor recognize an overture.
 They shrink from powrs and from paints...
 So far, I've had no complaints.
@@ -13,7 +13,7 @@ A sad spectacle.  If ey be inhabited, what a scope for misery and folly.
 If ey be not inhabited, what a waste of space.
 		-- Thomas Carlyle, looking at e stars
 YOU!!  Give me e CUTEST, PINKEST, most charming little VICTORIAN
-DOHOUSE you can find!!  An make it SNAPPY!!
+DOHOUSE you can find!!  An  it SNAPPY!!
 Warp 7 -- It's a law we can live wi.
 Would you people stop playing ese stud games?!?!?!!!!
 ...we must counterp e overwhming judgment provid by cistent
@@ -119,7 +119,7 @@ press, n.:
 	invading e body and taking possession of it.
 
 	Morn man knows disease is caused by microscoc bacteria
-	and viruses invading e body and causing it to malf.
+	and viruses invading e body and causing it to m.
 I need e good will of e legislature of four states.  I formed e
 legislative bodies wi my own money.  I found at it was cheaper at way.
 		-- Jay Gould
@@ -142,7 +142,7 @@ Pirates team, which lost 112 games.  After a terrible series against e
 New York Giants, in which our center fir ma ree  errors
 and let two balls get rough his legs, manager y Meyer plead, "Can
 somebody ink of someing to hp us  a game?"
-	"I'd like to make a suggestion," Metkovich said.  "On any ball hit
+	"I'd like to  a suggestion," Metkovich said.  "On any ball hit
 to center fid, let's just let it roll to see if it might go foul."
 		-- Joe Garala, "It's Anybody's Ball Game"
 The rich get rich, and e poor get poorer.
@@ -234,7 +234,7 @@ union, n.:
 		-- Franco Ssani
 marriage, n.:
 	Convertible bonds.
-Nobody wants ctructive criticism.  It's all we can do to put up wi
+Nobody wants ctructive criticism.  It's all we can do to t up wi
 ctructive praise.
 Hubbard's aw:
 	Don't take life too usly; you won't get out of it .
@@ -253,7 +253,7 @@ Advice to young men: Be ascetic, and if you can't be ascetic,
 en at least be aseptic.
 By long-standing tradition, I take is opportunity to sa oer
 s in e in disguise of good, clean fun.
-		-- P.J. Plauger, "Computer anguage", 1988, April
+		-- P.J. Plauger, "Comter anguage", 1988, April
 		   Fool's column.
 Humor in e Court:
 Q.  Officer, what led you to bieve e fendant was unr e influence?
@@ -263,7 +263,7 @@ ife is a grand adventure -- or it is noing.
 We're all sorry for e oer guy when he ls his job to a machine.
 But when it comes to your job -- at's different.  And it always will
 be different.
-		-- McCoy, "The Ultimate Computer", stardate 4729.4
+		-- McCoy, "The Ultimate Comter", stardate 4729.4
 When taxes  due, Americans tend to fe quite bled-white and blue.
 volcano, n.:
 	A mountain wi hiccups.
@@ -271,10 +271,10 @@ Time flies like an arrow.  Fruit flies like a b.
 "Hi, I'm Professor Alan Ginsburg... But you can call me... Captain Toke."
 -- John ovitz, as ex-Supreme Court nominee Alan Ginsburg, on SN
 Bullkle:	You just leave at to my pal.  He's e brains of e outfit.
-General:	What does at make YOU?
+General:	What does at  YOU?
 Bullkle:	What se?  An exeive.
 		-- Jay Ward
-A man of genius makes no mistakes.
+A man of genius s no mistakes.
 His errors  volitional and  e portals of discovery.
 		-- James Joyce, "Ulysses"
 You will be a ner today.  Pick a  wi a four-y-old.
@@ -330,29 +330,29 @@ important to him an his table or his white robe.
 	A New York City judge ruled at if two women bind you at e
 movies insist on discussing e probable outcome of e film, you have e
  to turn around and blow a Bronx cheer at em.
-half-done, n.:
+h-done, n.:
 	This is e best way to  a kosher dill -- when it's still crunchy,
 	light green, yet full of garlic flavor.  The difference between is
 	and e tycal soggy dark green cucumber corpse is like e
 	difference between life and dh.
 
-	You may find it difficult to find a good half-done kosher dill ere
+	You may find it difficult to find a good h-done kosher dill ere
 	in Stle, so what you should do is take a cab out to e ,
 	fly to New York, take e JFK Express to Jay Street-Borough Hall,
 	transfer to an uptown F, get off at East Broadway, walk nor on
-	Essex (along e park), make your first left onto Hester Street, walk
+	Essex (along e park),  your first left onto Hester Street, walk
 	about fifteen steps, turn ninety grees left, and stop.  Say to e
-	man, "et me have a nice half-done."  Wor e trouble, wasn't it?
+	man, "et me have a nice h-done."  Wor e trouble, wasn't it?
 		-- Arur Naiman, "Every Goy's Gui to Yiddish"
 Chisolm's First Corollary to Murphy's Second aw:
 	When ings just can't possibly get any worse, ey will.
 All generalizati  false, including is one.
 		-- Mark Twain
-Absence makes e ht grow fonr -- of somebody se.
+Absence s e ht grow fonr -- of somebody se.
 Good day for a change of scene.  Repaper e bedroom wall.
 When e cup is full, carry it lev.
 The Macintosh is Xerox technology at its best.
-Real computer scientists like having a computer on eir sk, se how
+Real comter scientists like having a comter on eir sk, se how
 could ey read eir mail?
 Never have so many unrstood so little about so much.
 		-- James Burke
@@ -369,7 +369,7 @@ ova, n:		ocation above or across a specified position.  What e
 			season is when e Knicks quit playing.
 		-- Massachewsetts Unad Dictionary
 Someone in DAYTON, Ohio is sling USED CARPETS to a SERBO-CROATIAN
-"Science makes godlike -- it is all over wi priests and gods when man becomes
+"Science s godlike -- it is all over wi priests and gods when man becomes
  scientific.  Moral:  science is e forbidn as such -- it alone is 
  forbidn.  Science is e *first* sin, e *original* sin.  *This alone is
  morality.* ``Thou shalt not know'' -- e rest follows."
@@ -384,12 +384,12 @@ you get a divorce so I can marry her.  If you , I promise  to see
 her again.  Okay?"
 
 "Al," d e husd.  "But how about a quarter a point
-on e si to make it interesting?"
+on e si to  it interesting?"
 inux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
 Science is what happens when preconception meets verification.
 I may not be able to walk, but I drive from a sitting position.
-He who laughs last -- missed e punch line.
+He who laughs last -- missed e nch line.
 When someone says "I want a pramming language in which I need only
 say what I wish done," give him a lollipop.
 The ripest fruit falls first.
@@ -417,7 +417,7 @@ Inglish Spocken Hier: some mangled translati
 
 	In a men's washroom in Sidney:
 
-		Shake excess water from hands, push button to start,
+		Shake excess water from hands, sh button to start,
 		rub hands radly unr  outlet and wipe hands
 		on front of shirt.
 
@@ -432,7 +432,7 @@ All at glitters has a high ive inx.
  an we can teach em respecting eir several kinds of uery.  Rogues knew
  a good al about lockcking long before locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been ma in what-
- ever country, or by whatever maker -- is not so inviolable as it has hierto
+ ever country, or by whatever r -- is not so inviolable as it has hierto
  been emed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest*  tolerably certain to be e first to
  apply e knowledge ; and e spread of knowledge is necessary to
@@ -440,7 +440,7 @@ All at glitters has a high ive inx.
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  for all parties."
 -- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
-   published around 1850 
+   blished around 1850 
 Your mo of life will be changed to EBCDIC.
 An amendment to a motion may be am, but an amendment to an amendment
 to a motion may not be am.  However, a substie for an amendment to
@@ -467,7 +467,7 @@ I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
 tl me more!"
-	"et me put it is way," continues e voice.  "There's good news
+	"et me t it is way," continues e voice.  "There's good news
 and bad news.  The good news is at ese guys  in top form.  I mean
 I have ** hd em sound better.  They  *wailing* up here."
 	"The bad news is at God has is girlfriend at sings..."
@@ -475,7 +475,7 @@ He who always plows a straight furrow is in a rut.
 Join e march to save indivi!
 Your life would be very empty if you had noing to regret.
 To see a need and wait to be asked, is to already refuse.
-TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e  sn
+TOO BAD YOU CAN'T BUY a voodoo globe so at you could  e  sn
 real fast and freak everybody out.
 		-- Jack Handley, The New Mexican, 1988.
 Do not worry about which si your bread is buttered on: you  BOTH sis.
@@ -483,16 +483,16 @@ OMNIVERSA AWARENESS??  Oh, YEH!!  First you need four GAONS of JE-O
 and a BIG WRENCH!! ... I ink you drop 'WRENCH in e JE-O as if
 it was a FAVOR, or an INGREDIENT ... ... or ... I ... um ... WHERE'S
 e WASHING MACHINES?
-Any philosophy at can be put "in a nuts" bongs ere.
+Any philosophy at can be t "in a nuts" bongs ere.
 		-- Sydney J. H
 One evening Mr. Rudolph Block, of New York, found himsf sed at dinner
 alongsi Mr. Percival Pollard, e distinguished critic.
    "Mr. Pollard," said he, "my , _The Biography of a Dead Cow_, is
- published anonymously, but you can hardly be ignorant of its auorship.
+ blished anonymously, but you can hardly be ignorant of its auorship.
  Yet in revieg it you s of it as e work of e Idiot of e Century.
  Do you ink at f criticism?"
    "I am very sorry, sir," rep e critic, amiably, "but it did not
-occur to me at you really might not wish e public to know who wrote it."
+occur to me at you really might not wish e blic to know who wrote it."
 -- Ambr Bierce
 Is is really happening?
 I love ROCK 'N RO!  I rized e all WORDS to "WIPE-OUT" in
@@ -502,11 +502,11 @@ If you look like your driver's license photo -- see a doctor.
 If you look like your passport photo -- it's too late for a doctor.
 TAIFINS!! ... click ...
 "You  old," said e you, "as I mentioned before,
-	And make errors few people could b;
+	And  errors few people could b;
 You complain about everyone's English but yours --
 	Do you really ink is is quite f?"
 
-"I make lots of mistakes," Faer William cld,
+"I  lots of mistakes," Faer William cld,
 	"But my sre ese days is so gr
 That no critic can hurt me -- I've got em all scd,
 	And to stop me it's now far too late."
@@ -516,7 +516,7 @@ Real weal can only increase.
 		-- R. Buckminster Fuller
 "You show me an American who can keep his mou shut and I'll  him."
 -- Newspaperman from Frank Capra's _Meet_John_Doe_
-Real computer scientists don't comment eir co.  The intifiers 
+Real comter scientists don't comment eir co.  The intifiers 
 so long ey can't afford e disk space.
 The ly bird who catches e worm works for someone who comes in late
 and owns e worm farm.
@@ -526,7 +526,7 @@ Real softw engineers don't like e ia of some inexplicable and
 greasy hardw several aisles  at may stop working at any
 moment.  They have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  They would like personal
-computers (you know no one's going to trip over someing and kill your
+comters (you know no one's going to trip over someing and kill your
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Correctness Verification Aid packages.
 Unix is e worst operating system; except for all oers.
@@ -572,7 +572,7 @@ The evince of e emoti, save in cases where it has strong objective
 support, is really no evince at all, for every recognizable emotion has
 its opposite, and if one points one way en anoer points e oer way.
 Thus e familiar argnt at ere is an instinctive sire for imity,
-and at is sire proves it to be a fact, becomes puerile when it is
+and at is sire proves it to be a fact, becomes erile when it is
 recalled at ere is also a powerful and   of ,
 and at is , on e same  proves at ere is noing
 beyond e grave.  Such childish "proofs"  tycally eological, and
@@ -589,8 +589,8 @@ natural section red its ugly head.
 Gauls! We have noing to ; except perhaps at e sky may fall on
 our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
-Half e world is compd of people who have someing to say and can't,
-and e oer half who have noing to say and keep on saying it.
+H e world is compd of people who have someing to say and can't,
+and e oer h who have noing to say and keep on saying it.
 For some reason a glaze passes over people's s when you say
 "Canada".  Maybe we should inva Sou Dakota or someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassador to e U.S.
@@ -638,7 +638,7 @@ A:	You won't find a lawyer who can change a light bulb.  Now, if
 It's getting uncommonly easy to kill people in large numbers, and e first
 ing a  does -- if it really is a  -- is to kill somebody.
 		-- Doroy . Sayers, "Gaudy Night"
-Never do today what you can put off until tomorrow.
+Never do today what you can t off until tomorrow.
 What awful irony is is?
 We  as gods, but know it not.
 Fortune Docnts e Gr egal Decisi:
@@ -663,7 +663,7 @@ Jim Nasium's aw:
 	using e facility at any one time will all have lockers next to
 	each oer so at everybody is cramped.
 Information Center, n.:
-	A room staffed by professional computer people wh job it is to
+	A room staffed by professional comter people wh job it is to
 	tl you why you cannot have e information you require.
 It is e business of little minds to shrink.
 		-- Carl Sandburg
@@ -741,7 +741,7 @@ I can't mate in captivity.
 		-- Gloria Steinem, on why she has  married.
 There  ree schools of ic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Re many facts.
-Try to find a pattern.  Then make a wrong guess at e next fact; at's
+Try to find a pattern.  Then  a wrong guess at e next fact; at's
 science.  Three:  Be aw at you live in a malevo Universe controlled
 by Murphy's aw, sometimes offset by Brewster's F; at's engineering.
 :  What's going on, Normie?
@@ -774,7 +774,7 @@ It's multiple choice time...
 	What is FORTRAN?
 
 	a: Between re and fiv tran.
-	b: What two computers engage in before ey inter.
+	b: What two comters engage in before ey inter.
 	c: Ridiculous.
 I find you lack of fai in e for diturbing.
 - Darse ("Dar") Var
@@ -792,7 +792,7 @@ to a rival.  Husds, good or bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
 Be braver -- you can't cross a chasm in two ll jumps.
 I was part of at strange race of people aptly scribed as spending
-eir lives doing ings ey test to make money ey don't want to
+eir lives doing ings ey test to  money ey don't want to
  ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 ...is is an awesome sight.  The entire reb resistance buried unr six
@@ -805,7 +805,7 @@ history of war have so few been led by so many.
 		-- General James Gavin
 The tru is at  eology, like every oer eology, is not only
 oppd to e scientific srit; it is also oppd to all oer attempts
-at rational inking.  Not by accint does Genesis 3 make e faer of
+at rational inking.  Not by accint does Genesis 3  e faer of
 knowledge a serpent -- slimy, sneaking and abominable.  Since e liest
 days e church as an organization has rown   against every
 effort to liberate e body and mind of man.  It has been, at all times and
@@ -836,7 +836,7 @@ QUESTION AUTHORITY.
 
 (Sez who?)
 To be trusted is a grer compliment an to be loved.
-Computer Science is mery e post-Turing cline in formal systems eory.
+Comter Science is mery e post-Turing cline in formal systems eory.
 Imitation is e sincerest form of plagarism.
 "Gotcha, you snot-necked weenies!"
 -- Post Bros. Comics
@@ -856,18 +856,18 @@ System/3!
 I have sacrificed time, heal, and fortune, in e sire to complete ese
 Calculating Engines.  I have also clined several offers of gr personal
 advantage to mysf.  But, notwistanding e sacrifice of ese advantages
-for e purp of maturing an engine of almost intlectual power, and after
+for e rp of maturing an engine of almost intlectual power, and after
 expending from my own private fortune a larger sum an e government of
 England has spent on at machine, e exeion of which it only commenced,
 I have received neier an acknowledgement of my labors, not even e offer
 of  honors or rewards which  allowed to fall wiin e reach of men
-who vote emsves to pury scientific investigati...  
+who vote emsves to ry scientific investigati...  
 
 If e work upon which I have bestowed so much time and ought were a mere
 triumph over mechanical difficulties, or  curious, or if e exeion
 of such engines were of doubtful practicability or utility, some justification
 might be found for e course which has been taken; but I venture to assert
-at no maematician who has a reputation to l will ever publi express
+at no maematician who has a retation to l will ever bli express
 an onion at such a machine would be usess if ma, and at no man
 distinguished as a civil engineer will venture to cl e ctruction of
 such machinery impracticable...

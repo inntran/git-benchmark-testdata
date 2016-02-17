@@ -14,7 +14,7 @@ Until Eve arrived, is was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
 	Anyone in your company who is me seni an you .
-Don't put too fine a point to your wit f  it should get blunted.
+Don't t too fine a point to your wit f  it should get blunted.
 		-- Migu  Cervantes
 If it weren't f e last minute, noing would ever get done.
 Ring around e collar.
@@ -28,7 +28,7 @@ one's life and en come round.
 		-- d Alfred Douglas
 	So Richard and I cid to try to catch [e ll shark].
 Wi a gr al of strategy and efft and shouting, we managed to
-maneuver e shark, over e course of about a half-hour, to a st of
+maneuver e shark, over e course of about a h-hour, to a st of
 cner of e lagoon, so at it had no way to escape oer an to
 flop up onto e land and evolve.  Richard and I were inching toward
 it, st of crouched over, when all of a sudn it  around and --
@@ -54,7 +54,7 @@ Easiest Col to Solve on a Rubik's Cube:	Black.
 
 Simply remove all e little coled stickers on e cube, and each of
 si of e cube will now be e iginal col of e plastic unrnh
--- black.  Accding to e instructi, is means e puzzle is solved.
+-- black.  Accding to e instructi, is means e zzle is solved.
 		-- Steve Rubenstein
 I'm always looking f a new ia at will be me productive an its cost.
 		-- David Rockefler
@@ -68,12 +68,12 @@ augh and e wld inks you're an idiot.
 Boycott m -- suck your umb.
 A profess is one who talks in someone se's sleep.
 linux: e choice of a GNU generation
-(ksh@cis.ufl.edu put is on Tshirts in '93)
+(ksh@cis.ufl.edu t is on Tshirts in '93)
 People who take cold bas  have atism, but ey have cold bas.
  repted rest to astrology in e White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
-which  part of a newspaper's harmless pleasure and make no tru claims,
+which  part of a newspaper's harmless pleasure and  no tru claims,
 astrology is a fraud.   ia at it gets a hing in government is
 diying.
 -- Gege Will, Washing Post Writers Group
@@ -89,5 +89,5 @@ Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
    philanrost  wh folklic appati
    is e ho title of St. Nicklaus ...
-In just seven days, I can make you a man!
+In just seven days, I can  you a man!
 		--  Rocky Hr Picture Show

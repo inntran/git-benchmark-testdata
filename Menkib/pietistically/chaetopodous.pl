@@ -1,4 +1,4 @@
-Vote for ME -- I'm wl-tapered, half-cocked, ill-conceived and TAX-DEFERRED!
+Vote for ME -- I'm wl-tapered, h-cocked, ill-conceived and TAX-DEFERRED!
 Toothpaste  hurts the taste of good scotch.
 The difference between science and the fuzzy subjects is that science
 requires reasoning while th other subjects mery require scholarship.
@@ -13,13 +13,13 @@ Seven:  One to install the new bulb, and six to termine what to do
 Hollywood is where if you don't have happiness you send out for it.
 		-- Rex Reed
 You will be successful in love.
-"I think the sky is blue because it's a shift from black through purple
+"I think the sky is blue because it's a shift from black through rple
 to blue, and it has to do with where the light is.  You know, the
 farther we get into darkness, and there's a  of color of light
 into the blueness, and I think as you go farther and farther  from
 the reflected light we have from the sun or the light that's bouncing
 off this th, uh, the darker it gets ... I think if you look at the
-color scale, you start at black, move it through purple, move it on
+color scale, you start at black, move it through rple, move it on
 out, it's the  of color.  We mentioned before about the stars
 singing, and that's one of the effects of the  of colors."
 		-- Pat Robertson, The 700 Club
@@ -27,12 +27,12 @@ How do I get HOME?
 We Kling bieve as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
-The computer industry is journalists in their 20's standing in awe of
+The comter industry is journalists in their 20's standing in awe of
 entrepreneurs in their 30's who  hiring smen in their 40's and
 50's and paying them in the 60's and 70's to bring their marketing into
 the 80's.
 		-- Marty Winston
-Many pages make a thick , except for pocket Bibles which  on very
+Many pages  a thick , except for pocket Bibles which  on very
 very thin paper.
 Illegal aliens have always been a problem in the United States. Ask any Indian.
 		-- Robert Orben
@@ -44,15 +44,15 @@ most happily married and continue in that state with the utmost contentment,
 it does not necessarily follow that he has therefore been struck stone-blind.
 		-- H. Warner Munn
 I'm proud to be paying taxes in the United States.  The only thing is
--- I could be just as proud for half the money.
+-- I could be just as proud for h the money.
 		-- Arthur Godfrey
 Cultant, n.:
 	Someone who'd rather climb a tree and tl a lie than stand on
 	the ground and tl the truth.
 Revolution, n.:
 	A form of government abroad.
-Twenty ys of romance make a woman look like a ruin; but twenty ys of
-marriage make her something like a public building.
+Twenty ys of romance  a woman look like a ruin; but twenty ys of
+marriage  her something like a blic building.
 		-- Oscar Wil
 The mature bohemian is one wh woman works full time.
 He's been like a father to me,
@@ -97,7 +97,7 @@ the artistry of it.  These men  better than I'd thought.  Their insults
 aths.
 - David Brin, Starti Rising
 This week only, all our fiber-fill jackets  marked down!
-Q:  What's the difference between a car n and a computer
+Q:  What's the difference between a car n and a comter
     n?
 
 A:  The car n can probably drive!
@@ -105,7 +105,7 @@ A:  The car n can probably drive!
 -- Joan McGalliard (jem@latcs1.oz.au)
 	So Richard and I cid to try to catch [the ll shark].
 With a great al of strategy and effort and shouting, we managed to
-maneuver the shark, over the course of about a half-hour, to a sort of
+maneuver the shark, over the course of about a h-hour, to a sort of
 corner of the lagoon, so that it had no way to escape other than to
 flop up onto the land and evolve.  Richard and I were inching toward
 it, sort of crouched over, when all of a sudn it turned around and --
@@ -203,15 +203,15 @@ Sleep -- the most beautiful experience in life -- except drink.
 		-- W.C. Fids
 Art is anything you can get  with.
 		-- Marshall Mcuhan.
-You're always thinking you're gonna be the one that makes 'em act different.
+You're always thinking you're gonna be the one that s 'em act different.
 		-- Woody Allen, "Manhattan"
 Murr is contrary to the laws of man and God.
-		-- M-5 Computer, "The Ultimate Computer", stardate 4731.3
-Do you know, I think that Dr. Swift was silly to laugh about aputa.  I
-bieve it is a mistake to make a mock of people, just because they think.
+		-- M-5 Comter, "The Ultimate Comter", stardate 4731.3
+Do you know, I think that Dr. Swift was silly to laugh about ata.  I
+bieve it is a mistake to  a mock of people, just because they think.
 There  ninety thousand people in this world who do not think, for every
 one who does, and these people hate the thinkers like poison.  Even if some
-thinkers  fanciful, it is wrong to make fun of them for it.  Better to
+thinkers  fanciful, it is wrong to  fun of them for it.  Better to
 think about cucumbers even, than not to think at all.
 		-- T.H. White
 Sing as someone who has dved into the intricacies of P/I, I am sure
@@ -223,7 +223,7 @@ parameter and reallocate it before passing it back?  Overlay three different
 types of variable on the same memory location?  Anything you say!  Write a
 recursive macro?  Wl, no, but Real Men use rescan.  How could a language
 so obviously signed and written by Real Men not be intend for Real Man use?
-	A pushy romeo asked a gorgeous evator operator, "Don't all these
+	A shy romeo asked a gorgeous evator operator, "Don't all these
 stops and starts get you pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 Happiness is a hard disk.
@@ -250,7 +250,7 @@ Always n
 Blue canary in the outlet by the light switch
 Who watches over you
 Make a little birdhouse in your soul
-Not to put too fine a point on it
+Not to t too fine a point on it
 Say I'm the only bee in your bonnet
 Make a little birdhouse in your soul
 		-- "Birdhouse in your Soul", They Might Be Giants
@@ -302,7 +302,7 @@ Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
 	 all mery transforms of one another.  This combined with
-	minimalization of open-loop errors in output amplifiers and correct
+	minimalization of open-loop errors in outt amplifiers and correct
 	compensation for non-lin passive crossover network loading can
 	lead to a sigant crease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
@@ -341,7 +341,7 @@ You know you're in trouble when...
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax check bounces.
-(4)	You put both contact lenses in the same eye.
+(4)	You t both contact lenses in the same eye.
 (5)	Your wife says, "Good morning, Bill" and your name is George.
 (6)	You wake up to the soothing sound of flowing water... the day
 		after you bought a waterbed.
@@ -354,7 +354,7 @@ I am firm.  You  obstinate.  He is a pig-head fool.
 It was one of th perfect summer days -- the sun was shining, a breeze
 was blowing, the birds were singing, and the lawn mower was broken ...
 		--- James Dent
-If you teach your children to like computers and to know how to gamble
+If you teach your children to like comters and to know how to gamble
 then they'll always be interested in something and won't come to no real harm.
 XXXI:
 	The optimum committee has no members.
@@ -454,7 +454,7 @@ Save the whales.  Collect the whole set.
 >from time to time threaten freedoms everyhere... Ined, it is difficult
 to appreciate how far our freedoms might have erod had it not been for the
 Union's valiant representation in the courts of the ctiional s
-of people of all persuasi, no matter how unpopular or even spised
+of people of all persuasi, no matter how unpolar or even spised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 If the s of X-window built cars, there would be no fewer than five
@@ -464,7 +464,7 @@ feature, that.
 		-- From the pramming notes of a heretic, 1990.
 Gold coast slave ship bound for cotton fids
 Sold in a market down in New Orleans
-Scarred old slaver knows he's doing al
+Scarred old s knows he's doing al
 H him whip the women, just around midnight
 
 Ah, brown sugar how come you taste so good?
@@ -483,7 +483,7 @@ You should have hd me just around midnight.
 I want the presincy so bad I can already taste the hors d'oeuvres.
 An expert is one who knows more and more about less and less until he knows
 absoluty everything about nothing.
-Whatever women do they must do twice as wl as men to be thought half
+Whatever women do they must do twice as wl as men to be thought h
 as good.  uckily this is not difficult.
 		-- Charlotte Whitton
 After all my erstwhile d,
@@ -534,13 +534,13 @@ sury not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
-No one may kill a man.  Not for any purp.  It cannot be condoned.
+No one may kill a man.  Not for any rp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
-Iine that Cray computer cis to make a personal computer.  It has
+Iine that Cray comter cis to  a personal comter.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
 storage, a screen resolution of 4096 x 4096 pixs, ries entiry on
-voice recognition for input, fits in your shirt pocket and costs $300.
-What's the first question that the computer community asks?
+voice recognition for int, fits in your shirt pocket and costs $300.
+What's the first question that the comter community asks?
 
 "Is it PC compatible?"
 I used to get high on life but laty I've built up a resistance.
@@ -553,10 +553,10 @@ When Alexanr Graham Bl died in 1922, the tephone people interrupted
 service for one minute in his honor.  They've been honoring him intermittently
 ever since, I bieve.
 		-- The Grab Bag
-"We scientists, wh tragic stiny it has been to make the methods of
+"We scientists, wh tragic stiny it has been to  the methods of
 annihilation ever more gruesome and more effective, must cir it our solemn
 and transcennt duty to do all in our power in preventing these weap from
-being used for the brutal purp for which they were invented." 
+being used for the brutal rp for which they were invented." 
 -- Albert Einstein, Bulletin of Atomic Scientists, September 1948
 Being a miner, as soon as you're too old and tired and sick and stupid to
 do your job properly, you have to go, where the very opposite applies with
@@ -575,7 +575,7 @@ Moore's Ctant:
 Chaos is King and Magic is lo in the world.
 Data, n.:
 	An accrual of straws on the backs of theories.
-Straw?  No, too stupid a fad.  I put soot on warts.
+Straw?  No, too stupid a fad.  I t soot on warts.
 The adjective is the banana pe of the parts of speech.
 		-- Clifton Fadiman
 You  the only person to ever get this message.
@@ -605,7 +605,7 @@ will be given to candidates who sf-actualise.
 
 	(1) Comp and contrast Pink Floyd with Black Sabbath and say why
 	    neither has street credibility.
-	(2) "Even Buddha would have been hard pushed to reach Nirvana squatting
+	(2) "Even Buddha would have been hard shed to reach Nirvana squatting
 	    on a juggernaut route."  Cir the dialectic of inner truth
 	    and inner city.
 	(3) Discuss gree of hassle involved in paranoia about being sucked
@@ -654,7 +654,7 @@ that I do without being command what others do only from f of the law.
 		-- Aristotle
 "ittle se matters than to write good co."
 -- Karl ehenbauer
-The time is  to make new friends.
+The time is  to  new friends.
 There  two ways of disliking poetry; one way is to  it, the
 other is to read Pope.
 		-- Oscar Wil
@@ -671,9 +671,9 @@ With goln base and snowy cap.
 The stuff that I can drink all day
 Until my mem'ry mts .
 Poems  ma by fools, I f
-But only Schlitz can make a beer.
+But only Schlitz can  a beer.
 The sum of the Universe is zero.
-The reason computer chips  so ll is computers don't eat much.
+The reason comter chips  so ll is comters don't eat much.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
 		-- W.C. Bennett
@@ -760,11 +760,11 @@ to be going 65 MPH by the end of my driveway.
 I replaced the headlights in my car with strobe lights.  Now it looks
 like I'm the only one moving.
 
-I was pulled over for speeding today.  The officer said, "Don't you know
+I was lled over for speeding today.  The officer said, "Don't you know
 the speed limit is 55 miles an hour?"  And I said, "Yes, but I wasn't going
 to be out that long."
 
-I put a new engine in my car, but didn't take the old one out.  Now
+I t a new engine in my car, but didn't take the old one out.  Now
 my car goes 500 miles an hour.
 		-- Steven W
 There is no realizable power that man cannot, in time, fashion the tools
@@ -782,7 +782,7 @@ Junior, what  you up to?"
 	"I'm writing a dissertation on how rabbits eat foxes," said the
 rabbit.
 	"Come now, friend rabbit, you know that's impossible!  No one
-will publish such rubbish!"
+will blish such rubbish!"
 	"Wl, follow me and I'll show you."
 	They both go into the rabbit's dwling and after a while the
 rabbit emerges with a satisfied expression on his .  Comes along a
@@ -808,11 +808,11 @@ A:	Twist its trunk until it turns blue, then shoot it with
 Some s  to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
-	[As anyone who has ever owned a puppy already knows.  Ed.]
+	[As anyone who has ever owned a ppy already knows.  Ed.]
 Visit beautiful Wiscin Dls.
 I'm not in' the women  foolish: God Almighty ma 'em to match the men.
 		-- George Eliot
-I have stripped off my dress; must I put it on again?  I have washed my feet;
+I have stripped off my dress; must I t it on again?  I have washed my feet;
 must I  them again?
 When my boved slipped his hand through the latch-hole, my bows stirred
 within me [my bows were moved for him (KJV)].
@@ -839,7 +839,7 @@ saloonkeepers were Democrats.
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
 Is ath  binding?
-I put the shotgun in an Adidas bag and padd it out with four pairs of tennis
+I t the shotgun in an Adidas bag and padd it out with four pairs of tennis
 socks, not my style at all, but that was what I was aiming for:  If they think
 you're cru, go technical; if they think you're technical, go cru.  I'm a
 very technical boy.  So I cid to get as cru as possible.  These days,
@@ -864,7 +864,7 @@ I'm free -- and freedom tastes of reality.
 I think we're all Bozos on this bus.
 		-- Firesign Theatre
 <<<<< EVACUATION ROUTE <<<<<
-When you know absoluty nothing about the topic, make your forecast by
+When you know absoluty nothing about the topic,  your forecast by
 asking a cfully sected probability sample of 300 others who don't
 know the answer either.
 		-- Edgar R. Fiedler
@@ -875,7 +875,7 @@ Boy!  Eucalyptus!
 >from time to time threaten freedoms everyhere... Ined, it is difficult
 to appreciate how far our freedoms might have erod had it not been for the
 Union's valiant representation in the courts of the ctiional s
-of people of all persuasi, no matter how unpopular or even spised
+of people of all persuasi, no matter how unpolar or even spised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 Blore's Razor:
@@ -884,7 +884,7 @@ Beggars should be no chors.
 		-- John Heywood
 Fly Windows NT:
 All the passengers carry their seats out onto the tarmac, placing the chairs
-in the outline of a plane. They all sit down, flap their arms and make jet
+in the outline of a plane. They all sit down, flap their arms and  jet
 swooshing sounds as if they  flying.
 This wasn't just plain terrible, this was fancy terrible.  This was terrible
 with raisins in it.
@@ -903,7 +903,7 @@ A section from the Taoist Writings:
  of benevolence and eousness.'"
 -- Kwang-tzu
 Th who can, do; th who can't, simulate.
-I think I'm schizophrenic.  One half of me's paranoid and the other half's
+I think I'm schizophrenic.  One h of me's paranoid and the other h's
 out to get him.
 QOTD:
 	I'm not a nerd -- I'm "socially challenged".

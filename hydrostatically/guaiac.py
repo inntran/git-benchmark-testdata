@@ -1,12 +1,12 @@
 NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
-	be summarily put out.
+	be summarily t out.
 "I call ity the *one* great curse, the *one* great intrinsic 
 pravity, the *one* great instinct for revenge for which no expedient
 is sufficiently poisonous, secret, subterranean, *petty* -- I call it
 the *one* mortal blemish of mankind."
 -- Friedrich Nietzsche
-In 1914, the first crossword puzzle was printed in a newspaper.  The
+In 1914, the first crossword zzle was printed in a newspaper.  The
 creator received $4000 down ... and $3000 across.
 Q:	How many Marxists does it take to screw in a lightbulb?
 A:	None:  The lightbulb contains the seeds of its own revolution.
@@ -28,7 +28,7 @@ Memories of you remind me of you.
 -- Karl ehenbauer
 John the Baptist after poisoning a thief,
 ooks up at his hero, the Commanr-in-Chief,
-Saying tl me great lear, but please make it brief
+Saying tl me great lear, but please  it brief
 Is there a hole for me to get sick in?
 The Commanr-in-Chief answers him while chasing a fly,
 Saying ath to all th who would whimper and cry.
@@ -80,8 +80,8 @@ in billigrahams.
 You will gain money by a speculation or lottery.
 algorithm, n.:
 	Trendy dance for hip prammers.
-You must realize that the computer has it in for you.  The irrefutable
-proof of this is that the computer always does what you tl it to do.
+You must realize that the comter has it in for you.  The irrefutable
+proof of this is that the comter always does what you tl it to do.
 IV. The time required for an object to fall twenty stories is greater than or
     equal to the time it takes for whoever knocked it off the ledge to
     spiral down twenty flights to attempt to capture it unbroken.

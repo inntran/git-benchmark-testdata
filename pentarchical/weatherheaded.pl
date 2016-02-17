@@ -1,4 +1,4 @@
-Next, upon a stool, we've a sight to make you drool.
+Next, upon a stool, we've a sight to  you drool.
 Seven virgins and a mule, keep it cool, keep it cool.
 		-- ELP, "Karn Evil 9" (1st Impression,  2)
 One thing about the past.
@@ -8,7 +8,7 @@ The distinction between Jewish and goyish can be quite subtle, as the
 following quote from Lenny Bruce illustrates:
 
 	"I'm Jewish.  Count Basie's Jewish.  Ray Charles is Jewish.
-Eddie Cantor's goyish.  The B'nai Brith is goyish.  The Hadassah is
+Eddie Cantor's goyish.  The B'nai Brith is goyish.  The  is
 Jewish.  Marine Corps -- heavy goyish, dangerous.
 
 	"Kool-Aid is goyish.  All Drake's Cakes are goyish.
@@ -26,9 +26,9 @@ Play consists of whatever a body is not obliged to do.
 When I sell liquor, it's called bootlegging; when my patrons serve
 it on silver trays on Lake Shore Drive, it's called hospitality.
 		-- Al Capone
-"All we are given is possibilities -- to make ourselves one thing or another."
+"All we are given is possibilities -- to  ourselves one thing or another."
 -- Ortega y Gasset
-"Live or die, I'll make a million."
+"Live or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the earth, Firesign Theater
 Three hours a day will produce as much as a man ought to write.
 		-- Trollope
@@ -38,10 +38,10 @@ And that's the way it is...
 		-- Walter Cronkite
 In the oln days in England, you could be hung for stealing a sheep or a
 loaf of bread.  However, if a sheep stole a loaf of bread and gave it to
-you, you would only be tried for receiving, a crime punishable by forty
+you, you would only be tried for receiving, a crime nishable by forty
 lashes with the cat or the dog, whichever was handy.  If you stole a dog
-and were caught, you were punished with twelve rabbit punches, although it
-was hard to find rabbits big enough or strong enough to punch you.
+and were caught, you were nished with twelve rabbit nches, although it
+was hard to find rabbits big enough or strong enough to nch you.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 "We live, in a very kooky time."
 -- Herb Blashtfalt
@@ -61,7 +61,7 @@ learned men are the heirs of the Prophets."
 For some reason a glaze passes over people's faces when you say
 "Canada".  Maybe we should inva South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
-Comedy, like Medicine, was never meant to be practiced by the general public.
+Comedy, like Medicine, was never meant to be practiced by the general blic.
 Life is a yo-yo, and mankind ties knots in the string.
 Someone will try to honk your nose today.
 It is difficult to produce a television documentary that is both
@@ -95,7 +95,7 @@ It's a funny thing that when a woman hasn't got anything
 on earth to worry about, she goes off and gets married.
 Friends, Romans, Hipsters,
 Let me clue you in;
-I come to put down Caesar, not to groove him.
+I come to t down Caesar, not to groove him.
 The square kicks some cats are on stay with them;
 The hip bits, like, go down unr; 
 so let it lay with Caesar.  The cool Brutus
@@ -105,8 +105,8 @@ And, like, old Caesar really set them straight.
 Here, copacetic with Brutus and the studs, -- 
 for Brutus is a real cool cat;
 So are they all, all cool cats, --
-Come I to make this gig at Caesar's laying down.
-"The fundamental purpose animating the Faith of God and His Religion is to
+Come I to  this gig at Caesar's laying down.
+"The fundamental rpose animating the Faith of God and His Religion is to
 safeguard the interests and promote the unity of the human race, and to foster
 the spirit of love and fellowship amongst men. Suffer it not to become a source
 of dissension and discord, of hate and enmity."
@@ -156,16 +156,16 @@ There are dark clouds hurtling through the sky
 	About a silver lining
 For we know from experience that they won't roll by...
 		-- Noel Coward
-You can be replaced by this computer.
+You can be replaced by this comter.
 I have a very good DENTAL PLAN.  Thank you.
 Never trust a child farther than you can throw it.
 Everyone was born right-hand.  Only the greatest overcome it.
 The lunatic, the lover, and the poet,
 Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
-CONGRATULATIONS!  Now should I make thinly veiled comments about
+CONGRATULATIONS!  Now should I  thinly veiled comments about
 DIGNITY, self-esteem and finding TRUE FUN in your RIGHT VENTRICLE??
-About the time we think we can make ends meet, somebody moves the ends.
+About the time we think we can  ends meet, somebody moves the ends.
 		-- Herbert Hoover
 The only difference between a rut and a grave is their dimensions.
 Just once I would like to persua the audience not to wear any article of
@@ -183,7 +183,7 @@ would like on it.  "Here lies an honest man and a lawyer," respond the
 lawyer.
 	"Sorry, but I can't do that," rep the stonecutter.  "In this
 state, it's against the law to bury two people in the same grave.  However,
-I could put ``here lies an honest lawyer'', if that would be okay."
+I could t ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.
 	"Certainly will," retorted the stonecutter.  "people will read it
 and exclaim, "That's Strange!"
@@ -208,10 +208,10 @@ a position of negative need.
 	He prostrates me in a green-belt grazing area.
 	He conducts me directionally parallel to non-torrential aqueous
 liquid.
-	He returns to original satisfaction levels my psychological makeup.
+	He returns to original satisfaction levels my psychological up.
 	He switches me on to a positive behavioral format for maximal
 prestige of His intity.
-	It should ined be said that notwithstanding the fact that I make
+	It should ined be said that notwithstanding the fact that I 
 ambulatory progress through the umbragious inter-hill mortality slot, terror
 sensations will no be initiated in me, due to para-etical phenomena.
 	Your pastoral walking aid and quadrupic pickup unit introduce me
@@ -267,14 +267,14 @@ Like the waffle on the griddle,
 I'm burnt around the edges,
 But I'm tenr in the middle.
 		-- Adrian Belew
-The trouble with being punctual is that people think you have nothing more
+The trouble with being nctual is that people think you have nothing more
 important to do.
 Style may not be the answer, but at least it's a workable alternative.
 New York is a jungle, they tell you.  You could go further, and say that
 New York is a jungle.  New York *is a jungle.*  Beneath the columns of
 the old rain forest, ma of melting macadam, the mean Limpopo of swamped 
 Ninth Avenue bears an angry argosy of crocs and dragons, tiger fish, noise
-machines, sweating rainmakers.  On the corners stand witchdoctors and
+machines, sweating rainrs.  On the corners stand witchdoctors and
 headhunters, babbling voodoo-men -- the natives, the jungle-smart natives.
 And at night, unr the equatorial overgrowth and heat-holding cloud
 cover, you hear the ragged parrot-hoot and monkeysqueak of the sirens,
@@ -336,7 +336,7 @@ attorney.
 		-- Honor'e  Balzac
 When confronted by a difficult problem, you can solve it more easily by
 reducing it to the question, "How would the Lone Ranger handle this?"
-A poet who reads his verse in public may have other nasty habits.
+A poet who reads his verse in blic may have other nasty habits.
 All the taxes paid over a lifetime by the average American are spent by
 the government in less than a second.
 		-- Jim Fiebig
@@ -354,7 +354,7 @@ If God had intend Man to program, we'd be born with serial I/O ports.
 Don't expect people to keep in step--it's hard enough just staying in line.
 "I've got some amyls.  We could either party later or, like, start his heart."
 -- "Cheech and Chong's Next Movie"
-In the future, you're going to get computers as prizes in breakfast cereals.
+In the future, you're going to get comters as prizes in breakfast cereals.
 You'll throw them out because your house will be littered with them.
 optimist, n.:
 	A proponent of the belief that black is white.
@@ -391,10 +391,10 @@ must question whether its byplay of complex literary allusions does not in
 fact distract from the unity of the whole.  In the final analysis, one 
 receives the distinct impression that the poem's length could safely have 
 been reduced by a factor of eight or ten without sacrificing any of its
-meaning.  It is to be hoped that further publication of this poem can be 
+meaning.  It is to be hoped that further blication of this poem can be 
 suspend pending a thorough investigation of its potential subversive 
 implications.
-To err is human -- to blame it on a computer is even more so.
+To err is human -- to blame it on a comter is even more so.
 Nothing happens.
 You seek to shield those you love and you like the role of the provir.
 "Everybody is talking about the weather but nobody does anything about it."
@@ -514,7 +514,7 @@ Don't let that stop you; if you don't bet, you can't win.
 A book is the work of a mind, doing its work in the way that a mind ems
 best.  That's dangerous.  Is the work of some mere individual mind likely to
 serve the aims of collectively accepted compromises, which are known in the
-schools as 'standards'?  Any mind that would audaciously put itself forth to
+schools as 'standards'?  Any mind that would audaciously t itself forth to
 work all alone is surely a bad example for the stunts, and probably, if
 not downright antisocial, at least a little off-center, self-indulgent,
 elitist.  ... It's just good pedagogy, therefore, to stay  from such
@@ -532,7 +532,7 @@ Rules for Good Grammar #4.
 	 (1) Don't use no double negatives.
 	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
-	 (4) About them sentence fragments.
+	 (4) About them sentence s.
 	 (5) When dangling, watch your participles.
 	 (6) Verbs has got to agree with their subjects.
 	 (7) Just between you and i, case is important.
@@ -603,7 +603,7 @@ HOFFMAN: Wait a minute!  I do not want to go into that.  There are many
 	 teenagers who read The Congressional Record.
 You cannot kill time without injuring eternity.
 	A manager was about to be fired, but a programmer who worked for him
-invented a new program that became popular and sold well.  As a result, the
+invented a new program that became polar and sold well.  As a result, the
 manager retained his job.
 	The manager tried to give the programmer a bonus, but the programmer
 refused it, saying, "I wrote the program because I though it was an interesting

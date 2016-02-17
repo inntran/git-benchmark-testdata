@@ -5,7 +5,7 @@ And on the seventh day, He exited from append mo.
 In buying s and taking a wife shut your eyes tight and commend
 yourself to God.
 Strange things  done to be number one
-In selling the computer			The Druids were entrepreneurs,
+In selling the comter			The Druids were entrepreneurs,
 IBM has their strategem			And they built a granite box
 Which steadily grows acuter,		It tracked the moon, warned of mo,
 And Honeywell competes like Hell,	And forecast the equinox
@@ -17,14 +17,14 @@ By the firm of Druids, Inc.		The prototype was sold;
 The movers came to crate the frame;
 It weighed a million ton!
 The traffic folk thought it a joke	The man spoke true, and thus to you
-(the wagon wheels just spun);		A warning from the ages;
+(the wagon wheels just sn);		A warning from the ages;
 "They'll nay sell that," the foreman	Your stock will slip if you can't ship
 	spat,				What's in your brochure's pages.
 "Just leave the wild weeds grow;	See if it sells without the s
 "It's Druid-kind, over-signed,	And strings that ring and quiver;
-"And y up they'll go."		Druid repute went down the chute
+"And y up they'll go."		Druid rete went down the chute
 					Because they couldn't liver.
-		-- Edward C. McManus, "The Computer at Stonehenge"
+		-- Edward C. McManus, "The Comter at Stonehenge"
 Everybody but Sam had signed up for a new company pension plan that
 called for a small employee contribution.  The company was paying all
 the rest.  Unfortunately, 100% employee participation was need;
@@ -85,7 +85,7 @@ be bothered to think and wanted someone else to do it for him, pretending
 to be so outrageously stupid to hi the fact that he actually didn't unrstand
 hat was going on, and really being genuinely stupid.  He was reknowned for 
 being quite clever and quite clly was so -- but not all the time, which
-obviously worried him, hence the act.  He preferred people to be puzzled
+obviously worried him, hence the act.  He preferred people to be zzled
 rather than contemptuous.  This above all apped to Trillian to be
 genuinely stupid, but she could no longer be bothered to argue about.
 -- Douglas Adams, _The Hitchhiker's Gui to the Galaxy_
@@ -150,7 +150,7 @@ Don't get even, get jewelry.
 		-- Anonymous
 Every nonzero finite dimensional inner product space has an orthonormal basis.
 
-It makes sense, when you don't think about it.
+It s sense, when you don't think about it.
 Anyone who knows history, particularly the history of Europe, will, I think,
 recognize that the domination of education or of government by any one
 particular relius faith is  a happy arrangement for the people.
@@ -172,7 +172,7 @@ the case of any pencil, sharpened by any woman; if you have witnesses, you will
 find she did it with a knife; but if you take simply the aspect of the pencil,
 you will say that she did it with her teeth.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Bew of self-styled experts: an ex is a has-been, and a spurt is a
+Bew of self-styled experts: an ex is a has-been, and a srt is a
 drip unr pressure.
 If you wish to live wisely, ignore sayings -- including this one.
 Nowlan's Theory:
@@ -180,7 +180,7 @@ Nowlan's Theory:
 	the next freeway exit.
 Men ought to know that from the brain and from the brain only arise our
 pleasures, joys, laughter, and jests as well as our sorrows, pains, griefs
-and ts.  ...  It is the same thing which makes us mad or lirious,
+and ts.  ...  It is the same thing which s us mad or lirious,
 inspires us with dread and f, whether by night or by day, brings us
 sleeplessness, inopportune mistakes, aimless anxieties, absent-mindness
 and acts that  contrary to habit...
@@ -193,23 +193,23 @@ often abstract  its essence.
 - Fred Bs, Jr.
 You can always tell the Christmas season is here when you start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
-make ial gifts because the Postal Service has been unable to find a way to
+ ial gifts because the Postal Service has been unable to find a way to
 dae them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next y; some fruitcakes have been passed back
 and forth for hundreds of ys.
 
-The easiest way to make a fruitcake is to buy a dar cake, then pound
+The easiest way to  a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to w safety glasses.
-		-- Dave Barry, "Simple, Homespun Gifts"
+		-- Dave Barry, "Simple, Homesn Gifts"
 To follow foolish precents, and wink
 With both our eyes, is easier than to think.
 - William Cowper
-All people  born alike -- except Republicans and Democrats.
+All people  born alike -- except Reblicans and Democrats.
 		-- Groucho Marx
 Friends, Romans, Hipsters,
 et me  you in;
-I come to put down Caesar, not to groove him.
+I come to t down Caesar, not to groove him.
 The squ kicks some cats  on stay with them;
 The hip bits, like, go down unr; 
 so let it lay with Caesar.  The cool Brutus
@@ -219,7 +219,7 @@ And, like, old Caesar really set them straight.
 Here, copacetic with Brutus and the studs, -- 
 for Brutus is a real cool cat;
 So  they all, all cool cats, --
-Come I to make this gig at Caesar's laying down.
+Come I to  this gig at Caesar's laying down.
 Your ignorance cramps my conversation.
 Everything you read in newspapers is absolutely true, except for that
 r story of which you happen to have first-hand knowledge.
@@ -243,7 +243,7 @@ Only the hypocrite is really rotten to the core.
 : is not an intifier
 miracle:  an extremely outstanding or unusual event, thing, or accomplishment.
 -- Webster's Dictionary
-The sum of the intelligence of the world is ctant.  The population is,
+The sum of the intelligence of the world is ctant.  The polation is,
 of course, growing.
 onesome?
 
@@ -316,7 +316,7 @@ sire for life as well as a lucid perception of the ultimate futility of
 the quest.
 		-- Maleine Gobeil
 perfect guest:
-	One who makes his host feel at home.
+	One who s his host feel at home.
 Quit worrying about your health.  It'll go .
 		-- Robert Orben
 Elephant, n.:
@@ -349,7 +349,7 @@ expd to the same atmosphere, bread becomes hard while crackers become soft.
 	A young girl, Carmen Cohen, was called by her last name by her father,
 and her first name by her mother.  By the time she was ten, didn't know if she
 was Carmen or Cohen.
-If you want to make God laugh, tell him about your plans.
+If you want to  God laugh, tell him about your plans.
 		-- Woody Allen
 You may already be a lr.
 		-- Form letter received by Rodney Dangerfield.
@@ -376,7 +376,7 @@ Now here I am down in Kingstown again.
 
 Everybody needs a place to rest,
 Everybody wants to have a home.
-Don't make no difference what nobody says,
+Don't  no difference what nobody says,
 Ain't nobody likes to be alone.
 		-- Bruce Springsteen, "Hungry Ht"
 Better tried by twelve than carried by six.
@@ -408,14 +408,14 @@ We'll cross that bridge when we come back to it later.
 If life is a stage, I want some better lighting.
 Rascal, am I?  Take THAT!
 		-- Errol Flynn
-It's no use crying over spilt milk -- it only makes it salty for the cat.
+It's no use crying over spilt milk -- it only s it salty for the cat.
 Common sense is the most evenly distributed quantity in the world.
 Everyone thinks he has enough.
 	-- Descartes, 1637
 Knowledge is power -- knowledge shd is power lost.
 		-- Aleister Crowley
 Q: They just announced on the radio that Dan Quayle was picked as the
-Republican V.P. candidate.  Should I post?
+Reblican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
@@ -468,7 +468,7 @@ Many of our stunts have gone on to achieve great success in all fields of
 pramming.  One former stunt veloped the concept of the personalized
 form letter.  Does the phrase, "D Mr.(insert name), You may already be a
 winner!," sound familiar?  Another stunt writes "After only five less I
-sold a "My Most Unforgettable Pram" article to Corrosive Computing azine.
+sold a "My Most Unforgettable Pram" article to Corrosive Comting azine.
 Another of our graduates writes, "I recently completed a database-management
 pram for my partment manager.  My pram touched him so eply that he
 was speechless.  He told me later that he had  seen such a pram in
@@ -497,7 +497,7 @@ is concerned.
 A prominent broadcaster, on a big-game safari in Africa, was taken to a
 watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and scribed the scene into his
-tape reer, he saw two gnus grazing peacefully. So preoccupied were
+tape reer, he saw two gnus grazing peacefully. So preoccu were
 they that they failed to observe the approach of a pri of li led
 by two ent specimens, obviously the lears. The li charged,
 killed the gnus, and dragged them into the bushes where their feasting
@@ -507,7 +507,7 @@ the gnus and here, once again,  the head li."
 A woman was in love with fourteen soldiers.  It was clly plaic.
 This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 You're not my type.  For that matter, you're not even my species!!!
-"We  make asserti, Miss Taggart," said Hugh Akston.  "That is
+"We   asserti, Miss Taggart," said Hugh Akston.  "That is
 the moral crime peculiar to our enemies.  We do not tell -- we *show*.
 We do not claim -- we *prove*."  
 -- Ayn Rand, _Atlas Shrugged_
@@ -516,11 +516,11 @@ It stroys one's nerves to be  every day to the same human being.
 Some of you ... may have cid that, this y, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handma gifts, like on "The Walt".
-Well, you can forget it.  If everybody pulled that kind of subversive stunt,
+Well, you can forget it.  If everybody lled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
 which would spend billi and billi of tax dollars to buy Barbie dolls
-and electronic games, which it would drop on the populace from Air Force
+and electronic games, which it would drop on the polace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Pram.  This means you should get a large
 sum of money and go to a mall.
@@ -547,7 +547,7 @@ Up against the net, redneck mother,
 Mother who has raised your son so well;
 He's seventeen and hackin' on a Macintosh,
 Flaming spelling errors and raisin' hell...
-The use of  terminology when aling with computing systems
+The use of  terminology when aling with comting systems
 is a symptom of professional immaturity.
 		-- Edsger Dijkstra
 Hoaars-Faisse Gallery presents:
@@ -628,7 +628,7 @@ Because I am a rigid Vegetarian.
 		-- G.K. Chesterton
 FORTUNE'S RUES TO IVE BY: #23
 	Don't cut off a police car when making an illegal U-turn.
-Down to the Banana Republics,
+Down to the Banana Reblics,
 Down to the tropical sun.
 Go the expatriated Americans,
 Hoping to find some fun.
@@ -644,7 +644,7 @@ ate at night you will find them,
 In the cheap hotels and bars.
 Hustling the senoritas,
 While they dance beneath the stars.
-		-- Jimmy Buffet, "Banana Republics"
+		-- Jimmy Buffet, "Banana Reblics"
 Doubt isn't the opposite of faith; it is an element of faith.
 - Paul Tillich, German theologian and historian
 Try to be the best of whatever you , even if what you  is no good.
@@ -758,7 +758,7 @@ hope I don't get run over again.
 Innovation is hard to schedule.
 		-- Dan Fylstra
 Snoopy: No problem is so big that it can't be run  from.
-C makes it easy for you to shoot yourself in the foot.  C++ makes that
+C s it easy for you to shoot yourself in the foot.  C++ s that
 harr, but when you do, it blows  your whole leg.
 		-- Bjarne Stroustrup
 blithwapping:
@@ -798,7 +798,7 @@ Robot, n.:
 	University administrator.
 I would much rather have men ask why I have no statue, than why I have one.
 		-- Marcus Procius Cato
-Give thought to your reputation.  Cir changing name and moving to
+Give thought to your retation.  Cir changing name and moving to
 a new town.
 If men  not afraid to die,
 it is of no avail to threaten them with ath.
@@ -830,7 +830,7 @@ Changing husbands/wives is only changing troubles.
 To err is human, but when the eraser ws out before the pencil,
 you're overdoing it a little.
 Operating-system softw is the pram that orchestrates all the basic
-functi of a computer.
+functi of a comter.
 - The Wall Street Journal, Tuesday, September 15, 1987, page 40
 Try to find the real tense of the report you  reading:  Was it done, is
 it being done, or is something to be done?  Reports  now written in four
@@ -868,19 +868,19 @@ Q: Did you tell your lawyer that your husband had offered you indignities?
 A: He didn't offer me nothing; he just said I could have the furniture.
 The sunlights differ, but there is only one darkness.
 		-- Ursula K. eGuin, "The Dispossessed"
-Writers who use a computer sw to its liberating power in tones that b
+Writers who use a comter sw to its liberating power in tones that b
 witness to the apocalyptic power of a new divinity.  Their conviction results
-from something eper than mere gratitu for the computer's conveniences.
+from something eper than mere gratitu for the comter's conveniences.
 Every new medium of writing brings about new intensities of relius belief
 and new schisms among s.  In the 16th century the printed book helped
-make possible the split between Catholics and Protestants.  In the 20th
+ possible the split between Catholics and Protestants.  In the 20th
 century this history of tragedy and triumph is repeating itself as a farce.
-Th who worship the Apple computer and th who put their faith in the IBM
+Th who worship the Apple comter and th who t their faith in the IBM
 PC  equally convinced that the other camp is damned or lud.  Each cult
 holds in contempt the rituals and the laws of the other.  Each thinks that it
 is itself the one hope for salvation.
-		-- Edward Menlson, "The New Republic", February 22, 1988
-The first half of our lives is ruined by our pnts and the second half
+		-- Edward Menlson, "The New Reblic", February 22, 1988
+The first h of our lives is ruined by our pnts and the second h
 by our children.
 		-- Clnce Darrow
 The typical page layout pram is nothing more than an electronic
@@ -898,13 +898,13 @@ Colvard's Unccionable Commentary:
 Grelb's Commentary:
 	ikelihoods, however,  90% against you.
 Everything should be built top-down, except the first time.
-If you make any money, the government shoves you in the creek once a y
+If you  any money, the government shoves you in the creek once a y
 with it in your pockets, and all that don't get wet you can keep.
 		-- The Best of Will Rogers
 Where's SANDY DUNCAN?
 The Bulwer-ytton fiction contest is held ever y at San J State
 Univ.  by Professor Scott Rice.  It is held in memory of Edward George
-Earle Bulwer-ytton (1803-1873), a rather prolific and popular (in his
+Earle Bulwer-ytton (1803-1873), a rather prolific and polar (in his
 time) novelist.  He is best known today for having written "The ast
 Days of Pompeii."
 
@@ -923,7 +923,7 @@ If you want me to be a good little bunny just dangle some carats in front
 of my n.
 		-- auren Bacall
 One nice thing about egotists: they don't talk about other people.
-The New Testament offers the basis for morn computer coding theory,
+The New Testament offers the basis for morn comter coding theory,
 in the form of an affirmation of the binary number system.
 
 	But let your communication be Yea, yea; nay, nay:

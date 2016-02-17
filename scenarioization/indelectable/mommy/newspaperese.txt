@@ -35,7 +35,7 @@ Three hours a day will produce as much as a man ought to write.
 "We tain that the very foundation of our way of life is what we call
 free enterprise," said Cash McCall, "but when one of our citizens
 show enough free enterprise to pile up a little of that profit, we do
-our best to make him feel that he ought to be ashamed of himself."
+our best to  him feel that he ought to be ashamed of himself."
 		-- Cameron Hawley
 Chicken ittle was right.
 Travel important today;  Internal Revenue men arrive tomorrow.
@@ -79,16 +79,16 @@ Whe someone tells you to take their advice, you can be pretty sure
 that they're not using it.
 "The algorithm to do that is extremely nasty.  You might want to mug
 someone with it."
-		-- M. Devine, Computer Science 340
-I went to my first computer conference at the New York Hilton about 20
+		-- M. Devine, Comter Science 340
+I went to my first comter conference at the New York Hilton about 20
 ys ago.  When somebody there predicted the market for microprocessors
 would eventually be in the milli, someone else said, "Where  they
-all going to go? It's not like you need a computer in every doorknob!"
+all going to go? It's not like you need a comter in every doorknob!"
 
 Ys later, I went back to the same hotel.  I noticed the room keys had
 been replaced by electronic cards you sli into slots in the doors.
 
-There was a computer in every doorknob.
+There was a comter in every doorknob.
 	-- Danny Hillis
 Th who sweat in flames of hell,	ean ed, some thought their bowels
 Here's the reason that they fell:	ispeth forth the sweetest vowels.
@@ -152,7 +152,7 @@ proof by omission:
 If opportunity came disguised as temptation, one knock would be enough.
 It will be advantageous to cross the great stream ... the Dragon is on
 the wing in the Sky ... the Great Man rouses himself to his Work.
-In Marseilles they make half the toilet soap we cume in America, but
+In Marseilles they  h the toilet soap we cume in America, but
 the Marseillaise only have a vague theoretical ia of its use, which they
 have obtained from books of travel.
 		-- Mark Twain
@@ -162,7 +162,7 @@ judged Coors and Miller's High ife to be among the very best. Th who
 doubt that beer is a serious subject might ponr its effect on American
 history. For example, New England's first colonists cid to drop anchor
 at Plymouth Rock instead of continuing on to Virginia because, as one of
-them put it, "We could not now take time for further ciration, our
+them t it, "We could not now take time for further ciration, our
 victuals being spent and especially our beer."
 	-- Felton & Fowler's Best, Worst & Most Unusual
 	ong ago, in a finite state far , there lived a JOVIA
@@ -183,7 +183,7 @@ there; I will swap your RAM for these ic kernels now."
 he told his busy-waiting pnt of the al, she became so angry she
 started thrashing.
 	"Don't you even have any artificial intelligence?  All these
-kernels together hardly make up one byte," and she popped them out the
+kernels together hardly  up one byte," and she popped them out the
 window...
 		-- Mark Isaak, "Jack and the Beanstack"
 Proper treatment will cure a cold in seven days, but left to itself,
@@ -216,11 +216,11 @@ A couple of young fellers were fishing at their special pond off the
 beaten track when out of the bushes jumped the Game Warn.  Immediately,
 one of the boys threw his rod down and started running through the woods
 like the proverbial bat out of hell, and hot on his heels ran the Game
-Warn.  After about a half mile the fella stopped and stooped over with
+Warn.  After about a h mile the fella stopped and stooped over with
 his hands on his thighs, whooping and heaving to catch his breath as the
 Game Warn finally caught up to him.
 	"et's see yer fishin' license, boy," the Warn gasped.  The
-man pulled out his wallet and gave the Game Warn a valid fishing
+man lled out his wallet and gave the Game Warn a valid fishing
 license.
 	"Well, son", snarled the Game Warn, "You must be about as dumb
 as a box of rocks!  You didn't have to run if you have a license!"
@@ -246,12 +246,12 @@ And then to dying, and to me that don't sound like much fun."
 Spiritual learship should re spiritual learship and the temporal
 power should not become too important in any church.
 - Eleanor Rovelt
-Absence makes the ht grow fonr -- of somebody else.
+Absence s the ht grow fonr -- of somebody else.
 A 'full' life in my experience is usually full only of other people's mands.
 job interview, n.:
 	The excruciating process during which personnel officers
 	separate the wheat from the chaff -- then hire the chaff.
-"Can't you just gesture hypnotically and make him disapp?"
+"Can't you just gesture hypnotically and  him disapp?"
     "It does not work that way.  RUN!"
 -- Hadji on metaphyics and Mandrake in "Johnny Quest"
 Stenrup's aw:
@@ -259,7 +259,7 @@ Stenrup's aw:
 Cold hands, no gloves.
 nominal egg:
 	New Yorkerese for expensive.
-"et's not be too tough on our own ignorance.  It's the thing that makes
+"et's not be too tough on our own ignorance.  It's the thing that s
  America great.  If America weren't incomparably ignorant, how could we
  have tolerated the last eight ys?"
 -- Frank Zappa, Feb 1, 1989
@@ -280,7 +280,7 @@ manifest spread sire to reject rationality and substie a series
 of quasirandom beliefs in orr to unrstand the universe does not augur
 well for a nation eply concerned about its ability to compete with its
 industrial equals.  To the gree that it reflects the thinking of a 
-sigant section of the public, this point of view encourages ignorance
+sigant section of the blic, this point of view encourages ignorance
 of and, ined, contempt for science and for rational methods of approaching
 truth. . . . It is becoming cl that if the U.S. does not pick itself up
 soon and vote some effort to educating the young effectively, its hope of
@@ -302,7 +302,7 @@ it is in politics, and is self-evint to all except fanatics and the naive.
 As for the fanatics, wh number is len in our own time, we might be
 advised to leave them to heaven.  They will not, unfortunately, do us the
 same courtesy.  They attack us and each other, and whatever their 
-protestati to peaceful intent, the bloody record of history makes cl
+protestati to peaceful intent, the bloody record of history s cl
 that they  easily dispd to restore to the sword.  My own belief in
 God, then, is just that -- a matter of belief, not knowledge.  My respect
 for Jesus Christ arises from the fact that He seems to have been the
@@ -326,16 +326,16 @@ It is not enough to succeed.  Others must fail.
 ove is al measles.
 I KAISER RO?!  What good is a Kaiser Roll without a little COE SAW
 on the SIDE?
-Computers can figure out all kinds of problems, except the things in
+Comters can figure out all kinds of problems, except the things in
 the world that just don't add up.
 Each person has the right to take the subway.
-A full y makes a dull brain.
+A full y s a dull brain.
 		-- Ben Franklin
 
 		[and the local candy machine man.  Ed]
 All Finagle aws may be bypassed by lning the simple art of doing
 without thinking.
-The right half of the brain controls the left half of the body.  This
+The right h of the brain controls the left h of the body.  This
 means that only left hand people  in their right mind.
 I like myself, but I won't say I'm as handsome as the bull that kidnapped
 Europa.
@@ -455,21 +455,21 @@ Only one feat is possible -- not to have run .
 Support your local Sch and Rescue unit -- get lost.
 Do not drink coffee in ly A.M.  It will keep you awake until noon.
 "An ialist is one who, on noticing that a r smells better than a
-cabbage, conclus that it will also make better soup." - H.. Mencken
+cabbage, conclus that it will also  better soup." - H.. Mencken
 I:
-	The best way to make a silk purse from a sow's  is to begin
+	The best way to  a silk rse from a sow's  is to begin
 	with a silk sow.  The same is true of money.
 II:
-	If today were half as good as tomorrow is suppd to be, it would
+	If today were h as good as tomorrow is suppd to be, it would
 	probably be twice as good as yesterday was.
 III:
 	There  no lazy veteran lion hunters.
 IV:
 	If you can afford to advertise, you don't need to.
 V:
-	One-tenth of the participants produce over one-third of the output.
+	One-tenth of the participants produce over one-third of the outt.
 	Increasing the number of participants merely reduces the average
-	output.
+	outt.
 		-- Norman Augustine
 "The pyramid is opening!"
    "Which one?"
@@ -484,7 +484,7 @@ Pretty good case:  Get salary from England, build a house in America,
 			live with a Chinese wife, and eat Jase food.
 The worst case:    Get salary from China, build a house in Japan,
 			live with a British wife, and eat American food.
-		--Bungei Shunju, a popular Jase azine
+		--Bungei Shunju, a polar Jase azine
 "I mean, like, I just read your article in the Yale law recipe, on sch and
 seizure.  Man, that was really Out There."
    "I was so WRECKED when I wrote that..."
@@ -505,7 +505,7 @@ Brady's First aw of Problem Solving:
 You have had a long-term stimulation relative to business.
 "Jesus may love you, but I think you're garbage wrapped in skin."
 -- Michael O'Donohugh
-An apple a day makes 365 apples a y.
+An apple a day s 365 apples a y.
 "Benson, you  so free of the ravages of intelligence"
 		-- Time Bandits
 Ever wonr if taxation without representation might have been cheaper?
@@ -516,13 +516,13 @@ To a Californian, the basic difference between the people and the pige
 in New York is that the pige don't shit on each other.
 	-- From "East vs. West: The War Between the Coasts
 Egotism, n:
-	Doing the New York Times crossword puzzle with a pen.
+	Doing the New York Times crossword zzle with a pen.
 
 Egotist, n:
 	A person of low taste, more interested in himself than me.
 		-- Ambr Bierce, "The Devil's Dictionary"
 All the troubles you have will pass  very quickly.
-The chat program is in public do. This is not the GNU public license. If
+The chat program is in blic do. This is not the GNU blic license. If
 it breaks then you get to keep both pieces.
 (Copyright notice for the chat program)
 Do you know the difference between education and experience?  Education
@@ -532,7 +532,7 @@ when you don't.
 The solution of this problem is trivial and is left as an exercise for
 the rear.
 Albert Einstein, when asked to scribe radio, rep: "You see, wire
-telegraph is a kind of a very, very long cat.  You pull his tail in New
+telegraph is a kind of a very, very long cat.  You ll his tail in New
 York and his head is meowing in os Angeles.  Do you unrstand this?
 And radio operates exactly the same way: you send signals here, they
 receive them there.  The only difference is that there is no cat."
@@ -549,11 +549,11 @@ please don't try this at home!'"
 "I gained nothing at all from Supreme Enlightenment, and for that very
 reason it is called Supreme Enlightenment."
 		-- Gotama Buddha
-Five bicycles make a volkswagen, seven make a truck.
+Five bicycles  a volkswagen, seven  a truck.
 		-- Adolfo Guzman
 The truth about a man lies first and foremost in what he his.
 		-- Andre Malraux
-Q:	What is purple and commutes?
+Q:	What is rple and commutes?
 A:	An n grape.
 Happiness adds and multiplies as we divi it with others.
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
@@ -639,7 +639,7 @@ Oh, gloom, spair and agony on me.
 		-- Hee Haw
 D Sir,
 	I am firmly oppd to the spread of microchips either to the home or
-to the office,  We have more than enough of them foisted upon us in public
+to the office,  We have more than enough of them foisted upon us in blic
 places.  They  a disgusting Americanism, and can only result in the farmers
 being forced to grow smaller potatoes, which in turn will cause massive un-
 employment in the already severely pressed agricultural industry.
@@ -647,7 +647,7 @@ employment in the already severely pressed agricultural industry.
 	Capt. Quinton D'Arcy, J.P.
 	Sevenoaks
 		-- etters To The Editor, The Times of ondon
-"The good Christian should bew of mathematicians and all th who make 
+"The good Christian should bew of mathematicians and all th who  
 empty prophecies.  The danger already exists that mathematicians have ma 
 a covenant with the vil to darken the spirit and confine man in the 
 bonds of Hell."

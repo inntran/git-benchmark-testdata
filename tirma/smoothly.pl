@@ -9,7 +9,7 @@
 	wi e chain unless he gives you e answer to e problem.
 	Generally, he will.  It may also be a good ia to give him a sound
 	rashing anyway, just to show you mean business.
-Please don't put a strain on our friendship by asking me to do someing
+Please don't t a strain on our friendship by asking me to do someing
 f you.
 How can you do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
@@ -21,7 +21,7 @@ and accding to convention, ere is an r.  In tru, ere  atoms
 and a void.
 		-- Democritus, 400 B.C.
 I l partially hynated!
-Q:  What's e difference between a car n and a computer
+Q:  What's e difference between a car n and a comter
     n?
 
 A:   car n can probably drive!
@@ -66,22 +66,22 @@ said e master.
 	"It is," came e reply.
 	"Is e Tao in a vio game?" continued e novice.
 	"It is even in a vio game," said e master.
-	"And is e Tao in e DOS f a personal computer?"
+	"And is e Tao in e DOS f a personal comter?"
 	 master coughed and shifted his position slightly.  " lesson
 is over f today," he said.
 		-- Geoffrey James, " Tao of Pramming"
 user, n.:
-	 wd computer professionals use when ey mean "idiot."
+	 wd comter professionals use when ey mean "idiot."
 		-- Dave Barry, "Claw Your Way to e Top"
 
-[I always ought "computer professional" was e phrase hackers used
+[I always ought "comter professional" was e phrase hackers used
  when ey meant "idiot."  Ed.]
 ike so many Americans, she was trying to ctruct a life at ma
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 You can go anywhere you want if you look us and carry a clipboard.
 I've been ere.
-Frankft, Kentucky, makes it against e law to shoot off a policeman's tie.
+Frankft, Kentucky, s it against e law to shoot off a policeman's tie.
 Symptom:		Feet cold and wet, glass empty.
 Fault:			Glass being hd at increct angle.
 Action Required:	Turn glass oer way up so at open end points
@@ -138,17 +138,17 @@ me time f dreaming.
 Spock: We suffered 23 casualties in at attack, Captain.
 Cheap ings  of no value, valuable ings  not cheap.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
-As a computer, I find your fai in technology amusing.
+As a comter, I find your fai in technology amusing.
 Adhere to your own act, and congratulate yoursf if you have done someing
 strange and extravagant, and broken e monotony of a cous age.
 		-- Ralph Waldo Emerson
  life of a repo man is always intense.
 Overload -- ce mtdown sequence initiated.
 To err is human,
-To purr fine.
+To rr fine.
 		-- Robert Byrne
 Ontogeny recatulates phylogeny.
-et me put it is way: today is going to be a lning experience.
+et me t it is way: today is going to be a lning experience.
 It is your stiny.
 - Dar Var
 If you  over 80 ys old and accompanied by your pnts, we will

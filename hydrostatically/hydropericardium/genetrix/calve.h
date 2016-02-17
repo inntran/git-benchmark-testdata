@@ -12,12 +12,12 @@ Just how difficult it is to write biography can be reckoned by anybody
 who sits down and cirs just how many people know e real tru
 about his  her love affs.
 		-- Rebecca West
-A friend of mine is into Voodoo Acupuncture.  You don't have to go.
+A friend of mine is into Voodoo Acuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
 		-- Steven W
 " alm to do at is ly nasty.  You might want to mug
 someone wi it."
-		-- M. Devine, Computer Science 340
+		-- M. Devine, Comter Science 340
 Remember, an int is not always 16 bits.  I'm not sure, but if e 80386 is one
 step clr to Int's slugfest wi e CPU curve at is aymptotically
 A hermit is a serter from the army of humanity.
@@ -97,7 +97,7 @@ So from e ps of its enchantment, Terra was able to calculate a course
 of action.  Here at last was an opptunity to ct wi Diru on a
 friendly basis -- gr Duru which, since it had fce fids which Ear
 could not duplicate, must of necessity have many oer ings Ear could
-use; mighty Duru befe whom we would kne in supplication (wi pury-
+use; mighty Duru befe whom we would kne in supplication (wi ry-
 f-fense bombs hidn in our pockets) wi lowered heads (making invisible
 e knife in our tee) and ask f crumbs from eir table (in r to
 extrapolate e location of eir kitchens).
@@ -110,7 +110,7 @@ And tapes wiout any tracks;
 Stretchy tapes and snarley tapes
 And tapes mixed up on e racks --
 	Take hold of e tape
-	And pull off e strip,
+	And ll off e strip,
 	And en you'll be sure
 	Your tape drive will s.
 		-- Uncle Colon's Cursy Rhymes
@@ -168,7 +168,7 @@ What on  would a man do wi himsf if someing did not stand in his way?
 		-- H.G. Wls
  only ctant is change.
 re is no doubt at my lawyer is honest.  F example, when he
-filed his income tax return last y, he cld half of his salary
+filed his income tax return last y, he cld h of his salary
 as 'unned income.'
 		-- Micha ara
 Cleanliness is next to impossible.
@@ -177,7 +177,7 @@ Every little cofarad has a nano all its own.
 F mysf, I can only say at I am astonished and somewhat terrified at
 e results of is evening's experiments.  Astonished at e wonrful
 power you have voped, and terrified at e ought at so much hious
-and bad music may be put on recd fever.
+and bad music may be t on recd fever.
 		-- Sir  Sullivan, message to Edison, 1888
 HARVARD:
 Quarterback:
@@ -188,7 +188,7 @@ has ma him e least sacked quarterback in e Ivy league.
 Wi Receiver:
 	 oer directional signal in Harvard's offensive machine is seni
 Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
-fast.  Expect to see Yip u all pursuers and make it into e endzone five
+fast.  Expect to see Yip u all rsuers and  it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
  times.
@@ -215,7 +215,7 @@ As if you just squashed a cop.
  naked tru of it is, I have no shirt.
 A long-forgotten loved one will app soon.
 		-- William Shakespe, "ove's abour's ost"
- part of e wld at people find most puzzling is e part called "Me".
+ part of e wld at people find most zzling is e part called "Me".
  way to  a woman is wi your hat.  Grab it and run.
 Maematicians practice absolute freedom.
 		-- Henry Adams
@@ -254,7 +254,7 @@ A comment on schedules:
       system add 6 m.
    If an IBM frame shop is involved and you  wking on an IBM
       system add 9 m.
-Round up to e nest half-y.
+Round up to e nest h-y.
 --Brad Sherman
 By e way, A softw projects  done by iterative prototyng.
 Some companies call eir prototypes "reases", at's all.
@@ -262,15 +262,15 @@ Anyone who uses e phrase "easy as taking candy from a baby" has
 tried taking candy from a baby.
 		-- Robin Hood
  best ing about g olr is at it takes such a long time.
-Computer prammers do it byte by byte.
+Comter prammers do it byte by byte.
 F u cn rd s u cnt spl wr a dm!
 " grest dangers to liberty lurk in insidious encroachment by mean of zeal,
 wl-meaning but wiout unrstanding."
 -- Justice ouis O. Branis (Olms vs. United States)
 When you don't know what you  doing, do it nly.
-Noing makes a person me productive an e last minute.
+Noing s a person me productive an e last minute.
 It is possible by ingenuity and at e expense of clarity... {to do almost
-anying in any language}.  However, e fact at it is possible to push
+anying in any language}.  However, e fact at it is possible to sh
 a pea up a mountain wi your n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
@@ -341,7 +341,7 @@ You've been leading a dog's life.  Stay off e furniture.
 > cring a  at would appeal to e majity of people, and it
 >  paid off: ousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD ma e
-> mistake of putting a lot of numbers and weird abbreviati into e
+> mistake of tting a lot of numbers and weird abbreviati into e
 > , and is scaring  a lot of people just because it sounds too
 > technical.
 (inus Tvalds' follow-up to a question about inux)
@@ -363,7 +363,7 @@ Wl, don't wry about it...  It's noing.
 		   ockard had cked up a radar signal of what apped to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
- harst ing is to disguise your lings when you put a lot of
+ harst ing is to disguise your lings when you t a lot of
 ratives on e train f home.
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghn eghn
@@ -383,7 +383,7 @@ Ccious is when you  aw of someing and ccience is when you
 wish you weren't.
 Every time I l weight, it finds me again!
 You shall be reward f a dastardly ed.
-Men who  f women e highest respect  sdom popular wi em.
+Men who  f women e highest respect  sdom polar wi em.
 		-- Jph Addison
 Having wanred hplessly into a blinding snowstm  was grly
 rieved to see a sturdy Saint Bernard dog bounding toward him wi
@@ -428,7 +428,7 @@ And raises e temperature.
 		--  Birday y, "Sonny's Burning"
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghn eghn
-It is a very humbling experience to make a multimillion-dollar mistake, but it
+It is a very humbling experience to  a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we cid how to ganize
 e actual writing of  specificati f OS/360.   manager of
 cture, e manager of control pram implementation, and I were
@@ -469,7 +469,7 @@ absoluty noing in common and we'll go our separate ways, me
 embittered and pressed an befe (if such a ing is possible).
 Four aw of Revision:
 	It is usually impractical to wry befand about
-	interferences -- if you have none, someone will make one f you.
+	interferences -- if you have none, someone will  one f you.
 Did it ever occur to you at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
@@ -477,7 +477,7 @@ He who knows noing, knows noing.
 But he who knows he knows noing knows someing.
 And he who knows someone wh friend's wife's broer knows noing,
 	he knows someing.  Or someing like at.
-No one may kill a man.  Not f any purp.  It cannot be condoned.
+No one may kill a man.  Not f any rp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 A person wi one watch knows what time it is; a person wi two watches is
  sure.   Proverb

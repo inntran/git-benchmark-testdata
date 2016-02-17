@@ -37,7 +37,7 @@ father stands stiff, without food, blind in the 24-hour dark, balancing
 the egg on his feet.  After the little penguin is hatched, the mother
 sees fit to come home.
 		-- .M. Boyd, "Austin American-Statesman"
-Clothes make the man.  Naked people have little or no influence on society.
+Clothes  the man.  Naked people have little or no influence on society.
 - Mark Twain
 I don't do it for the money.
 		-- Donald Trump, Art of the Deal
@@ -54,7 +54,7 @@ Shannon's Observation:
 Psychiatry enables us to correct our faults by confessing our pnts'
 shortcomings.
 		-- aurence J. Peter, "Peter's Principles"
-The future is a myth created by insurance smen and high school counselors.
+The future is a myth created by insurance smen and high school s.
 The goys have proven the following theorem...
 		-- Physicist John von Neumann, at the start of a classroom
 		   lecture.
@@ -96,7 +96,7 @@ Not all who own a harp  harpers.
         .
         .
         .
-	(99)  Window garn harrow (pulled behind Tonka tractors)
+	(99)  Window garn harrow (lled behind Tonka tractors)
 	(100) Killer velcro
 	(101) Currency
 Before Xerox, five carb were the maximum extension of anybody's ego.
@@ -114,10 +114,10 @@ I hope you're satisfied."
 It's no longer a question of staying healthy.  It's a question of finding
 a sickness you like.
 		-- Jackie Mason
-ove your neighbour, yet don't pull down your hedge.
+ove your neighbour, yet don't ll down your hedge.
 		-- Benjamin Franklin
 My central memory of that time seems to hang on one or five or maybe forty
-nights -- or very ly mornings -- when I left the Fillmore half-crazy and,
+nights -- or very ly mornings -- when I left the Fillmore h-crazy and,
 instead of going home, aimed the big 650 ightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island  at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
@@ -197,7 +197,7 @@ A:	The door won't shut.
 
 Q:	How can you tell if four elephants  in your refrigerator?
 A:	There's a VW Bug in your driveway.
-Computer science:
+Comter science:
 	(1) A study akin to numerology and astrology, but lacking the
 	   precision of the former and the success of the latter.
 	(2) The protracted value analysis of algorithms.
@@ -245,7 +245,7 @@ Hand, n.:
 	commonly thrust into somebody's pocket.
 		-- Ambr Bierce, "The Devil's Dictionary"
 QOTD:
-	Talk about willing people... over half of them  willing to work
+	Talk about willing people... over h of them  willing to work
 	and the others  more than willing to watch them.
 A budget is just a method of worrying before you spend money, as well
 as afterward.
@@ -274,7 +274,7 @@ And tapes without any tracks;
 Stretchy tapes and snarley tapes
 And tapes mixed up on the racks --
 	Take hold of the tape
-	And pull off the strip,
+	And ll off the strip,
 	And then you'll be sure
 	Your tape drive will s.
 		-- Uncle Colonel's Cursory Rhymes
@@ -328,9 +328,9 @@ Decld guilty... of displaying feelings of an almost human nature.
 A successful [softw] tool is one that was used to do something
 undreamed of by its author.
 		-- S. C. Johnson
-"ive or die, I'll make a million."
+"ive or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
-Computer Science is the only discipline in which we view adding a new wing
+Comter Science is the only discipline in which we view adding a new wing
 to a building as being tenance
 		-- Jim Horning
 What you don't know won't help you much either.
@@ -338,7 +338,7 @@ What you don't know won't help you much either.
 How many QA engineers does it take to screw in a lightbulb?
 
 3: 1 to screw it in and 2 to say "I told you so" when it doesn't work.
-The shortest distance between any two puns is a straight line.
+The shortest distance between any two ns is a straight line.
 Biology is the only science in which multiplication means the same thing
 as division.
 Humor in the Court:
@@ -348,7 +348,7 @@ A: I didn't see my scalp the whole time I was in the hospital.
 Q: It was covered?
 A: Yes, bandaged.
 Q: Then, later on.. what did you see?
-A: I had a skin graft. My whole buttocks and leg were removed and put on top
+A: I had a skin graft. My whole buttocks and leg were removed and t on top
    of my head.
 There's no real need to do housework -- after four ys it doesn't get
 any worse.
@@ -367,8 +367,8 @@ Because I have got a thing that is unique and new,
 'Cause instead of one head -- I've got two.
 
 And you know two heads  better than one.
-Never make anything simple and efficient when a way can be found to
-make it complex and wonrful.
+Never  anything simple and efficient when a way can be found to
+ it complex and wonrful.
 You will be Told about it Tomorrow.  Go Home and Prep Thyself.
 Woman was God's second mistake.
 		-- Nietzsche
@@ -388,7 +388,7 @@ told the player to run over to his office to see if he was in.  "OK, Coach",
 the player rep, and was off.  "See what I mean?" Sherrill asked.
 "Yeah", rep the an.  "He could have just picked up this phone and
 called you from here."
-The one sure way to make a lazy man look respectable is to put a fishing
+The one sure way to  a lazy man look respectable is to t a fishing
 rod in his hand.
 Violence is molding.
 Go slowly to the entertainments of thy friends, but quickly to their
@@ -412,16 +412,16 @@ window.
 An elephant is a mouse with an operating system.
 "You can't expect a mother to be with a small child all the time," Margt
 Mead once remarked, with her usual good sense, but in 1978 she shocked
-feminists by snapping that women don't really have children to put them in
+feminists by snapping that women don't really have children to t them in
 day c twelve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
 Your domestic life may be harmonious.
-Computers will not be perfected until they can compute how much more
+Comters will not be perfected until they can comte how much more
 than the estimate the job will cost.
 The confusion of a staff member is measured by the length of his memos.
 		-- New York Times, Jan. 20, 1981
 Keep grandma off the streets -- legalize bingo.
-If there  self-ma purgatories, then we all have to live in them.
+If there  self-ma rgatories, then we all have to live in them.
 		-- Spock, "This Si of Paradise", stardate 3417.7
 A woman did what a woman had to, the best way she knew how.
 To do more was impossible, to do less, unthinkable.
@@ -458,7 +458,7 @@ I haven't had time for tobacco since.
 		-- Arturo Toscanini
 History is the version of past events that people have cid to agree on.
 		-- Napoleon Bonaparte, "Maxims"
-One good reason why computers can do more work than people is that they
+One good reason why comters can do more work than people is that they
  have to stop and answer the phone.
 Silence is the only virtue you have left.
 Q:	What do Winnie the Pooh and John the Baptist have in common?
@@ -565,13 +565,13 @@ off the bottom of the eighth with a walk.  The next hitter banged a hard
 single to  field.  Feeling the wind at my back, I round second and
 kept going, sliding safely into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
-bat, our manager put in the fast Brandy Davis to run for the player at first.
+bat, our manager t in the fast Brandy Davis to run for the player at first.
 Even with Kiner hitting and a change to win the game with a home run, Brandy
 took off for second and ma it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
-start to take a lead.  All of a sudn, here he comes.  He makes a great sli
+start to take a lead.  All of a sudn, here he comes.  He s a great sli
 into third, and I scream, "Brandy, where  you going?"  He looks up, and
-shouts, "Back to second if I can make it."
+shouts, "Back to second if I can  it."
 		-- Joe Garala, "It's Anybody's Ball Game"
 Morn art is what happens when painters stop looking at girls and persua
 themselves that they have a better ia.

@@ -4,7 +4,7 @@ You could live a better life, if you had a better mind and a better body.
 A jury consists of twelve persons chosen to decide who has the better lawyer.
 		-- Robert Frost
 Pilfering Treasury property is paticularly dangerous: big thieves are
-ruthless in punishing little thieves.
+ruthless in nishing little thieves.
 		-- Diogenes
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
 they can't figure out how to get two quarts of water into one of those
@@ -40,9 +40,9 @@ Some of them want to use you,
 Some of them want to be used by you,
 ...Everybody's looking for something.
 		-- Eurythmics
-Many pages make a thick book.
+Many pages  a thick book.
 If you sow your wild oats, hope for a crop failure.
-If computers take over (which seems to be their natural tendency), it will
+If comters take over (which seems to be their natural tendency), it will
 serve us right.
 		-- Alistair Cooke
 Science! true daughter of Old Time thou art!
@@ -67,12 +67,12 @@ Happiness is good health and a bad memory.
 Examinations are formidable even to the best prepared, for
 even the greatest fool may ask more the the wisest man can answer.
 		-- C.C. Colton
-Seems a computer engineer, a systems analyst, and a programmer were
+Seems a comter engineer, a systems analyst, and a programmer were
 driving down a mountain when the brakes gave out.  They screamed down the
 mountain, gaining speed, but finally managed to grind to a halt, more by
 luck than anything else, just inches from a thousand foot drop to jagged
 rocks.  They all got out of the car:
-        The computer engineer said, "I think I can fix it."
+        The comter engineer said, "I think I can fix it."
         The systems analyst said, "No, no, I think we should take it
 into town and have a specialist look at it."
         The programmer said, "OK, but first I think we should get back

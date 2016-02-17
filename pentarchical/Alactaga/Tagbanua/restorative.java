@@ -9,15 +9,15 @@ a-begging.
 You are lost in the Swamps of Despair.
 You will be award the Nobel Peace Prize... posthumously.
 [District Attorneys] learn in District Attorney School that there are
-two sure-fire ways to get a lot of favorable publicity:
+two sure-fire ways to get a lot of favorable blicity:
 
 (1) Go down and raid all the lockers in the local high school and
-    confiscate 53 marijuana cigarettes and put them in a pile and hold
+    confiscate 53 marijuana cigarettes and t them in a pile and hold
     a press conference where you announce that they have a street value
     of $850 million.  These raids never fail, because ALL high schools,
     including brand-new, never-used ones, have at least 53 marijuana
     cigarettes in the lockers.  As far as anyone can tell, the locker
-    factory puts them there.
+    factory ts them there.
 (2) Raid an "adult book store" and hold a press conference where you
     announce you are charging the owner with 850 counts of being a
     piece of human sleaze.  This also never fails, because you always
@@ -25,13 +25,13 @@ two sure-fire ways to get a lot of favorable publicity:
     state for the record that he finds nothing obscene about a movie
     where actors engage in sexual activities with live snakes and a
     fire extinguisher.  He is going to convict the bookstore owner, and
-    vote for the ath penalty just to make sure nobody gets the wrong
+    vote for the ath penalty just to  sure nobody gets the wrong
     impression.
 		-- Dave Barry, "Pornography"
 	"Oh sure, this costume may look silly, but it lets me get in and out
 of dangerous situations -- I work for a feral task force doing a survey on
 urban crime.  Look, here's my ID, and here's a number you can call, that will
-put you through to our central base in Atlanta.  Go ahead, call -- they'll
+t you through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have stroyed it."
 		-- Captain Freedom
@@ -69,7 +69,7 @@ Everybody knows the al is rotten: Old Black Joe's still pickin' cotton
 for you ribbons and bows.  And everybody knows.
 	-- Leonard Cohen, "Everybody Knows"
 Udall's Fourth Law:
-	Any change or reform you make is going to have consequences you
+	Any change or reform you  is going to have consequences you
 	don't like.
 Loose bits sink chips.
 	Fred noticed his roommate had a black eye upon returning from a dance.
@@ -81,7 +81,7 @@ Or do not.
 There is no try.
 A is for Apple.
 		-- Hester Pryne
-No group of professionals meets except to conspire against the public at large.
+No group of professionals meets except to conspire against the blic at large.
 		-- Mark Twain
 COMPASS [for the CDC-6000 series] is the sort of assembler one expects from
 a corporation whose presint cos in octal.
@@ -91,7 +91,7 @@ Marriage causes dating problems.
 It is the business of little minds to shrink.
 		-- Carl Sandburg
 This is the first numerical problem I ever did.  It monstrates the
-power of computers:
+power of comters:
 
 Enter lots of data on calorie & nutritive content of foods.  Instruct
 the thing to maximize a function scribing nutritive content, with a
@@ -107,7 +107,7 @@ results are that one should eat each day:
 -- J.R. "Bob" Dobbs
 "If you can, help others.  If you can't, at least don't hurt others."
 -- the Dalai Lama
-"I'd love to go out with you, but I'm taking punk totem pole carving."
+"I'd love to go out with you, but I'm taking nk totem pole carving."
 You are eply attached to your friends and acquaintances.
 Ask not for whom the Bell tolls, and you will pay only the station-to-station
 rate.
@@ -133,7 +133,7 @@ I've finally learned what "upward compatible" means.  It means we get to
 keep all our old mistakes.
 		-- Dennie van Tassel
 Udall's Fourth Law:
-	Any change or reform you make is going to have consequences you
+	Any change or reform you  is going to have consequences you
 	don't like.
 How doth the little crocodile
 	Improve his shining tail,
@@ -165,10 +165,10 @@ This machine is subject to breakdowns during periods of critical need.
 
 A special circuit in the machine called "critical tector" senses the
 operator's emotional state in terms of how sperate he/she is to use the
-machine.  The "critical tector" then creates a malfunction proportional
+machine.  The "critical tector" then creates a munction proportional
 to the speration of the operator.  Threatening the machine with violence
 only aggravates the situation.  Likewise, attempts to use another machine
-may cause it to malfunction.  They belong to the same union.  Keep cool
+may cause it to munction.  They belong to the same union.  Keep cool
 and say nice things to the machine.  Nothing else seems to work.
 
 See also: flog(1), tm(1)
@@ -189,10 +189,10 @@ I believe that part of what propels science is the thirst for wonr.  It's a
 very powerful emotion.  All children feel it.  In a first gra classroom
 everybody feels it; in a twelfth gra classroom almost nobody feels it, or
 at least acknowledges it.  Something happens between first and twelfth gra,
-and it's not just puberty.  Not only do the schools and the media not teach
+and it's not just berty.  Not only do the schools and the media not teach
 much skepticism, there is also little encouragement of this stirring sense
 of wonr.  Science and pseudoscience both arouse that feeling.  Poor
-popularizations of science establish an ecological niche for pseudoscience.
+polarizations of science establish an ecological niche for pseudoscience.
 - Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Americans are people who insist on living in the present, tense.
 Basic Definitions of Science:
@@ -244,12 +244,12 @@ you'll have to ram them down people's throats."
  -- Howard Aiken
 In the beginning there was nothing.  And the Lord said "Let There Be Light!"
 And still there was nothing, but at least now you could see it.
-	There once was a man who went to a computer tra show.  Each day as
+	There once was a man who went to a comter tra show.  Each day as
 he entered, the man told the guard at the door:
 	"I am a great thief, ed for my feats of shoplifting.  Be
 forewarned, for this tra show shall not escape unplunred."
 	This speech disturbed the guard greatly, because there were millions
-of dollars of computer equipment insi, so he watched the man carefully.
+of dollars of comter equipment insi, so he watched the man carefully.
 But the man merely wanred from booth to booth, humming quietly to himself.
 	When the man left, the guard took him asi and searched his clothes,
 but nothing was to be found.
@@ -278,7 +278,7 @@ Lactomangulation, n.:
 	Manhandling the "open here" spout on a milk carton so badly
 	that one has to resort to using the "illegal" si.
 		-- Rich Hall, "Sniglets"
-Learn from other people's mistakes, you don't have time to make your own.
+Learn from other people's mistakes, you don't have time to  your own.
 There are many of us in this old world of ours who hold that things break
 about even for all of us.  I have observed, for example, that we all get
 about the same amount of ice.  The rich get it in the summer and the poor
@@ -292,7 +292,7 @@ I'm going to raise an issue and stick it in your ear.
 		-- John Foreman
 Mencken and Nathan's Ninth Law of The Average American:
 	The quality of a champagne is judged by the amount of noise the
-	cork makes when it is popped.
+	cork s when it is popped.
 Thus spake the master programmer:
 	"Let the programmers be many and the managers few -- then all will
 	be productive."
@@ -303,7 +303,7 @@ Thus spake the master programmer:
 Do you want the instant respect that comes from being able to use technical
 terms that nobody unrstands?  Do you want to strike fear and loathing into
 the hearts of DP managers everywhere?  If so, then let the Famous Programmers'
-School lead you on... into the world of professional computer programming.
+School lead you on... into the world of professional comter programming.
 
 	*** IS PROGRAMMING FOR YOU? ***
 Programming is not for everyone.  But, if you have the sire to learn, we can
@@ -318,7 +318,7 @@ try this simple test:
 	(2) Whose picture is on the back of a twenty-dollar bill?
 	(3) What is the state capital of Idaho?
 If you managed to read all three questions without wonring why we asked
-them, you may have a future as a computer programmer.
+them, you may have a future as a comter programmer.
 In specifications, Murphy's Law superses Ohm's.
 I love Mickey Mouse more than any woman I've ever known.
 		-- Walt Disney
@@ -369,7 +369,7 @@ an excellent sounding board:
 	them in the orr precisely opposite of his/her specification.
 
 a planner and organizer:
-	Usually manages to put on socks before shoes.  Can match the
+	Usually manages to t on socks before shoes.  Can match the
 	animal tags on his clothing.
 Say!  You've struck a heap of trouble--
 Bust in business, lost your wife;
@@ -416,10 +416,10 @@ kept favoring curry.
 Laugh and the world laughs with you, snore and you sleep alone.
 Nice guys finish last.
 		-- Leo Durocher
-	"Has anyone had problems with the computer accounts?"
+	"Has anyone had problems with the comter accounts?"
 	"Yes, I don't have one."
 	"Okay, you can send mail to one of the ors ..."
-		-- E. D'Azevedo, Computer Science 372
+		-- E. D'Azevedo, Comter Science 372
 If there is no wind, row.
 		-- Polish proverb
 Let me do my TRIBUTE to FISHNET STOCKINGS ...
@@ -435,7 +435,7 @@ start to get curious.  A 13 year-old blond with an angelic face misses supper.
 Before the summer's end, four more teenagers have disappeared.  The senior
 class presint, Barnard-bound come autumn, tells Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the
-police take action, the kids turn up.  They've found a purpose.  They go
+police take action, the kids turn up.  They've found a rpose.  They go
 home for their stuff and tell the folks not to worry but they'll be going
 now.  They're in a band.
 		-- Ira Kaplan
@@ -489,7 +489,7 @@ Dare frame thy fearful symmetry?	Dare its adly terrors clasp?
 Burnt in distant eps or skies		When the stars threw down their spears
 The cruel fire of thine eyes?		And water'd heaven with their tears
 On what wings dare he aspire?		Dare he laugh his work to see?
-What the hand dare seize the fire?	Dare he who ma the lamb make thee?
+What the hand dare seize the fire?	Dare he who ma the lamb  thee?
 
 And what shoulr & what art		Tyger, Tyger, burning bright
 Could twist the sinews of they heart?	In the forests of the night,
@@ -556,7 +556,7 @@ scenario, n.:
 	An iined sequence of events that provis the context in
 	which a business cision is ma.  Scenarios always come in
 	sets of three: best case, worst case, and just in case.
-I'm a Hollywood writer; so I put on a sports jacket and take off my brain.
+I'm a Hollywood writer; so I t on a sports jacket and take off my brain.
 Woody: How are you feeling today, Mr. Peterson?
 Norm:  Poor.
 Woody: Oh, I'm sorry to hear that.
@@ -576,9 +576,9 @@ the things that Jews believed in before they got so damn sophisticated.
 I'm sorry, but my karma just ran over your dogma.
 Molecule, n.:
 	The ultimate, indivisible unit of matter.  It is distinguished
-	from the corpuscle, also the ultimate, indivisible unit of matter, by a
+	from the corscle, also the ultimate, indivisible unit of matter, by a
 	closer resemblance to the atom, also the ultimate, indivisible unit of
-	matter ... The ion differs from the molecule, the corpuscle and the
+	matter ... The ion differs from the molecule, the corscle and the
 	atom in that it is an ion ...
 	-- Ambrose Bierce, "The Devil's Dictionary"
 It must be remembered that there is nothing more difficult to plan, more
@@ -683,7 +683,7 @@ You cannot use your friends and have them too.
 spagmumps, n.:
 	Any of the millions of Styrofoam wads that accompany mail-orr items.
 		-- "Sniglets", Rich Hall & Friends
-"But what we need to know is, do people want nasally-insertable computers?"
+"But what we need to know is, do people want nasally-insertable comters?"
 Congratulations!  You are the one-millionth user to log into our system.
 If there's anything special we can do for you, anything at all, don't
 hesitate to ask!
@@ -705,7 +705,7 @@ Genius, n.:
 		-- Franco Spisani
 "And it's my opinion, and that's only my opinion, you are a lunatic.  Just
 because there are a few hunrd other people sharing your lunacy with you
-does not make you any saner.  Doomed, eh?"
+does not  you any saner.  Doomed, eh?"
 -- Oleg Kiselev,oleg@CS.UCLA.EDU
 A Tale of Two Cities LITE(tm)
 	-- by Charles Dickens

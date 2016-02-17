@@ -25,7 +25,7 @@ small number needed [1 per month] in his factory.  He explained that this
 would be contrary to the political concept of local self-sufficiency.
 Therefore, each factory  keyboards, no matter how few, manufactures
 them completely, even molding the keypads.
-		-- Isaac Auerbach, IEEE "Computer", Nov. 1979
+		-- Isaac Auerbach, IEEE "Comter", Nov. 1979
 Hildebrant's Principle:
 	If you don't know where you are going, any road will get you there.
 Fortune Documents the Great Legal Decisions:
@@ -57,7 +57,7 @@ incomprehensible maxims, such as "A penny saved is a penny earned."
 Eventually he had to be given a job running the post office.
 		-- Dave Barry, "What is Electricity?"
 Health is merely the slowest possible rate at which one can die.
-Mistrust first impulses; they are always right.
+Mistrust first imlses; they are always right.
 It is often easier to ask for forgiveness than to ask for permission.
 		-- Grace Murray Hopper
 If you took all of the grains of sand in the world, and lined
@@ -80,7 +80,7 @@ The good life was so elusive
 It really got me down
 I had to regain some confidence
 So I got into camouflage
-Factorials were someone's attempt to make math LOOK exciting.
+Factorials were someone's attempt to  math LOOK exciting.
 The surest sign that a man is in love is when he divorces his wife.
 "Indecision is the basis of flexibility"
 -- button at a Science Fiction convention.

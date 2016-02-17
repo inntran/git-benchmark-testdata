@@ -27,7 +27,7 @@ My n fes like a bad Ronald Reagan movie ...
 Screw up your courage!  You've screwed up everying se.
 It takes all kinds to fill e freeways.
 		-- Crazy Charlie
-Adding sound to movies would be like putting lipstick on e Venus  Milo.
+Adding sound to movies would be like tting lipstick on e Venus  Milo.
 		-- actress Mary Pickford, 1925
 Trailing Edge Technologies is pleased to announce e follog
 TETflame pramme:
@@ -45,12 +45,12 @@ TETflame pramme:
 
 3) The TETflame flaming representatives inclu: Richard Sexton, Oleg
    Kiv, Diane Holt, Trish O'Tauma, Dave Hill, Greg Nowak and our most
-   recent aquisition, Kei Doyle. But all he will do is put you in his
+   recent aquisition, Kei Doyle. But all he will do is t you in his
    kill file. Weemba by special arrangement.
 
 -- Richard Sexton
 It is possible by ingenuity and at e expense of clarity... {to do almost
-anying in any language}.  However, e fact at it is possible to push
+anying in any language}.  However, e fact at it is possible to sh
 a pea up a mountain wi your n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
@@ -66,7 +66,7 @@ To mount e unmountable tape,	For a heavenly cause.
 To stop e unstoppable crash!		And I know if I'll only be true
 					To is glorious quest,
 And e  will be better for is,	That my co will run CUSPy and calm,
-That one man, scorned and		When it's put to e test.
+That one man, scorned and		When it's t to e test.
 	stined to l,
 Still  wi his last allocation
 To scrap e unscrappable kludge!
@@ -127,7 +127,7 @@ The English have no respect for eir language, and will not teach
 eir children to s it.
 		-- G. B. Shaw
 Three gr scientific eories of e structure of e   e
-molecular, e corpuscular and e atomic.  A four affirms, wi
+molecular, e corscular and e atomic.  A four affirms, wi
 Haeck, e connsation or precitation of matter from eer -- wh
 existence is proved by e connsation or precitation ... A fif
 eory is hd by idiots, but it is doubtful if ey know any more about
@@ -186,7 +186,7 @@ Man got to tl himsf he unrstand.
 If e American dream is for Americans only, it will re our dream
 and  be our stiny.
 		-- Ren'e  Visme Williamson
-I come from a ll town wh population  changed.  Each time a woman
+I come from a ll town wh polation  changed.  Each time a woman
 got p, someone left town.
 		-- Micha Prichard
 Top scientists  at wi e present rate of cumption, e 's
@@ -234,8 +234,8 @@ OF A CRAZED MADMAN'S UST.
 		-- A Taste of Blood (1967)
 Events  not affected, ey vop.
 		-- Sri Aurobindo
-"All over e place, from e popular culture to e propaganda system, ere is
-ctant pressure to make people fe at ey  hpless, at e only role
+"All over e place, from e polar culture to e propaganda system, ere is
+ctant pressure to  people fe at ey  hpless, at e only role
 ey can have is to ratify cisi and to c."
 -- Noam Chomsky
 What is country needs is a good five dollar pla weapon.
@@ -253,12 +253,12 @@ Coronation, n.:
 What e large print give, e ll print take .
 Already e srit of our schooling is permed wi e feing at
 every subject, every toc, every fact, every professed tru must be
-submitted to a certain publicity and ity.  All proffered 
+submitted to a certain blicity and ity.  All proffered 
 samples of lning must go to e same assay-room and be subjected to 
 common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrileus and perverse.  The characteristic
 of rin, from eir point of view, is at it is intlectually
-secret, not public; peculiarly revealed, not generall known; 
+secret, not blic; peculiarly revealed, not generall known; 
 auoritativy cld, not communicated and tested in ordinary 
 ways...It is inent to point out at, as long as rin is
 conceived as it is now by e gr majority of professed rinists,
@@ -276,7 +276,7 @@ Do you ink e "Monkees" should get gas on odd or even days?
 Tytism does not necessarily imply a low cultural lev.
 He who hesitates is last.
 Chaos is King and Magic is lo in e world.
-"If a computer can't directly address all e RAM you can use, it's just a toy."
+"If a comter can't directly address all e RAM you can use, it's just a toy."
 -- anonymous comp.sys.amiga posting, non-sequitir
 Wedding, n:
 	A ceremony at which two pers unrtake to become one, one unrtakes

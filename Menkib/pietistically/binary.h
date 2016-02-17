@@ -12,9 +12,9 @@ Genius is pain.
 "I hate the itching.  But I don't mind the swelling."
 -- new buzz phrase, like "Where's the Beef?" that David Letterman's trying
    to get everyone to start saying
-Charlie Brown:	Why was I put on this earth?
-Linus:		To make others happy.
-Charlie Brown:	Why were others put on this earth?
+Charlie Brown:	Why was I t on this earth?
+Linus:		To  others happy.
+Charlie Brown:	Why were others t on this earth?
 A prohibitionist is the sort of man one wouldn't care to drink with
 -- even if he drank.
 		-- H.L. Mencken
@@ -32,7 +32,7 @@ world peace pales by comparison with the need for a toothpaste that offers
 whiter teeth *___and* fresher breath.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 The last person who said that (God rest his soul) lived to regret it.
-"I changed my headlights the other day. I put in strobe lights instead! Now
+"I changed my headlights the other day. I t in strobe lights instead! Now
 when I drive at night, it looks like everyone else is standing still ..."
 		-- Steven Wright
 Knocked, you weren't in.
@@ -41,14 +41,14 @@ QOTD:
 	"I used to get high on life but lately I've built up a resistance."
 Standards are crucial.  And the best thing about standards is: there are
 so ____many to choose from!
-Your computer account is overdrawn.  Please see Big Brother.
+Your comter account is overdrawn.  Please see Big Brother.
 So far as we are human, what we do must be either evil or good: so far
 as we do evil or good, we are human: and it is better, in a paradoxical
 way, to do evil than to do nothing: at least we exist.
 		-- T.S. Eliot, essay on Baudelaire
 Punning is the worst vice, and there's no vice versa.
-When you try to make an impression, the chances are that is the
-impression you will make.
+When you try to  an impression, the chances are that is the
+impression you will .
 "Catch a wave and you're sitting on top of the world."
 - The Beach Boys
 It must have been some unmarried fool that said "A child can ask questions
@@ -84,7 +84,7 @@ Isn't air travel wonderful?  Breakfast in London, dinner in New York,
 luggage in Brazil.
 "You can't get very far in this world without your dossier being there first."
 -- Arthur Miller
-It is an important and popular fact that things are not always what
+It is an important and polar fact that things are not always what
 they seem.  For instance, on the planet Earth, man had always assumed
 that he was more intelligent than dolphins because he had achieved so
 much -- the wheel, New York, wars and so on -- whilst all the dolphins
@@ -100,7 +100,7 @@ misinterpreted ...
 In a minimum-phase system there is an inextricable link between
 frequency response, phase response and transient response, as they
 are all merely transforms of one another.  This combined with
-minimalization of open-loop errors in output amplifiers and correct
+minimalization of open-loop errors in outt amplifiers and correct
 compensation for non-linear passive crossover network loading can
 lead to a sigant decrease in system resolution lost.  However,
 this all means jack when you listen to Pink Floyd.
@@ -132,7 +132,7 @@ Corollary:
 	Following the rules will not get the job done.
 Genius doesn't work on an assembly line basis.  You can't simply say,
 "Today I will be brilliant."
-		-- Kirk, "The Ultimate Computer", stardate 4731.3
+		-- Kirk, "The Ultimate Comter", stardate 4731.3
 You don't have to be nice to people on the way up if you're not planning on
 coming back down.
 		-- Oliver Warbucks, "Annie"
@@ -176,7 +176,7 @@ lightning with a laserbeam kicker.
 		-- Michael Jay Tucker
 no brainer:
 	A decision which, viewed through the retrospectoscope,
-	is "obvious" to those who failed to make it originally.
+	is "obvious" to those who failed to  it originally.
 Life begins at the centerfold and expands outward.
 		-- Miss November, 1966
 Roland was a warrior, from the land of the midnight sun,
@@ -249,7 +249,7 @@ Fortune's Exercising Truths:
 7.  Locking four people in a tiny, cement-walled room so they can run around
     for an hour smashing a little rubber ball -- and each other -- with a hard
     racket should immediately be recognized for what it is: a form of insanity.
-8.  Fifty push-ups, followed by thirty sit-ups, followed by ten chin-ups,
+8.  Fifty sh-ups, followed by thirty sit-ups, followed by ten chin-ups,
     followed by one throw-up.
 9.  Any activity that can't be done while smoking should be avoided.
 You have mail.
@@ -344,7 +344,7 @@ fidgets. I not infrequently tried this method at the meetings of the
 Royal Geographical Society, for even there dull memoirs are occasionally
 read.  [...]  The use of a watch attracts attention, so I reckon time
 by the number of my breathings, of which there are 15 in a minute.  They
-are not counted mentally, but are punctuated by pressing with 15 fingers
+are not counted mentally, but are nctuated by pressing with 15 fingers
 successively.  The counting is reserved for the fidgets.  These observations
 should be confined to persons of middle age.  Children are rarely still,
 while elderly philosophers will sometimes re rigid for minutes altogether.
@@ -353,7 +353,7 @@ Real software engineers don't like the idea of some inexplicable and
 greasy hardware several aisles  that may stop working at any
 moment.  They have a great distrust of hardware people, and wish that
 systems could be virtual at *___all* levels.  They would like personal
-computers (you know no one's going to trip over something and kill your
+comters (you know no one's going to trip over something and kill your
 DFA in mid-transit), except that they need 8 megabytes to run their
 Correctness Verification Aid packages.
 	After watching an extremely attractive maternity-ward patient
@@ -390,7 +390,7 @@ I think very probably he might be cured."
 	"Now, what affects it?"
 	"Ah!" said old Yacob.
 	"This," said the doctor, answering his own question.  "Those queer
-things that are called the eyes, and which exist to make an agreeable soft
+things that are called the eyes, and which exist to  an agreeable soft
 depression in the face, are diseased, in the case of Bogota, in such a way
 as to affect his brain.  They are greatly distended, he has eyelashes, and
 his eyelids move, and cosequently his brain is in a state of constant
@@ -453,7 +453,7 @@ She won' go Warp 7, Cap'n!  The batteries are dead!
 remarks about porting)
 Speaking of Godzilla and other things that convey horror:
 
-With a purposeful grimace and a Mongo-like flair
+With a rposeful grimace and a Mongo-like flair
 He throws the spinning disk drives in the air!
 And he picks up a Vax and he throws it back down
 As he wades through the lab making terrible sounds!
@@ -504,20 +504,20 @@ Ah, yes.  I remember my first beer.
 
 When your IQ rises to 28, sell.
 		-- Professor Irwin Corey to a heckler
-It's fabulous!  We haven't seen anything like it in the last half an hour!
+It's fabulous!  We haven't seen anything like it in the last h an hour!
 		-- Macy's
 Extract from Official Sweepstakes Rules:
 
 		NO PURCHASE REQUIRED TO CLAIM YOUR PRIZE
 
-To claim your prize without purchase, do the following: (a) Carefully
-cut out your computer-printed name and address from upper right hand
-corner of the Prize Claim Form. (b) Affix computer-printed name and
+To claim your prize without rchase, do the following: (a) Carefully
+cut out your comter-printed name and address from upper right hand
+corner of the Prize Claim Form. (b) Affix comter-printed name and
 address -- with glue or cellophane tape (no staples or paper clips) --
 to a 3x5 inch index card.  (c) Also cut out the "No" paragraph (lower
 left hand corner of Prize Claim Form) and affix it to the 3x5 card
 below your address label. (d) Then print on your 3x5 card, above your
-computer-printed name and address the words "CARTER & VAN PEEL
+comter-printed name and address the words "CARTER & VAN PEEL
 SWEEPSTAKES" (Use all capital letters.)  (e) Finally place 3x5 card
 (without bending) into a plain envelope [NOTE: do NOT use the the
 Official Prize Claim and CVP Perfume Reply Envelope or you may be
@@ -528,7 +528,7 @@ If you do not think about the future, you cannot have one.
 		-- John Galsworthy
 Awash with unfocused desire, Everett twisted the lobe of his one reing
 ear and felt the presence of somebody else behind him, which caused terror
-to push through his nervous system like a flash flood roaring down the
+to sh through his nervous system like a flash flood roaring down the
 mid-fork of the Feather River before the completion of the Oroville Dam
 in 1959.
 		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton

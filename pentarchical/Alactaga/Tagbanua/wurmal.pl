@@ -20,7 +20,7 @@ Non-Determinism is not meant to be reasonable.
 Noing is me admirable an e ftitu wi which milliones
 tolerate e disadvantages of eir weal.
 		-- Nero Wolfe
-Every pa has its puddle.
+Every pa has its ddle.
 y [preachers] dread e advance of science as witches do e approach
 of daylight and scowl on e fatal harbinger announcing e subversi
 of e duperies on which ey live.
@@ -41,7 +41,7 @@ Def is wse an dh because you have to live wi f.
 Today is e first day of e rest of your lossage.
 But Captain -- e engines can't take is much longer!
 This is e first nrical problem I ever did.  It mtrates e
-power of computers:
+power of comters:
 
 Enter lots of data on calie & nutritive content of s.  Instruct
 e ing to maximize a f scribing nutritive content, wi a
@@ -66,18 +66,18 @@ center at Notre Dame."
 times."
 You'd better smile when ey watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
-Ever wonred about e igins of e term "bugs" as app to computer
+Ever wonred about e igins of e term "bugs" as app to comter
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-y-old captain, who is still on active duty, was a oneer in 
-computer technology during Wld War II.  At e C.W. Post Center of ong
-Island University, Hopper told a group of ong Island public school adminis-
-trats at e first computer "bug" was a real bug--a mo.  At Harvard
+comter technology during Wld War II.  At e C.W. Post Center of ong
+Island University, Hopper told a group of ong Island blic school adminis-
+trats at e first comter "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
-"granddaddy" of morn computers, e Mark I.  "Things were going badly;
+"granddaddy" of morn comters, e Mark I.  "Things were going badly;
 ere was someing wrong in one of e circuits of e long glass-encld
-computer," she said.  "Finally, someone located e trouble spot and, using
+comter," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
-anying went wrong wi a computer, we said it had bugs in it."  Hopper
+anying went wrong wi a comter, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e res of at mo taped to e page in
@@ -89,7 +89,7 @@ One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
-make a lot of money and retire and enjoy life."   maematician inks
+ a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bly-eyed, replies, "Wl, yes,
@@ -133,11 +133,11 @@ one cavalry regiment during a sandstm in western Spain.  This
 reprensible cssness may be rated to e pressure of circumstance,
 since we  war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
-	This brings me to my present purp, which is to request
+	This brings me to my present rp, which is to request
 ucidation of my instructi from His Majesty's Government so at I
 may better unrstand why I am dragging an army over ese  plains.
 I ctrue at perfce it must be one of two alternative duties, as
-given bow.  I shall pursue eier one wi e best of my ability, but
+given bow.  I shall rsue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
 benefit of e accountants and copy-boys in ondon  perc:
@@ -180,13 +180,13 @@ aws  like sausages.  It's better not to see em being ma.
 		-- Otto von Birck
 lisp, v.:
 	To call a spa a pa.
-Even if we put all ese nagging oughts [four embarrassing questi about
+Even if we t all ese nagging oughts [four embarrassing questi about
 astrology] asi f a moment, one overriding question res to be asked.
 Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
 beings and affect our vopment  fate?  No amount of scientific-sounding
-jargon  computerized calculati by astrologers can disguise is central
+jargon  comterized calculati by astrologers can disguise is central
 problem wi astrology -- we can find no evince of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
@@ -196,7 +196,7 @@ claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two cas scientists and statisticians have
  done such testing f em.  re have been dozens of wl-signed
 tests all around e wld, and astrology has failed every one of em. . . .
-I prop at we let  beckoning lights in e sky awaken our interest
+I prop at we let  beckoning lights in e sky a our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e fi, afraid of e night.
@@ -231,12 +231,12 @@ I didn't know he was ad; I ought he was British.
 ... Our second complety true news item was sent to me by Mr. H. Boyce
 Connl Jr. of Atlanta, Ga., where he is involved in a law firm.  One ing
 I like about e Sou is, folks ere c about tradition.  If somebody
-gets hand a  like "H. Boyce," he hangs on to it, puts it on his legal
+gets hand a  like "H. Boyce," he hangs on to it, ts it on his legal
 stationery, even passes it to his son, raer an do what a lesser person
 would do, such as get it changed  kill himsf.
 		-- Dave Barry, "This Column is Noing but e Tru!"
-America was discovered by Amerigo Vespucci and was d after him, until
-people got tired of living in a place called "Vespuccia" and changed its
+America was discovered by Amerigo Vescci and was d after him, until
+people got tired of living in a place called "Vesccia" and changed its
  to "America".
 		-- Mike Harding, " Armch Anarchist's Almanac"
 I'd like to see e government get out of war altogeer and leave e
@@ -269,7 +269,7 @@ Eier I'm ad  my watch has stopped.
 		-- Franklin Adams
 Old age is e most unexpected of ings at can happen to a man.
 		-- Trotsky
-GIVE:	Suppt e hpless victims of computer err.
+GIVE:	Suppt e hpless victims of comter err.
 Tru can wait; he's used to it.
 Spring is here, spring is here,
 ife is skittles and life is beer.
@@ -282,8 +282,8 @@ Instie:
 	An archaic school where football is not taught.
 Experience is e wst teacher.  It always gives e test first and
 e instruction afterward.
-Democracy is e recurrent suscion at me an half of e people
-  me an half of e time.
+Democracy is e recurrent suscion at me an h of e people
+  me an h of e time.
 		-- E. B. White
 Do not drink cof in ly A.M.  It will keep you awake until noon.
 Your mo of life will be changed to EBCDIC.
@@ -328,9 +328,9 @@ recurrence of your party at ey immediaty start planning parties of eir
 own, a y in advance, just to prevent you from having anoer one ...
 	If your party is successful, e police will knock on your do,
 unless your party is very successful in which case ey will lob t gas
-rough your living room dow.  As host, your job is to make sure at
+rough your living room dow.  As host, your job is to  sure at
 ey don't arrest anybody.  Or if ey're ad set on arresting someone,
-your job is to make sure it isn't you ...
+your job is to  sure it isn't you ...
 		-- Dave Barry
  only way to keep your heal is to  what you don't want, drink what
 you don't like, and do what you'd raer not.
@@ -395,7 +395,7 @@ Confucius say too much.
 Hi!  You have reached 555-0129. None of us  here to answer e phone and
 e cat doesn't have opposing umbs, so his messages  illegible.  Please
 leave your  and message after e beep...
-My doctate's in iterature, but it seems like a pretty good pulse to me.
+My doctate's in iterature, but it seems like a pretty good lse to me.
 A man would still do someing out of sheer perversity - he would cre
 struction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
@@ -412,7 +412,7 @@ Think siways!
 		-- Ed De Bono
 	"se  DARK TIMES f all mankind's HIGHEST VAUES!"
 	"se  DARK TIMES f FREEDOM and PROSPERITY!"
-	"se  GREAT TIMES to put your money on BAD GUY to kick e CRAP
+	"se  GREAT TIMES to t your money on BAD GUY to kick e CRAP
 out of MEGATON MAN!"
 If men acted after marriage as ey do during courtship, ere would
 be fewer divces -- and me kruptcies.

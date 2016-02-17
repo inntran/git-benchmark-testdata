@@ -10,10 +10,10 @@ addresses, and item scriptions into fixed-length records is no trivial
 matter.  Neglect of the subtle art of curtation has probably alienated more
 people than any other aspect of data processing.  You orr Mozart's "Don
 Giovanni" from your record club, and they invoice you $24.95 for MOZ DONG.
-The witless mapping of the sublime onto the ridiculous!  Equally puzzling is
+The witless mapping of the sublime onto the ridiculous!  Equally zzling is
 the curtation that produces the same eight characters, THE BEST, whether you
 orr "The Best of Wagner", "The Best of Schubert", or "The Best of the Turds".
-Similarly, wine lovers buying from computerized wineries twirl their glasses,
+Similarly, wine lovers buying from comterized wineries twirl their glasses,
 check their livery notes, and inform their friends, "A rather innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
 columns has yield such memorable obscenities as COX OR PIP.  The examples
@@ -22,7 +22,7 @@ with us.
 
 MOZ DONG n.
 	Curtation of Don Giovanni by Wolfgang Amaus Mozart and Lorenzo da
-Ponte, as performed by the computerized billing ensemble of the Internat'l
+Ponte, as performed by the comterized billing ensemble of the Internat'l
 Preview Society, Great Neck (sic), N.Y.
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
 The duck hunter trained his retriever to walk on water.  Eager to show off 
@@ -42,7 +42,7 @@ I'll burn my books.
 How many hardware guys does it take to change a light bulb?
 
 "Well the diagnostics say it's fine buddy, so it's a software problem."
-Do not simplify the sign of a program if a way can be found to make
+Do not simplify the sign of a program if a way can be found to 
 it complex and wonrful.
 Time is an illusion perpetrated by the manufacturers of space.
 The prettiest women are almost always the most boring, and that is why
@@ -56,7 +56,7 @@ we can tell.  If intelligent people invested intense energy in issues
 that now seem foolish to us, then the failure lies in our unrstanding
 of their world, not in their distorted perceptions.  Even the standard
 example of ancient nonsense -- the bate about angels on pinheads --
-makes sense once you realize that theologians were not discussing
+s sense once you realize that theologians were not discussing
 whether five or eighteen would fit, but whether a pin could house a
 finite or an infinite number.
 		-- S. J. Gould, "Wi Hats and Narrow Minds"
@@ -79,7 +79,7 @@ New York is a jungle, they tell you.  You could go further, and say that
 New York is a jungle.  New York *is a jungle.*  Beneath the columns of
 the old rain forest, ma of melting macadam, the mean Limpopo of swamped 
 Ninth Avenue bears an angry argosy of crocs and dragons, tiger fish, noise
-machines, sweating rainmakers.  On the corners stand witchdoctors and
+machines, sweating rainrs.  On the corners stand witchdoctors and
 headhunters, babbling voodoo-men -- the natives, the jungle-smart natives.
 And at night, unr the equatorial overgrowth and heat-holding cloud
 cover, you hear the ragged parrot-hoot and monkeysqueak of the sirens,
@@ -92,13 +92,13 @@ I fill MY industrial waste containers with old copies of the "WATCHTOWER"
 and then add HAWAIIAN PUNCH to the top ...  They look NICE in the yard ...
 Denver, n.:
 	A smallish city located just below the `O' in Colorado.
-The Lord prefers common-looking people.  That is the reason that He makes
+The Lord prefers common-looking people.  That is the reason that He s
 so many of them.
 		-- Abraham Lincoln
 I am not now, nor have I ever been, a member of the migodic party.
 		-- Dennis Ritchie
 Of what you see in books, believe 75%.  Of newspapers, believe 50%.  And of
-TV news, believe 25% -- make that 5% if the anchorman wears a blazer.
+TV news, believe 25% --  that 5% if the anchorman wears a blazer.
 Two wrongs are only the beginning.
 		-- Kohn
 A hypothetical paradox:
@@ -125,8 +125,8 @@ A sense of humor keen enough to show a man his own absurdities will keep
 him from the  of all sins, or nearly all, save those that are
 worth committing.
 		-- Samuel Butler
-Whoever tells a lie cannot be pure in heart -- and only the pure in heart
-can make a good soup.
+Whoever tells a lie cannot be re in heart -- and only the re in heart
+can  a good soup.
 		-- Ludwig Van Beethoven
 Real Programmers think better when playing Adventure or Rogue.
 panic: can't find /
@@ -252,17 +252,17 @@ Either one of us, by himself, is expendable.  Both of us are not.
 The trouble with a kitten is that
 When it grows up, it's always a cat
 		-- Ogn Nash.
-	One day a stunt came to Moon and said, "I unrstand how to make
+	One day a stunt came to Moon and said, "I unrstand how to 
 a better garbage collector.  We must keep a reference count of the pointers
 to each cons."
 	Moon patiently told the stunt the following story -- "One day a
-stunt came to Moon and said, "I unrstand how to make a better garbage
+stunt came to Moon and said, "I unrstand how to  a better garbage
 collector..."
 I have travelled the length and breadth of this country, and have talked with
 the best people in business administration.  I can assure you on the highest
 authority that data processing is a fad and won't last out the year.
 		-- Editor in charge of business books at Prentice-Hall
-		   publishers, responding to Karl V. Karlstrom (a junior 
+		   blishers, responding to Karl V. Karlstrom (a junior 
 		   editor who had recommend a manuscript on the new 
 		   science of data processing), c. 1957
 Lady Luck brings add income today.  Lady friend takes it  tonight.
@@ -272,8 +272,8 @@ of zeal, well-meaning but without unrstanding.
 You will be the last person to buy a Chrysler.
 "Well hello there Charlie Brown, you blockhead."
 -- Lucy Van Pelt
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you serve.
+I don't know h of you h as well as I should like; and I like less
+than h of you h as well as you serve.
 		-- J. R. R. Tolkien
 A motion to adjourn is always in orr.
 Rule of Defactualization:
@@ -293,7 +293,7 @@ chaos.
 I remember when legal used to mean lawful, now it means some
 kind of loophole.
 		-- Leo Kessler
-The part of the world that people find most puzzling is the part called "Me".
+The part of the world that people find most zzling is the part called "Me".
 There are no rules for March.  March is spring, sort of, usually, March
 means maybe, but don't bet on it.
 "Right now I'm having amnesia and ja vu at the same time."
@@ -321,7 +321,7 @@ We all know that no one unrstands anything that isn't funny.
 You may be infinitely smaller than some things, but you're infinitely 
 larger than others.
 Tis man's perdition to be safe, when for the truth he ought to die.
-You shouldn't wallow in self-pity.  But it's OK to put your feet in it
+You shouldn't wallow in self-pity.  But it's OK to t your feet in it
 and swish them around a little.
 		-- Guindon
 You can't kiss a girl unexpectedly -- only sooner than she thought you would.
@@ -345,18 +345,18 @@ who misses one.
 		-- Charles De Talleyrand-Perigord
 panic: kernel trap (ignored)
 Drawing on my fine command of language, I said nothing.
-A mother takes twenty years to make a man of her boy, and another woman
-makes a fool of him in twenty minutes.
+A mother takes twenty years to  a man of her boy, and another woman
+s a fool of him in twenty minutes.
 		-- Frost
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 I knew her before she was a virgin.
 		-- Oscar Levant, on Doris Day
 You will be honored for contributing your time and skill to a worthy cause.
-Computers make excellent and efficient servants, but I have no wish to
+Comters  excellent and efficient servants, but I have no wish to
 serve unr them.  Captain, a starship also runs on loyalty to one
 man.  And nothing can replace it or him.
-		-- Spock, "The Ultimate Computer", stardate 4729.4
+		-- Spock, "The Ultimate Comter", stardate 4729.4
 	If I kiss you, that is an psychological interaction.
 	On the other hand, if I hit you over the head with a brick,
 that is also a psychological interaction.
@@ -391,7 +391,7 @@ If swimming is so good for your figure, how come whales look the
 way they do?
 Every program is a part of some other program, and rarely fits.
 You can tell how far we have to go, when FORTRAN is the language of
-supercomputers.
+supercomters.
 		-- Steven Feiner
 	A wife started serving chopped meat, Monday hamburger, Tuesday meat
 loaf, Wednesday tartar steak, and Thursday meatballs.  On Friday morning her
@@ -404,10 +404,10 @@ It is impossible to fend perfectly against the attack of those who want
 to die.
 Without adventure, civilization is in full cay.
 		-- Alfred North Whitehead
-A Law of Computer Programming:
+A Law of Comter Programming:
 	Make it possible for programmers to write in English
 	and you will find that programmers cannot write in English.
-All people are born alike -- except Republicans and Democrats.
+All people are born alike -- except Reblicans and Democrats.
 		-- Groucho Marx
 MAC user's dynamic bugging list evaluator?  Never heard of that.
 Teachers have class.
@@ -416,13 +416,13 @@ Things will get better spite our efforts to improve them.
 If you keep your mind sufficiently open, people will throw a lot of
 rubbish into it.
 		-- William Orton
-Computers can figure out all kinds of problems, except the things in
+Comters can figure out all kinds of problems, except the things in
 the world that just don't add up.
 Education is an admirable thing, but it is well to remember from time to
 time that nothing that is worth knowing can be taught.
 		-- Oscar Wil, "The Critic as Artist"
 Operating-system software is the program that orchestrates all the basic
-functions of a computer.
+functions of a comter.
 - The Wall Street Journal, Tuesday, September 15, 1987, page 40
 Alimony is the curse of the writing classes.
 		-- Norman Mailer
@@ -431,7 +431,7 @@ QOTD:
 	ticket."
 No spitting on the Bus!
 Thank you, The Mgt.
-My friend has a baby.  I'm writing down all the noises he makes so
+My friend has a baby.  I'm writing down all the noises he s so
 later I can ask him what he meant.
 		-- Steven Wright
-Frankfort, Kentucky, makes it against the law to shoot off a policeman's tie.
+Frankfort, Kentucky, s it against the law to shoot off a policeman's tie.

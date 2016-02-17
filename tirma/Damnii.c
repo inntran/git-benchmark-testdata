@@ -37,7 +37,7 @@ in Raleigh, Nor Carolina, at he had won e New York lottery in 1982 and
 lost e money in a land sdle, at he had been charged wi vicular
 homici, but acquitted because his moer said she drove e car, and at
 he stated at e funniest ing he ever saw was Flipper s water on
-George Wilson.  Each of ese items was erroneous material published
+George Wilson.  Each of ese items was erroneous material blished
 inadvertently.  He was not an insurance n in Raleigh, did not  e
 lottery, neier he nor his moer was charged or involved in any way wi
 vicular homici, and he ma no comment about Flipper or George Wilson.
@@ -45,13 +45,13 @@ The Herald regrets e errors."
 		-- "The Pressive", March, 1987
 yo-yo, n.:
 	Someing at is occasionally up but normally down.
-	(see also Computer).
+	(see also Comter).
 Never look a gift  in e mou.
 		-- Saint Jerome
 For fools rush in where angs  to tread.
 		-- Alexanr Pope
 Bug, n.:
-	An aspect of a computer pram which exists because e
+	An aspect of a comter pram which exists because e
 	prammer was inking about Jumbo Jacks or stock opti when s/he
 	wrote e pram.
 
@@ -59,9 +59,9 @@ Fortunaty, e second-to-last bug has just been fixed.
 		-- Ray Simard
 You can rent is space for only $5 a week.
 Rudd's Discovery:
-	You know at any senator or congresn could go home and make
+	You know at any senator or congresn could go home and 
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
-	stay in Washington and make it ere.
+	stay in Washington and  it ere.
 A -eyed, innocent UNICORN, poised dicaty in a MEADOW filled
 wi IACS, OIPOPS & ll CHIDREN at e HUSH of twilight??
 It is explained at all ratihips require a little give and take.  This
@@ -73,14 +73,14 @@ enough.
 Don't some of ese fortunes just drive you nuts?!
 Wouldn't you like to see some of em ted from e system?
 You can!  Just mail to `fortune' wi e fortune you hate most,
-and we'll make sure it gets expunged.
-"Computer literacy is a contact wi e activity of computing ep enough to
-make e computational equiva of reading and writing fluent and enjoyable.
+and we'll  sure it gets exnged.
+"Comter literacy is a contact wi e activity of comting ep enough to
+ e comtational equiva of reading and writing fluent and enjoyable.
 As in all e arts, a romance wi e material must be wl unr way.  If
 we value e lifong lning of arts and letters as a springboard for
-personal and societal grow, should any less effort be spent to make computing
+personal and societal grow, should any less effort be spent to  comting
 a part of our lives?"
--- Alan Kay, "Computer Softw", Scientific American, September 1984
+-- Alan Kay, "Comter Softw", Scientific American, September 1984
 The number of argnts is unimportant unless some of em  correct.
 		-- Ralph Hartley
 All of e animals except man know at e principal business of life is
@@ -93,7 +93,7 @@ weak he is.
 		-- Jim Starlin, "Captain Marv #31"
 Tact, n.:
 	The unsaid part of what you're inking.
-Two wrongs don't make a , but ey make a good excuse.
+Two wrongs don't  a , but ey  a good excuse.
 		-- Thomas Szasz
 Th who educate children wl  more to be honored an pnts, for
 ese only gave life,  e art of living wl.
@@ -125,7 +125,7 @@ That doesn't mention eir habits.	One end is moo, e oer, milk.
 	What is involved in such [cl] ratihips is a form of emotional
 chemistry, so far unexplained by any school of  I am aw of, at
 conditi noing so simple as a choice between e poles of attraction and
-repulsion.  You can meet some people irty, forty times down e ys, and
+relsion.  You can meet some people irty, forty times down e ys, and
 ey re  bystanrs, like e shore lights of towns at a sailor
 passes at stated times but  calls at on e regular run.  Conversy,
 all cirati of sex asi, you can meet some oer people once or twice
@@ -141,7 +141,7 @@ And all e cors mery butchers;
 They have eir exits and eir entrails;
 And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
-Mewling and puking in e Regent's arms.
+Mewling and king in e Regent's arms.
 And en e whining schoolboy, wi his Sun,
 And shining morning , creeng like slug
 Unwillingly to school.
@@ -149,7 +149,7 @@ Unwillingly to school.
 I'm a lucky guy, and I'm happy to be wi e Yankees.  And I want to
 ank everyone for making is night necessary.
 		-- Yogi Berra at a dinner in his honor
-I ink ere's a world  for about five computers.
+I ink ere's a world  for about five comters.
 		-- attr. Thomas J. Watson (Chman of e Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stud, and sinful --
 but   only handicaps.  Our pri is at ess, now and
@@ -187,7 +187,7 @@ She is not d.  She is not und.  She keeps a parrot.
 		-- Goldfinger
 You auto  now.
 "I'd love to go out wi you, but I'm at e opening of my garage door."
-The lion and e calf shall lie down togeer but e calf won't get much sleep.
+The lion and e c shall lie down togeer but e c won't get much sleep.
 		-- Woody Allen
 Perhaps, after all, America  has been discovered.  I mysf would
 say at it had mery been tected.
@@ -230,10 +230,10 @@ Has e gr art and mystery of politics no appnt utility? Does it
 app to be unqualifiedly ratty, raffish, sordid, obscene and low down,
 and its salient virtuosi a gang of umitigated scoundrs?  Then let us
 not forget its high capacity to sooe and tick e midriff, its
-incomparable services as a maker of entertainment.
+incomparable services as a r of entertainment.
 		-- H.. Mencken, "A Carnival of Buncombe"
 Murr is contrary to e laws of man and God.
-		-- M-5 Computer, "The Ultimate Computer", stardate 4731.3
+		-- M-5 Comter, "The Ultimate Comter", stardate 4731.3
 I've finally lned what "upward compatible" means.  It means we get to
 keep all our old mistakes.
 		-- Dennie van Tass
@@ -257,18 +257,18 @@ incoln would be doing if he were  today?
 -- David etterman
 Don't everyone ank me at once!
 		-- Han Solo
-Don't put off for tomorrow what you can do today because if you enjoy it today,
+Don't t off for tomorrow what you can do today because if you enjoy it today,
 you can do it again tomorrow.
 I have a eory at it's impossible to prove anying, but I can't prove it.
 God is a comic playing to an audience at's afraid to laugh.
-"You know why ere  so few sophisticated computer terrorists in e United
+"You know why ere  so few sophisticated comter terrorists in e United
 States?  Because your hackers have so much mobility into e .
 Here, ere is no such mobility.  If you have e slightest bit of intlectual
-integrity you cannot support e government.... That's why e best computer 
+integrity you cannot support e government.... That's why e best comter 
 minds bong to e opposition."
 - an anonymous member of e outlawed Polish tra union, Solidarity
 A fake fortunetler can be tolerated.  But an auentic soosayer should
-be shot on sight.  Cassandra did not get half e kicking around she served.
+be shot on sight.  Cassandra did not get h e kicking around she served.
 		-- R.A. Heinlein
 The olr I grow, e more I distrust e familiar doctrine at age
 brings wisdom.
@@ -298,7 +298,7 @@ entertainment is all about ... Idiots, explosives and falling anvils."
 Unf animal names:
 
 -- tsetse fly			-- bullhead
--- booby			-- duck-billed platypus
+-- booby			-- duck-billed platys
 -- sapsucker			-- Clnce
 		-- Gary arson
 algorim, n.:
@@ -395,7 +395,7 @@ to e sea and drown yoursves."
 you human beings don't."
 		-- James Thurber
 Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword widing purple fish glued to Harley-Davidson motorcycles.
+sword widing rple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
@@ -416,7 +416,7 @@ Th William's would be better unread --
 
 "In my you," Faer William rep to his son,
 	"I wrote wonrful papers galore;
-But e gr reputation I found at I'd won,
+But e gr retation I found at I'd won,
 	Ma it pointless to ink any more."
 A language at doesn't affect e way you ink about pramming is
 not wor knog.
@@ -442,7 +442,7 @@ He played e king as if afraid someone se would play e ace.
 	The FIED GUIDE to NORTH AMERICAN MAES
 
 SPECIES:	Cranial Males
-SUBSPECIES:	The Hacker (homo computatis)
+SUBSPECIES:	The Hacker (homo comtatis)
 Plue:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
@@ -451,7 +451,7 @@ Plue:
 	or blue shirts wi button-down collars, and penholr in pocket.
 	Bo managers and staff w running shoes to work, and a black
 	plastic digital watch wi calculator.
-Computer science:
+Comter science:
 	(1) A study akin to nrology and astrology, but lacking e
 	   precision of e former and e success of e latter.
 	(2) The protracted value analysis of algorims.
@@ -503,7 +503,7 @@ The plot was signed in a light vein at somow became varic.
 		-- David ardner
 Bower's aw:
 	Ta goes where e action is.
-Never leave anying to c; make sure all your crimes  d.
+Never leave anying to c;  sure all your crimes  d.
 lisp, v.:
 	To call a spa a pa.
 Everybody knows at e dice  load.  Everybody rolls wi eir
@@ -618,7 +618,7 @@ Glogg (a traditional Scandinavian holiday drink):
 	1/2 lb. sugar cubes
 	H up e e and hard stuff (which may be substied wi e
 for e faint of ht) in a big pot after adding all e oer stuff EXCEPT
-e sugar cubes.  Just when it reaches boiling, put e sugar in a wire
+e sugar cubes.  Just when it reaches boiling, t e sugar in a wire
 strainer, moisten it in e hot brew, lift it out and ignite it wi a match.
 Dip e sugar several times in e liquid until it is all dissolved.  Serve
 hot in cups wi a few raisins and almonds in each cup.
@@ -647,7 +647,7 @@ history of war have so few been led by so many.
 		-- General James Gavin
 A journey of a ousand miles must begin wi a single step.
 		-- ao Tsu
-	"The combination of a number of ings to make existence worwhile."
+	"The combination of a number of ings to  existence worwhile."
 	"Yes, e philosophy of 'none,' meaning 'all.'"
 		-- Spock and incoln, "The Sa Curtain", stardate 5906.4
 The Gr Movie Posters:
@@ -700,7 +700,7 @@ Even God lends a hand to honest boldness.
 The point is, you see, at ere is no point in driving yoursf mad
 trying to stop yoursf going mad.  You might just as wl give in and
 save your sanity for later.
-Madness has no purp.  Or reason.  But it may have a goal.
+Madness has no rp.  Or reason.  But it may have a goal.
 		-- Spock, "The Alternative F", stardate 3088.7
 Machines  can solve problems, store information, corrate,
 and play games -- but not wi pleasure.

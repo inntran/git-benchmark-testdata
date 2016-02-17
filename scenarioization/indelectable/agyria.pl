@@ -4,14 +4,14 @@ Advertising Rule:
 	that it is curable.
 I'm hungry, time to eat lunch.
 Do you think the "Monkees" should get gas on odd or even days?
-"You shouldn't make my toaster angry."
+"You shouldn't  my toaster angry."
 -- Household security explained in "Johnny Quest"
 If rabbits' feet  so lucky, what happened to the rabbit?
 Remember -- only 10% of anything can be in the top 10%.
 "Show me a good lr, and I'll show you a lr."
 -- Vince Lombardi, football coach
 Now's the time to have some big ias
-Now's the time to make some firm cisions
+Now's the time to  some firm cisions
 We saw the Buddha in a bar down south
 Talking politics and nuclear fission
 We see him and he's all washed up --
@@ -19,12 +19,12 @@ Moving on into the body of a beetle
 Getting ready for a long long crawl
 He  ain't nothing -- he ain't nothing at all...
 
-Death and Money make their point once more
+Death and Money  their point once more
 In the shape of Philosophical assassins
 Mark and Danny take the bus uptown
 Deadly angels for reality and passion
 Have the courage of the here and now
-Don't taking nothing from the half-baked buddhas
+Don't taking nothing from the h-baked buddhas
 When you think you got it paid in full
 You got nothing -- you got nothing at all...
 	We're on the road and we're gunning for the Buddha.
@@ -32,12 +32,12 @@ You got nothing -- you got nothing at all...
 	We're on the road and we're gunning for the Buddha.
 	It would take one shot -- to blow him ...
 		-- Shriekback, "Gunning for the Buddah"
-Were it not for the presence of the unwashed and the half-educated, the
+Were it not for the presence of the unwashed and the h-educated, the
 formless, queer and incomplete, the unreasonable and absurd, the infinite
 shapes of the lightful human tadpole, the horizon would not wear so 
 a grin.
 		-- F.M. Colby, "Iinary Obligations"
-A healthy male adult bore consumes each year one and a half times his own
+A healthy male adult bore consumes each year one and a h times his own
 weight in other people's patience.
 		-- John Updike
 The worst is not so long as we can say "This is the worst."
@@ -59,7 +59,7 @@ mind wonrfully.
 Automobile, n.:
 	A four-wheeled vehicle that runs up hills and down pestrians.
 You   given a wish without also being given the
-power to make it true.  You may have to work for it, however.
+power to  it true.  You may have to work for it, however.
 		-- R. Bach, "Messiah's Handbook : Reminrs for
 		   the Advanced Soul"
 I have already given two cousins to the war and I stand ready to sacrifice
@@ -75,7 +75,7 @@ In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
 and attired in shorts to pilot or ri in an airplane.
 no brainer:
 	A cision which, viewed through the retrospectoscope,
-	is "obvious" to th who failed to make it originally.
+	is "obvious" to th who failed to  it originally.
 You plan things that you do not even attempt because of your extreme caution.
 QOTD:
 	"It's been real and it's been fun, but it hasn't been real fun."
@@ -114,8 +114,8 @@ better logician than I am" is false because there need not have been any me.
 This is a test of the emergency broadcast system.  Had there been an
 actual emergency, then you would no longer be here.
 UH-OH!!  We're out of AUTOMOBILE PARTS and RUBBER GOODS!
-Nothing makes one so vain as being told that one is a sinner.
-Conscience makes egotists of us all.
+Nothing s one so vain as being told that one is a sinner.
+Conscience s egotists of us all.
 		-- Oscar Wil
 "How do you know she is a unicorn?" Molly mand.  "And why were you afraid
 to let her touch you?  I saw you.  You were afraid of her."
@@ -143,7 +143,7 @@ Kaufman's Law:
 Adam and Eve had many advantages, but the principal one was, that they escaped
 teething.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-The disks  getting full; purge a file today.
+The disks  getting full; rge a file today.
 Now that day wearies me,
 My yearning sire
 Will receive more kindly,
@@ -184,7 +184,7 @@ and sudnly began to bark in a fashion that would have done any Doberman
 proud.  The startled cat fled in fear for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
 you saved us!" and "Yay!  You scd the cat !" she turned to them
-purpfully and cld, "You see how useful it is to know a second
+rpfully and cld, "You see how useful it is to know a second
 language?"
 No friendship is so cordial or so licious as that of girl for girl;
 no hatred so intense or immovable as that of woman for woman.
@@ -203,10 +203,10 @@ I have  seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
 Steve Jobs said two years ago that X is brain-daed and it will be
-gone in two years.  He was half right.
+gone in two years.  He was h right.
 		-- Dennis Ritchie
 
-Dennis Ritchie is twice as bright as Steve Jobs, and only half wrong.
+Dennis Ritchie is twice as bright as Steve Jobs, and only h wrong.
 		-- Jim Gettys
 Illusion is the first of all pleasures.
 		-- Voltaire
@@ -247,7 +247,7 @@ I Still Miss You, Baby, But My Aim's Gettin' Better
 I've Got Red Eyes From Your White Lies and I'm Blue All the Time
 		-- "Wordplay"
 MMM-MM!!  So THIS is BIO-NEBULATION! 
-"The one charm of marriage is that it makes a life of ception a neccessity."
+"The one charm of marriage is that it s a life of ception a neccessity."
 - Oscar Wil
 Keep grandma off the streets -- legalize bingo.
 You love peace.
@@ -280,7 +280,7 @@ the flyblown rhetoric of Bishop Wilberforce and William Jennings Bryan.
 - Martin Gardner, "Irving Kristol and the Facts of Life", 
    The Skeptical Inquirer, Vol. XII No. 2, ppg. 128-131
 If I don't drive around the park,
-I'm pretty sure to make my mark.
+I'm pretty sure to  my mark.
 If I'm in bed each night by ten,
 I may get back my looks again.
 If I abstain from fun and such,
@@ -307,7 +307,7 @@ monstrous before we die."
 The young lady had an unusual list,
 Linked in part to a structural weakness.
 She set no preconditions.
-The little pieces of my life I give to you, with love, to make a quilt
+The little pieces of my life I give to you, with love, to  a quilt
 to keep  the cold.
 transpnt, adj.:
 	Being or pertaining to an existing, nontangible object.
@@ -327,13 +327,13 @@ true distaste.
 		-- Judith Martin, "Miss Manners' Gui to Excruciatingly
 		   Correct Behavior"
 Command, n.:
-	Statement presented by a human and accepted by a computer in
-	such a  as to make the human feel as if he is in control.
+	Statement presented by a human and accepted by a comter in
+	such a  as to  the human feel as if he is in control.
 I used to be a FUNDAMENTALIST, but then I heard about the HIGH
 RADIATION LEVELS and bought an ENCYCLOPEDIA!!
 You must know that a man can have only one invulnerable loyalty, loyalty
 to his own concept of the obligations of manhood.  All other loyalties
- merely puties of that one.
+ merely ties of that one.
 		-- Nero Wolfe
 Yow!  I want to mail a bronzed artichoke to Nicaragua!
 Of ______course it's the murr weapon.  Who would frame someone with a fake?
@@ -363,10 +363,10 @@ no rhythm in cymbals no tempo in drums,
 love's on arrival,
 she comes when she comes,
 right on the target but  of the mark...
-The average individual's position in any hierarchy is a lot like pulling
+The average individual's position in any hierarchy is a lot like lling
 a dogsled -- there's no real change of scenery except for the lead dog.
 It is possible by ingenuity and at the expense of clarity... {to do almost
-anything in any language}.  However, the fact that it is possible to push
+anything in any language}.  However, the fact that it is possible to sh
 a pea up a mountain with your n does not mean that this is a sensible
 way of getting it there.  Each of these techniques of language extension
 should be used in its proper place.
@@ -388,17 +388,17 @@ And miles to go before I sleep.
 	The housewife rep, "Four!".
 	The accountant said, "It's either 3 or 4.  Let me run th figures
 through my spread sheet one more time."
-	The lawyer pulled the drapes, dimmed the lights and asked in a
+	The lawyer lled the drapes, dimmed the lights and asked in a
 hushed voice, "How much do you want it to be?"
 Arithmetic is being able to count up to twenty without taking off your shoes.
 		-- Mickey Mouse
-"Live or die, I'll make a million."
+"Live or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the earth, Firesign Theater
 You will be surround by luxury.
 Softw entities  more complex for their size than perhaps any other human
-construct because no two parts  alike.  If they , we make the two
+construct because no two parts  alike.  If they , we  the two
 similar parts into a subroutine -- open or cld.  In this respect, softw
-systems differ profoundly from computers, buildings, or automobiles, where
+systems differ profoundly from comters, buildings, or automobiles, where
 repeated elements abound.
 - Fred Brooks, Jr.
 Revolution, n.:
@@ -413,7 +413,7 @@ Lavoris in the toilet."
 Plus ,ca change, plus c'est la m^eme ch.
 	[The more things change, the more they re the same.]
 		-- Alphonse Karr, "Les Gu^epes"
-Vermouth always makes me brilliant unless it makes me idiotic.
+Vermouth always s me brilliant unless it s me idiotic.
 		-- E.F. Benson
 There is no likelihood man can ever tap the power of the atom.
 		-- Robert Millikan, Nobel Prize in Physics, 1923
@@ -433,7 +433,7 @@ of 1886.  For weeks beforehand, shops had been busy pressing wheels in on the
 axles to the new and narrower gauge, to have a supply of rolling stock which
 could run on the new track as soon as it was ready.  Finally, on the day set,
 great numbers of gangs of track layers went to work at dawn.  Everywhere one
-rail was loned, moved in three and one-half inches, and spiked down in its
+rail was loned, moved in three and one-h inches, and spiked down in its
 new position.  By dark, trains from anywhere in the United States could operate
 over the tracks in the South, and a free interchange of freight cars everywhere
 was possible.
@@ -464,15 +464,15 @@ Any sufficiently advanced technology is indistinguishable from a rigged mo.
 Vulcans  bluff.
 		-- Spock, "The Doomsday Machine", stardate 4202.1
 There  certain things men must do to re men.
-		-- Kirk, "The Ultimate Computer", stardate 4929.4
+		-- Kirk, "The Ultimate Comter", stardate 4929.4
 Better by far you should forget and smile than that you should remember
 and be sad.
 		-- Christina Rossetti
 Troubled day for virgins over 16 who  beautiful and wealthy and live
 in eucalyptus trees.
-Immanuel doesn't pun, he Kant.
+Immanuel doesn't n, he Kant.
 You will be married within a year.
-Softw suppliers  trying to make their softw packages more
+Softw suppliers  trying to  their softw packages more
 "user-friendly".  ...  Their best approach, so far, has been to take all
 the old brochures, and stamp the words, "user-friendly" on the cover.
 		-- Bill Gates, Microsoft, Inc.
@@ -511,7 +511,7 @@ I'm always looking for a new ia that will be more productive than its cost.
 Around the turn of this century, a compr named Camille Saint-Saens wrote
 a satirical zoological-fantasy called "Le Carnaval s Animaux."  Asi from
 one movement of this piece, "The Swan", Saint-Saens didn't allow this work
-to be published or even performed until a year had elapsed after his ath.
+to be blished or even performed until a year had elapsed after his ath.
 (He died in 1921.)
 	Most of us know the "Swan" movement rather well, with its smooth,
 flowing cello melody against a calm background; but I've been having this
@@ -570,7 +570,7 @@ the world is weird because it is stupendous, awesome, mysterious,
 unfathomable; my interest has been to convince you that you must accept
 responsibility for being here, in this marvelous world, in this marvelous
 sert, in this marvelous time.  I wanted to convince you that you must
-learn to make every act count, since you  going to be here for only a
+learn to  every act count, since you  going to be here for only a
 short while, in fact, too short for witnessing all the marvels of it."
 		-- Don Juan
 Class: when they're running you out of town, to look like you're
@@ -593,5 +593,5 @@ panic: kernel trap (ignored)
 Delta: The kids will love our inflatable slis.    -- David Letterman
 Barbie says, Take quaalus in gin and go to a disco right !
 But Ken says, WOO-WOO!!  No credit at "Mr. Liquor"!!
-"Never make any mistaeks."
+"Never  any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)

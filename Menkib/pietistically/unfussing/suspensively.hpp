@@ -17,7 +17,7 @@ Chasing sounds across the galaxy
 'Till silence is but a blur.
 		-- QYX.
 One of the disadvantages of having children is that they eventually get old
-enough to give you presents they make at school.
+enough to give you presents they  at school.
 		-- Robert Byrne
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
@@ -34,7 +34,7 @@ it's going to be up all night.
         .
         .
         .
-	(99)  Window garn harrow (pulled behind Tonka tractors)
+	(99)  Window garn harrow (lled behind Tonka tractors)
 	(100) Killer velcro
 	(101) Currency
 What does it mean if there is no fortune for you?
@@ -53,11 +53,11 @@ acquaintances will know you in a thousand ys.
 		-- Richard Bach, "Illusi"
 This is the tomorrow you worried about yesterday.  And now you know why.
 Iine if every Thursday your shoes explod if you tied them the usual
-way.  This happens to us all the time with computers, and nobody thinks of
+way.  This happens to us all the time with comters, and nobody thinks of
 complaining.
 		-- Jeff Raskin
 "Interesting survey in the current Journal of Abnormal Psychology: New York 
-City has a higher percentage of people you shouldn't make any sudn moves 
+City has a higher percentage of people you shouldn't  any sudn moves 
 around than any other city in the world."
 -- David etterman
 Nothing increases your golf score like witnesses.
@@ -82,9 +82,9 @@ The Second aw of Thermodynamics:
 Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, presint of Exabyte
 DOS Air:
-All the passengers go out onto the runway, grab hold of the plane, push it
+All the passengers go out onto the runway, grab hold of the plane, sh it
 until it gets in the air, hop on, jump off when it hits the ground again.
-Then they grab the plane again, push it back into the air, hop on, et
+Then they grab the plane again, sh it back into the air, hop on, et
 cetera.
 Economics is extremely useful as a form of employment for economists.
 		-- John Ken Galbraith
@@ -96,7 +96,7 @@ You  go anywhere without your soul.
 Some books  to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
-	[As anyone who has ever owned a puppy already knows.  Ed.]
+	[As anyone who has ever owned a ppy already knows.  Ed.]
 Q:	What is printed on the bottom of beer bottles in Minnesota?
 A:	Open other end.
 There  only two kinds of tequila.  Good and better.
@@ -108,13 +108,13 @@ I'd whip you if I had a .
 		-- Groucho Marx
 momentum, n.:
 	What you give a person when they  going .
-Nemo me impune lacessit.
-	[No one provokes me with impunity]
+Nemo me imne lacessit.
+	[No one provokes me with imnity]
 		-- Motto of the Crown of Scotland
 We  Microsoft.  Unix is irrelevant.  Openness is futile.  Prep
 to be assimilated.
 Eschew obfuscation.
-Harry is heavily into camping, and every y in the late fall, he makes us
+Harry is heavily into camping, and every y in the late fall, he s us
 all go to Assateague, which is an island on the Atl Ocean famous for
 its wild s.  I realize that the concept of wild s probably stirs
 rom noti in many of you, but this is because you have  met any
@@ -132,7 +132,7 @@ Rule of Creative Resch:
 F u cn rd ths u cnt spl wrth a dm!
 Now I'm concentrating on a specific tank battle toward the end of World War II!
 Bullwinkle:	You just leave that to my pal.  He's the brains of the outfit.
-General:	What does that make YOU?
+General:	What does that  YOU?
 Bullwinkle:	What else?  An executive.
 		-- Jay Ward
 Your files  now being encrypted and thrown into the bit bucket.
@@ -148,7 +148,7 @@ You will soon meet a person who will play an important role in your life.
 in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of self-confessed "car nuts"
  making money doing what they love: writing co and driving fast.
--- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
+-- "Electronics ts its foot on the gas", IEEE Spectrum, May 88
 Before Xerox, five carb were the maximum extension of anybody's ego.
 Spock: The odds of surviving another attack  13562190123 to 1, Captain.
 quark:
@@ -182,13 +182,13 @@ countries to signal turns.
 In God we trust; all else we walk through.
 Thus spake the master prammer:
 	"You can mtrate a pram for a corporate executive, but you
-	can't make him computer literate."
+	can't  him comter literate."
 		-- Geoffrey James, "The Tao of Pramming"
 The evolution of the human race will not be accomplished in the ten thousand
 ys of tame animals, but in the million ys of wild animals, because man
 is and will always be a wild animal.
 -- Charles Galton Darwin
-In 1914, the first crossword puzzle was printed in a newspaper.  The
+In 1914, the first crossword zzle was printed in a newspaper.  The
 creator received $4000 down ... and $3000 across.
 Peace is much more  than a piece of land... let there be no more wars.
 		-- Mohammed Anwar Sadat, 1918-1981
@@ -255,7 +255,7 @@ Gordon's aw:
 	If you think you have the solution, the question was poorly phrased.
 Fine day for friends.
 So-so day for you.
-Murphy's aw is recursive.  Washing your car to make it rain doesn't work.
+Murphy's aw is recursive.  Washing your car to  it rain doesn't work.
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and cirs just how many people know the real truth
 about his or her love affairs.
@@ -313,7 +313,7 @@ finds himself no wiser than before," Bokonon tells us.  "He is full of
 murrous resentment of people who  ignorant without having come by
 their ignorance the hard way."
 		-- Kurt Vonnegut, "Cat's Cradle"
-Executive ability is prominent in your make-up.
+Executive ability is prominent in your -up.
 H. . Mencken's aw:
 	Th who can -- do.
 	Th who can't -- teach.
@@ -349,7 +349,7 @@ Gong, n: Medieval term for privy, or what pased for them in that era.
 Today used whimsically to scribe the aftermath of a bogon attack. Think
 of our community as the Galapagos of the English language.
 
-"Vog may read you bad poetry, but bog make you study obsolete RFCs."
+"Vog may read you bad poetry, but bog  you study  RFCs."
 		-- Dave Mills
 There is no such thing as inner peace.  There is only nervousness or ath.
 Any attempt to prove otherwise cties unacceptable behaviour.
@@ -360,7 +360,7 @@ Zero Mostel: That's it baby!  When you got it, flaunt it!  Flaunt it!
 I have a TINY BOW in my HEAD
 3M, unr the Scotch brand name, manufactures a fine adhesive for art
 and display work.  This product is called "Craft Mount".  3M suggests
-that to obtain the best results, one should make the bond "while the
+that to obtain the best results, one should  the bond "while the
 adhesive is wet, aggressively tacky."  I did not know what "aggressively
 tacky" meant until I read today's fortune.
 
@@ -395,7 +395,7 @@ Aleph-null bottles of beer on the wall.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
 B's aw:
-	Adding manpower to a late softw project makes it later.
+	Adding manpower to a late softw project s it later.
 If you stew apples like cranberries, they taste more like prunes than
 rhu does.
 		-- Groucho Marx
@@ -413,7 +413,7 @@ dumb, and maybe even a little ugly on the si."
 	We have some absolutely irrefutable statistics to show exactly why
 you  so tired.
 	There  not as many people actually working as you may have thought.
-	The population of this country is 200 million.  84 million  over
+	The polation of this country is 200 million.  84 million  over
 60 ys of age, which leaves 116 million to do the work.  People unr 20
 ys of age total 75 million, which leaves 41 million to do the work.
 	There  22 million who  employed by the government, which leaves
@@ -424,7 +424,7 @@ hospitals, insane asylums, etc., so that leaves 12,000 to do the work.
 	Now it may interest you to know that there  11,998 people in jail,
 so that leaves just 2 people to carry the load. That is you and me, and
 brother, I'm getting tired of doing everything myself!
-How many retured bricklayers from FORIDA  out purchasing PENCI
+How many retured bricklayers from FORIDA  out rchasing PENCI
 SHARPENERS  NOW??
 Standards  different for all things, so the standard set by man is by
 no means the only 'certain' standard.  If you mistake what is relative for

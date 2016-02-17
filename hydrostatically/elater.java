@@ -3,7 +3,7 @@ When a woman marries again it is because she tested her first husband.
 When a man marries again, it is because he adored his first wife.
 		-- Oscar Wil
 One good suit is worth a thousand resumes.
-The beauty of a pun is in the "Oy!" of the beholr.
+The beauty of a n is in the "Oy!" of the beholr.
 Unix Beer: Comes in several different brands, in cans ranging from 8 oz. 
 to 64 oz.  Drinkers of Unix Beer display fierce brand , even 
 though they claim that all the different brands taste almost intical. 
@@ -13,7 +13,7 @@ either need a complete set of instructi, or a friend who has been
 drinking Unix Beer for several ys.
 	BSD stout: Deep, hty, and an acquired taste.  The official
 brewer has reased the recipe, and a lot of home-brewers now use it.
-	Hurd beer: ong advertised by the popular and politically active
+	Hurd beer: ong advertised by the polar and politically active
 GNU brewery, so far it has more head than body.  The GNU brewery is
 mostly known for printing complete brewing instructi on every can,
 which contains hops, malt, barley, and yeast ... not yet fermented.
@@ -24,7 +24,7 @@ brewers and Unix beer-lovers world, many of whom change the recipe.
 newer batches of a lot of beers seem to blend ale and stout or lager.
 	Solaris brand: A lager, intend to replace Sun brand stout.
 Unlike most lagers, this one has to be drunk more slowly than stout.
-	Sun brand: ong the most popular stout on the Unix market, it was
+	Sun brand: ong the most polar stout on the Unix market, it was
 discontinued in favor of a lager.
 	SysV lager: Cl and thirst-quenching, but lacking the body of
 stout or the sweetness of ale.
@@ -55,13 +55,13 @@ You tread upon my patience.
 		-- William Shakespe, "Henry IV"
 tepression, n.:
 	The ep-seated guilt which stems from knowing that you did not try
-	hard enough to look up the number on your own and instead put the
+	hard enough to look up the number on your own and instead t the
 	burn on the directory assistant.
 		-- "Sniglets", Rich Hall & Friends
 Go slowly to the entertainments of thy friends, but quickly to their
 misfortunes.
 		-- Chilo
-There's no such thing as pure pleasure; some anxiety always goes with it.
+There's no such thing as re pleasure; some anxiety always goes with it.
 QOTD:
 	"I used to get high on life but laty I've built up a resistance."
 You should avoid hedging, at least that's what I think.
@@ -72,7 +72,7 @@ Three may keep a secret, if two of them  ad.
 "Humor is a drug which it's the fashion to abuse."
 		-- William Gilbert
 Q: They just announced on the radio that Dan Quayle was picked as the
-Republican V.P. candidate.  Should I post?
+Reblican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
@@ -100,8 +100,8 @@ leash.  I thought I recognized your foul stench when I was brought on board.
 et the machine do the dirty work.
 		-- "Elements of Pramming Style", Kernighan and Ritchie
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
-Don't make a big al out of everything; just al with everything.
-I'm a Hollywood writer; so I put on a sports jacket and take off my brain.
+Don't  a big al out of everything; just al with everything.
+I'm a Hollywood writer; so I t on a sports jacket and take off my brain.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
 I loathe people who keep dogs.  They  s who haven't got the guts
 to bite people themsves.

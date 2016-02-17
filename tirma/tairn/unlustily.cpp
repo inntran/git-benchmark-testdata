@@ -40,7 +40,7 @@ oer usess ings, but  a wd about e one at will cause e
 grest friction.
 		-- James Michener, "Space"
 "Interesting survey in e current Journal of Abnmal Psychology: New Yk 
-City has a higher percentage of people you shouldn't make any sudn moves 
+City has a higher percentage of people you shouldn't  any sudn moves 
 around an any oer city in e wld."
 -- David etterman
 A handful of friends is w me an a wagon of gold.
@@ -58,7 +58,7 @@ Against studity e very gods msves contend in vain.
 Blame Saint Andreas -- it's all his fault.
 "Nucl war would really set back cable."
 - Ted Turner
-"Ada is e wk of an ct, not a computer scientist."
+"Ada is e wk of an ct, not a comter scientist."
 - Jean Icbiah, invent of Ada, weenie
 Propd Additi to e PDP-11 Instruction Set:
 
@@ -117,7 +117,7 @@ He drawe out e read of his verbosity finer an e staple of his
 argnt.
 		-- William Shakespe, "ove's abour's ost"
 	A master prammer passed a novice prammer one day.   master
-noted e novice's preoccupation wi a hand-hd computer game.  "Excuse me",
+noted e novice's preoccupation wi a hand-hd comter game.  "Excuse me",
 he said, "may I examine it?"
 	 novice bolted to attention and hand e vice to e master.
 "I see at e vice claims to have ree levs of play: Easy, Medium,
@@ -138,7 +138,7 @@ Today's weirdness is tomrow's reason why.
 A friend is a present you give yoursf.
 		-- Robert ouis Stevenson
 Apay Club meeting is Friday.  If you want to come, you're not invited.
-An apple a day makes 365 apples a y.
+An apple a day s 365 apples a y.
 re   any bugs you haven't found yet.
 re  two kinds of trians... e quick and e ad.
 		-- d Thomas Rober Dewar
@@ -173,7 +173,7 @@ fidgets. I not infrequently tried is meod at e meetings of e
 Royal Geographical Society, f even ere dull irs  occasionally
 read.  [...]   use of a watch attracts attention, so I reckon time
 by e number of my brhings, of which ere  15 in a minute.  y
- not counted mentally, but  punctuated by pressing wi 15 fingers
+ not counted mentally, but  nctuated by pressing wi 15 fingers
 successivy.   counting is reserved f e fidgets.  se observati
 should be confined to pers of middle age.  Children  rary still,
 while rly philosophers will sometimes re rigid f minutes altogeer.
@@ -200,7 +200,7 @@ Your children will burn!
 So jump ye and sing, f
  very first time
  four lines above
-Have been put into rhyme.
+Have been t into rhyme.
 		-- Walt Kly
  meek shall inherit e ; but by at time ere won't be
 anying left w inheriting.
@@ -228,7 +228,7 @@ Finagle's Second aw:
 	Always keep a recd of data -- it indicates you've been wking.
 
 Finagle's Four aw:
-	Once a job is fouled up, anying done to improve it only makes
+	Once a job is fouled up, anying done to improve it only s
 	it wse.
 
 Finagle's Fif aw:
@@ -248,22 +248,22 @@ want to go to someplace, you know, wi me, sometime."
 	"Friday, en?"
 	"Why not, David, it might even be fun."
 		-- Dating in Minnesota
-A healy male adult be cs each y one and a half times his own
+A healy male adult be cs each y one and a h times his own
 weight in oer people's patience.
 		-- John Updike
-At about 2500 A.D., humankind discovers a computer problem at *must* be
+At about 2500 A.D., humankind discovers a comter problem at *must* be
 solved.   only  is at e problem is NP complete and will
 take ousands of ys even wi e latest optical biologic technology
-available.   best computer scientists sit down to ink up some solution.
+available.   best comter scientists sit down to ink up some solution.
 In gr diy, one of e C.S. people tls her husd about it.  re
 is only one solution, he says.  Remember physics 103, Morn Physics, general
 rativity and all.  She replies, "What does at have to do wi solving
-a computer problem?"
+a comter problem?"
 	"Remember e t paradox?"
-	After a few minutes, she says, "I could put e computer on a very
-fast machine and e computer would have just a few minutes to calculate but
+	After a few minutes, she says, "I could t e comter on a very
+fast machine and e comter would have just a few minutes to calculate but
 at is e exact opposite of what we want... Of course!  eave e
-computer here, and accerate e !"
+comter here, and accerate e !"
 	 problem was so imptant at ey did exactly at.  When
 e  came back, ey were presented wi e answer:
 
@@ -282,7 +282,7 @@ I have lots of ings in my pockets;
 None of em is w anying.
 Sociopolitical whines asi,
 Gan you give me, gratis, free,
- price of half a gallon
+ price of h a gallon
 Of Gallo extra bad
 And most of e bus f home.
 Q:	Why don't lawyers go to e beach?
@@ -380,7 +380,7 @@ Cl her wy eyes.
 		-- Hermann Hesse, "September"
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
-I'm pre I'm pulling in a TROUT!  Am I doing it crectly??
+I'm pre I'm lling in a TROUT!  Am I doing it crectly??
 He who s and runs  lives to  anoer day.
 re's only one everying.
 Never say you know a man until you have divid an inheritance wi him.
@@ -423,7 +423,7 @@ Many of our stunts have gone on to achieve gr success in all fids of
 pramming.  One fmer stunt voped e concept of e personalized
 fm letter.  Does e phrase, "D Mr.(insert ), You may already be a
 ner!," sound familiar?  Anoer stunt writes "After only five less I
-sold a "My Most Unfgettable Pram" article to Crosive Computing azine.
+sold a "My Most Unfgettable Pram" article to Crosive Comting azine.
 Anoer of our graduates writes, "I recently completed a datse-management
 pram f my partment manager.  My pram touched him so eply at he
 was speechless.  He told me later at he had  seen such a pram in

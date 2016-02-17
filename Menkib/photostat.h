@@ -1,11 +1,11 @@
 You  always busy.
-"Let's not be too tough on our own ignorance.  It's the thing that makes
+"Let's not be too tough on our own ignorance.  It's the thing that s
  America great.  If America weren't incomparably ignorant, how could we
  have tolerated the last eight years?"
 -- Frank Zappa, Feb 1, 1989
 A woman's place is in the house... and in the Senate.
 Earn cash in your sp time -- blackmail your friends.
-"The bad reputation UNIX has gotten is totally unserved, laid on by people
+"The bad retation UNIX has gotten is totally unserved, laid on by people
 who don't unrstand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
 O love, could thou and I with fate conspire
@@ -46,7 +46,7 @@ of the Northern Ocean, happened once to meet in the realm of Chaos, the god
 of the center.  Chaos treated them very handsomely and they discussed together
 what they could do to repay his kindness.  They had noticed that, whereas
 everyone else had seven apertures, for sight, hearing, eating, breathing and
-so on, Chaos had none.  So they cid to make the experiment of boring holes
+so on, Chaos had none.  So they cid to  the experiment of boring holes
 in him.  Every day they bored a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
 All laws  simulations of reality.
@@ -88,9 +88,9 @@ Hurewitz's Memory Principle:
 Avec!
 Fun experiments:
 	Get a can of shaving cream, throw it in a freezer for about a week.
-	Then take it out, peel the metal off and put it where you want...
+	Then take it out, peel the metal off and t it where you want...
 	bedroom, car, etc.  As it thaws, it expands an unbelievable amount.
-When the sun shineth, make hay.
+When the sun shineth,  hay.
 		-- John Heywood
 Loan-partment manager:  "There isn't any fine print.  At these
 interest rates, we don't need it."
@@ -113,7 +113,7 @@ You  in a maze of little twisting passages, all alike.
 -- Edsel Murphy
 Bew of Bigfoot!
 Turnaucka's Law:
-	The attention span of a computer is only as long as its
+	The attention span of a comter is only as long as its
 	electrical cord.
 Excellent time to become a missing person.
 "No matter where you go, there you ..."
@@ -139,7 +139,7 @@ Ryan's Law:
 "I couldn't remember things until I took that Sam Carnegie course."
 -- Bill Peterson, former Houston Oiler football coach
 You can take all the impact that science consirations have on funding
-cisions at NASA, put them in the navel of a flea, and have room left
+cisions at NASA, t them in the navel of a flea, and have room left
 over for a car seed and Tony Calio's heart.
 		-- F. Allen
 Authors  easy to get on with -- if you're fond of children.
@@ -154,7 +154,7 @@ If someone had told me I would be Pope one day, I would have studied harr.
 		-- Pope John Paul I
 Mr. Cole's Axiom:
 	The sum of the intelligence on the planet is a constant; the
-	population is growing.
+	polation is growing.
 "The medium is the massage."
 -- Crazy Nigel
 If A equals success, then the formula is _A = _X + _Y + _Z.  _X is work.  _Y
@@ -232,7 +232,7 @@ fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 "Interesting survey in the current Journal of Abnormal Psychology: New York 
-City has a higher percentage of people you shouldn't make any sudn moves 
+City has a higher percentage of people you shouldn't  any sudn moves 
 around than any other city in the world."
 -- David Letterman
 Unr every stone lurks a politician.
@@ -263,13 +263,13 @@ Until it joins some larger way
 Where many paths and errands meet.
 And whither then?  I cannot say.
 		-- J. R. R. Tolkien
-Man is the best computer we can put aboard a spacecraft ... and the
+Man is the best comter we can t aboard a spacecraft ... and the
 only one that can be mass produced with unskilled labor.
 		-- Wernher von Braun
 The moving cursor writes, and having written, blinks on.
 	Max told his friend that he'd just as soon not go hiking in the hills.
 Said he, "I'm an anti-climb Max."
-	[So is that punchline.]
+	[So is that nchline.]
 Leibowitz's Rule:
 	When hammering a nail, you will  hit your
 	finger if you hold the hammer with both hands.
@@ -285,8 +285,8 @@ several days passed without rescue, the couple and their pilot sank into a
 sponnt silence. Finally, the woman asked her husband if he had ma his
 usual pledge to the United Way Campaign.
 	"We're running out of food and water and you ask *that*?" her husband
-barked.  "If you really need to know, I not only pledged a half million but
-I've already paid them half of it."
+barked.  "If you really need to know, I not only pledged a h million but
+I've already paid them h of it."
 	"You owe the U.W.C. a *quarter million*?" the woman exclaimed
 euphorically.  "Don't worry, Harry, they'll find us!  They'll find us!"
 ... I'm IMAGINING a sensuous GIRAFFE, CAVORTING in the BACK ROOM

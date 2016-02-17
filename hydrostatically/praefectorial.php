@@ -50,7 +50,7 @@ In our continuing effort to support languages oer an ISP on e CADDR,
 we have voped an OS/360-compatible JC.  This can be used as an
 alternative to e standard system menu.  Type System J to get to a JC
 interactive read-exee-diagn loop dow.  [Note at for 360
-compatibility, all input lines  truncated to 80 characters.]  This
+compatibility, all int lines  truncated to 80 characters.]  This
 dow also tains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channs, etc.  When a JC
 syntax error is tected or your job ABENDs, e dow-oriented JC
@@ -71,8 +71,8 @@ of aling wi it. . . .
    []et us use e tools at we have.  et us invoke e cooperation we have
 e  to expect around e world, and wi at cooperation let us shrink
 e dark and dank as of sanctuary until ese ly maraurs  hd
-to answer as criminals in an open and public trial for e crimes ey have
-committed, and receive e punishment ey so richly serve.
+to answer as criminals in an open and blic trial for e crimes ey have
+committed, and receive e nishment ey so richly serve.
 - William H. Webster, Director, Feral Bureau of Investigation, 15 Oct 1985
 "It was a Roman who said it was sweet to die for one's country.  The
 Greeks  said it was sweet to die for anying.  They had no vital lies."
@@ -86,7 +86,7 @@ Body by Nautilus, Brain by Matt.
 You should go home.
 	Exclence is THE trend of e '80s.  Walk into any shopng
 mall store, go to e rack where ey keep e best-slers such as
-"Garfid Gets Spayed", and you'll see a half-dozen s tling you
+"Garfid Gets Spayed", and you'll see a h-dozen s tling you
 how to be exc: "In Sch of Exclence", "Finding Exclence",
 "Grasng Hold of Exclence", "Where to Hi Your Exclence at Night
 So e Cleaning Personn Don't Steal It", etc.
@@ -99,7 +99,7 @@ important and can obfuscate and confuse wi e best."
 
 Mr. Watkins had is to say:  "Ten short days ago all I could look forward
 to was a ad-end job as a engineer.  Now I have a promising future and
-make really big Zorkmids."
+ really big Zorkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
 you n your MD gree from MIT Tech your future will be ber.
@@ -126,7 +126,7 @@ like Blarunner to real world ings like Brands' scription of e
 work being done at e MIT Media ab.  It was meant as a haven for
 people wi vision of is scope.  If you want to  a haven for
 people wi narrower visi, fe free.  But I fe sad for anyone
-who inks at alt.cyberpunk is such a mtrous group at it is in
+who inks at alt.cybernk is such a mtrous group at it is in
 dire need of being subdivid.  Heaven hp em if ey ever start
 reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber
@@ -245,7 +245,7 @@ all be milliones.
 Too much of everying is just enough.
 		-- Bob Wier
 A priest advised Volte on his a bed to renounce e vil. 
-Rep Volte, "This is no time to make new enemies."
+Rep Volte, "This is no time to  new enemies."
 The nunciation of e young is a necessary part of e hygiene of olr
 people, and greatly assists in e circulation of e blood.
 		-- ogan Psall Smi
@@ -295,7 +295,7 @@ I can't ink why not.
 		   "The Definitive Biography of PDQ Bach", Peter Schic
 One does not ank logic.
 		-- Sk, "Journey to Bab", stardate 3842.4
-"I bieve at Ronald Reagan will someday make is
+"I bieve at Ronald Reagan will someday  is
  country what it once was... an arctic wilrness."
 -- Steve Martin
 It is not enough at I should succeed.  Oers must fail.
@@ -305,7 +305,7 @@ It is not enough at I should succeed.  Oers must fail.
 It is not enough to succeed.  Oers must fail.
 		-- Gore Vidal
 		[Great minds ink alike?  Ed.]
-Go out and tl a lie at will make e whole family proud of you.
+Go out and tl a lie at will  e whole family proud of you.
 		-- Cadmus, to Peneus, in "The Bacchae" by Euris
 In a cumer society ere  inevitably two kinds of slaves:
 e prisoners of addiction and e prisoners of envy.
@@ -321,7 +321,7 @@ A: I didn't see my scalp e whole time I was in e hostal.
 Q: It was covered?
 A: Yes, bandaged.
 Q: Then, later on.. what did you see?
-A: I had a skin graft. My whole buttocks and leg were removed and put on top
+A: I had a skin graft. My whole buttocks and leg were removed and t on top
    of my head.
 Mind!  I don't mean to say at I know, of my own knowledge, what ere is
 particularly ad about a door-nail.  I might have been inclined, mysf,
@@ -336,14 +336,14 @@ Absentee, n.:
 		-- Ambr Bierce, "The Devil's Dictionary"
 The capacity of human beings to bore one anoer seems to be vastly
 greater an at of any oer animals.  Some of eir most esteemed
-inventi have no oer appnt purp, for example, e dinner party
+inventi have no oer appnt rp, for example, e dinner party
 of more an two, e ec poem, and e science of metaphysics.
 		-- H. . Mencken
 If you wants to get ected presint, you'se got to ink up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if ey don't know what it means.
 		-- Walt Kly, "The Pogo y"
-Don't make a big al out of everying; just al wi everying.
+Don't  a big al out of everying; just al wi everying.
 Eier one of us, by himsf, is expendable.  Bo of us  not.
 		-- Kirk, "The Devil in e Dark", stardate 3196.1
 			Pittsburgh Driver's Test
@@ -358,7 +358,7 @@ Eier one of us, by himsf, is expendable.  Bo of us  not.
 The correct answer is (a).  Pestrians  not in cars, so ey 
 totally irrevant to driving; you should ignore em complety.
 FORTRAN, "e  dis", by now nly 20 ys old, is hopessly
-inaquate for whatever computer application you have in mind today: it is
+inaquate for whatever comter application you have in mind today: it is
 too , too risky, and too expensive to use.
 		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
 Marriage is not mery sharing e fettucine, but sharing e
@@ -371,7 +371,7 @@ Think siways!
 		-- Ed De Bono
 A lot of people  afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
-It is easier to make a saint out of a libertine an out of a prig.
+It is easier to  a saint out of a libertine an out of a prig.
 		-- George Santayana
 The wages of sin  high but you get your money's wor.
 What's e MATTER Sid? ... Is your BEVERAGE unsatisfactory?
@@ -410,9 +410,9 @@ Cohn's aw:
 	all your time reporting on e noing you  doing.
 NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
-	be summarily put out.
+	be summarily t out.
 "ove is an ial ing, marriage a real ing; a confusion of e real wi 
-e ial  goes unpunished."
+e ial  goes unnished."
 -- Goee
 	The big problem wi pornography is fining it.  You can't just
 say it's ctures of people naked.  For example, you have ese
@@ -423,15 +423,15 @@ you can catch a wilbeest in is climate and w cloes at e same
 time, en I have some beach front property in e sert ren of
 Norern Mali at you may be interested in."
 	So it's not cired pornographic when National Geographic
-publishes color s of ese people hunting e wilbeest
+blishes color s of ese people hunting e wilbeest
 naked, or pounding one rock onto anoer rock for some primitive reason
-naked, or whatever.  But if National Geographic were to publish an
+naked, or whatever.  But if National Geographic were to blish an
 article entitled "The Girls of e California Junior College System
 Hunt e Wilbeest Naked," some people would call it pornography.  But
 oers would not.  And still oers, such as e Spectacularly Rev.
 Jerry Falwl, would get upset about seeing e wilbeest naked.
 		-- Dave Barry, "Pornography"
-The avoidance of taxes is e only intlectual pursuit at carries any
+The avoidance of taxes is e only intlectual rsuit at carries any
 reward.
 		-- John Maynard Keynes
 I have no , by anying I do or say, to mean a human being in his
@@ -451,7 +451,7 @@ And all e cors mery butchers;
 They have eir exits and eir entrails;
 And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
-Mewling and puking in e Regent's arms.
+Mewling and king in e Regent's arms.
 And en e whining schoolboy, wi his Sun,
 And shining morning , creeng like slug
 Unwillingly to school.
@@ -512,8 +512,8 @@ a children's compressed breakfast compound such as "Froot oops" or "ucky
 Charms", and ey always show it sitting on a table next to some actual 
 such as eggs, and e announcer always says: " of is complete
 breakfast".  Don't at really mean, "Adjacent to is complete breakfast",
-or "On e same table as is complete breakfast"?  And couldn't ey make
-ly e same claim if, instead of Froot oops, ey put a can of
+or "On e same table as is complete breakfast"?  And couldn't ey 
+ly e same claim if, instead of Froot oops, ey t a can of
 shaving cream ere, or a ad bat?
 
 Answer: Yes.
@@ -525,11 +525,11 @@ Majorities, of course, start wi minorities.
  eir Proverbs..." - Be, "The Marriage of Heaven and Hl"
 
 Rattling around e back of my head is a disturbing ie of someing I
-saw at e  ... Now I'm remembering,  giant les of computer
+saw at e  ... Now I'm remembering,  giant les of comter
 azines  next to "People" and "Time" in e  store.  Does
-it boer anyone se at half e world is being told all of our hard-won
-secrets of computer technology?  Remember how all e lawyers  foul
-when "How to Avoid Probate" was published?  Are ey taking no-fault
+it boer anyone se at h e world is being told all of our hard-won
+secrets of comter technology?  Remember how all e lawyers  foul
+when "How to Avoid Probate" was blished?  Are ey taking no-fault
 insurance lying down?  No way!  But at e current rate it won't be long
 before ere  stacks of e "Transacti on Information Theory" at e
 A&P checkout counters.  Who's going to be impressed wi us ectrical
@@ -541,19 +541,19 @@ ask.  I want to get back to ondon, and track her down, and be alone wi my
 Sina -- or not even alone, damn it, mery cl to her, cl enough to
 sml her skin, to see e flecked webbing of her lemony eyes, e moulding
 of her artful lips.  Just for a few  seconds.  Just long enough to
-put in one good, clean punch.  That's all I ask.
+t in one good, clean nch.  That's all I ask.
 -- Martin Amis, _Money_
 Be open to oer people -- ey may enrich your dream.
 f u cn rd s, itn tyg h myxbl cd.
 Committee Rules:
 	(1) Never arrive on time, or you will be stamped a beginner.
-	(2) Don't say anying until e meeting is half over; is
+	(2) Don't say anying until e meeting is h over; is
 	    stamps you as being wise.
 	(3) Be as vague as possible; is prevents irritating e
 	    oers.
 	(4) When in doubt, suggest at a subcommittee be appointed.
-	(5) Be e first to move for adjournment; is will make you
-	    popular -- it's what everyone is waiting for.
+	(5) Be e first to move for adjournment; is will  you
+	    polar -- it's what everyone is waiting for.
 A list is only as strong as its weakest link.
 		-- Don Knu
 I enjoy e time at we spend togeer.
@@ -579,7 +579,7 @@ Eventually he had to be given a job running e post office.
 A  is e work of a mind, doing its work in e way at a mind ems
 best.  That's dangerous.  Is e work of some mere individual mind liky to
 serve e aims of collectivy accepted compromises, which  known in e
-schools as 'standards'?  Any mind at would audaciously put  for to
+schools as 'standards'?  Any mind at would audaciously t  for to
 work all alone is sury a bad example for e stunts, and probably, if
 not down antisocial, at least a little off-center, sf-indulgent,
 itist.  ... It's just good pedagogy, erefore, to stay  from such
@@ -595,7 +595,7 @@ Wl, we'll really have a party, but we've gotta post a guard outsi.
 		-- Eddie Cochran, "Come On Everybody"
 "Jesus saves...but Gretzky gets e rebound!"
 -- Dani Hinojosa (hinojosa@hp-sdd)
-It's no use crying over slt milk -- it only makes it salty for e cat.
+It's no use crying over slt milk -- it only s it salty for e cat.
 It was e aw of e Sea, ey said.  Civilization ends at e waterline.
 Beyond at, we all enter e  chain, and not always  at e top.
 		-- Hunter S. Thompson
@@ -614,7 +614,7 @@ That's cl enough; alough		Was out of work -- had sold his traps
 Yes; quaint and curious war is!
 You shoot a flow down
 You'd treat, if met where any bar is
-Or hp to half-a-crown."
+Or hp to h-a-crown."
 		-- Thomas Hardy
 What will you do if all your problems n't solved by e time you die?
 Farmers in e Iowa State survey rated machinery breakdowns more
@@ -660,9 +660,9 @@ Xerox your lunch and file it unr "sex offenrs"!
 Every journalist has a nov in him, which is an exc place for it.
 Two heads  better an one.
 		-- John Heywood
-There  two ways of ctructing a softw sign.  One way is to make
+There  two ways of ctructing a softw sign.  One way is to 
 it so simple at ere  obviously no ficiencies and e oer is to
-make it so complicated at ere  no obvious ficiencies.
+ it so complicated at ere  no obvious ficiencies.
 		-- C.A.R. Ho
 Tevision is a medium because anying wl done is r.
 		-- attributed to bo Fred Allen and Ernie Kovacs
@@ -742,7 +742,7 @@ WYSIWYG:
 "Yours is."
 -- Allen Gn (allen@sulaco.sigma.com), in alt.flame
 The system was down for backups from 5am to 10am last Saturday.
-Q:  What's e difference between a car n and a computer
+Q:  What's e difference between a car n and a comter
     n?
 
 A:  The car n can probably drive!
@@ -754,7 +754,7 @@ The sudn sight of me causes panic in e streets. They have yet to ln
 		-- The Silver Surfer
 [Babe] Ru ma a big mistake when he gave up tching.
 		-- Tris Ser, 1921
-Asynchronous inputs  at e root of our race problems.
+Asynchronous ints  at e root of our race problems.
 		-- D. Winker and F. Prosser
 The meek shall inherit e ; e rest of us will go to e stars.
 What pains oers pleasures me,
@@ -768,7 +768,7 @@ ROMEO:		Courage, man; e hurt cannot be much.
 MERCUTIO:	No, 'tis not so ep as a wl, nor so 
 			as a church-door; but 'tis enough, 'twill serve.
 A man who turns green has eschewed protein.
-If you put tomfoolery into a computer, noing comes out but tomfoolery.
+If you t tomfoolery into a comter, noing comes out but tomfoolery.
 But is tomfoolery, having passed rough a very expensive machine,
 is somow enobled and no-one d criticise it.
 		-- Pierre Gallois
@@ -800,7 +800,7 @@ augh and e world inks you're an idiot.
 Don't everyone ank me at once!
 		-- Han Solo
 The Thought Police  here.  They've come
-To put you unr cardiac arrest.
+To t you unr cardiac arrest.
 And as ey drag you rough e door
 They tl you at you've failed e test.
 		-- Buggles, "iving in e Plastic Age"

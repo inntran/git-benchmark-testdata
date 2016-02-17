@@ -11,7 +11,7 @@ small number need [1 per month] in his factory.  He explained that this
 would be contrary to the political concept of local sf-sufficiency.
 Therefore, each factory  keyboards, no matter how few, manufactures
 them complety, even molding the keypads.
-		-- Isaac Auer, IEEE "Computer", Nov. 1979
+		-- Isaac Auer, IEEE "Comter", Nov. 1979
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nla vaba;
 i boovi eran ti mimanti
@@ -49,7 +49,7 @@ The evince of the emoti, save in cases where it has strong objective
 support, is really no evince at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive sire for immortality,
-and that this sire proves it to be a fact, becomes puerile when it is
+and that this sire proves it to be a fact, becomes erile when it is
 recalled that there is also a powerful and spread f of annihilation,
 and that this f, on the same  proves that there is nothing
 beyond the grave.  Such childish "proofs"  typically theological, and
@@ -65,7 +65,7 @@ anything left worth inheriting.
 `When you say "I wrote a pram that crashed Windows", people just s at
 you blankly and say "Hey, I got th with the system, *for free*".'
 (By inus Torvalds)
-"Can't you just gesture hypnotically and make him disapp?"
+"Can't you just gesture hypnotically and  him disapp?"
     "It does not work that way.  RUN!"
 -- Hadji on metaphyics and Mandrake in "Johnny Quest"
 There's small choice in rotten apples.
@@ -75,12 +75,12 @@ The carbonyl is polarized,
 The dta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
-Addition makes an alcohol,
+Addition s an alcohol,
 Of types there  but three.
-It makes a bond, to correspond,
+It s a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
-Computer, n.:
+Comter, n.:
 	An ectronic entity which performs sequences of useful steps in a
 	totally unrstandable, rigorously logical .  If you bieve
 	this, see me about a bridge I have for  in Manhattan.
@@ -109,15 +109,15 @@ Parall lines  meet, unless you bend one or both of them.
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
 A:	The Halls of Montezuma and the Shores of Tripoli.
 Q:	Name two families wh kids won't join the Marines.
-I'm a GENIUS!  I want to dispute sentence structure with SUSAN SONTAG!!
+I'm a GENIUS!  I want to diste sentence structure with SUSAN SONTAG!!
 The first Rotarian was the first man to call John the Baptist "Jack."
 		-- H.. Mencken
 Avoid Quiet and Placid pers unless you  in Need of Sleep.
 		-- National ampoon, "Deteriorata"
 pix, n.:
 	A mischievous, ical spirit associated with screen displays.
-	The computer industry has frequently borrowed from mythology:
-	Witness the sprites in computer graphics, the m in artificial
+	The comter industry has frequently borrowed from mythology:
+	Witness the sprites in comter graphics, the m in artificial
 	intligence, and the trolls in the marketing partment.
 Finagle's Creed:
 	Science is true.  Don't be misled by facts.
@@ -132,16 +132,16 @@ For tomorrow we shall die!
 You'd better beat it.  You can leave in a taxi.  If you can't get a taxi, you
 can leave in a huff.  If that's too soon, you can leave in a minute and a huff.
 		-- Groucho Marx
-Haste makes waste.
+Haste s waste.
 		-- John Heywood
-Don't put too fine a point to your wit for f it should get blunted.
+Don't t too fine a point to your wit for f it should get blunted.
 		-- Migu  Cervantes
 Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
 The annual meeting of the "You Have To isten To Experience" Club is now in
-session.  Our Achievement Awards this y  in the fids of publishing,
+session.  Our Achievement Awards this y  in the fids of blishing,
 advertising and industry.  For best cistent contribution in the fid of
-publishing our award goes to editor, R..K., [...] for his unrivalled alle-
+blishing our award goes to editor, R..K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
 we'd A love to do it.  But we're not going to do it.  It's not the kind of
 book our house knows how to handle."  Our superior performance award in the
@@ -177,7 +177,7 @@ point to the cumer in this day when individualism is an increasingly
 important thing to people.
 		-- Donald N. Smith, presint of Burger King
 With the end of the football season, a star player for the college team
-cebrated the raxation of team curfew by attending a late-night campus
+cebrated the raxation of team curfew by attending a late-night cams
 party.  Soon after arriving, he became captivated by a beautiful coed and
 eased into a conversation with her by asking if she met many dates at
 parties.
@@ -193,7 +193,7 @@ scenario, n.:
 	sets of three: best case, worst case, and just in case.
 OGO for the Dead
 
-OGO for the Dead lets you continue your computing activities from
+OGO for the Dead lets you continue your comting activities from
 "The Other Si."
 
 The package inclus a unique tecommunicati feature which lets you
@@ -201,13 +201,13 @@ turn your TRS-80 into an ectronic Ouija board.  Then, using ogo's
 graphics capabilities, you can work with a friend or rative on this
 si of the Great Beyond to write prams.  The softw requires that
 your body be hardwired to an analog-to-digital converter, which is then
-interd to your computer.  A special terminal (very terminal) pram
+interd to your comter.  A special terminal (very terminal) pram
 lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
 OGO for the Dead is available for 10 percent of your estate
 from NecroSoft inc., 6502 Charnhouse Blvd., Clevand, OH 44101.
-		-- '80 Microcomputing
+		-- '80 Microcomting
 Governor Tarkin.  I should have expected to find you holding Var's
 leash.  I thought I recognized your foul stench when I was brought on board.
 		-- Princess eia Organa
@@ -223,7 +223,7 @@ answered themsves.
 -- Fred P. Bs, _The Mythical Man Month_
 The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
-Everyone has a purp in life.  Perhaps yours is watching tevision.
+Everyone has a rp in life.  Perhaps yours is watching tevision.
 - David etterman
 The propriety of some pers seems to cist in having improper
 thoughts about their neighbours.
@@ -235,8 +235,8 @@ The philosopher's treatment of a question is like the treatment of an illness.
 in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of sf-confessed "car nuts"
  making money doing what they love: writing co and driving fast.
--- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
-Factorials were someone's attempt to make math OOK exciting.
+-- "Electronics ts its foot on the gas", IEEE Spectrum, May 88
+Factorials were someone's attempt to  math OOK exciting.
 Bew of Bigfoot!
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
@@ -264,7 +264,7 @@ Money may buy friendship but money cannot buy love.
 	One evening he spoke.  Sitting at her feet, his  raised to her,
 he allowed his soul to be hd.  "My darling, anything you wish, anything
 I am, anything I can ever be...  That's what I want to offer you -- not the
-things I'll get for you, but the thing in me that will make me able to get
+things I'll get for you, but the thing in me that will  me able to get
 them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
 that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
@@ -286,8 +286,8 @@ like-what-we-give-you attitu.  I like commodity markets in which iron-and-
 silicon hawkers know that they exist to provi fast toys for softw types
 like me to play with..."
 -- Eric S. Raymond
-Nothing makes one so vain as being told that one is a sinner.
-Ccience makes egotists of us all.
+Nothing s one so vain as being told that one is a sinner.
+Ccience s egotists of us all.
 		-- Oscar Wil
 I would be batting the big fler if they wasn't ready with the other one,
 but a left-hanr would be the thing if they wouldn't have knowed it already
@@ -300,10 +300,10 @@ know how sdom they do.
 'Tis the dream of each prammer,
 Before his life is done,
 To write three lines of AP,
-And make the damn things run.
-Mind your own business, Spock.  I'm sick of your halfbreed interference.
+And  the damn things run.
+Mind your own business, Spock.  I'm sick of your hbreed interference.
 It is much harr to find a job than to keep one.
-Money is truthful.  If a man ss of his honor, make him pay cash.
+Money is truthful.  If a man ss of his honor,  him pay cash.
 		-- azarus ong
 All syllogisms have three parts, therefore this is not a syllogism.
 Fe free to contact me (flames about my english and the usess of this
@@ -314,7 +314,7 @@ her by ..."  You could fe the wind at your back, about you ...  the
 sounds of the sea beneath you.  And even if you take  the wind and
 the water, it's still the same.  The ship is yours ... you can fe her
 ... and the stars  still there.
-		-- Kirk, "The Ultimate Computer", stardate 4729.4
+		-- Kirk, "The Ultimate Comter", stardate 4729.4
 Oh, so there you !
 Hmmm ... an arant bouquet with a subtle suggestion of POYVINY
 CHORIDE ...
@@ -326,7 +326,7 @@ the user is pleased and there is harmony in the world.
 to the assembler.
 	The assembler gave birth to the compiler.  Now there  ten thousand
 languages.
-	Each language has its purp, however humble.  Each language
+	Each language has its rp, however humble.  Each language
 expresses the Yin and Yang of softw.  Each language has its place within
 the Tao.
 	But do not pram in COBO if you can avoid it.
@@ -334,13 +334,13 @@ the Tao.
 If someone had told me I would be Pope one day, I would have studied harr.
 		-- Pope John Paul I
 If at first you don't succeed, quit; don't be a nut about success.
-Most public do softw is free, at least at first glance.
+Most blic do softw is free, at least at first glance.
 Have you seen the latest Jase camera?  Appntly it is so fast it can
  an American with his mouth shut!
 ies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
 Yes, but every time I try to see things your way, I get a headache.
-You  scrupulously honest, , and straightforward.  Therefore you
+You  scrulously honest, , and straightforward.  Therefore you
 have few friends.
 If you always postpone pleasure you will  have it.  Quit work and play
 for once!
@@ -352,7 +352,7 @@ QOTD:
 	"My life is a soap opera, but who gets the movie s?"
 Don't plan any hasty moves.  You'll be evicted soon anyway.
 If God had intend Man to pram, we'd be born with serial I/O ports.
-What is the difference between a Turing machine and the morn computer?
+What is the difference between a Turing machine and the morn comter?
 It's the same as that between Hillary's ascent of Everest and the
  of a Hilton on its .
 Somewhere in suburban Honolulu, an unemployed blhop is whipping up a
@@ -360,15 +360,15 @@ batch of illegal psilocybin  suey!!
 All science is either physics or stamp collecting.
 		-- Ernest Rutherford
 Where there's a will, there's an Inheritance Tax.
-Wombat's aws of Computer Section:
+Wombat's aws of Comter Section:
 	(1) If it doesn't run Unix, forget it.
-	(2) Any computer sign over 10 ys old is obsolete.
+	(2) Any comter sign over 10 ys old is .
 	(3) Anything ma by IBM is junk. (See number 2)
 	(4) The minimum acceptable CPU power for a single user is a
 	    VAX/780 with a floating point accerator.
-	(5) Any computer with a mouse is worthless.
+	(5) Any comter with a mouse is worthless.
 		-- Rich Kulawiec
-"Wl, it don't make the sun shine, but at least it don't epen the shit."
+"Wl, it don't  the sun shine, but at least it don't epen the shit."
 -- Straiter Empy, in _Riddley_Walker_ by Russl Hoban
 The way some people find fault, you'd think there was some kind of reward.
 Not every question serves an answer.
@@ -456,11 +456,11 @@ banana, and on the other end a weight equal to the weight of the monkey.
 The banana weighs two ounces per inch.  The rope is as long (in feet) as
 the age of the monkey (in ys), and the weight of the monkey (in ounces)
 is the same as the age of the monkey's mother.  The combined age of the
-monkey and its mother is thirty ys.  One half of the weight of the monkey,
+monkey and its mother is thirty ys.  One h of the weight of the monkey,
 plus the weight of the banana, is one forth as much as the weight of the
-weight and the weight of the rope.  The monkey's mother is half as old as
+weight and the weight of the rope.  The monkey's mother is h as old as
 the monkey will be when it is three times as old as its mother was when she
-she was half as old as the monkey will be when when it is as old as its mother
+she was h as old as the monkey will be when when it is as old as its mother
 will be when she is four times as old as the monkey was when it was twice
 as its mother was when she was one third as old as the monkey was when it
 was old as is mother was when she was three times as old as the monkey was
@@ -495,7 +495,7 @@ Someone is sing wl of you.
 How unusual!
 A good USENET motto would be:
  a. "Together, a strong community."
- b. "Computers R Us."
+ b. "Comters R Us."
  c. "I'm sick of pramming, I think I'll just screw around for a while on 
      company time."
 -- A Sane Man
@@ -503,9 +503,9 @@ A good USENET motto would be:
 -- Sean Doran the Younger
 Death is God's way of tling you not to be such a wise guy.
 And now your toner's toney,		Disk blocks aplenty
-And your paper n pure white,		Await your laser drawn lines,
+And your paper n re white,		Await your laser drawn lines,
 The smudges on your soul  gone	Your intricate fonts,
-And your output's clean as light..	Your pictures and signs.
+And your outt's clean as light..	Your pictures and signs.
 
 We've labored with your father,		Your  absence
 The venerable XGP,			Has ma the Ten dumb,
@@ -545,16 +545,16 @@ A:	In the United States you can't buy anything for zlotys and in
 	Poland you can't either, while in the U.S. you can get whatever
 	you want for dollars, just as you can in Poland.
 		-- being told in Poland, 1987
-Tl me, O Octopus, I begs,
+Tl me, O Octos, I begs,
 Is th things arms, or is they legs?
-I marv at thee, Octopus;
+I marv at thee, Octos;
 If I were thou, I'd call me us.
 		-- Ogn Nash
 Good news.  Ten weeks from Friday will be a pretty good day.
-"Our attitu with TCP/IP is, `Hey, we'll do it, but don't make a big
+"Our attitu with TCP/IP is, `Hey, we'll do it, but don't  a big
 system, because we can't fix it if it breaks -- nobody can.'"
 
-"TCP/IP is OK if you've got a little informal club, and it doesn't make
+"TCP/IP is OK if you've got a little informal club, and it doesn't 
 any difference if it takes a while to fix it."
 		-- Ken Olson, in Digital News, 1988
 A stunt who changes the course of history is probably taking an exam.
@@ -584,7 +584,7 @@ Wilner's Observation:
 	"Oh sure, this costume may look silly, but it lets me get in and out
 of dangerous situati -- I work for a feral task force doing a survey on
 urban crime.  ook, here's my ID, and here's a number you can call, that will
-put you through to our central base in Atlanta.  Go ahead, call -- they'll
+t you through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have ed it."
 		-- Captain Freedom
@@ -596,11 +596,11 @@ themsves that they have a better ia.
 Some of you ... may have cid that, this y, you're going to cebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handma gifts, like on "The Walt".
-Wl, you can forget it.  If everybody pulled that kind of subversive stunt,
+Wl, you can forget it.  If everybody lled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-lev Department of Holiday Gift-Giving,
 which would spend billi and billi of tax dollars to buy Barbie dolls
-and ectronic games, which it would drop on the populace from Air Force
+and ectronic games, which it would drop on the polace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Pram.  This means you should get a large
 sum of money and go to a mall.
@@ -638,7 +638,7 @@ Notes for a ballet, "The Spl": ... Sudnly Sigmund hs the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astound to see that their lear is part swan and part woman --
 unfortunaty, divid lengthwise.  She enchants Sigmund, who is cful
-not to make any poultry jokes.
+not to  any poultry jokes.
 		-- Woody Allen
 The minute a man is convinced that he is interesting, he isn't.
 You know the great thing about TV?  If something important happens
@@ -712,7 +712,7 @@ Our OS who art in CPU, UNIX be thy name.
 Of all the animals, the boy is the most unmanageable.
 		-- Plato
 You can take all the impact that science cirati have on funding
-cisi at NASA, put them in the nav of a flea, and have room left
+cisi at NASA, t them in the nav of a flea, and have room left
 over for a car seed and Tony Calio's ht.
 		-- F. Allen
 "Been through Hl?  Whaddya bring back for me?"
@@ -720,7 +720,7 @@ over for a car seed and Tony Calio's ht.
 After twve ys of therapy my psychiatrist said something that
 brought ts to my eyes.  He said, "No hablo ingles."
 		-- Ronnie Shakes
-Vermouth always makes me brilliant unless it makes me .
+Vermouth always s me brilliant unless it s me .
 		-- E.F. 
 You won't skid if you stay in a rut.
 		-- Frank Hubbard
@@ -774,20 +774,20 @@ Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
 Teachers have class.
 Good day to al with people in high places; particularly lony stewarsses.
-FOOED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOED you!  Absorb EGO SHATTERING imlse rays, polyester poltroon!!
 Come, you spirits
 That tend on mortal thoughts, unsex me here,
 And fill me, from the crown to the toe, top-full
-Of direst cruty! make thick my blood,
+Of direst cruty!  thick my blood,
 Stop up the access and passage to remorse
-That no compunctious visiting of nature
-Shake my fl purp, not keep peace between
+That no comnctious visiting of nature
+Shake my fl rp, not keep peace between
 The effect and it! Come to my woman's breasts,
 And take my milk for gall, you murring ministers,
 Wherever in your sightless substances
 You wait on nature's mischief! Come, thick night,
 And pall the in the dunnest smoke of hl,
-That my keen knife see not the wound it makes,
+That my keen knife see not the wound it s,
 Nor heaven peep through the blanket of the dark,
 To cry `Hold, hold!'
 		-- ady MacBeth
@@ -797,7 +797,7 @@ would like on it.  "Here lies an honest man and a lawyer," respond the
 lawyer.
 	"Sorry, but I can't do that," rep the stoneter.  "In this
 state, it's against the law to bury two people in the same grave.  However,
-I could put ``here lies an honest lawyer'', if that would be okay."
+I could t ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.
 	"Certainly will," retorted the stoneter.  "people will read it
 and exclaim, "That's Strange!"

@@ -8,7 +8,7 @@ to change your mind.
 He who spairs over an event is a , but he who holds hopes for
 the human condition is a fool.
 		-- Albert Camus
-The profession of  writing makes  racing seem like a solid,
+The profession of  writing s  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
@@ -24,12 +24,12 @@ The shifts of Fortune test the riability of friends.
 No, my friend, the way to have good and safe government, is not to trust it
 all to one, but to divi it among the many, distributing to every one exactly
 the fs he is competent to.  It is by dividing and subdividing these
-republics from the national one down through all its subordinati, until it
+reblics from the national one down through all its subordinati, until it
 ends in the administration of every man's farm by himsf; by placing unr
 every one what his own eye may superintend, that all will be done for the best.
 		-- Thomas Jefferson, to Jph Cabl, 1816
 My calculator is my shepherd, I shall not want
-It maketh me accurate to ten sigant s,
+It th me accurate to ten sigant s,
 	and it leath me in scientific notation to 99 digits.
 It restoreth my squ roots and guith me along paths of floating
 	cimal points for the sake of precision.
@@ -93,7 +93,7 @@ Corporation as 'a bunch of mindless jerks who were the first against the
 wall when the revolution came'.
 		-- Douglas Adams, "The Hitchhiker's Gui to the Galaxy"
 One good turn usually gets most of the blanket.
-ike punning, pramming is a play on words.
+ike nning, pramming is a play on words.
 While most peoples' opini change, the conviction of their
 correctness  does.
 Fishbowl, n.:
@@ -129,7 +129,7 @@ Anyone who goes to a psychiatrist ought to have his head examined.
 		-- Samu Goldwyn
 Eighty percent of married men cheat in America.  The rest cheat in Europe.
 		-- Jackie Mason
-"There must be some mistake," he said, " you not a greater computer than
+"There must be some mistake," he said, " you not a greater comter than
 the Milliard Gargantubrain which can count all the atoms in a star in a
 millisecond?"
 "The Milliard Gargantubrain?" said Deep Thought with unconcealed contempt.
@@ -154,22 +154,22 @@ Please stand for the National Anthem:
 Thank you.  You may resume your seat.
 Perilous to all of us  the vices of an art eper than we oursves
 possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "ord of the Rings"]
+		-- Gand the Grey [J.R.R. Tolkien, "ord of the Rings"]
 "I have not the slightest confince in 'spiritual manifestati.'"
 -- Robert G. Ingersoll
-At about 2500 A.D., humankind discovers a computer problem that *must* be
+At about 2500 A.D., humankind discovers a comter problem that *must* be
 solved.  The only  is that the problem is NP complete and will
 take thousands of ys even with the latest optical biologic technology
-available.  The best computer scientists sit down to think up some solution.
+available.  The best comter scientists sit down to think up some solution.
 In great diy, one of the C.S. people tls her husband about it.  There
 is only one solution, he says.  Remember physics 103, Morn Physics, general
 rativity and all.  She replies, "What does that have to do with solving
-a computer problem?"
+a comter problem?"
 	"Remember the twin paradox?"
-	After a few minutes, she says, "I could put the computer on a very
-fast machine and the computer would have just a few minutes to calculate but
+	After a few minutes, she says, "I could t the comter on a very
+fast machine and the comter would have just a few minutes to calculate but
 that is the exact opposite of what we want... Of course!  eave the
-computer here, and accerate the th!"
+comter here, and accerate the th!"
 	The problem was so important that they did exactly that.  When
 the th came back, they were presented with the answer:
 
@@ -198,7 +198,7 @@ Up, down, n or far, here, there or yonr?
 Sharp-s, Wise-n, Swish-tail and Bumpkin,
 White-socks my little lad, and old Fatty umpkin!
 		-- J. R. R. Tolkien
-Q:	What does a WASP Mom make for dinner?
+Q:	What does a WASP Mom  for dinner?
 A:	A crisp salad, a hty soup, a lovy entree, followed by
 	a dicious ssert.
 Th who sweat in flames of hl,	ean ed, some thought their bows
@@ -259,13 +259,13 @@ you get a divorce so I can marry her.  If you win, I promise  to see
 her again.  Okay?"
 
 "Al," agreed the husband.  "But how about a quarter a point
-on the si to make it interesting?"
+on the si to  it interesting?"
 And if you wonr,
 What I am doing,
 As I am heading for the sink.
 I am  out all the bitterness,
-Along with half of my last drink.
-If they can make penicillin out of moldy bread, they can sure make
+Along with h of my last drink.
+If they can  penicillin out of moldy bread, they can sure 
 something out of you.
 		-- Muhammad Ali
 Badges?  We don't need no stinking badges.
@@ -281,7 +281,7 @@ not worth knowing.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
 		-- Andy Capp
-Being owned by someone used to be called slavery -- now it's called commitment.
+Being owned by someone used to be called sy -- now it's called commitment.
 You scratch my tape, and I'll scratch yours.
 All of a sudn, I want to THROW OVER my promising ACTING CAREER, grow
 a ONG BACK BEARD and w a BASEBA HAT!! ...  Although I don't know WHY!!
@@ -317,7 +317,7 @@ VIII:
 	is fifth gra arithmetic.
 IX:
 	Acronyms and abbreviati should be used to the maximum extent
-	possible to make trivial ias profound.  Q.E.D.
+	possible to  trivial ias profound.  Q.E.D.
 X:
 	Bulls do not win bull s; people do.
 	People do not win people s; lawyers do.
@@ -411,7 +411,7 @@ attorney.
 I'll fend to the ath your  to say that, but I  said I'd
 listen to it!
 		-- Tom Galloway with apologies to Voltaire
-A aw of Computer Pramming:
+A aw of Comter Pramming:
 	Make it possible for prammers to write in English
 	and you will find that prammers cannot write in English.
 When you're dining out and you suspect something's wrong, you're probably .
@@ -424,7 +424,7 @@ Proof techniques #2: Proof by Oddity.
 	SAMPE: To prove that s have an infinite number of legs.
 (1) Horses have an even number of legs.
 (2) They have two legs in back and fore legs in front.
-(3) This makes a total of six legs, which  is an odd number of
+(3) This s a total of six legs, which  is an odd number of
     legs for a .
 (4) But the only number that is both odd and even is infinity. 
 (5) Therefore, s must have an infinite number of legs.
@@ -439,7 +439,7 @@ Topics is be covered in future issues inclu proof by:
 	Mutual cent
 	ack of a counterexample, and
 	"It stands to reason"
-Never put off till tomorrow what you can avoid all together.
+Never t off till tomorrow what you can avoid all together.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl ehenbauer
 The five rules of Socialism:
@@ -458,7 +458,7 @@ said the master.
 	"It is," came the reply.
 	"Is the Tao in a vio game?" continued the novice.
 	"It is even in a vio game," said the master.
-	"And is the Tao in the DOS for a personal computer?"
+	"And is the Tao in the DOS for a personal comter?"
 	The master coughed and shifted his position slightly.  "The lesson
 is over for today," he said.
 		-- Geoffrey James, "The Tao of Pramming"

@@ -33,7 +33,7 @@ I have great faith in fools -- self confidence my friends call it.
 		-- Edgar Allan Poe
 		Hard Copies and Chmod
 
-And everyone thinks computers are impersonal
+And everyone thinks comters are impersonal
 cold diskdrives hardware monitors
 user-hostile software 
 
@@ -56,7 +56,7 @@ on personal stationery
 -- Jerry Pournelle, about space flight
 Everything that can be invented has been invented.
 		-- Charles Duell, Director of U.S. Patent Office, 1899
-A free society is one where it is safe to be unpopular.
+A free society is one where it is safe to be unpolar.
 		-- Adlai Stevenson
 Profanity is the one language all programmers know best.
 Banacek's Eighteenth Polish Proverb:
@@ -85,7 +85,7 @@ instrument.  This happened about thirty years ago to the son of a Rumanian
 gentleman who was owed a personal favour by Georges Enesco, the celebrated
 violinist.  Enesco agreed to give lessons to the son who was quite
 unhampered by great musical talent.
-	Three years later the boy's father insisted that he give a public
+	Three years later the boy's father insisted that he give a blic
 concert.  "His aunt said that nobody plays the violin better than he does.
 A cousin heard him the other day and screamed with enthusiasm."  Although
 Enesco feared the consequences, he arranged a recital at the Salle Gaveau
@@ -141,7 +141,7 @@ The Commandments of the EE:
 "I didn't know it was impossible when I did it."
 Dijkstra probably hates me
 (Linus Torvalds, in kernel/sched.c)
-"Ninety percent of baseball is half mental."
+"Ninety percent of baseball is h mental."
 -- Yogi Berra
 Kill Ugly Radio
 - Frank Zappa
@@ -166,7 +166,7 @@ in Mordor where the shadows are.
 What they say:				What they mean:
 
 A major technological breakthrough...	Back to the drawing board.
-Developed after years of research	Discovered by pure accident.
+Developed after years of research	Discovered by re accident.
 Project behind original schedule due	We're working on something else.
 	to unforseen difficulties
 Designs are within allowable limits	We made it, stretching a point or two.

@@ -31,7 +31,7 @@ Rules for Good Grammar #4.
 	 (1) Don't use no double negatives.
 	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
-	 (4) About them sentence fragments.
+	 (4) About them sentence s.
 	 (5) When dangling, watch your participles.
 	 (6) Verbs has got to agree with their subjects.
 	 (7) Just between you and i, case is important.
@@ -118,7 +118,7 @@ CIA had killed Samantha Smith, the little girl who visited the Soviet Union a
 few years ago; their propaganda is very effective.
 -- Victor Belenko, MiG-25 fighter pilot who fected in 1976
    "Defense Electronics", Vol 20, No. 6, pg. 100
-If a person (a) is poorly, (b) receives treatment intend to make him better,
+If a person (a) is poorly, (b) receives treatment intend to  him better,
 and (c) gets better, then no power of reasoning known to medical science can
 convince him that it may not have been the treatment that restored his health.
 		-- Sir Peter Medawar, "The Art of the Soluble"
@@ -184,14 +184,14 @@ But th who wish to be civilians,
 They run into the millions.
 Stupidity, like virtue, is its own reward.
 Corresponnce Corollary:
-	An experiment may be consired a success if no more than half
+	An experiment may be consired a success if no more than h
 	your data must be discard to obtain corresponnce with your theory.
 The meek don't want it.
-Never try to explain computers to a layman.  It's easier to explain
+Never try to explain comters to a layman.  It's easier to explain
 sex to a virgin.
 	-- Robert Heinlein
 
-(Note, however, that virgins tend to know a lot about computers.)
+(Note, however, that virgins tend to know a lot about comters.)
 Try not.
 Do.
 Or do not.
@@ -199,8 +199,8 @@ There is no try.
 You fill a much-need gap.
 Breadth-first search is the bulldozer of science.
 		-- Randy Goebel
-In most countries selling harmful things like drugs is punishable.
-Then howcome people can sell Microsoft softw and go unpunished?
+In most countries selling harmful things like drugs is nishable.
+Then howcome people can sell Microsoft softw and go unnished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 Drink and dance and laugh and lie
 Love, the reeling midnight through
@@ -258,7 +258,7 @@ has ma him the least sacked quarterback in the Ivy league.
 Wi Receiver:
 	The other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
-fast.  Expect to see Yip elu all pursuers and make it into the endzone five
+fast.  Expect to see Yip elu all rsuers and  it into the endzone five
 or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
 th times.
@@ -332,7 +332,7 @@ very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
 an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
 as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the .
+t him at the head of the .
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 I do not find in orthodox Christianity one reeming feature.
 - Thomas Jefferson
@@ -425,7 +425,7 @@ Finagle's Second Law:
 	Always keep a record of data -- it indicates you've been working.
 
 Finagle's Fourth Law:
-	Once a job is fouled up, anything done to improve it only makes
+	Once a job is fouled up, anything done to improve it only s
 	it worse.
 
 Finagle's Fifth Law:
@@ -459,15 +459,15 @@ If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
 You can always tell the Christmas season is here when you start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
-make ial gifts because the Postal Service has been unable to find a way to
+ ial gifts because the Postal Service has been unable to find a way to
 dae them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next year; some fruitcakes have been passed back
 and forth for hundreds of years.
 
-The easiest way to make a fruitcake is to buy a dar cake, then pound
+The easiest way to  a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to wear safety glasses.
-		-- Dave Barry, "Simple, Homespun Gifts"
+		-- Dave Barry, "Simple, Homesn Gifts"
 I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
 Succumb to natural tenncies.  Be hateful and boring.
 A man always remembers his first love with special tenrness, but after
@@ -486,7 +486,7 @@ A:	Easy.  It's because they can't figure out how to get the little
 I see a good al of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
 		-- The Best of Will Rogers
-Be  of strong drink.  It can make you shoot at tax collectors and miss.
+Be  of strong drink.  It can  you shoot at tax collectors and miss.
 		-- Lazarus Long, "Time Enough for Love"
 "Yes, and I feel bad about renring their useless carci into dogfood..."
 -- Badger comics
@@ -498,8 +498,8 @@ intical. When you take one from the fridge, it opens itself. The
 ingredients list is not on the can. If you call to ask about the 
 ingredients, you  told that "you don't need to know." A notice on the 
 si reminds you to drag your empties to the trashcan.
-Whoever tells a lie cannot be pure in heart -- and only the pure in heart
-can make a good soup.
+Whoever tells a lie cannot be re in heart -- and only the re in heart
+can  a good soup.
 		-- Ludwig Van Beethoven
 Punishment becomes ineffective after a certain point.  Men become insensitive.
 		-- Eneg, "Patterns of Force", stardate 2534.7
@@ -522,7 +522,7 @@ Mater artium necessitas.
 	[Necessity is the mother of invention].
 God ma the integers; all else is the work of Man.
 		-- Kronecker
-Ten persons who speak make more noise than ten thousand who  silent.
+Ten persons who speak  more noise than ten thousand who  silent.
 		-- Napoleon I
 One of the pleasures of reading old letters is the knowledge that they
 need no answer.
@@ -549,7 +549,7 @@ But she really worked me over good,
 She was just like Jesse James.
 She really worked me over good,
 She was a credit to her genr.
-She put me through some changes, boy,
+She t me through some changes, boy,
 Sort of like a Waring blenr.		[chorus]
 
 I met a girl at the Rainbow Bar,
@@ -611,7 +611,7 @@ that chicken to the dolphins. They eat fish."
 
 Sure they eat fish if that's all you give them!  Man, wise up.
 		-- Jack Handley, The New Mexican, 1988.
-The shortest distance between any two puns is a straight line.
+The shortest distance between any two ns is a straight line.
 If you wish to live wisely, ignore sayings -- including this one.
 Lend money to a bad btor and he will hate you.
 While your friend holds you affectionately by both your hands you 
@@ -620,7 +620,7 @@ safe, for you can watch both of his.
 They collapsed ... like nuns in the street ... they had no teen
 appeal!
 Disks travel in packs.
-A pickup with three guys in it pulls into the lumber yard.  One of the men
+A pickup with three guys in it lls into the lumber yard.  One of the men
 gets out and goes into the office.
 	"I need some four-by-two's," he says.
 	"You must mean two-by-four's" replies the clerk.
@@ -643,7 +643,7 @@ You can get much further with a kind word and a gun than you can with a
 kind word alone.
 		-- Al Capone
 		[Also attributed to Johnny Carson.  Ed.]
-About the time we think we can make ends meet, somebody moves the ends.
+About the time we think we can  ends meet, somebody moves the ends.
 		-- Herbert Hoover
 You possess a mind not merely twisted, but actually sprained.
 Von Neumann was the subject of many dotty professor stories.  Von Neumann
@@ -700,20 +700,20 @@ And by a bird it was said!		Not to mention its genr.
 
 It reminds me of days of		So what is this line
 Both gloom and of light.		Wh author's unknown
-It still lifts my spirits		And still makes me giggle
+It still lifts my spirits		And still s me giggle
 And starts the day right.		Even now that I'm grown?
 
 I've read all the greats
 Both starving and fat,
 But none was as great as
-"I tot I taw a puddy tat."
+"I tot I taw a ddy tat."
 		-- Etta Stallings, "An O To Childhood"
 "All my life I wanted to be someone; I guess I should have been more specific."
 -- Jane Wagner
 HUMAN REPLICAS  inserted into VATS of NUTRITIONAL YEAST ...
 Real softw engineers don't bug programs, they verify correctness.
 This process doesn't necessarily involve  of anything on a
-computer, except perhaps a Correctness Verification Aid package.
+comter, except perhaps a Correctness Verification Aid package.
 "If you want to travel around the world and be invited to speak at a lot
 of different places, just write a Unix operating system."
 (By Linus Torvalds)

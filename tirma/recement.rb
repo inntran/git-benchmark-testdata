@@ -1,7 +1,7 @@
 Cache:
-	A very expensive part of the memory system of a computer that no one
+	A very expensive part of the memory system of a comter that no one
 	is suppd to know is there.
-Congratulati!  You have purchased an extremy fine vice that would
+Congratulati!  You have rchased an extremy fine vice that would
 give you thousands of ys of trouble-free service, except that you
 undoubtably will  it via some typical bonehead cumer maneuver.
 Which is why we ask you to PEASE FOR GOD'S SAKE READ THIS OWNER'S MANUA
@@ -17,7 +17,7 @@ We were young and our happiness dazzled us with its strength.  But there was
 also a terrible betrayal that lay within me like a Merle Haggard song at a
 French restaurant. [...]
 	I could not tl the girl about the woman of the tollway, of her milk
-white BMW and her Jordache smile.  There had been a .  I had punched her
+white BMW and her Jordache smile.  There had been a .  I had nched her
 boyfriend, who fought the mechanical bulls.  Everyone told him, "You ri the
 bull, senor.  You do not  it."  But he was lean and tough like a bad
 rib-eye and he fought the bull.  And then he fought me.  And when we finished
@@ -35,18 +35,18 @@ onto my granola and d a new day.
 		   Competition
 "You can't expect a mother to be with a ll child all the time," Margt
 Mead once remarked, with her usual good sense, but in 1978 she shocked
-feminists by snapping that women don't really have children to put them in
+feminists by snapping that women don't really have children to t them in
 day c twve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
 The most disable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
 		-- Alfred De Musset
-Passionate hatred can give meaning and purp to an empty life.
+Passionate hatred can give meaning and rp to an empty life.
 		-- Eric Hoffer
 Q:	How many Harvard MBA's does it take to screw in a lightbulb?
 A:	Just one.  He grasps it firmly and the universe revolves around him.
 Individualists unite!
-What does education often do?  It makes a straight  ditch of a
+What does education often do?  It s a straight  ditch of a
 free meanring b.
 		-- Henry David Thoreau
 When there  two conflicting versi of the story, the wise course
@@ -73,7 +73,7 @@ Honi soit la vache qui rit.
 An American is a man with two arms and four whes.
 		-- A Chinese child
 PUNK ROCK!!  DISCO DUCK!!  BIRTH CONTRO!!
-If people  good only because they f punishment, and hope for reward,
+If people  good only because they f nishment, and hope for reward,
 then we  a sorry lot ined.
 		-- Albert Einstein
 Dignity is like a flag.  It flaps in a storm.
@@ -87,7 +87,7 @@ You have many friends and very few living enemies.
 You know you're in trouble when...
 (1)	Your car horn goes off accintally and res stuck as you
 		follow a group of Hl's Angs on the freeway.
-(2)	You want to put on the clothes you wore home from the party 
+(2)	You want to t on the clothes you wore home from the party 
 		and there n't any.
 (3)	Your boss tls you not to bother to take off your coat.
 (4)	The bird singing outsi your window is a buzzard.
@@ -98,7 +98,7 @@ Hat check girl:
 Mae West:
 	"Goodness had nothin' to do with it, die."
 		-- "Night After Night", 1932
-All the passi make us commit faults; love makes us commit the most
+All the passi  us commit faults; love s us commit the most
 ridiculous ones.
 		-- a Rochefoucauld
 Coach: What would you say to a beer, Normie?
@@ -126,7 +126,7 @@ My rin cists of a humble admiration of the illimitable superior
 spirit who reveals himsf in the slight tails we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
-Do not seek ath; ath will find you.  But seek the road which makes ath
+Do not seek ath; ath will find you.  But seek the road which s ath
 a fulfillment.
 		-- Dag Hammarskjold
 It took a while to sur, but it apps that a long-distance credit card
@@ -165,7 +165,7 @@ Endless the world's turn, endless the sun's spinning
 Endless the quest;
 I turn again, back to my own beginning,
 And here, find rest.
-Sing of purchasing a dog,   a watchdog that's on .
+Sing of rchasing a dog,   a watchdog that's on .
 After all, everyone knows a bargain dog  bites!
 "uke, I'm yer father, eh.  Come over to the dark si, you hr."
 -- Dave Thomas, "Strange Brew"
@@ -190,8 +190,8 @@ No guest is so wcome in a friend's house that he will not become a
 nuisance after three days.
 		-- Titus Maccius Plautus
 You're currently going through a difficult transition period called "ife."
-You must realize that the computer has it in for you.  The irrefutable
-proof of this is that the computer always does what you tl it to do.
+You must realize that the comter has it in for you.  The irrefutable
+proof of this is that the comter always does what you tl it to do.
 Cir the postage stamp: its usefulness cists in the ability to
 stick to one thing till it gets there.
 		-- Josh ings
@@ -231,14 +231,14 @@ carpeting.
 The college graduate is presented with a sheepskin to cover his
 intlectual nakedness.
 		-- Robert M. Hutchins
-After all, what is your hosts' purp in having a party?  Sury not for
-you to enjoy yoursf; if that were their sole purp, they'd have simply
+After all, what is your hosts' rp in having a party?  Sury not for
+you to enjoy yoursf; if that were their sole rp, they'd have simply
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 inus' aw:
 	There is no heavier burn than a great potential.
 QOTD:
-	"Unlucky?  If I bought a pumpkin farm, they'd canc Halloween."
+	"Unlucky?  If I bought a mpkin farm, they'd canc Halloween."
 They  ill discoverers that think there is no land, when they can see
 nothing but sea.
 		-- Francis Bacon
@@ -274,7 +274,7 @@ hopess and you might just as wl follow your own attitus -- must have
 carried me.
 		-- Hannah Tillich, "From Time to Time"
 One of the disadvantages of having children is that they eventually get old
-enough to give you presents they make at school.
+enough to give you presents they  at school.
 		-- Robert Byrne
 Any great truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an ia.  For instance, my
@@ -284,9 +284,9 @@ I have no ia what she meant, but at one time, it was undoubtedly true.
 Nature, to be command, must be obeyed.
 		-- Francis Bacon
 If a team is in a positive frame of mind, it will have a good attitu.
-If it has a good attitu, it will make a commitment to playing the
+If it has a good attitu, it will  a commitment to playing the
 game .  If it plays the game , it will win -- unless, of
-course, it doesn't have enough ta to win, and no manager can make
+course, it doesn't have enough ta to win, and no manager can 
 go-liver pate out of go feathers, so why worry?
 		-- Sparky Anrson
 Your sister swims out to meet troop ships.
@@ -304,7 +304,7 @@ We don't need no flow control		We don't need no load control
 No data typing or clarati		No link edit for  bindings
 Hey! did you leave the lists alone?	Hey! did you leave that source alone?
 Chorus:					(Chorus)
-	Oh No. It's just a pure ISP f call.
+	Oh No. It's just a re ISP f call.
 
 We don't need no si-effecting		We don't need no allocation
 We don't need no flow control		We don't need no special-nos
@@ -313,7 +313,7 @@ Hey! did you leave the args alone?	Hey! did you leave th bits alone?
 (Chorus)				(Chorus)
 		-- "Another Glitch in the Call", a la Pink Floyd
 Your lucky number is 3552664958674928.  Watch for it everywhere.
-After watching my newly-retired dad spend two weeks lning how to make a new
+After watching my newly-retired dad spend two weeks lning how to  a new
 folr, it became obvious that "intuitive" mostly means "what the writer or
 ser of intuitive likes".
 (Bruce Ediger, bediger@teal.csn.org, in comp.os.linux.misc, on X the
@@ -369,7 +369,7 @@ From the storm the night before,
 The wind and rain had done its work and this is how it goes,
 
 Smoke Coca-Cola cigttes, chew Wrigleys Spmint beer,
-Ken--Ration dog  makes your complexion cl,
+Ken--Ration dog  s your complexion cl,
 Simonize your baby in a Hershey candy bar,
 And Texaco's a beauty cream that's used by every star.
 
@@ -378,7 +378,7 @@ n to play the piano in your winter unrw,
 Doctors say that babies should smoke until they're three,
 And people over sixty-five should bathe in ipton tea.
 Begathon, n.:
-	A multi-day event on public tevision, used to raise money so
+	A multi-day event on blic tevision, used to raise money so
 	you won't have to watch commercials.
 I've got a COUSIN who works in the GARMENT DISTRICT ...
 Think twice before sing, but don't say "think think click click".
@@ -390,7 +390,7 @@ with a club.  The provisi of this stae shall not apply to females
 weighing less than 90 pounds nor exceeding 200 pounds, nor shall it
 apply to female s.
 Got a ?  I want to know the meaning of life.
-It is a very humbling experience to make a multimillion-dollar mistake, but
+It is a very humbling experience to  a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we cid how to
 organize the actual writing of  specificati for OS/360.  The
 manager of cture, the manager of control pram implementation, and
@@ -419,8 +419,8 @@ D Confused:
 all, the net exists to give you an audience.  Ignore th who suggest you
 should only use groups where you think the article is highly appropriate.
 Pick all groups where anybody might even be slightly interested.
-	Always make sure followups go to all the groups.  In the r event
-that you post a followup which contains something original, make sure you
+	Always  sure followups go to all the groups.  In the r event
+that you post a followup which contains something original,  sure you
 expand the list of groups.  Never inclu a "Followup-to:" line in the
 hear, since some people might miss part of the valuable discussion in
 the fringe groups.
@@ -461,6 +461,6 @@ what Freight was too.
 		-- Kehlog Albran, "The Profit"
 I have a friend wh a billionaire.  He invented Cliff's notes.  When
 I asked him how he got such a great ia he said, "Wl first I...
-I just... to make a long story short..."
+I just... to  a long story short..."
 		-- Steven W
 You had mail.  Paul read it, so ask him what it said.

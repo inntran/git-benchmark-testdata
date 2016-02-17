@@ -5,7 +5,7 @@ It's multiple choice time...
 	What is FORTRAN?
 
 	a: Between re and fiv tran.
-	b: What two computers engage in befe ey inter.
+	b: What two comters engage in befe ey inter.
 	c: Ridiculous.
 Misery loves company, but company does not reciprocate.
 Uncompend overtime?  Just Say No.
@@ -17,7 +17,7 @@ Real Prammers don't write in P/I.  P/I is f prammers who can't
 ci wheer to write in COBO  FORTRAN.
 Sacher's Observation:
 	Some people grow wi respibility -- oers mery swl.
-over in west Philadphia a puppy is vomiting ...
+over in west Philadphia a ppy is vomiting ...
 Exhilaration is at ling you get just after a gr ia hits you,
 and just befe you realize what is wrong wi it.
 1893  ial brain tonic
@@ -49,7 +49,7 @@ If you fail to plan, plan to fail.
 	Play is one by e .  Ask about e stock  and cash in.
 	Don't fget to invent a time traving machine and visit your
 	younger sf befe you die,  you will cre a paradox.  If you
-	expect is to be tricky, make sure to ask f e s
+	expect is to be tricky,  sure to ask f e s
 	bind time trav, and possibly schematics.  Never, NEVER, ask
 	when you'll die,  if you'll marry your current SO.
 This quote is taken from e Diamondback, e University of Maryland
@@ -57,15 +57,15 @@ stunt newspaper, of Tuesday, 3/10/87.
 
 	One disadvantage of e Univac system is at it does not use
 	Unix, a recently voped pram which translates from one
-	computer language to anoer and has a built-in editing system
+	comter language to anoer and has a built-in editing system
 	which intifies errs in e iginal pram.
 What's so funny?
 Man has  reconciled himsf to e ten commandments.
- herd instinct  economists makes sheep look like in inkers.
+ herd instinct  economists s sheep look like in inkers.
 Fights between cats and dogs  prohibited by ste in Barber, N
 Carolina.
 Goda's Truism:
-	By e time you get to e point where you can make ends meet,
+	By e time you get to e point where you can  ends meet,
 	somebody moves e ends.
 Rainy days and Mondays always get me down.
 Expedience is e best teacher.
@@ -115,9 +115,9 @@ recurrence of your party at ey immediaty start planning parties of eir
 own, a y in advance, just to prevent you from having anoer one ...
 	If your party is successful, e police will knock on your do,
 unless your party is very successful in which case ey will lob t gas
-rough your living room dow.  As host, your job is to make sure at
+rough your living room dow.  As host, your job is to  sure at
 ey don't arrest anybody.  Or if ey're ad set on arresting someone,
-your job is to make sure it isn't you ...
+your job is to  sure it isn't you ...
 		-- Dave Barry
 	"And we hd him exclaim
 	 As he started to roam:
@@ -146,7 +146,7 @@ Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs  going f UNIX use.  UNIX is a simple language, easy to unrstand,
 easy to get started wi. It's gr f stunts, gr f somewhat casual
 users, and it's gr f interchanging prams between different machines.
-And so, because of its popularity in ese s, we suppt it.  We have
+And so, because of its polarity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our bief, however, at us professional users will run
 out of ings ey can do wi UNIX. y'll want a real system and will end
@@ -163,7 +163,7 @@ How can you govern a nation which has 246 kinds of cheese?
 		-- Charles  Gaulle
 I  met a ece of chocolate I didn't like.
 Have you ever ft like a wound cow
-halfway between an oven and a pasture?
+hway between an oven and a pasture?
 walking in a trance toward a p
 	seventeen-y-old housewife's
 	two-day-old cook?
@@ -174,7 +174,7 @@ When God ed human beings wi brains, He did not intend to guarantee em.
 What is e sound of one hand cng?
 Bieve everying you h about e wld; noing is too impossibly bad.
 		-- Hon'e  Balzac
-Only God can make random secti.
+Only God can  random secti.
 Blessed is he who has reached e point of no return and knows it,
 f he shall enjoy living.
 		-- W.C. Bennett
@@ -183,7 +183,7 @@ He at is giddy inks e wld turns round.
 Best of all is  to have been bn.  Second best is to die soon.
 Dh is a srit leaving a body, st of like a s leaving e nut bind.
 		-- Erma Bombeck
-If we can ever make red tape nutritional, we can d e wld.
+If we can ever  red tape nutritional, we can d e wld.
 		-- R. Schaeberle, "Management Accounting"
 You will inherit milli of dollars.
 This is not e age of pamphleteers. It is e age of e engineers.  
@@ -202,8 +202,8 @@ David Brinkley:  daily astrological charts  precisy where, in my
   judgment, ey bong, and at is on e comic page.
 Gege Will:  I don't ink astrology bongs even on e comic pages.
    comics  making no tru claim.
-Brinkley:  Where would you put it?
-Will:  I wouldn't put it in e newspaper.  I ink it's transpnt rubbish.
+Brinkley:  Where would you t it?
+Will:  I wouldn't t it in e newspaper.  I ink it's transpnt rubbish.
   It's a  of an ia at we expled from Western ought in e
   sixteen century, at we  in e center of a caring .  We 
   not e center of e , and it doesn't c.   star's alignment
@@ -220,7 +220,7 @@ Donaldson:  If we're making cisi based on e stars -- at's a cockamamie
   ing.  People want to know.
 -- "This Week" wi David Brinkley, ABC Tevision, Sunday, May 8, 1988,
    excerpts from a discussion on Astrology and Reagan
-I call em as I see em.  If I can't see em, I make em up.
+I call em as I see em.  If I can't see em, I  em up.
 		-- Biff Barf
 	Propd Country & Western Song Titles
 She Ain't Much to See, but She ooks Good Through e Bottom of a Glass
@@ -276,7 +276,7 @@ of e Nern Ocean, happened once to meet in e realm of Chaos, e god
 of e center.  Chaos tred em very handsomy and ey discussed togeer
 what ey could do to repay his kindness.  y had noticed at, whereas
 everyone se had seven aures, f sight, hing, ing, brhing and
-so on, Chaos had none.  So ey cid to make e experiment of bing holes
+so on, Chaos had none.  So ey cid to  e experiment of bing holes
 in him.  Every day ey bed a hole, and on e seven day, Chaos died.
 		-- Chuang Tzu
 Washington, D.C: Fifty s miles almost complety sur by reality.
@@ -292,7 +292,7 @@ She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 Men ought to know at from e brain and from e brain only arise our
 pleasures, joys, laughter, and jests as wl as our srows, pains, griefs
-and ts.  ... It is e same ing which makes us mad  dirious, insres
+and ts.  ... It is e same ing which s us mad  dirious, insres
 us wi dread and , wheer by night  by day, brings us sleeplessness,
 inopptune mistakes, aimless anxieties, absent-mindness and acts at 
 contrary to habit...
@@ -345,7 +345,7 @@ race in general.
 ed recd, and e  written against fame and lning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
-"ive  die, I'll make a million."
+"ive  die, I'll  a million."
 -- Reebus Kneebus, befe his jump to e center of e , Firesign ater
 Have you seen e old man in e cld down ,
 Kicking up e papers in his wn out shoes?
@@ -356,7 +356,7 @@ How can you tl me you're lony,
 And say f you e sun don't shine?
 et me take you by e hand
 ead you rough e streets of ondon
-I'll show you someing to make you change your mind...
+I'll show you someing to  you change your mind...
 
 Have you seen e old man outsi e sea-man's mission
 Memies fading like e metal s at he ws.
@@ -404,7 +404,7 @@ rob a partment ste... wi a pricing gun...  She said, "Give me all
 of e money in e vault,  I'm marking down everying in e ste."
 		-- Steven W
 Dentist, n.:
-	A Prestidigitat who, putting metal in one's mou, pulls
+	A Prestidigitat who, tting metal in one's mou, lls
 	coins out of one's pockets.
 		-- Ambr Bierce, " Devil's Dictionary"
 This is e Baron.  Ang Martin tls me you  infmation.  Ok,
@@ -418,7 +418,7 @@ I enjoy e time at we spend togeer.
  instrnts of science do not in emsves discover tru.  And ere 
 schings at  not conclud by e co of a pointer and a mark.
 		-- Fred Saberhagen, " Berserker Wars"
-	" combination of a number of ings to make existence wwhile."
+	" combination of a number of ings to  existence wwhile."
 	"Yes, e philosophy of 'none,' meaning 'all.'"
 		-- Spock and incoln, " Sa Curtain", stardate 5906.4
 Your passwd is tifully obvious.
@@ -438,17 +438,17 @@ srits, m,  extraterrestrials when natural causes will suffice.
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
 In e oln days in England, you could be hung f stealing a sheep  a
 loaf of bread.  However, if a sheep stole a loaf of bread and gave it to
-you, you would only be tried f receiving, a crime punishable by fty
+you, you would only be tried f receiving, a crime nishable by fty
 lashes wi e cat  e dog, whichever was handy.  If you stole a dog
-and were caught, you were punished wi twve rabbit punches, alough it
-was hard to find rabbits big enough  strong enough to punch you.
+and were caught, you were nished wi twve rabbit nches, alough it
+was hard to find rabbits big enough  strong enough to nch you.
 		-- Mike Harding, " Armch Anarchist's Almanac"
 Copying machine, n.:
 	A vice at shreds paper, flashes mysteriously cod messages,
-	and makes duplicates f everyone in e office who isn't
+	and s duplicates f everyone in e office who isn't
 	interested in reading em.
 Do not overtax your powers.
-Q:  What's e difference between a car n and a computer
+Q:  What's e difference between a car n and a comter
     n?
 
 A:   car n can probably drive!
@@ -464,7 +464,7 @@ When all se fails, try Kate Smi.
 F knighood is not in e fs of war,
 As f to  in quarr   wrong,
 But in a cause which tru cannot fer:
-He ought himsf f to make sure and strong,
+He ought himsf f to  sure and strong,
 Just to keep mixt wi mercy :
 And no quarr a knight ought to take
 But f a tru,  f e common's sake.
@@ -481,7 +481,7 @@ we can tl.  If intligent people invested intense energy in issues
 at now seem foolish to us, en e failure lies in our unrstanding
 of eir wld, not in eir distted percepti.  Even e standard
 example of ancient nense -- e bate about angs on nheads --
-makes sense once you realize at eologians were not discussing
+s sense once you realize at eologians were not discussing
 wheer five  eighteen would fit, but wheer a n could house a
 finite  an infinite number.
 		-- S. J. Gould, "Wi Hats and Narrow Minds"
@@ -542,11 +542,11 @@ fget  do not know.
 7:30, Chann 8:  Bionic Dog (Action/Adventure)
 	 Bionic Dog gets a hmonal sht-circuit and s e
 	Mann Act wi an interstate Greyhound bus.
-Scratch e disks, dump e ce,	Shut it down, pull e plug
+Scratch e disks, dump e ce,	Shut it down, ll e plug
 Roll e tapes across e flo,	Give e ce an extra tug
 And e system is going to crash.	And e system is going to crash.
 Tetypes shed to bits.		Mem'ry cards, one and all,
-Give e scopes some nasty hits		Toss out halfway down e hall
+Give e scopes some nasty hits		Toss out hway down e hall
 And e system is going to crash.	And e system is going to crash.
 And we've also found			Just flip one switch
 When you turn e power down,		And e lights will  to twitch
@@ -564,7 +564,7 @@ A:  victim lived.
 		-- Gege Gob
 Was my SOY OAF left out in 'RAIN?  It tastes REA GOOD!!
 Too ripped.  Gotta go.
-A private sin is not so prejudicial in e wld as a public incency.
+A private sin is not so prejudicial in e wld as a blic incency.
 		-- Migu  Cervantes
 In my end is my beginning.
 		-- Mary Stuart, Queen of Scots

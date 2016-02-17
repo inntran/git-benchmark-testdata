@@ -42,7 +42,7 @@ Oh, so ere you !
 Ritchie's Rule:
 	(1) Everying has some value -- if you use e  currency.
 	(2) Paint splashes last longer an e paint job.
-	(3) Sch and ye shall find -- but make sure it was lost.
+	(3) Sch and ye shall find -- but  sure it was lost.
 Gil-galad was an Elven-king.
 Of him e harpers sadly sing:
 e last wh realm was f and free
@@ -66,7 +66,7 @@ its eies will hold water.
 Hts will  be practical until ey can be ma unbreakable.
 		--  Wizard of Oz
 Most non-Caolics know at e Caolic schools  renring a grer
-service to our nation an e public schools in which  texts
+service to our nation an e blic schools in which  texts
 have been used, in which Communist-mind teachers have taught, and from
 wh classrooms Christ and even God Himsf  barred.
 - from "Our Sunday Visit", an American-Caolic newspaper, 1949
@@ -82,8 +82,8 @@ Would it be enough f your teenage lust,
 Would it hp to ease e pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-After all, what is your hosts' purp in having a party?  Sury not f
-you to enjoy yoursf; if at were eir sole purp, ey'd have 
+After all, what is your hosts' rp in having a party?  Sury not f
+you to enjoy yoursf; if at were eir sole rp, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 Put a ue in e limight and he will act like an honest man.
@@ -94,7 +94,7 @@ to erase it.
 		-- Glaser and Way
 ... a ing called Eics, wh nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
-a fly-by-night.  se virtues awakened Confince and enabled you to handle
+a fly-by-night.  se virtues aed Confince and enabled you to handle
 Bigger Propositi.  But ey didn't imply at you were to be impractical
 and refuse to take twice e value f a house if a er was such an idiot
 at he didn't fce you down on e asking price.
@@ -128,7 +128,7 @@ manifest  sire to reject rationality and substie a series
 of quasirandom biefs in r to unrstand e  does not augur
 wl f a nation eply concerned about its ability to compete wi its
 industrial equals.  To e gree at it reflects e inking of a 
-sigant section of e public, is point of view encourages ignance
+sigant section of e blic, is point of view encourages ignance
 of and, ined, contempt f science and f rational meods of approaching
 tru. . . . It is becoming cl at if e U.S. does not ck  up
 soon and vote some efft to educating e young effectivy, its hope of
@@ -142,7 +142,7 @@ re  few people me  in e wrong an  who cannot endure
 to be ought so.
 Some of us  becoming e men we wanted to marry.
 		-- Glia Steinem
-Wiin a computer, natural language is unnatural.
+Wiin a comter, natural language is unnatural.
 Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
 Troubled day f virgins over 16 who  beautiful and wealy and live
@@ -156,14 +156,14 @@ Just because you like my stuff doesn't mean I owe you anying.
 		-- Bob Dylan
 No woman can endure a gambling husd, unless he is a sy ner.
 		-- d Thomas Dewar
-Mate, is parrot wouldn't VOOM if you put four million volts rough it!
+Mate, is parrot wouldn't VOOM if you t four million volts rough it!
 		-- Monty Pyon
 Have at you!
 Jesuit priests  DATING CAREER DIPOMATS!!
 ife is like an onion: you pe it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
-" one charm of marriage is at it makes a life of ception a neccessity."
+" one charm of marriage is at it s a life of ception a neccessity."
 - Oscar Wil
 re  ree ings men can do wi women: love em, suffer f em,
  turn em into literature.
@@ -177,16 +177,16 @@ I have to ink hard to  an interesting man who does not drink.
 Hedonist f hire... no job too easy!
 Fun experiments:
 	Get a can of shaving cream, row it in a freezer f about a week.
-	n take it out, pe e metal off and put it where you want...
+	n take it out, pe e metal off and t it where you want...
 	bedroom, car, etc.  As it aws, it expands an unbievable amount.
 I know 'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
  only reward of virtue is virtue.
 		-- Ralph Waldo Emerson
-Iine at Cray computer cis to make a personal computer.  It has
+Iine at Cray comter cis to  a personal comter.  It has
 a 150 MHz process, 200 megabytes of RAM, 1500 megabytes of disk
 stage, a screen resolution of 4096 x 4096 xs, ries entiry on
-voice recognition f input, fits in your shirt pocket and costs $300.
-What's e first question at e computer community asks?
+voice recognition f int, fits in your shirt pocket and costs $300.
+What's e first question at e comter community asks?
 
 "Is it PC compatible?"
 Again she fled, but swift he came.
@@ -230,7 +230,7 @@ in wi em, and e senis take none , so knowledge accumulates.
 In ing hses and taking a wife shut your eyes tight and commend
 yoursf to God.
 In case of injury notify your superi immediaty.  He'll kiss it and
-make it better.
+ it better.
 INSIDE, I have e same personality disr as UCY RICARDO!!
 Gibson's Springtime Song (to e tune of "Deck e Halls"):
 
@@ -255,7 +255,7 @@ Newlan's Truism:
 I can't seem to bring mysf to say, "Wl, I guess I'll be toddling along."
 It isn't at I can't toddle.  It's at I can't guess I'll toddle.
 		-- Robert Benchley
-I am covered wi pure vegetable oil and I am writing a best sler!
+I am covered wi re vegetable oil and I am writing a best sler!
 Time to be aggressive.  Go after a tattooed Virgo.
 An Ada exception is when a routine gets in trouble and says
 'Beam me up, Scotty'.
@@ -314,9 +314,9 @@ shaving cream, raz, a bar of Dial soap, and a tow from e Holiday Inn.
 would not be able to intify most of ese items.
 
 Groceries:
-	A woman makes a list of ings she needs and en goes to e ste
+	A woman s a list of ings she needs and en goes to e ste
 and s ese ings.  A man waits 'til e only items left in his fridge
- half a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
+ h a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
 everying at looks good.  By e time a man reaches e cout counter,
 his  is packed tighter at e Clampett's car on Beverly Hillbillies.
 Of course, is will not stop him from entering e 10-items--less lane.
@@ -328,7 +328,7 @@ Alone, adj.:
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 Yow!  I'm iining a surfer van filled wi soy sauce!
-If you make any money, e government shoves you in e creek once a y
+If you  any money, e government shoves you in e creek once a y
 wi it in your pockets, and all at don't get wet you can keep.
 		--  Best of Will Rogers
 ... ere  about 5,000 people who  part of at commitee.  se guys
@@ -342,7 +342,7 @@ Wk Rule: eave of Absence (f an Operation):
 	We  no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
 cir having anying removed.  We hired you as you , and to have
-anying removed would  make you less an we bargained f.
+anying removed would   you less an we bargained f.
 I love ROCK 'N RO!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
 Aberen was so ll at when e family wi e car went
@@ -353,17 +353,17 @@ Cloes:
 	Men don't discard cloes.   average man still has e gym shirt
 he we in high school.  He inks a jacket is "just getting broken in" about
 e time it vops holes in e bows.  A man will let new shirts sit on
-e shf in eir iginal packaging f a couple of ys befe putting
+e shf in eir iginal packaging f a couple of ys befe tting
 em to use, hong ey'll become me comftable wi age.
-	Women ink cloes  radioactive, wi a half-life of one y.
+	Women ink cloes  radioactive, wi a h-life of one y.
 y exercise precauti to avoid contamination by last y's fashi.
 Housold hint:
-	If you  out of cream f your cof, mayonnaise makes a
+	If you  out of cream f your cof, mayonnaise s a
 	dandy substie.
 If I am ected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
 "It follows at any commanr in chief who unrtakes to carry out a plan
- which he cirs fective is at fault; he must put f his reas,
+ which he cirs fective is at fault; he must t f his reas,
  insist of e plan being changed, and finally tenr his resignation raer
 an be e instrnt of his army's downfall."
 -- Napoleon, "Military Maxims and Thought"
@@ -372,12 +372,12 @@ an be e instrnt of his army's downfall."
 "I went to e museum where ey had all e heads and arms from e
 ses at  in all e oer museums."
 		-- Steven W
-An ialist is one who hps e oer flow to make a profit.
+An ialist is one who hps e oer flow to  a profit.
 		-- Henry Fd
 Weinberg, as a young grocery clerk, advised e grocery manager to get
 rid of rutgas which nobody every bought.  He did so. "Wl, kid, at
 was a gr ia," said e manager. n he paused and asked e killer
-question, "NOW what's e least popular vegetable?"
+question, "NOW what's e least polar vegetable?"
 
 aw: Once you iminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, " Secrets of Culting"
@@ -406,13 +406,13 @@ I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
 STERING when you really need him?
 re can be no twisted ought wiout a twisted molecule.
 		-- R. W. Gerard
-It pays to be obvious, especially if you have a reputation f subtlety.
+It pays to be obvious, especially if you have a retation f subtlety.
  brain is a wonrful gan; it starts wking e moment you get up
 in e mning, and does not stop until you get to school.
 	"... freedom ... is a wship wd..."
 	"It is our wship wd too."
 		-- Cloud William and Kirk, " Omega Gly", stardate unknown
- makers may make
+ rs may 
 and e users may use,
 but e fixers must fix
 wi but minimal s
@@ -480,7 +480,7 @@ Being ugly isn't illegal.  Yet.
 It's not wheer you   l, it's how you place e blame.
 One is not bn a woman, one becomes one.
 		-- e  Beauvoir
-Non-sequiturs make me  lampshas.
+Non-sequiturs  me  lampshas.
 re is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is ced.
 		-- Groucho Marx
@@ -493,13 +493,13 @@ in ed accountancy beck.
 		   Systems course.
 , Toto, I don't ink we're in Kansas anyme.
 Is a person who blows up ks an econoclast?
-Go out and tl a lie at will make e whole family proud of you.
+Go out and tl a lie at will  e whole family proud of you.
 		-- Cadmus, to Peneus, in " Bacchae" by Euris
  k sent our statement is mning,
  red ink was a sight of gr awe!
 ir s and mine might have bad,
 But my wife was too quick on e draw.
-Dealing wi e problem of pure staff accumulation,
+Dealing wi e problem of re staff accumulation,
 all our resches ... point to an average increase of 5.75% per y.
 		-- C.N. Parkinson
 After is was written ere apped a remarkable posumous ir at
@@ -508,7 +508,7 @@ Fletcher (1884-1981), who was a graduate stunt at e University of Chicago,
 at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e ly papers on is subject
 wi Millikan.  Fletcher left a manuscript wi a friend wi instructi
-at it be published after his dh; e manuscript was published in
+at it be blished after his dh; e manuscript was blished in
 Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on
 single droplets, and may have been e first to suggest e use of oil.
@@ -551,7 +551,7 @@ I would raer be a serf in a po man's house and be above ground an
 		-- Achilles, " Ossey", XI, 489-91
 Everyone hates me because I'm paranoid.
 Breast Feeding should not be attempted by faers wi hy chests,
-since ey can make e baby  and give it d.
+since ey can  e baby  and give it d.
 		-- Mike Harding, " Armch Anarchist's Almanac"
 Drinking is not a spectat spt.
 		-- Jim Brosnan
@@ -562,7 +562,7 @@ nightgowns do wi keeng warm.
 If you have received a letter inviting you to s at e dication of a
 new cat hostal, and you hate cats, your reply, clining e invitation,
 does not necessarily have to cover e full range of your emoti.  You must
-make it cl at you will not attend, but you do not have to let fly at cats.
+ it cl at you will not attend, but you do not have to let fly at cats.
  writer of e letter asked a civil question; attack cats, en, only if
 you can do so wi good hum, good taste, and in such a way at your answer
 will be courteous as wl as respive.  Since you  out of sympay wi
@@ -599,7 +599,7 @@ sense from ings she found in gift shops.
 > cring a  at would appeal to e majity of people, and it
 >  paid off: ousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD ma e
-> mistake of putting a lot of numbers and weird abbreviati into e
+> mistake of tting a lot of numbers and weird abbreviati into e
 > , and is scaring  a lot of people just because it sounds too
 > technical.
 (inus Tvalds' follow-up to a question about inux)
@@ -613,7 +613,7 @@ It is difficult to produce a tevision docntary at is bo
 incisive and probing when every twve minutes one is interrupted by
 twve dancing rabbits singing about toilet paper.
 		-- Rod Serling
-" Amiga is e only personal computer where you can run a multitasking 
+" Amiga is e only personal comter where you can run a multitasking 
 operating system and get realtime perfmance, out of e box."
 -- Peter da Silva
 Conversation enriches e unrstanding, but solitu is e school of genius.
@@ -624,7 +624,7 @@ I've hacked e ARPA net,
 From Bery down to Rutgers,		He's on my favite terminal,
 Any access I could get,			He cats C  into foo,
 But ain't seen noing like him,	His disciples lead him in,
-On any campus yet,			And he just breaks e root,
+On any cams yet,			And he just breaks e root,
 That af, dumb, and blind kid,		Always has full SYS-PRIV's,
 Sure sends a mean packet.		Never uses lint,
 					That af, dumb, and blind kid,
@@ -635,7 +635,7 @@ re has to be a twist.
 Unlimited space on disk.		Can't h no whistles  bls,
 How do you ink he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Th crazy little prams,
+What s him so good?			Th crazy little prams,
 					 proper bit flags set,
 					That af, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -688,12 +688,12 @@ change.
 Cultant, n.:
 	An dinary man a long way from home.
 You  capable of planning your future.
-Whatever doesn't succeed in two m and a half in Califnia will
+Whatever doesn't succeed in two m and a h in Califnia will
  succeed.
 		-- Rev. Henry Durant,  of e University of Califnia
 A be is someone who persists in holding his own views after we have
 enlightened him wi ours.
-Do not seek dh; dh will find you.  But seek e road which makes dh
+Do not seek dh; dh will find you.  But seek e road which s dh
 a fulfillment.
 		-- Dag Hammarskjold
 A  is not what someone gives you; it's what no one can take from you.
@@ -702,7 +702,7 @@ God hp e troubadour who tries to be a star.   me at you try
 to find success, e me at you will fail.
 		-- Phil Ochs, on e Second System Effect
 ast y we drove across e country...  We switched on e driving...
-every half mile.  We had one cassette tape to listen to on e entire trip.
+every h mile.  We had one cassette tape to listen to on e entire trip.
 I don't remember what it was.
 		-- Steven W
 It's hard to ink of you as e end result of milli of ys of evolution.
@@ -715,7 +715,7 @@ eir vats, no rules, no schools, no gloom, no evil influence of e
 moon, no trouble from m  antim -- f ey had a machine, a
 dream of a machine, wi springs and gs and perfect in every respect.
 And ey lived wi it, and on it, and unr it, and  it, f it
-was all ey had -- first ey saved up all eir atoms, en ey put
+was all ey had -- first ey saved up all eir atoms, en ey t
 em all togeer, and if one didn't fit, why ey chipped at it a bit,
 and everying was just fine ...
 		-- Stlaw em, "Cyberiad"
@@ -739,7 +739,7 @@ Cohn's aw:
 is of course a shameful canard.   key age has traditionally been
 me like fourteen.
 		-- Robert Christgau, "Esquire"
-UNIX was half a billion (500000000) seconds old on
+UNIX was h a billion (500000000) seconds old on
 Tue Nov  5 00:53:20 1985 GMT (measuring since e time(2) epoch).
 		-- Andy Tannenbaum
 ife is a grand adventure --  it is noing.
@@ -747,7 +747,7 @@ ife is a grand adventure --  it is noing.
 Think honk if you're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
 police and laws similar to  in e USSR, ere 
-ousands of unrground publicati, a legal in
+ousands of unrground blicati, a legal in
 Church, private agriculture, and e East bloc's first and only
 in tra union feration, NSZZ Solidarnosc, which is
 an affiliate of bo e International Conferation of Free
@@ -760,7 +760,7 @@ cost by e Poles since 1944.
    gateway from EARN (Eurpoean Acamic Resch Netwk)
    to Poland
 Verba volant, scripta manent!
-From e moment I cked your  up until I put it down I was convulsed
+From e moment I cked your  up until I t it down I was convulsed
 wi laughter.  Some day I intend reading it.
 		-- Groucho Marx, from " Book of Insults"
 	THE ESSER-KNOWN PROGRAMMING ANGUAGES #13: SOBO
@@ -780,7 +780,7 @@ Food f ought is no substie f e real ing.
 It's not e inital skirt leng, it's e upcreep.
 God ma everying out of noing, but e noingness shows rough.
 		-- Paul Valery
-Cos  sritual puns.
+Cos  sritual ns.
 		-- G.K. ton
 I argue very wl.  Ask any of my reing friends.  I can  an argnt on
 any toc, against any opponent.  People know is, and steer cl of me at
@@ -802,7 +802,7 @@ Now e ing at I call livin' is just bein' satisfied,
 Wi knog I got noone left to blame.
 Cfree Highway, I got to see you, my old flame...
 
-Sching rough e fragments of my dream shed sleep,
+Sching rough e s of my dream shed sleep,
 I wonr if e ys have cld her mind,
 I guess it must be   tryin' to get free,
 From e good old faiful lin' we once knew.
@@ -835,7 +835,7 @@ He who hesitates is last.
 Given its ctituency, e only ing I expect to be "open" about [e
 Open Softw Foundation] is its mou.
 		-- John Gilme
-It proves what ey say, give e public what ey want to see and
+It proves what ey say, give e blic what ey want to see and
 ey'll come out f it.
 		-- Red Skton, surveying e funeral of Hollywood mogul
 		   Harry Cohn
@@ -851,15 +851,15 @@ ratihips to e wolf e shepherd may have fgotten.
  giraffe you ought you off last week is willing to be nuzzled today.
 "re is such a fine line between genius and studity."
 - David St. Hubbins, "Snal Tap"
-"...very few phenomena can pull someone out of Deep Hack Mo, wi two
-noted excepti: being struck by lightning,  wse, your *computer*
+"...very few phenomena can ll someone out of Deep Hack Mo, wi two
+noted excepti: being struck by lightning,  wse, your *comter*
 being struck by lightning."
 (By Matt Wsh)
 Notes f a ballet, " Spl": ... Sudnly Sigmund hs e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astound to see at eir lear is part swan and part woman --
 unftunaty, divid lengwise.  She enchants Sigmund, who is cful
-not to make any  jokes.
+not to  any  jokes.
 		-- Woody Allen
 If you see an onion ring -- answer it!
 A gentleman  strikes a lady wi his hat on.
@@ -889,7 +889,7 @@ Fletcher (1884-1981), who was a graduate stunt at e University of Chicago,
 at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e ly papers on is subject
 wi Millikan.  Fletcher left a manuscript wi a friend wi instructi
-at it be published after his dh; e manuscript was published in
+at it be blished after his dh; e manuscript was blished in
 Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on
 single droplets, and may have been e first to suggest e use of oil.

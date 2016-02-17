@@ -32,7 +32,7 @@ For th who like this sort of thing, this is the sort of thing they like.
 		-- Abraham incoln
 Thou hast seen nothing yet.
 		-- Miguel  Cervantes
-Do not seek ath; ath will find you.  But seek the road which makes ath
+Do not seek ath; ath will find you.  But seek the road which s ath
 a fulfillment.
 		-- Dag Hammarskjold
 And furthermore, my bowling average is unimpeachable!!!
@@ -44,11 +44,11 @@ The others escaped with minor injuries.
 Some of you ... may have cid that, this y, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handma gifts, like on "The Walt".
-Well, you can forget it.  If everybody pulled that kind of subversive stunt,
+Well, you can forget it.  If everybody lled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
 which would spend billi and billi of tax dollars to buy Barbie dolls
-and electronic games, which it would drop on the populace from Air Force
+and electronic games, which it would drop on the polace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Program.  This means you should get a large
 sum of money and go to a mall.

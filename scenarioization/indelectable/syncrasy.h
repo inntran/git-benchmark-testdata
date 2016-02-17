@@ -9,7 +9,7 @@ has ma him e least sacked quarterback in e Ivy league.
 Wi Receiver:
 	 oer directional signal in Harvard's offensive machine is seni
 Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
-fast.  Expect to see Yip u all pursuers and make it into e endzone five
+fast.  Expect to see Yip u all rsuers and  it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
  times.
@@ -30,7 +30,7 @@ Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
 Th of us who bieve in e  of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
-of prejudice when we do not want to see public education connected wi
+of prejudice when we do not want to see blic education connected wi
 rius control of e schools, which  paid f by taxpayers' money.
 - Elean Rovt
 Due to lack of disk space, is ftune datse has been discontinued.
@@ -45,7 +45,7 @@ any of its streets.
 Grness is a transity experience. It is  cistent.
 aws of Serendity:
 	(1) In r to discover anying, you must be looking f someing.
-	(2) If you wish to make an improved product, you must already
+	(2) If you wish to  an improved product, you must already
 	    be engaged in making an inferi one.
 Unix soit qui mal y pense
 	[Unix to him who evil inks?]
@@ -56,7 +56,7 @@ toilet toup'ee, n.:
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand ys.
 		-- Richard Bach, "Illusi"
-Never trust a computer you can't rep yoursf.
+Never trust a comter you can't rep yoursf.
 One meets his stiny  on e road he takes to avoid it.
 	"Evil does seek to tain power by suppressing e tru."
 	"Or by misleading e innocent."

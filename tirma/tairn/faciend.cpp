@@ -24,10 +24,10 @@ history of war have so few been led by so many.
 I was in Vegas last week. I was at the roulette table, having a lengthy
 argument about what I consired an Odd number.
 		-- Steven Wright
-What makes the universe so hard to comprehend is that there's nothing
+What s the universe so hard to comprehend is that there's nothing
 to compare it with.
 It isn't easy being the parent of a six-year-old.  However, it's a pretty small
-price to pay for having somebody around the house who unrstands computers.
+price to pay for having somebody around the house who unrstands comters.
 However, never daunted, I will cope with adversity in my traditional
  ... sulking and nausea.
 		-- Tom K. Ryan
@@ -68,13 +68,13 @@ luggage in Brazil.
 ...Another writer again agreed with all my generalities, but said that as an
 inveterate skeptic I have closed my mind to the truth.  Most notably I have
 ignored the evince for an Earth that is six thousand years old.  Well, I
-haven't ignored it; I consired the purported evince and *then* rejected it.
+haven't ignored it; I consired the rported evince and *then* rejected it.
 There is a difference, and this is a difference, we might say, between 
 prejudice and postjudice.  Prejudice is making a judgment before you have
 looked at the facts.  Postjudice is making a judgment afterwards.  Prejudice
-is terrible, in the sense that you commit injustices and you make serious
+is terrible, in the sense that you commit injustices and you  serious
 mistakes.  Postjudice is not terrible.  You can't be perfect of course; you
-may make mistakes also.  But it is permissible to make a judgment after you
+may  mistakes also.  But it is permissible to  a judgment after you
 have examined the evince.  In some circles it is even encouraged.
 - Carl Sagan, The Burn of Skepticism, Skeptical Enquirer, Vol. 12, pg. 46
 When a girl can read the handwriting on the wall, she may be in the wrong
@@ -102,8 +102,8 @@ When accountants talk of quarterly profits, the velopment budget is about
 to be cut.  When senior scientists talk blue sky, the clouds are about to
 roll in.
 	Truly, this is not the Tao of Programming.
-	When managers make commitments, game programs are ignored.  When
-accountants make long-range plans, harmony and orr are about to be restored.
+	When managers  commitments, game programs are ignored.  When
+accountants  long-range plans, harmony and orr are about to be restored.
 When senior scientists address the problems at hand, the problems will soon
 be solved.
 	Truly, this is the Tao of Programming.
@@ -114,7 +114,7 @@ Oatmeal raisin.
 Help a swallow land at Capistrano.
 If in any problem you find yourself doing an immense amount of work, the
 answer can be obtained by simple inspection.
-There is is no reason for any individual to have a computer in their home.
+There is is no reason for any individual to have a comter in their home.
 		-- Ken Olsen (Presint of Digital Equipment Corporation),
 		   Convention of the World Future Society, in Boston, 1977
 A bird in the hand is worth what it will bring.
@@ -133,7 +133,7 @@ Give me a nudge for goodness' sake.
 		-- Anonymous
 The difference between a lawyer and a rooster is that
 the rooster gets up in the morning and clucks fiance.
-	A pushy romeo asked a gorgeous elevator operator, "Don't all these
+	A shy romeo asked a gorgeous elevator operator, "Don't all these
 stops and starts get you pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 The hater of property and of government takes care to have his warranty
@@ -156,7 +156,7 @@ name for my baby."
 	"But the hospital supplies a special booklet that lists hundreds
 of first names and their meanings," said the orrly.
 	"That won't help," said the woman, "my baby already has a first name."
-A full y makes a dull brain.
+A full y s a dull brain.
 		-- Ben Franklin
 
 		[and the local candy machine man.  Ed]
@@ -220,7 +220,7 @@ Chinese iogram for NO-THING.)
 	Primarily because nobody unrstood Chinese.
 		-- Camn Benares, "Zen Without Zen Masters"
 Now I unrstand the meaning of "THE MOD SQUAD"!
-Two wrights don't make a rong, they make an airplane.  Or bicycles.
+Two wrights don't  a rong, they  an airplane.  Or bicycles.
 When the lears speak of peace
 The common folk know
 That war is coming
@@ -254,25 +254,25 @@ Besis the vice, the box should contain:
 YOU WILL NEED TO SUPPLY: a matrix wrench and 60,000 feet of tram cable.
 
 IF ANYTHING IS DAMAGED OR MISSING: You IMMEDIATELY should turn to your spouse
-and say: "Margaret, you know why this country can't make a car that can get
+and say: "Margaret, you know why this country can't  a car that can get
 all the way through the drive-through at Burger King without a major
 transmission overhaul?  Because nobody cares, that's why."
 
 WARNING: This is assuming your spouse's name is Margaret.
 		-- Dave Barry, "Read This First!"
-You can't push on a string.
+You can't sh on a string.
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 A day without sunshine is like night.
 QOTD:
 	"What women and psychologists call `dropping your armor', we call
 	"baring your neck."
-Your pth of comprehension may tend to make you lax in worldly ways.
+Your pth of comprehension may tend to  you lax in worldly ways.
 "Just out of curiosity does this actually mean something or have some
 of the few reing bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
-If you push the "extra ice" button on the soft drink vending machine, you won't
-get any ice.  If you push the "no ice" button, you'll get ice, but no cup.
+If you sh the "extra ice" button on the soft drink vending machine, you won't
+get any ice.  If you sh the "no ice" button, you'll get ice, but no cup.
 The world will end in 5 minutes.  Please log out.
 Give a small boy a hammer and he will find that everything he encounters
 needs pounding.
@@ -292,7 +292,7 @@ Year  Name				James Bond	Book
 1977  The Spy Who Loved Me		Roger Moore	1962 (novelette)
 1979  Moonraker				Roger Moore	1955
 1981  For Your Eyes Only		Roger Moore	1960 (novelette)
-1983  Octopussy				Roger Moore	1965
+1983  Octossy				Roger Moore	1965
 1983* Never Say Never Again		Sean Connery
 1985  A View To A Kill			Roger Moore	1960 (novelette)
 1987  The Living Daylights		Timothy Dalton	1965 (novelette)
@@ -306,7 +306,7 @@ Those who have some means think that the most important thing in the
 world is love.  The poor know that it is money.
 		-- Gerald Brenan
 No house is childproofed unless the little darlings are in straitjackets.
-Any philosophy that can be put "in a nutshell" belongs there.
+Any philosophy that can be t "in a nutshell" belongs there.
 		-- Sydney J. Harris
 Always remember that you are unique.  Just like everyone else.
 Decemba, n:	The 12th month of the year.
@@ -335,7 +335,7 @@ what you're taking for it...
 Technology is dominated by those who manage what they do not unrstand.
 She missed an invaluable opportunity to give him a look that you could
 have poured on a waffle ...
-That's the thing about people who think they hate computers.  What they
+That's the thing about people who think they hate comters.  What they
 really hate is lousy programmers.
 		-- Larry Niven and Jerry Pournelle in "Oath of Fealty"
 TAPPING?  You POLITICIANS!  Don't you realize that the END of the "Wash
@@ -373,7 +373,7 @@ manic-pressive, adj.:
 Money is its own reward.
 Be security conscious -- National fense is at stake.
 To err is human,
-To purr feline.
+To rr feline.
 		-- Robert Byrne
 "It's men like him that give the Y chromosome a bad name."
 Alive without breath,
@@ -390,7 +390,7 @@ E, or U is the proper time for chocolate.
 	The Magician of the Ivory Tower brought his latest invention for the
 master programmer to examine.  The ician wheeled a large black box into the
 master's office while the master waited in silence.
-	"This is an integrated, distributed, general-purpose workstation,"
+	"This is an integrated, distributed, general-rpose workstation,"
 began the ician, "ergonomically signed with a proprietary operating
 system, sixth generation languages, and multiple state of the art user
 interfaces.  It took my assistants several hundred man years to construct.
@@ -422,10 +422,10 @@ That's clear enough; although		Was out of work -- had sold his traps
 Yes; quaint and curious war is!
 You shoot a fellow down
 You'd treat, if met where any bar is
-Or help to half-a-crown."
+Or help to h-a-crown."
 		-- Thomas Hardy
 It's great to be smart 'cause then you know stuff.
-You have a tenncy to feel you are superior to most computers.
+You have a tenncy to feel you are superior to most comters.
 I'm sorry if the correct way of doing things offends you.
 The only difference between the saint and the sinner is that every saint
 has a past and every sinner has a future.
@@ -448,7 +448,7 @@ Be careful when you bite into your hamburger.
 Whenever I date a guy, I think, is this the man I want my children
 to spend their weekends with?
 		-- Rita Rudner
-Delta: We never make the same mistake three times.   -- David Letterman
+Delta: We never  the same mistake three times.   -- David Letterman
 Q:	What's the difference between the 1950's and the 1980's?
 A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 	like some condoms," and then, leaning over the counter, whispers,
@@ -474,7 +474,7 @@ Finish the sentence below in 25 words or less:
 
 	"Love is what you feel just before you give someone a good ..."
 
-Mail your answer along with the top half of your supervisor to:
+Mail your answer along with the top h of your supervisor to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan
@@ -508,7 +508,7 @@ the country is the one on which you resell it.
 		-- J. Brecheux
 Gold coast slave ship bound for cotton fields
 Sold in a market down in New Orleans
-Scarred old slaver knows he's doing alright
+Scarred old s knows he's doing alright
 Hear him whip the women, just around midnight
 
 Ah, brown sugar how come you taste so good?
@@ -539,7 +539,7 @@ straight days it can be explained by Newton's Law of Gravity.  But it takes
 Murphy's law to explain why it is happening to you.
 Once he had one leg in the White House and the nation trembled unr his 
 roars.  Now he is a tinpot pope in the Coca-Cola belt and a brother to the
-forlorn pastors who belabor halfwits in galvanized iron tabernacles behind
+forlorn pastors who belabor hwits in galvanized iron tabernacles behind
 the railroad yards."
 		-- H.L. Mencken, writing of William Jennings Bryan,
 		   counsel for the supporters of Tennessee's anti-evolution
@@ -549,8 +549,8 @@ The Official MBA Handbook on doing company business on an airplane:
 	you have previously ascertained that the passenger next to you
 	is blind, a rock musician on mood-ameliorating drugs, or the
 	unfortunate possessor of a forty-seventh chromosome.
-I got my driver's license photo taken out of focus on purpose.  Now
-when I get pulled over the cop looks at it (moving it nearer and
+I got my driver's license photo taken out of focus on rpose.  Now
+when I get lled over the cop looks at it (moving it nearer and
 farther, trying to see it clearly)...  and says, "Here, you can go."
 		-- Steven Wright
 There may be said to be two classes of people in the world; those who constantly
@@ -574,7 +574,7 @@ Have a nice diurnal anomaly.
 Cloning is the sincerest form of flattery.
 Lighten up, while you still can,
 Don't even try to unrstand,
-Just find a place to make your stand,
+Just find a place to  your stand,
 And take it easy.
 		-- The Eagles, "Take It Easy"
 Man invented language to satisfy his ep need to complain.
@@ -598,10 +598,10 @@ Don't mind him; politicians always sound like that.
 	A journalist, thrilled over his dinner, asked the chef for the recipe.
 Retorted the chef, "Sorry, we have the same policy as you journalists, we
 never reveal our sauce."
-Shall we make a new rule of life from tonight: always to try to be a
+Shall we  a new rule of life from tonight: always to try to be a
 little kinr than is necessary?
 		-- J.M. Barrie
-FOOLED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOLED you!  Absorb EGO SHATTERING imlse rays, polyester poltroon!!
 Murphy was an optimist.
 The difference between science and the fuzzy subjects is that science
 requires reasoning while those other subjects merely require scholarship.
@@ -609,7 +609,7 @@ requires reasoning while those other subjects merely require scholarship.
 I'd probably settle for a vampire if he were romantic enough.
 Couldn't be any worse than some of the relationships I've had.
 		-- Brenda Starr
-Eat drink and be merry, for tomorrow they may make it illegal.
+Eat drink and be merry, for tomorrow they may  it illegal.
 Q:	How many elephants can you fit in a VW Bug?
 A:	Four.  Two in the front, two in the back.
 

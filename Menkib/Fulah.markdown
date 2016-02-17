@@ -39,7 +39,7 @@ said.  "Neither did I."
 	Brian Kernighan has an automobile which he helped sign.
 Unlike most automobiles, it has neither speedometer, nor gas gauge, nor
 any of the numerous idiot lights which plague the morn driver.
-Rather, if the driver makes any mistake, a giant "?" lights up in the
+Rather, if the driver s any mistake, a giant "?" lights up in the
 center of the dashboard.  "The experienced driver", he says, "will
 usually know what's wrong."
 Puns are little "plays on words" that a certain breed of person loves to
@@ -59,7 +59,7 @@ him from the  of all sins, or nearly all, save those that are
 worth committing.
 		-- Samuel Butler
 Other women cloy
-The appetites they feed, but she makes hungry
+The appetites they feed, but she s hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
 Barth's Distinction:
@@ -110,7 +110,7 @@ Ingrate, n.:
 	indigestion.
 Wagner's music is better than it sounds.
 		-- Mark Twain
-Sacred cows make great hamburgers.
+Sacred cows  great hamburgers.
 Slang is language that takes off its coat, spits on its hands, and goes to work.
 "Gozer the Gozerian:  As the duly appointed representative of the city,
 county and state of New York, I hereby orr you to cease all supernatural
@@ -123,7 +123,7 @@ and a whip serves to learn the difference on his own back -- as, I think, he
 will."
 -- Francisco d'Anconia, in Ayn Rand's _Atlas Shrugged_
 The more we disagree, the more chance there is that at least one of us is right.
-If a putt passes over the hole without dropping, it is emed to have dropped.
+If a tt passes over the hole without dropping, it is emed to have dropped.
 The law of gravity holds that any object attempting to tain a position
 in the atmosphere without something to support it must drop.  The law of
 gravity superces the law of golf.
@@ -141,13 +141,13 @@ hearts, without anguish in mind, without uncertainty, without doubt,
 without an element of spair even in their consolation, believe only
 in the God ia, not God Himself.
 - Miguel  Unamuno, Spanish philosopher and writer
-Happiness makes up in height what it lacks in length.
+Happiness s up in height what it lacks in length.
 The absence of labels [in ECL] is probably a good thing.
 		-- T. Cheatham
 	"You have heard me speak of Professor Moriarty?"
 	"The famous scientific criminal, as famous among crooks as --"
 	"My blushes, Watson," Holmes murmured, in a precating voice.
-	"I was about to say 'as he is unknown to the public.'"
+	"I was about to say 'as he is unknown to the blic.'"
 		-- A. Conan Doyle, "The Valley of Fear"
 If you think before you speak the other guy gets his joke in first.
 A little retrospection shows that although many fine, useful software systems
@@ -184,7 +184,7 @@ eat it nevertheless.
 Did YOU find a DIGITAL WATCH in YOUR box of VELVEETA?
 By protracting life, we do not duct one jot from the duration of ath.
 		-- Titus Lucretius Carus
-I'm sick of being trodn on!  The Elr Gods say they can make me a man!
+I'm sick of being trodn on!  The Elr Gods say they can  me a man!
 All it costs is my soul!  I'll do it, cuz NOW I'M MAD!!!
 - Necronomicomics #1, Jack Herman & Jeff Dee
 If life is a stage, I want some better lighting.
@@ -278,7 +278,7 @@ The first marriage is the triumph of iination over intelligence,
 and the second the triumph of hope over experience.
 The sun was shining on the sea,
 Shining with all his might:
-He did his very best to make
+He did his very best to 
 The billows smooth and bright --
 And this was very odd, because it was
 The middle of the night.
@@ -307,7 +307,7 @@ and drown myself in the noise.
 		-- Charles Schmid, the "Tucson Murrer"
 QOTD:
 	"If I could walk that way, I wouldn't need the cologne, now would I?"
-There's a whole WORLD in a mud puddle!
+There's a whole WORLD in a mud ddle!
 		-- Doug Clifford
 We have not inherited the earth from our parents, we've borrowed it from
 our children.
@@ -326,18 +326,18 @@ what Freight was too.
 I have sacrificed time, health, and fortune, in the sire to complete these
 Calculating Engines.  I have also clined several offers of great personal
 advantage to myself.  But, notwithstanding the sacrifice of these advantages
-for the purpose of maturing an engine of almost intellectual power, and after
+for the rpose of maturing an engine of almost intellectual power, and after
 expending from my own private fortune a larger sum than the government of
 England has spent on that machine, the  of which it only commenced,
 I have received neither an acknowledgement of my labors, not even the offer
 of those honors or rewards which are allowed to fall within the reach of men
-who vote themselves to purely scientific investigations...  
+who vote themselves to rely scientific investigations...  
 
 If the work upon which I have bestowed so much time and thought were a mere
 triumph over mechanical difficulties, or simply curious, or if the 
 of such engines were of doubtful practicability or utility, some justification
 might be found for the course which has been taken; but I venture to assert
-that no mathematician who has a reputation to lose will ever publicly express
+that no mathematician who has a retation to lose will ever blicly express
 an opinion that such a machine would be useless if ma, and that no man
 distinguished as a civil engineer will venture to clare the construction of
 such machinery impracticable...
@@ -353,7 +353,7 @@ be economized by the aid of machinery.
 "Maybe we should think of this as one perfect week... where we found each
 other, and loved each other... and then let each other go before anyone
 had to seek professional help."
-If I'd known computer science was going to be like this, I'd never have
+If I'd known comter science was going to be like this, I'd never have
 given up being a rock 'n' roll star.
 		-- G. Hirst
 Do you mean that you not only want a wrong answer, but a certain wrong answer?
@@ -388,7 +388,7 @@ Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
 	circuitously proven, rived, imp, inferred, induced, ducted,
-	estimated, or scientifically guessed, it will always for the purpose
+	estimated, or scientifically guessed, it will always for the rpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
 	above, be unilaterally and unequivocally assumed, proclaimed, and
@@ -430,7 +430,7 @@ me just to be myself?
 		-- The Return of the Secaucus Seven
 "We can't schedule an orgy, it might be construed as fighting"
 --Stanley Sutton
-"Never make any mistaeks."
+"Never  any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)
 Stability itself is nothing else than a more sluggish motion.
 Norm:  Gentlemen, start your taps.
@@ -456,7 +456,7 @@ To know Edina is to reject it.
 	One evening he spoke.  Sitting at her feet, his face raised to her,
 he allowed his soul to be heard.  "My darling, anything you wish, anything
 I am, anything I can ever be...  That's what I want to offer you -- not the
-things I'll get for you, but the thing in me that will make me able to get
+things I'll get for you, but the thing in me that will  me able to get
 them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
 that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
@@ -467,9 +467,9 @@ lesson twice, did not fall in love again in the years that followed.
 		-- Ayn Rand, "The Fountainhead"
 Dull women have immaculate homes.
 Magary's Principle:
-	When there is a public outcry to cut adwood and fat from any
+	When there is a blic outcry to cut adwood and fat from any
 	government bureaucracy, it is the adwood and the fat that do
-	the cutting, and the public's services are cut.
+	the cutting, and the blic's services are cut.
 Nothing ever becomes real till it is experienced -- even a
 proverb is no proverb to you till your life has illustrated it.
 		-- John Keats
@@ -483,7 +483,7 @@ Atlanta:
 Conceit causes more conversation than wit.
 		-- LaRouchefoucauld
 The life of a repo man is always intense.
-The vil can cite Scripture for his purpose.
+The vil can cite Scripture for his rpose.
 		-- William Shakespeare, "The Merchant of Venice"
 On the night before her family moved from Kansas to California, the little
 girl knelt by her bed to say her prayers.  "God bless Mommy and Daddy and
@@ -492,7 +492,7 @@ and God, this is goodbye.  We're moving to Hollywood."
 In the plot, people came to the land; the land loved them; they worked and
 struggled and had lots of children.  There was a Frenchman who talked funny
 and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would make you retch.
+crunch he was all courage.  Those novels would  you retch.
 		-- Canadian novelist Robertson Davies, on the generic Canadian
 		   novel.
 If you laid all of our laws end to end, there would be no end.
@@ -510,8 +510,8 @@ Kludge, n.:
 	An ill-assorted collection of poorly-matching parts, forming a
 	distressing whole.
 		-- Jackson Granholm, "Datamation"
-With Congress, every time they make a joke it's a law; and every time
-they make a law it's a joke.
+With Congress, every time they  a joke it's a law; and every time
+they  a law it's a joke.
 		-- Will Rogers
 First law of bate:
 	Never argue with a fool.  People might not know the difference.
@@ -526,12 +526,12 @@ today's minute attention span.
 
 Once upon a time, there was an aardvark whose only pleasure in life was
 driving from his suburban bungalow to his job at a large brokerage house
-in his brand new 4x4.  He hated his manipulative boss, his conniving and
+in his brand new 4x4.  He hated his manilative boss, his conniving and
 unethical co-workers, his greedy wife, and his snivelling, spoiled
 children.  One day, the aardvark reflected on the meaning of his life and
 his career and on the unchecked, catastrophic cline of his nation, its
 pathetic excuse for learship, and the complete ineffectiveness of any
-personal effort he could make to change the status quo.  Overcome by a
+personal effort he could  to change the status quo.  Overcome by a
 wave of utter pression and self-doubt, he cid to take the only
 course of action that would bring him greater comfort and happiness: he
 drove to the mall and bought imported consumer electronics goods.
@@ -549,7 +549,7 @@ That feeling just came over me.
  and do not find in our particular superstition (Christianity) one reeming
  feature.  They are all alike found on fables and mythology."
 -- Thomas Jefferson
-My doctorate's in Literature, but it seems like a pretty good pulse to me.
+My doctorate's in Literature, but it seems like a pretty good lse to me.
 Who needs friends when you can sit alone in your room and drink?
 Alimony is like buying oats for a ad horse.
 		-- Arthur Baer
@@ -570,7 +570,7 @@ even highly probable.
 - H. L. Mencken, 1930
 "When people are least sure, they are often most dogmatic."
 -- John Kenneth Galbraith
-"The bad reputation UNIX has gotten is totally unserved, laid on by people
+"The bad retation UNIX has gotten is totally unserved, laid on by people
 who don't unrstand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
 Don't know what time I'll be back, Mom.  Probably soon after she throws me out.
@@ -598,7 +598,7 @@ there all right!  OK, just a sec...  <tappity clickity tap... save... compile>
 There, that ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
 The history of the rise of Christianity has everything to do with politics,
-culture, and human frailties and nothing to do with supernatural manipulation
+culture, and human frailties and nothing to do with supernatural manilation
 of events.  Had divine intervention been the guiding force, surely two
 millennia after the birth of Jesus he would not have a world where there
 are more Muslims than Catholics, more Hindus than Protestants, and more
@@ -662,7 +662,7 @@ Thus spake the master programmer:
 	"When you have learned to snatch the error co from
 	the trap frame, it will be time for you to leave."
 		-- Geoffrey James, "The Tao of Programming"
-Any program which runs right is obsolete.
+Any program which runs right is .
 Gibson's Springtime Song (to the tune of "Deck the Halls"):
 
 'Tis the season to chase mousies (Fa la la la la, la la la la)
@@ -697,8 +697,8 @@ I have never seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
 Steve Jobs said two years ago that X is brain-daed and it will be
-gone in two years.  He was half right.
+gone in two years.  He was h right.
 		-- Dennis Ritchie
 
-Dennis Ritchie is twice as bright as Steve Jobs, and only half wrong.
+Dennis Ritchie is twice as bright as Steve Jobs, and only h wrong.
 		-- Jim Gettys

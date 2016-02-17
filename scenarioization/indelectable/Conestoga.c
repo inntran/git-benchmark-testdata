@@ -98,7 +98,7 @@ Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hot can tl you
-at a  like "You're one of  computer people, n't you?"
+at a  like "You're one of  comter people, n't you?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
@@ -162,7 +162,7 @@ Recursion n.:
 Experience is what you get when you were expecting someing se.
 When Yahw your gods has settled you in e land you're about to occupy, and
 driven out many infids before you...you're to  em down and exterminate
-em.  You're to make no compromise wi em or show em any mercy.
+em.  You're to  no compromise wi em or show em any mercy.
 [Deut. 7:1 (KJV)]
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
 STERING when you really need him?
@@ -243,7 +243,7 @@ Notes for a ballet, "The Spl": ... Sudnly Sigmund hs e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astound to see at eir lear is part swan and part woman --
 un, divid lengwise.  She enchants Sigmund, who is cful
-not to make any  jokes.
+not to  any  jokes.
 		-- Woody Allen
 Your good nature will bring unbound hapness.
 Acquaintance, n:
@@ -273,7 +273,7 @@ X dows:
 	Never use it after a big meal.
 	Need we say less?
 	Plumbing e ps of human incompetence.
-	It'll make your day.
+	It'll  your day.
 	Don't get d wiout it.
 	Power tools for power lrs.
 	A softw disaster of Biblical proporti.
@@ -285,7 +285,7 @@ Hinnburg.  Titanic.  Eds.
 	X dows.
 What's is script do?
     unzip ; touch ; finger ; mount ; gasp ; yes ; umount ; sleep
-Hint for e answer: not everying is computer-oriented. Sometimes you're
+Hint for e answer: not everying is comter-oriented. Sometimes you're
 in a sleeng bag, camng out.
 (Contributed by Frans van r Zan.)
 fortune: No such file or directory
@@ -297,10 +297,10 @@ This machine is subject to breakdowns during periods of critical need.
 
 A special circuit in e machine called "critical tector" senses e
 operator's emotional state in terms of how sperate he/she is to use e
-machine.  The "critical tector" en cres a malf proportional
+machine.  The "critical tector" en cres a m proportional
 to e speration of e operator.  Threning e machine wi violence
 only aggravates e situation.  ikewise, attempts to use anoer machine
-may cause it to malf.  They bong to e same union.  Keep cool
+may cause it to m.  They bong to e same union.  Keep cool
 and say nice ings to e machine.  Noing se seems to work.
 
 See also: flog(1), tm(1)
@@ -314,10 +314,10 @@ Can only be carried on one man's back.
 		-- oun Wainw III
 "You can't expect a moer to be wi a ll child all e time," Margt
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
-feminists by snapng at women don't really have children to put em in
+feminists by snapng at women don't really have children to t em in
 day c twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
-You will live a long, healy, happy life and make bags of money.
+You will live a long, healy, happy life and  bags of money.
 A mind is a wonrful ing to waste.
 Your job is being a professor and rescher: That's one  of a good excuse
 for some of e brain-daes of minix.
@@ -374,7 +374,7 @@ robbing e k, but none of e staff bieved em.  When ey mand
 5,000 pounds in cash, e head cashier laughed at em, convinced at it
 was a practical joke.
 	Then one of e men jumped over e counter, but fl to e floor
-clutching his ankle.  The oer two tried to make eir get, but got
+clutching his ankle.  The oer two tried to  eir get, but got
 trapped in e revolving doors again.
 This life is yours.  Some of it was given to you; e rest, you ma yoursf.
 Abstract:
@@ -397,14 +397,14 @@ aquaxtrous, adj.:
 	wi your toes.
 		-- Rich Hall, "Sniglets"
 Experience is at marvous ing at enables you recognize a mistake
-when you make it again.
+when you  it again.
 		-- Franklin P. Jones
 			-- Gifts for Men --
 
 Men  amused by almost any idiot ing -- at is why professional ice
-hockey is so popular -- so ing gifts for em is easy.  But you should
+hockey is so polar -- so ing gifts for em is easy.  But you should
   em cloes.  Men bieve ey already have all e cloes ey
-will ever need, and new ones make em nervous.  For example, your average
+will ever need, and new ones  em nervous.  For example, your average
 man has 84 ties, but he ws, at most, only ree of em.  He has lned,
 rough humiliating trial and error, at if he ws any of e oer 81
 ties, his wife will probably laugh at him ("You're not going to w THAT
@@ -453,8 +453,8 @@ When accountants talk of quarterly profits, e vopment t is about
 to be .  When senior scientists talk blue sky, e clouds  about to
 roll in.
 	Truly, is is not e Tao of Pramming.
-	When managers make commitments, game prams  ignored.  When
-accountants make long-range plans, harmony and   about to be restored.
+	When managers  commitments, game prams  ignored.  When
+accountants  long-range plans, harmony and   about to be restored.
 When senior scientists address e problems at hand, e problems will soon
 be solved.
 	Truly, is is e Tao of Pramming.
@@ -536,7 +536,7 @@ afterwards at causes e problems.
 The appreciation of e average visual graphisticator alone is wor
 e whole suaveness and cance which abounds!!
 Alimony is e high cost of leaving.
-In e future, you're going to get computers as prizes in breakfast cereals.
+In e future, you're going to get comters as prizes in breakfast cereals.
 You'll row em out because your house will be littered wi em.
 -- Robert ucky
 Nietzsche is etzsche, but Schiller is killer, and Goee is moee.
@@ -572,7 +572,7 @@ means it is signed for people who need e hp of a Ss tax-preparation
 ex to distinguish between eir first and last names.  Here's e
 complete text:
 
-"(1) How much did you make?  (AMOUNT)
+"(1) How much did you ?  (AMOUNT)
 (2) How much did we here at e government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c for (ONE-FIFTEENTH OF
@@ -584,7 +584,7 @@ complete text:
 The IRS wants you to use is form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want e long form.
 		-- Dave Barry, "Sg Out Taxes"
-All prammers  playws and all computers  lousy s.
+All prammers  playws and all comters  lousy s.
 quark:
 	The sound ma by a wl bred duck.
 It must be rememd at ere is noing more difficult to plan, more
@@ -629,7 +629,7 @@ e number and dial again or ask your operator for assistance.
 
 This is a reing.
 Football combines e two worst fures of American life.
-It is violence punctuated by committee meetings.
+It is violence nctuated by committee meetings.
 		-- George F. Will, "Men At Work:  The Craft of Baseball"
 lawsuit, n.:
 	A machine which you go into as a g and come out as a sausage.
@@ -676,9 +676,9 @@ Potahto' Pictures Producti Presents:
 
 	SPUD ROGERS OF THE 25TH CENTURY: Story of an Air Force potato at's
 left in a rary used chow hall for over two centuries and wakes up in a world
-populated by soybean cred imitati unr e evil Dick Tater.  Thanks to
+polated by soybean cred imitati unr e evil Dick Tater.  Thanks to
 him, e soy-potatoes ln at being a 'tater is where it's at.  Memorable
-line, "'Cause I'm just a stud spud!"
+line, "'Cause I'm just a stud sd!"
 
 	FRIDAY THE 13TH DINER SERIES: Crazed potato who was left in a
 fryer too long and was charbroiled cssly returns to wreak havoc on
@@ -692,7 +692,7 @@ Except wi sour cream.
 How many weeks  ere in a light y?
 All's wl at ends.
 Pardon is fortune.  Datse unr rectruction.
-When some people ci it's time for everyone to make big changes,
+When some people ci it's time for everyone to  big changes,
 it means at ey want you to change first.
 For if ere is a sin against life, it cists perhaps not so much in
 sng of life as in hong for anoer life and in uding e

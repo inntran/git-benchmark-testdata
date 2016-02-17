@@ -7,7 +7,7 @@ the wilrness of possibility; in all the forests of opinion, there is a
 vital something that can be known -- known and grasped.  That we will
 eventually know it, and convert the whole mystery into a coherent
 narrative.  So that then one's true life -- the point of everything --
-will emerge from the mist into a pure light, into total comprehension.
+will emerge from the mist into a re light, into total comprehension.
 But it isn't like that at all.  But if it isn't, where did the ia come
 from, to torture and unsettle us?
 		-- Brian Aldiss, "Helliconia Summer"
@@ -15,7 +15,7 @@ I am a jelly donut.  I am a jelly donut.
 Respect is a rational process
 		-- McCoy, "The Galileo Seven", stardate 2822.3
 Egotism, n:
-	Doing the New York Times crossword puzzle with a pen.
+	Doing the New York Times crossword zzle with a pen.
 
 Egotist, n:
 	A person of low taste, more interested in himself than me.
@@ -38,7 +38,7 @@ Every Solidarity center had piles and piles of paper ... everyone was
 eating paper and a policeman was at the door.  Now all you have to do is
 bend a disk.
 		-- A member of the outlawed Polish tra union, Solidarity, 
-		   commenting on the benefits of using computers in support
+		   commenting on the benefits of using comters in support
 		   of their movement.
 How come we  talk anymore?
 All I've got left on the list of sirable vocati is heiress to the
@@ -53,11 +53,11 @@ Pretend to spank me -- I'm a pseudo-masochist!
 There must be more to life than having everything.
 		-- Maurice Sendak
 What the uce is it to me?  You say that we go around the sun.  If we went
-around the moon it would not make a pennyworth of difference to me or my work.
+around the moon it would not  a pennyworth of difference to me or my work.
 		-- Sherlock Holmes, "A Study in Scarlet"
 Nobody can be as agreeable as an uninvited guest.
 	After the Children of Israel had wanred for thirty-nine ys
-in the wilrness, Ferdinand Feghoot arrived to make sure that they would
+in the wilrness, Ferdinand Feghoot arrived to  sure that they would
 finally find and enter the Promised and.  With him, he brought his
 favorite robot, faithful old Yewtoo Artoo, to carry his g and do
 assorted camp chores.
@@ -153,7 +153,7 @@ Norm:  My cheeks on this barstool.
 
 Woody: Hey, Mr. Peterson, can I pour you a beer?
 Norm:  Well, okay, Woody, but be sure to stop me at one. ...
-       Eh, make that one-thirty.
+       Eh,  that one-thirty.
 		-- Cheers, Strange Bedfellows,  2
 You will engage in a profitable business activity.
 The assertion that "all men  created equal" was of no practical use
@@ -258,10 +258,10 @@ If that coat'll fit you're win',
 The ord'll bless your sharin'
 A semi-friend ain't nuthin' much to want.
 
-And let me halfway fall in love,
+And let me hway fall in love,
 For part of a lonely night,
 With a semi-pretty woman in my arms.
-Yes, I could halfway fall in ep--
+Yes, I could hway fall in ep--
 Into a snugglin', lovin' heap,
 With a semi-pretty woman in my arms.
 		-- Elroy Blunt
@@ -276,7 +276,7 @@ Join the march to save individuality!
 "Plaese porrf raed."
 		-- Prof. Michael O'onghlin, S.U.N.Y. Purchase
 Facts  stubborn, but statistics  more pliable.
-When the sun shineth, make hay.
+When the sun shineth,  hay.
 		-- John Heywood
 I like your SNOOPY POSTER!!
 The sch for the perfect martini is a fraud.  The perfect martini is
@@ -294,7 +294,7 @@ Make sure your co does nothing gracefully.
 Weinberg, as a young grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great ia," said the manager. Then he paused and asked the killer
-question, "NOW what's the least popular vegetable?"
+question, "NOW what's the least polar vegetable?"
 
 aw: Once you eliminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Culting"
@@ -317,7 +317,7 @@ Cahn's Axiom:
 	When all else fails, read the instructi.
 	"What's that thing?"
 	"Well, it's a highly technical, sensitive instrument we use in
-computer repair.  Being a layman, you probably can't grasp exactly what
+comter repair.  Being a layman, you probably can't grasp exactly what
 it does.  We call it a two-by-four."
 		-- Jeff MacNelley, "Shoe"
 Needs  a function of what other people have.
@@ -352,10 +352,10 @@ Conjecture: All odd numbers  prime.
 	Engineer's Proof:
 		3 is prime.  5 is prime.  7 is prime.  9 is prime.
 		11 is prime.  13 is prime ...
-	Computer Scientists's Proof:
+	Comter Scientists's Proof:
 		3 is prime.  3 is prime.  3 is prime.  3 is prime...
 To see you is to sympathize.
-Recursion is the root of computation since it tras scription for time.
+Recursion is the root of comtation since it tras scription for time.
 skldfjkljklsR%^&(IXDRTYju187pkasdjbasdfbuil
 h;asvgy8p	23r1vyui135	2
 kmxsij90TYDFS$$b	jkzxdjkl bjnk ;j	nk;<[][;-==-<<<<<';[,
@@ -369,7 +369,7 @@ Now look what you've gone and done!  You've broken it!
 the best means of survival; back in the oln days, his theory went, people
 faced with hungry sabretoothed tigers could be divid very simply into
 th who panicked and th who stood there saying "What a ent
-brute!" and "Here, pussy."
+brute!" and "Here, ssy."
 		-- Terry Pratchett, "The ight Fantastic"
 Chocolate chip.
 A baby is God's opinion that the world should go on.
@@ -398,7 +398,7 @@ I was offered a job as a hoodlum and I turned it down cold.  A thief is
 anybody who gets out and works for his living, like robbing a bank or
 breaking into a place and stealing stuff, or kidnapping somebody.  He really
 gives some effort to it.  A hoodlum is a pretty lousy sort of scum.  He
-works for gangsters and bumps guys off when they have been put on the spot.
+works for gangsters and bumps guys off when they have been t on the spot.
 Why, after I'd ma my rep, some of the Chicago Syndicate wanted me to work
 for them as a hood -- you know, handling a machine gun.  They offered me
 two hundred and fifty dollars a week and all the protection I need.  I
@@ -461,7 +461,7 @@ body functi.
 E Pluribus Unix
 When you have to kill a man it costs nothing to be polite.
 		-- Winston Churchill, on formal clarati of war
-I put up my thumb... and it blotted out the planet Earth.
+I t up my thumb... and it blotted out the planet Earth.
 		-- Neil Armstrong
 No guest is so welcome in a friend's house that he will not become a
 nuisance after three days.
@@ -476,7 +476,7 @@ and they  squeamish about technology to this very day.  So it is natural
 for them to spise science fiction.
 		-- Kurt Vonnegut Jr., "Science Fiction"
 Schlattwhapper, n.:
-	The window sha that allows itself to be pulled down,
+	The window sha that allows itself to be lled down,
 	hesitates for a second, then snaps up in your face.
 		-- Rich Hall, "Sniglets"
 Work cists of whatever a body is obliged to do.

@@ -1,7 +1,7 @@
 Was my SOY LOAF left out in th'RAIN?  It tastes REAL GOOD!!
 Poorman's Rule:
-	When you pull a plastic garbage bag from its handy dispenser package,
-	you always get hold of the closed end and try to pull it open.
+	When you ll a plastic garbage bag from its handy dispenser package,
+	you always get hold of the closed end and try to ll it open.
 Walking on water wasn't built in a day.
 		-- Jack Kerouac
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
@@ -9,8 +9,8 @@ of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
 belief system is a subject long ago ridiculed and reviled.  We're aling with
 beliefs that go back to the ancient Babylonians.  There's nothing there....
 It sounds a lot like science, it sounds like astronomy.  It's got technical
-terms.  It's got jargon.  It confuses the public....The astrologer is quite
-glib, confuses the public, uses terms which come from science, come from
+terms.  It's got jargon.  It confuses the blic....The astrologer is quite
+glib, confuses the blic, uses terms which come from science, come from
 metaphysics, come from a host of fields, but they really mean nothing.  The
 fact is that astrological beliefs go back at least 2,500 years.  Now that
 should be a sufficiently long time for astrologers to prove their case.  They
@@ -46,7 +46,7 @@ neither think nor feel, she thought, where is one?
 	(d) watch the traffic light for the intersecting street.
 
 The correct answer is (d). You need to start as soon as the traffic light
-for the intersecting street turns yellow. Answer (c) is worth a half point.
+for the intersecting street turns yellow. Answer (c) is worth a h point.
 NEVER swerve to hit a lawyer riding a bicycle -- it might be your bicycle.
 You got to be very careful if you don't know where you're going,
 because you might not get there.
@@ -57,7 +57,7 @@ The first performed in Sydney in Australia.  In 1803 three attempts were
 ma to hang a Mr. Joseph Samuels.  On the first two of these the rope
 snapped, while on the third Mr. Samuels just hung there peacefully until he
 and everyone else got bored.  Since he had proved unsusceptible to capital
-punishment, he was reprieved.
+nishment, he was reprieved.
 	The most important British er was Mr. James Berry who
 tried three times in 1885 to hang Mr. John Lee at Exeter Jail, but on each
 occasion failed to get the trap door open.
@@ -67,7 +67,7 @@ to America and lived until 1933.
 		-- Stephen Pile, "The Book of Heroic Failures"
 Do you mean that you not only want a wrong answer, but a certain wrong answer?
 		-- Tobaben
-Computers are not intelligent.  They only think they are.
+Comters are not intelligent.  They only think they are.
 Why I Can't Go Out With You:
 
 I'd LOVE to, but...
@@ -84,8 +84,8 @@ I'd LOVE to, but...
 You will be successful in love.
 "Inquiry is fatal to certainty."
 -- Will Durant
-In most countries selling harmful things like drugs is punishable.
-Then howcome people can sell Microsoft software and go unpunished?
+In most countries selling harmful things like drugs is nishable.
+Then howcome people can sell Microsoft software and go unnished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 	In the beginning there was only one kind of Mathematician, created by
 the Great Mathamatical Spirit form the Book: the Topologist.  And they grew to
@@ -115,7 +115,7 @@ Q:	Why did the chicken cross the playground?
 A:	To get to the other sli.
 I know things about TROY DONAHUE that can't even be PRINTED!!
 "There is no stae of limitations on stupidity."
--- Randomly produced by a computer program called Markov3.
+-- Randomly produced by a comter program called Markov3.
 It does not do to leave a live dragon out of your calculations.
 Did you hear about the mol who sat on a broken bottle and cut a nice figure?
 I like young girls.  Their stories are shorter.
@@ -158,7 +158,7 @@ Lee's Law:
 	Mother said there would be days like this,
 	but she never said that there'd be so many!
 Cats, no less liquid than their shadows, offer no angles to the wind.
-Receiving a million dollars tax free will make you feel better than
+Receiving a million dollars tax free will  you feel better than
 being flat broke and having a stomach ache.
 		-- Dolph Sharp, "I'm O.K., You're Not So Hot"
 A day for firm cisions!!!!!  Or is it?
@@ -268,10 +268,10 @@ The cat keeps doing poo.
 The only thing that keeps me sane
 Is talking to my shoe.
 		-- My Shoe
-Real computer scientists don't program in assembler.  They don't write
+Real comter scientists don't program in assembler.  They don't write
 in anything less portable than a number two pencil.
 Remember the... the... uhh.....
-Sacred cows make great hamburgers.
+Sacred cows  great hamburgers.
 Johnson's First Law:
 	When any mechanical contrivance fails, it will do so at the
 	most inconvenient possible time.
@@ -287,9 +287,9 @@ We lie loust when we lie to ourselves.
 Dignity is like a flag.  It flaps in a storm.
 		-- Roy Mengot
 They finally got King Midas, I hear.  Gild by association.
-"You shouldn't make my toaster angry."
+"You shouldn't  my toaster angry."
 -- Household security explained in "Johnny Quest"
-When a fly lands on the ceiling, does it do a half roll or a half loop?
+When a fly lands on the ceiling, does it do a h roll or a h loop?
 Lucas is the source of many of the components of the legendarily reliable
 British automotive electrical systems.  Professionals call the company "The
 Prince of Darkness".  Of course, if Lucas were to sign and manufacture
@@ -311,7 +311,7 @@ difficulty is that it's sometimes difficult to apply the experimental
 results to humans.
 
 	[Also, there are some things even a rat won't do.  Ed.]
-You never get a second chance to make a first impression.
+You never get a second chance to  a first impression.
 You will forget that you ever knew me.
 "For three days after ath hair and fingernails continue to grow but
 phone calls taper off."
@@ -321,11 +321,11 @@ What we Are is God's gift to us.
 What we Become is our gift to God.
 yo-yo, n.:
 	Something that is occasionally up but normally down.
-	(see also Computer).
+	(see also Comter).
 Pascal Users:
 	The Pascal system will be replaced next Tuesday by Cobol.
 	Please modify your programs accordingly.
-When my brain begins to reel from my literary labors, I make an occasional
+When my brain begins to reel from my literary labors, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
 Leave bigotry in your quarters; there's no room for it on the bridge.
@@ -333,13 +333,13 @@ Leave bigotry in your quarters; there's no room for it on the bridge.
 Riffle West Virginia is so small that the Boy Scout had to double as the
 town drunk.
 travel, n.:
-	Something that makes you feel like you're getting somewhere.
+	Something that s you feel like you're getting somewhere.
 Grandpa Charnock's Law:
 	You never really learn to swear until you learn to drive.
 
 	[I thought it was when your kids learned to drive.  Ed.]
 linux: because a PC is a terrible thing to waste
-(ksh@cis.ufl.edu put this on Tshirts in '93)
+(ksh@cis.ufl.edu t this on Tshirts in '93)
 Nudists are people who wear one-button suits.
 You know the great thing about TV?  If something important happens
 anywhere at all in the world, no matter what time of the day or night,
@@ -376,7 +376,7 @@ fifty feet in the air!"
 useless!"
 
 That's the end of The Joke, but for you people who are still worried about
-George and Harry: they end up in the drink, and make the front page of the
+George and Harry: they end up in the drink, and  the front page of the
 New York Times: "Balloonists Soaked by Lawyer".
 A stunt who changes the course of history is probably taking an exam.
 For the first time we have a weapon that nobody has used for thirty years.
@@ -407,7 +407,7 @@ A:	It means that the Armenians take the Russians by the hand; the
 There *__is* no such thing as a civil engineer.
 Let a fool hold his tongue and he will pass for a sage.
 		-- Publilius Syrus
-"Unlike most net.puritans, however, I feel that what OTHER consenting computers
+"Unlike most net.ritans, however, I feel that what OTHER consenting comters
  do in the privacy of their own phone connections is their own business."
 -- John Woods, jfw@eddie.mit.edu
 An artist should be fit for the best society and keep out of it.
@@ -426,7 +426,7 @@ Like some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
 		-- The Birthday y, "Sonny's Burning"
-If God had really intend men to fly, he'd make it easier to get to the
+If God had really intend men to fly, he'd  it easier to get to the
 airport.
 		-- George Winters
 QOTD:
@@ -438,10 +438,10 @@ What we see pends on ly what we look for.
 Conceptual integrity in turn dictates that the sign must proceed from one
 mind, or from a very small number of agreeing resonant minds.
 - Frerick Brooks Jr., "The Mythical Man Month" 
-Of course you have a purpose -- to find a purpose.
+Of course you have a rpose -- to find a rpose.
 I wonr if I could ever get started in the credit world?
 I came home the other night and tried to open the door with my car keys...and 
-the building started up.  So I took it out for a drive.  A cop pulled me over 
+the building started up.  So I took it out for a drive.  A cop lled me over 
 for speeding.  He asked me where I live... "Right here".
 -- Steven Wright
 Time is the most valuable thing a man can spend.
@@ -464,7 +464,7 @@ perfume."
 feature, n:
 	A surprising property of a program.  Occasionaly documented.  To
 	call a property a feature sometimes means the author did not
-	consir that case, and the program makes an unexpected, though
+	consir that case, and the program s an unexpected, though
 	not necessarily wrong response.  See BUG.  "That's not a bug, it's
 	a feature!"  A bug can be changed to a feature by documenting it.
 Alimony is the curse of the writing classes.

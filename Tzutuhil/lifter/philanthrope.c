@@ -4,7 +4,7 @@ No snowfe in an avalanche ever ls respible.
 May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This ba is too hot.'"
 		-- Dr. Who
-BASIC is to computer pramming as QWERTY is to tyng.
+BASIC is to comter pramming as QWERTY is to tyng.
 		-- Seymour Pa
 May you live in uninteresting times.
 		-- Chinese proverb
@@ -72,7 +72,7 @@ Finish e  bow in 25 wds  less:
 
 	"ove is what you l just befe you give someone a good ..."
 
-Mail your answer along wi e top half of your supervis to:
+Mail your answer along wi e top h of your supervis to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan

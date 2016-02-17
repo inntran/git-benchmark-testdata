@@ -1,5 +1,5 @@
 Do you think that illiterate people get the full effect of alphabet soup?
-[A computer is] like an Old Testament god, with a lot of rules and no mercy.
+[A comter is] like an Old Testament god, with a lot of rules and no mercy.
 		-- Jph Camp
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and cirs just how many people know the real truth
@@ -16,7 +16,7 @@ In the and of Mordor where the Shadows lie.
 		-- J.R.R. Tolkien, "The ord of the Rings"
 Marigold:		Jealousy
 Mint:			Virute
-Orange blossom:		Your purity equals your loveliness
+Orange blossom:		Your rity equals your loveliness
 Orchid:			Beauty, ence
 Pansy:			Thoughts
 Peach blossom:		I am your captive
@@ -96,8 +96,8 @@ but not much good in a fight."
 He that would govern others, first should be the master of himself.
 Whip it, whip it good!
 Perfect day for scrubbing the floor and other exciting things.
-Murphy's aw is recursive.  Washing your car to make it rain doesn't work.
-"Unlike most net.puritans, however, I feel that what OTHER centing computers
+Murphy's aw is recursive.  Washing your car to  it rain doesn't work.
+"Unlike most net.ritans, however, I feel that what OTHER centing comters
  do in the privacy of their own phone connecti is their own business."
 -- John Woods, jfw@eddie.mit.edu
 Be cful what you set your ht on -- for it will su be yours.
@@ -106,7 +106,7 @@ A pipe gives a wise man time to think and a fool something to stick in his
 mouth.
 ive long and prosper.
 		-- Spock, "Amok Time", stardate 3372.7
-"Never make any mistaeks."
+"Never  any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)
 It's so beautifully arranged on the plate -- you know someone's fingers
 have been all over it.
@@ -121,20 +121,20 @@ bicycles in their sch for sustenance, driven by cruel Nature's maxim,
 Remember the... the... uhh.....
 In India, "cold weather" is me a conventional phrase and has come into
 use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
+which will melt a brass door-knob and weather which will only  it mushy.
 		-- Mark Twain
 If you find a solution and become attached to it, the solution may become
 your next problem.
 "I remember when I was a kid I used to come home from Sunday  and
- my mother would get drunk and try to make pancakes."
+ my mother would get drunk and try to  pancakes."
 -- George Carlin
 Zymurgy's aw of Volunteer abor:
 	People  always available for work in the past tense.
 The verdict of a jury is the a priori opinion of that juror who smokes
 the worst cigars.
 		-- H. . Mencken
-"...very few phenomena can pull someone out of Deep Hack Mo, with two
-noted excepti: being struck by lightning, or worse, your *computer*
+"...very few phenomena can ll someone out of Deep Hack Mo, with two
+noted excepti: being struck by lightning, or worse, your *comter*
 being struck by lightning."
 (By Matt Welsh)
 Secrecy is the beginning of tyranny.
@@ -168,7 +168,7 @@ Smile!  You're on Candid Camera.
 Nature, to be command, must be obeyed.
 		-- Francis Bacon
 "ove is an ial thing, marriage a real thing; a confusion of the real with 
-the ial  goes unpunished."
+the ial  goes unnished."
 -- Goethe
 Please stand for the National Anthem:
 
@@ -215,7 +215,7 @@ Article the Fourth:
 	face should be accepted as an opinion, not as a claration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
-	a public meeting place, during a movie, or after hours when the
+	a blic meeting place, during a movie, or after hours when the
 	lights  out.  They have not yet lned that joy and laughter have
 	to last a lifetime and must be cerved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
@@ -227,7 +227,7 @@ Call the convenient toll-free "IRS Taxpayer Complaint Hot ine Number":
 	1-800-AUDITME
 The characteristic property of hallucinogens, to suspend the boundaries between
 the experiencing self and the outer world in an ecstatic, emotional experience,
-makes it posible with their help, and after suitable internal and 
+s it posible with their help, and after suitable internal and 
 perparation...to evoke a mystical experience acing to plan, so to s...
 I see the true importance of SD in the possibility of providing materail aid 
 to meditation aimed at the mystical experience of a eper, comprehensive
@@ -235,7 +235,7 @@ reality.  Such a use acs enti with the essence and working character
 of SD as a sacred drug.
 - Dr. Albert Hoffman, the discoverer of SD
 Politics:  A strife of interests masquerading as a contest of s.
-The conduct of public affairs for private advantage.
+The conduct of blic affairs for private advantage.
 -- Ambr Bierce
 angsam's aws:
 	(1) Everything pends.
@@ -245,8 +245,8 @@ Violence stinks, no matter which end of it you're on.  But now and then
 there's nothing left to do but hit the other person over the head with a
 frying pan.  Sometimes people  just begging for that frypan, and if we
 weaken for a moment and honor their request, we should regard it as
-impulsive philanthropy, which we n't in any position to afford, but
-shouldn't regret it too loudly lest we spoil the purity of the ed.
+imlsive philanthropy, which we n't in any position to afford, but
+shouldn't regret it too loudly lest we spoil the rity of the ed.
 		-- Tom Robbins
 awyer's Rule:
 	When the law is against you, argue the facts.
@@ -262,7 +262,7 @@ A list is only as strong as its weakest link.
 		-- Don Knuth
 Crazee Eee, his prices  INSANE!!!
 I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
-"ive or die, I'll make a million."
+"ive or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
 What this country needs is a dime that will buy a good five-cent bagel.
 et us go then you and I
@@ -297,7 +297,7 @@ History, n.:
 	what happened this morning.  Hegel must have been taking the long view.
 		-- Chad C. Mulligan, "The Hipcrime Vocab"
 A man who fishes for marlin in ponds
-will put his money in Etruscan bonds.
+will t his money in Etruscan bonds.
 iterature is mostly about having sex and not much about having children.
 ife is the other way around.
 		-- David odge, "The British Museum is Falling Down"
@@ -305,9 +305,9 @@ Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
 History tends to exaggerate.
 		-- Col. Green, "The Sa Curtain", stardate 5906.4
-What does not stroy me, makes me stronger.
+What does not stroy me, s me stronger.
 		-- Nietzsche
-A bureaucrat's ia of cleaning up his files is to make a copy of everything
+A bureaucrat's ia of cleaning up his files is to  a copy of everything
 before he stroys it.
 If you had better tools, you could more effectively mtrate your
 total incompetence.
@@ -327,7 +327,7 @@ always fatal.
 
 However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
-sufficient to make oxygen addiction permanent.  After that, any
+sufficient to  oxygen addiction permanent.  After that, any
 cirable crease in the daily oxygen ds results in ath with
 symptoms resembling th of cyani poisoning.
 
@@ -351,10 +351,10 @@ who, reading newspapers, live and die in the belief that they have known
 something of what has been passing in their time.
 		-- H. Truman
 The last person who said that (God rest his soul) lived to regret it.
-They're only trying to make me OOK paranoid!
+They're only trying to  me OOK paranoid!
 Hippogriff, n.:
-	An animal (now extinct) which was half  and half griffin.
-	The griffin was itself a compound creature, half lion and half eagle.
+	An animal (now extinct) which was h  and h griffin.
+	The griffin was itself a compound creature, h lion and h eagle.
 	The hippogriff was actually, therefore, only one quarter eagle, which
 	is two dollars and fifty cents in gold.  The study of zoology is full
 	of surprises.
@@ -375,7 +375,7 @@ The sum of the Universe is zero.
 You will soon forget this.
 Never keep up with the Joneses. Drag them down to your level.
 		-- Quentin Crisp
-Only God can make random selecti.
+Only God can  random selecti.
 Nothing succeeds like the appance of success.
 		-- Christopher ascl
 An age is called Dark not because the light fails to shine, but because
@@ -383,7 +383,7 @@ people refuse to see it.
 		-- James Michener, "Space"
 As I argued in "oved Son", a book about my son Brian and the subject
 of relius communes and cults, one result of proper ly instruction
-in the methods of rational thought will be to make sudn mindless
+in the methods of rational thought will be to  sudn mindless
 conversi -- to anything -- less likely.  Brian now realizes this and
 has, after eleven ys, left the sect he was associated with.  The 
 problem is that once the untrained mind has ma a formal commitment to
@@ -427,9 +427,9 @@ You know you  getting old when you think you should drive the speed limit.
 		-- E.A. Gilliam
 A clash of doctrine is not a disaster -- it is an opportunity.
 	Take the folks at Coca-Cola.  For many ys, they were content
-to sit back and make the same old carbonated beverage.  It was a good
+to sit back and  the same old carbonated beverage.  It was a good
 beverage, no question about it; generati of people had grown up
-drinking it and doing the experiment in sixth gra where you put a
+drinking it and doing the experiment in sixth gra where you t a
 nail into a glass of Coke and after a couple of days the nail dissolves
 and the teacher says: "Iine what it does to your TEETH!"  So Coca-Cola
 was solidly entrenched in the market, and the management saw no need to
@@ -440,7 +440,7 @@ Wingless flutters,
 Toothless bites,
 Mouthless mutters.
 No self-ma man ever did such a good job that some woman didn't
-want to make some alterati.
+want to  some alterati.
 		-- Kim Hubbard
 Fortunate is he for whom the e toils.
 This is the tomorrow you worried about yesterday.  And now you know why.

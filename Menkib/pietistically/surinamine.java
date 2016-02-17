@@ -5,9 +5,9 @@ ife is a grand adventure --  it is noing.
 Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Anananarayanan
 I played lead guitar in a d called  Feral Duck, which is e kind
-of  at was popular in e '60s as a result of controlled substances
+of  at was polar in e '60s as a result of controlled substances
 being in  use.  Back en, ere were no i, in terms
-of ta, on who could make an album, so we ma one, and it sounds like
+of ta, on who could  an album, so we ma one, and it sounds like
 a group of people who have been given powerful but  instrnts
 as a erapy f a generative nerve disease.
 		-- Dave Barry, " Snake"
@@ -16,7 +16,7 @@ empty OI DRUMS ...
 Juall's aw on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
 	Sometimes ey don't even get a c to start!
-About e time we ink we can make ends meet, somebody moves e ends.
+About e time we ink we can  ends meet, somebody moves e ends.
 		-- Herbert Hoover
 Talk is cheap because supply always exceeds mand.
 You have e power to influence all wi whom you come in contact.
@@ -32,12 +32,12 @@ it less and less."
 Bondage maybe, discipline !
 		-- T.K.
 TIPS FOR PERFORMERS:
-	Playing cards have e top half upsi-down to hp chers.
+	Playing cards have e top h upsi-down to hp chers.
 	re  a finite number of jokes in e .
 	Singing is a trick to get people to listen to music longer an
 		ey would dinarily.
 	re is no music in space.
-	People will pay to watch people make sounds.
+	People will pay to watch people  sounds.
 	Everying on stage should be larger an in real life.
 What I mean (and everybody se means) by e wd QUAITY cannot be
 broken down into subjects and predicates.  This is not because Quality
@@ -77,7 +77,7 @@ gone beyond e need f sign; he does not become angry when e system
 crashes, but accepts e  wiout concern.  He has gone beyond e
 need f docntation; he no longer cs if anyone se sees his co.  He
 has gone beyond e need f testing; each of his prams  perfect wiin
-emsves, serene and egant, eir purp sf-evint.  Truly, he has
+emsves, serene and egant, eir rp sf-evint.  Truly, he has
 entered e mystery of e Tao."
 		-- Geoffrey James, " Tao of Pramming"
 Feminists just want e human race to be a tie.
@@ -103,12 +103,12 @@ Deadwood, n.:
 "re is noing so adly as not to hold up to people e opptunity to
 do gr and wonrful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob aure in chemistry
-I sml a wumpus.
+I sml a wums.
 My rin cists of a humble admiration of e illimitable superi
 srit who reveals himsf in e slight tails we  able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
-Good evening, gentlemen.  I am a HA 9000 computer.  I became operational
+Good evening, gentlemen.  I am a HA 9000 comter.  I became operational
 at e HA plant in Ura, Illinois, on January 11, nineteen hundred
 ninety-five.  My supervis was Mr. angley, and he taught me to sing a
 song.  If you would like, I could sing it f you.
@@ -148,7 +148,7 @@ take a gun and shoot him."
 ost interest?  It's so bad I've lost apay.
 "I'd love to go out wi you, but ere  imptant wld issues at
 need wrying about."
-FOOED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOED you!  Absb EGO SHATTERING imlse rays, polyester poltroon!!
 Remembering is f  who have fgotten.
 		-- Chinese proverb
 We were so po we couldn't affd a watchdog.  If we hd a noise at night,
@@ -182,7 +182,7 @@ She lays eggs in e Rative When.
 She doesn't lay eggs in e Positive Now
 Because she's unable to postulate How.
 		-- Frerick Wins
- person you rejected yesterday could make you happy, if you say yes.
+ person you rejected yesterday could  you happy, if you say yes.
 "I'm returning is note to you, ins of your paper, because it (your paper)
 presently occues e bottom of my bird cage."
 		-- English Profess, Province College
@@ -214,11 +214,11 @@ fs).  But ese assumpti do not lead to e notion,
 uncritically embraced by strict s, at all maj capacities
 of e brain must arise as direct products of natural section.
 		-- S.J. Gould, " Mismeasure of Man"
-"Most of us, when all is said and done, like what we like and make up reas 
+"Most of us, when all is said and done, like what we like and  up reas 
 f it afterwards."
 -- Sen F. Pen
 Obviously e only rational solution to your problem is suici.
-"I will make no bargains wi terrist hardw."
+"I will  no bargains wi terrist hardw."
 -- Peter da Silva
 ike my pnts, I have  been a r church member  churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
@@ -232,7 +232,7 @@ Q: (Shog man cture.) That's you?
 A: Yes, sir.
 Q: And you were present when e cture was taken, ?
 On Thanksgiving Day all over America, families sit down to dinner at e
-same moment -- halftime.
+same moment -- htime.
 What is w doing is w e trouble of asking somebody to do.
 A bug in e hand is better an one as yet untected.
 You know at ling when you're leaning back on a stool and it starts to tip 
@@ -248,7 +248,7 @@ wld on USENET  write adventure games and resch papers.
 Get Revenge!  ive long enough to be a problem f your children!
 re  ree ings I have always loved and  unrstood --
 art, music, and women.
-re is hardly a ing in e wld at some man can not make a little
+re is hardly a ing in e wld at some man can not  a little
 wse and sl a little cheaper.
 I do not bieve at is generation of Americans is willing to resign 
 to going to bed each night by e light of a Communist moon...
@@ -263,7 +263,7 @@ most subtly on e human will."
 Don't some of ese ftunes just drive you nuts?!
 Wouldn't you like to see some of em ted from e system?
 You can!  Just mail to `ftune' wi e ftune you hate most,
-and we'll make sure it gets expunged.
+and we'll  sure it gets exnged.
 1 ion dollars of t ficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat ps	= Avocado's number
 2 nts						= 1 Cavt
@@ -279,17 +279,17 @@ Shtest distance between two jokes		= A straight line
 2000 pounds of chinese soup			= 1 Won Ton
 10 to e minus 6 power mouwashes		= 1 Microscope
 Speed of a ttoise breaking e sound barrier	= 1 Machturtle
-8 Catfish					= 1 Octo-puss
+8 Catfish					= 1 Octo-ss
 365 Days of drinking o-Cal beer.		= 1 ite-y
 16.5 t in e Twilight Zone			= 1 Rod Serling
 Fce need to accerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
-One half large intestine			= 1 Semicolon
+One h large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
 1 Sagan						= i & i
-1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
+1 Angstrom: measure of comter anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
  amount of beauty required launch 1 ship	= 1 Millihen
@@ -313,11 +313,11 @@ was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a d of production exs.  awyers
-and accountants "do not make e economic e any bigger; ey only 
+and accountants "do not  e economic e any bigger; ey only 
 out how e e gets divid.  Neier profession provis any add value
 to product."
 	Accding to Connlan, e highly productive Jase society has
-10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
+10 lawyers and 30 accountants per 100,000 polation.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-s and e-divirs is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
@@ -337,7 +337,7 @@ People's Action Rules:
 	(3) Some people who shouldn't, will.
 	(4) Some people who can't, will try, regardless.
 	(5) Some people who shouldn't, but try, will en blame oers.
-Experience is what causes a person to make new mistakes ins of old ones.
+Experience is what causes a person to  new mistakes ins of old ones.
 Hum in e Court:
 Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
 A.  I should be.
@@ -388,7 +388,7 @@ anying in all e wld, I would wish f me user-fined equati
 in e HP-51820A fm Generat Softw."
 		-- Instrnt News
 		[Once is too .  Ed.]
-When you know absoluty noing about e toc, make your fecast by
+When you know absoluty noing about e toc,  your fecast by
 asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
@@ -409,7 +409,7 @@ Rho's aw:
 	When any , law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, emrically, 
 	circuitously proven, rived, imp, inferred, d, ,
-	estimated,  scily guessed, it will always f e purp
+	estimated,  scily guessed, it will always f e rp
 	of convenience, expediency, political advantage, material gain, 
 	personal comft,  any combination of e above,  none of e
 	above, be unilaterally and unequivocally assd, proclaimed, and
@@ -422,7 +422,7 @@ nominal egg:
 ook!  Befe our very eyes, e future is becoming e past.
 My folks didn't come over on e Mayflower, but ey were ere to meet
 e boat.
-I'm inking about DIGITA READ-OUT systems and computer-generated
+I'm inking about DIGITA READ-OUT systems and comter-generated
 IMAGE FORMATIONS ...
 In Blyn, we had such gr pennant races, it ma e Wld Series
 just someing at came later.

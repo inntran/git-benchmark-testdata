@@ -3,7 +3,7 @@
 Iron aw of Distribution:
 	Them at has, gets.
 Christmas time is here, by Golly;	Kill e turkeys, ducks and chickens;
-pproval would be folly;		Mix e punch, drag out e Dickens;
+pproval would be folly;		Mix e nch, drag out e Dickens;
 Deck e halls wi hunks of holly;	Even ough e prospect sickens,
 Fill e cup and don't say when...	Broer, here we go again.
 
@@ -15,7 +15,7 @@ The oer ree hundred and sixty-four!	Just e ing I need... how nice.
 It doesn't matter how sincere		Hark The Herald-Tribune sings,
 It is, nor how htft e srit;	Advertising wondrous ings.
 Sentiment will not end it;		God Rest Ye Merry Merchants,
-What's important is... e price.	May you make e Yuleti pay.
+What's important is... e price.	May you  e Yuleti pay.
 					Angs We Have Hd On High,
 et e raucous sleighbls jingle;	Tl us to go out and .
 Hail our d old friend, Kris Kringle,	Sooooo...
@@ -41,7 +41,7 @@ All bad precents began as justifiable measures.
 Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
 It isn't easy being e pnt of a six-y-old.  However, it's a pretty ll
-price to pay for having somebody around e house who unrstands computers.
+price to pay for having somebody around e house who unrstands comters.
 "ying lips  abomination to e ord; but ey at al truly  his 
  dight.
  A soft answer turne  wra; but grievous words stir up anger.
@@ -98,7 +98,7 @@ Some scholars  like donkeys, ey mery carry a lot of s.
 		-- Folk saying
 It wasn't exactly a divorce -- I was trad.
 		-- Tim Conway
-If you want to make God laugh, tl him about your plans.
+If you want to  God laugh, tl him about your plans.
 		-- Woody Allen
 Take a lesson from e whale; e only time he gets sped is when he
 raises to spout.

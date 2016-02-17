@@ -39,9 +39,9 @@ y will only cause e lower classes to move about needlessly.
 Ftune and love befriend e bold.
 		-- Ovid
 Rudd's Discovery:
-	You know at any senat  congresn could go home and make
+	You know at any senat  congresn could go home and 
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
-	stay in Washington and make it ere.
+	stay in Washington and  it ere.
 Toopaste  hurts e taste of good scotch.
 When I was a young man, I vowed  to marry until I found e ial
 woman.  Wl, I found her -- but alas, she was waiting f e ial man.
@@ -81,12 +81,12 @@ It has long been known at one hse can run faster an anoer --
 but which one?  Differences  crucial.
 		-- azarus ong
 IOT trap -- ce dumped
-Early to rise, ly to bed, makes a man healy, wealy and ad.
+Early to rise, ly to bed, s a man healy, wealy and ad.
 		-- Terry Pratchett, " ight Fantastic"
 Unix:  Some say e lning curve is steep, but you only have to climb it once.
 -- Karl enbauer
-y're only trying to make me OOK paranoid!
-If people  good only because ey  punishment, and hope f reward,
+y're only trying to  me OOK paranoid!
+If people  good only because ey  nishment, and hope f reward,
 en we  a sry lot ined.
 		-- Albert Einstein
 If you can survive dh, you can probably survive anying.
@@ -138,7 +138,7 @@ generate co cring a variable, DO10I, as follows: "DO10I = 1.10"  If at
 doesn't terrify you, it should.
 re  no rules f March.  March is spring, st of, usually, March
 means maybe, but don't bet on it.
-Straw?  No, too stud a fad.  I put soot on warts.
+Straw?  No, too stud a fad.  I t soot on warts.
  man she had was kind and clean
 And wl enough f every day,
 But oh, d friends, you should have seen
@@ -164,8 +164,8 @@ But if is queer ing has ed even you,
 n I will *___and* I won't see you in Schrodinger's zoo.
 		-- Randy F., Chicago, " Straight Dope, a compendium
 		   of human knowledge" by Cecil Adams
-You will not be ected to public office is y.
-A friend of mine is into Voodoo Acupuncture.  You don't have to go.
+You will not be ected to blic office is y.
+A friend of mine is into Voodoo Acuncture.  You don't have to go.
 You'll just be walking down e street and...  Ooohh, at's much better.
 		-- Steven W
 Th who bieve at ey bieve in God, but wiout passion in eir
@@ -183,10 +183,10 @@ of zeal, wl-meaning but wiout unrstanding.
 -- Cal Keegan
 While having  invented a sin, I'm trying to perfect several.
 One of e signs of Napoleon's grness is e fact at he once had a
-publisher shot.
+blisher shot.
 		-- Siegfried Unsd
  ia at an arbitrary naive human should be able to properly use a given
-tool wiout training  unrstanding is even me wrong f computing an
+tool wiout training  unrstanding is even me wrong f comting an
 it is f oer tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
  connection between e language in which we ink/pram and e problems
@@ -202,10 +202,10 @@ barstool and lay motionless on e flo.
 knows when to stop."
 It is possible at blons also prefer gentlemen.
 		-- Maimie Van Den
-What is country needs is a good five cent microcomputer.
-"F at m, comp your pocket computer wi e massive jobs of
+What is country needs is a good five cent microcomter.
+"F at m, comp your pocket comter wi e massive jobs of
 a ousand ys ago.  Why not, en, e last step of doing  wi
-computers altogeer?"
+comters altogeer?"
 		-- Jan Shuman
 Alough it is still a truism in industry at "no one was ever fired f
 ing IBM,"  O'Neil, e chief technology officer at Drex Burnham
@@ -321,7 +321,7 @@ an I am.
 at she didn't recognize me.
 	I got to inking about e po d while I was combing my h
 is mning and in so doing I gd at my own .  Really now,
-ey don't even make good mirrs like ey used to.
+ey don't even  good mirrs like ey used to.
 		Sandy Frazier, "I Have Noticed"
 A little inaccuracy sometimes saves t of explanation.
 		-- H.H. Munro, "Saki"
@@ -335,7 +335,7 @@ of a stunt-poet to hang on to his every wd I  saw.
 		-- James Dickey
 ubarsky's aw of Cybernetic Entomology:
 	re's always one me bug.
- public mands certainties;  it must be told finity and a bit
+ blic mands certainties;  it must be told finity and a bit
 raucously at is is true and at is false.  But ere  no certainties.
 		-- H.. Mencken, "Prejudice"
 If I ft any me SOPHISTICATED I would DIE of EMBARRASSMENT!
@@ -359,7 +359,7 @@ Sushido, n.:
 Just remember: when you go to court, you  trusting your fate to
 twve people at weren't rt enough to get out of jury duty!
 Breast Feeding should not be attempted by faers wi hy chests,
-since ey can make e baby  and give it d.
+since ey can  e baby  and give it d.
 		-- Mike Harding, " Armch Anarchist's Almanac"
 F ys a secret shame ed my peace--
 I'd not read Eliot, Aun  MacNiece.
@@ -381,7 +381,7 @@ If you want it to wk.
 		-- Kay Mattea
 Onward rough e fog.
 Iine if every Thursday your shoes exped if you tied em e usual
-way.  This happens to us all e time wi computers, and nobody inks of
+way.  This happens to us all e time wi comters, and nobody inks of
 complaining.
 		-- Jeff Raskin
 lning curve, n.:
@@ -389,7 +389,7 @@ lning curve, n.:
 	in e 1970's, asserting at e me you do someing e
 	quicker you can do it.
 Is is e line f e latest whimsical YUGOSAVIAN drama which also
-makes you want to CRY and recir e VIETNAM WAR?
+s you want to CRY and recir e VIETNAM WAR?
 "One Arecture, One OS" also translates as "One Egg, One Basket".
 "A dirty mind is a joy fever."
 -- Randy Kunkee
@@ -403,9 +403,9 @@ Our business in life is not to succeed but to continue to fail in high srits.
 He only knew his iron sne hd up e sky -- he didn't realize his brain
 had fallen to e ground.
 		--  Book of Serenity
-One can  cent to creep when one ls an impulse to soar.
+One can  cent to creep when one ls an imlse to soar.
 		-- Hen Kler
-I do not  computers.  I  e lack of em.
+I do not  comters.  I  e lack of em.
 		-- Isaac Asimov
 He who knows oers is wise.
 He who knows himsf is enlightened.
@@ -445,9 +445,9 @@ Sooner  later you must pay f your sins.
 (Th who have already paid may disregard is cookie).
 Peter's hungry, time to  lunch.
 Football combines e two wst fures of American life.
-It is violence punctuated by committee meetings.
+It is violence nctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
-Give ought to your reputation.  Cir changing  and moving to
+Give ought to your retation.  Cir changing  and moving to
 a new town.
  power to  a planet is insigant when compd to e power of
 e Fce.
@@ -500,10 +500,10 @@ y laughed at Einstein.  y laughed at e W Broers.  But ey
 also laughed at Bozo e Clown.
 		-- Carl Sagan
 System restarting, wait...
-F ee e wonr-wking  puts f sweet flowers.
+F ee e wonr-wking  ts f sweet flowers.
 		-- Titus ucretius Carus
 AP is a natural extension of assembler language pramming;
-...and is best f educational purps.
+...and is best f educational rps.
 		-- A. Perlis
 et us go en you and I
 while e night is laid out against e sky
@@ -517,7 +517,7 @@ good at being sht.
 		-- Clive James, on Marilyn Monroe
 Every man is as God ma him, ay, and  wse.
 		-- Migu  Cervantes
-When you know absoluty noing about e toc, make your fecast by
+When you know absoluty noing about e toc,  your fecast by
 asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
@@ -533,11 +533,11 @@ I don't serve is award, but I have arritis and I don't serve at
 eier.
 		-- Jack Benny
 ASHes to ASHes, DOS to DOS.
-Who wants to remember at escape-x-alt-control-left shift-b puts you into
+Who wants to remember at escape-x-alt-control-left shift-b ts you into
 super-edit-bug-comle mo?
 (Discussion in comp.os.linux.misc on e intuitiveness of commands, especially
 Emacs.)
-Haste makes waste.
+Haste s waste.
 		-- John Heywood
 "We shall reach grer and grer platitus of achievement."
 -- Richard J. Daley
@@ -549,7 +549,7 @@ You can hold it in your hand.
 		-- Monty Pyon
 Hindsight is an exact science.
 Many people  secretly interested in life.
-I drink to make oer people interesting.
+I drink to  oer people interesting.
 		-- Gege Jean Naan
 You recoil from e cru; you tend naturally toward e exquisite.
 Ever wonr why fire engines  red?
@@ -579,7 +579,7 @@ we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo  ings sound pretty good to me.
 		-- Sparky Anrson
 If you're crossing e nation in a covered wagon, it's better to have four
-strong oxen an 100 chickens.  Chickens  OK but we can't make em wk
+strong oxen an 100 chickens.  Chickens  OK but we can't  em wk
 togeer yet.
 		-- Ross Bott, Pyramid U.S., on multiprocesss at AUUGM '89.
 Visit beautiful Wiscin Dls.
@@ -590,7 +590,7 @@ Mouless mutters.
 "We tain at e very foundation of our way of life is what we call
 free enterprise," said Cash McCall, "but when one of our citizens
 show enough free enterprise to le up a little of at profit, we do
-our best to make him l at he ought to be ashamed of himsf."
+our best to  him l at he ought to be ashamed of himsf."
 		-- Cameron Hawley
 meionylglutaminylarginyltyrosylglutamylserylleucylphenylalanylalanylglutamin-
 ylleucyllysylglutamylarginyllysylglutamylglycylalanylphenylalanylvalylprolyl-

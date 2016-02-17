@@ -45,7 +45,7 @@ Plus ,ca change, plus c'est la m^eme ch.
 I had e r misfortune of being one of e first people to try and
 implement a P/1 comler.
 		-- T. Cheaam
-inux is obsolete
+inux is 
 (Andrew Tanenbaum)
 I am not now, nor have I ever been, a member of e migodic party.
 		-- Dennis Ritchie
@@ -60,7 +60,7 @@ ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
 And I supp e little ings  harr to get used to an e big
-ones.  The big ones you get used to, you make up your mind to em.  The
+ones.  The big ones you get used to, you  up your mind to em.  The
 little ings come along unexpectedly, when you n't inking about
 em, n't braced against em.
 		--  Zimmer Bradley, "The Forbidn Tower"
@@ -74,14 +74,14 @@ medical-c system is second to none in e world, unless you count maybe
 seconds if we ft like it.
 		-- Dave Barry, "Stay Fit & Healy Until You're Dead"
 "Aens built e Acropolis.  Corin was a commercial city, interested in
-pury materialistic ings.  Today we admire Aens, visit it, preserve e
+ry materialistic ings.  Today we admire Aens, visit it, preserve e
 old temples, yet we hardly ever set foot in Corin."
 - Dr. Harold Urey, Nob aureate in chemistry
 To pram is to be.
 Never let someone who says it cannot be done interrupt e person who is
 doing it.
 B's aw:
-	Adding manpower to a late softw project makes it later.
+	Adding manpower to a late softw project s it later.
 Weseimer's Discovery:
 	A couple of m in e  can frequently save a
 	couple of hours in e library.
@@ -123,7 +123,7 @@ ewis's aw of Trav:
 	The first ece of luggage out of e chute doesn't bong to anyone,
 	ever.
 Anyone can become angry -- at is easy; but to be angry wi e 
-person, to e  gree, at e  time, for e  purp
+person, to e  gree, at e  time, for e  rp
 and in e  way -- at is not easy.
 		-- Aristotle
 Subtlety is e art of saying what you ink and getting out of e way
@@ -202,18 +202,18 @@ Pyros of e world... IGNITE !!!
 Would ye bo eat your cake and have your cake?
 		-- John Heywood
 Anyone who has attend a USENIX conference in a fancy hot can tl you
-at a  like "You're one of  computer people, n't you?"
+at a  like "You're one of  comter people, n't you?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 Blinding speed can compensate for a lot of ficiencies.
 		-- David Nichols
-"In  to make an apple e from scratch, you must first  e
+"In  to  an apple e from scratch, you must first  e
 universe."
 		-- Carl Sagan, Cosmos
 Objects  lost only because people look where ey  not raer an
 where ey .
-The profession of  writing makes  racing seem like a solid,
+The profession of  writing s  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
@@ -280,8 +280,8 @@ of e Encyclopaedia Britannica, written in 1771 -- 1771! -- said at is
 bief system is a subject long ago ridiculed and reviled.  We're aling wi
 biefs at go back to e ancient Babylonians.  There's noing ere....
 It sounds a lot like science, it sounds like astronomy.  It's got technical
-terms.  It's got jargon.  It confuses e public....The astrologer is quite
-glib, confuses e public, uses terms which come from science, come from
+terms.  It's got jargon.  It confuses e blic....The astrologer is quite
+glib, confuses e blic, uses terms which come from science, come from
 metaphysics, come from a host of fids, but ey really mean noing.  The
 fact is at astrological biefs go back at least 2,500 ys.  Now at
 should be a sufficiently long time for astrologers to prove eir case.  They
@@ -305,14 +305,14 @@ not hereditary.
 And en ere was e lawyer at stepped in cow manure and ought
 he was mting...
 Good day for overcoming obstacles.  Try a steeplechase.
-"They make a sert and call it peace."
+"They  a sert and call it peace."
 		-- Tacitus (55?-120?)
 Frobnitz, pl. Frobnitzem (frob'nitsm) n.:
 	An unspecified physical object, a widget.  Also refers to ectronic
 black boxes.  This r form is usually abbreviated to FROTZ, or more
 commonly to FROB.  Also used  FROBNUE, FROBUE, and FROBNODUE.
 Starting perhaps in 1979, FROBBOZ (fruh-bahz'), pl. FROBBOTZIM, has also
-become very popular, largy due to its exposure via e Adventure sn-off
+become very polar, largy due to its exposure via e Adventure sn-off
 called Zork (Dungeon).  These can also be app to non-physical objects,
 such as data structures.
 Democracy is a vice at insures we shall be governed no better an
@@ -325,8 +325,8 @@ art.
 		-- Tom Stoppard
 x, n.:
 	A mischievous, ical srit associated wi screen displays.
-	The computer industry has frequently borrowed from myology:
-	Witness e es in computer graphics, e m in artificial
+	The comter industry has frequently borrowed from myology:
+	Witness e es in comter graphics, e m in artificial
 	intligence, and e trolls in e ing partment.
 Main's aw:
 	For every action ere is an equal and opposite government pram.
@@ -352,10 +352,10 @@ shop knows for sure.  Insurance companies unrstand is bavior, and
 price eir policies acingly.
 	A woman will slow down to let a car merge in front of her, and get
 r-end by anoer woman who was busy adding e finishing touches to
-her makeup.
+her up.
 inux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
-Adding manpower to a late softw project makes it later.
+Adding manpower to a late softw project s it later.
 		-- F. Bs, "The Myical Man-Mon"
 
 Whe one person is found aquate to e discharge of a duty by
@@ -381,7 +381,7 @@ As of some one gently rapng, rapng at my chamber door.
 	 referring to hardw interrupts.]
  
 And now I see wi eye serene
-The very pulse of e machine.
+The very lse of e machine.
 		-- William Wordswor, "She Was a Phantom of Dight"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
@@ -400,9 +400,9 @@ late card games.
 	"You wouldn't bieve what I go rough to avoid waking my wife,"
 he said.  "First, I kill e engine a block  from e house and coast
 into e garage.  Then I open e door slowly, take off my shoes, and
-tiptoe to our room.  But just as I'm about to sli into bed, she always
+ to our room.  But just as I'm about to sli into bed, she always
 wakes up and gives me ."
-	"I make a big racket when I go home," his friend rep.
+	"I  a big racket when I go home," his friend rep.
 	"You do?"
 	"Sure.  I honk e horn, slam e door, turn on all e lights,
  up to e bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
@@ -430,8 +430,8 @@ and new civilizati; to boldly go where no man has gone before.
 		-- Captain James T. Kirk
 People will do tomorrow what ey did today because at is what ey
 did yesterday.
-One man's brain plus one oer will produce one half as many ias as one
-man would have produced alone.  These two plus two more will produce half
+One man's brain plus one oer will produce one h as many ias as one
+man would have produced alone.  These two plus two more will produce h
 again as many ias.  These four plus four more begin to represent a
 creative meeting, and e ratio changes to one quarter as many ...
 		-- Anony Chevins
@@ -460,7 +460,7 @@ any toc, against any opponent.  People know is, and steer cl of me at
 parties.  Often, as a sign of eir great respect, ey don't even invite me.
 		-- Dave Barry
 bug, n:
-	An usive creature living in a pram at makes it incorrect.
+	An usive creature living in a pram at s it incorrect.
 	The activity of "bugging", or removing bugs from a pram, ends
 	when people get tired of doing it, not when e bugs  removed.
 		-- "Datamation", January 15, 1984
@@ -483,29 +483,29 @@ There is no comfort wiout pain; us we fine salvation rough suffering.
 How come wrong numbers   busy?
 I do sire we may be better strangers.
 		-- William Shakespe, "As You ike It"
-That's e ing about people who ink ey hate computers.  What ey
+That's e ing about people who ink ey hate comters.  What ey
 really hate is lousy prammers.
 - arry Niven and Jerry Pournle in "Oa of Fealty"
-You like to form new friendships and make new acquaintances.
+You like to form new friendships and  new acquaintances.
 Secrecy is e beginning of .
 The problem wi graduate stunts, in general, is at ey have
 to sleep every few days.
 I've got a bad feing about is.
 The trouble wi e rat-race is at even if you , you're still a rat.
 		-- ily Tomlin
-At about 2500 A.D., humankind discovers a computer problem at *must* be
+At about 2500 A.D., humankind discovers a comter problem at *must* be
 solved.  The only  is at e problem is NP complete and will
 take ousands of ys even wi e latest optical biologic technology
-available.  The best computer scientists sit down to ink up some solution.
+available.  The best comter scientists sit down to ink up some solution.
 In great diy, one of e C.S. people tls her husband about it.  There
 is only one solution, he says.  Remember physics 103, Morn Physics, general
 rativity and all.  She replies, "What does at have to do wi solving
-a computer problem?"
+a comter problem?"
 	"Remember e t paradox?"
-	After a few minutes, she says, "I could put e computer on a very
-fast machine and e computer would have just a few minutes to calculate but
+	After a few minutes, she says, "I could t e comter on a very
+fast machine and e comter would have just a few minutes to calculate but
 at is e exact opposite of what we want... Of course!  eave e
-computer here, and accerate e !"
+comter here, and accerate e !"
 	The problem was so important at ey did exactly at.  When
 e  came back, ey were presented wi e answer:
 
@@ -538,7 +538,7 @@ to e most stringent requirements of e new appropriateness.
 text of even trace amounts of subccious racism, sexism and classism.
 	Moreover, a faculty pan of ctructionists have recond
 e rhetorical components wiin a post-structuralist framework, so as to
-expunge any offensive ements of western rationalism and lin logic.
+exnge any offensive ements of western rationalism and lin logic.
 	Finally, all references flog from a white, male, eurocentric
 perspective have been iminated, as have any oer ruminati emed
 nigrating to e political census of e moment.
@@ -600,7 +600,7 @@ D Emily, what about test messages?
 
 D Concerned:
 	It is important, when testing, to test e entire net.  Never test
-mery a subnet distribution when e whole net can be done.  Also put "please
+mery a subnet distribution when e whole net can be done.  Also t "please
 ignore" on your test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
 but I mand to be addressed as male." because such articles  read in p
@@ -628,7 +628,7 @@ Biggest security gap -- an open mou.
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
 A commune is where people join togeer to sh eir lack of weal.
 		-- R. Stallman
-"A radioactive cat has eighteen half-lives."
+"A radioactive cat has eighteen h-lives."
 I'm ly AMAZED at 'breataking effects of WIND EROSION!!
 The difference between science and e fuzzy subjects is at science
 requires reasoning while  oer subjects mery require scholarship.
@@ -661,7 +661,7 @@ is easier to sign."
 which is easier to bug?"
 	The prammer ma no reply.
 		-- Geoffrey James, "The Tao of Pramming"
-A bird in e hand makes it awfully hard to blow your n.
+A bird in e hand s it awfully hard to blow your n.
 For people who like at kind of , at is e kind of  ey will like.
 We  preparing to ink about contemplating priminary work on plans to
 vop a schedule for producing e 10 Edition of e Unix Prammers
@@ -685,7 +685,7 @@ who, as a result, very often bring ruin on eir country.
 Boycott meat -- suck your umb.
 QOTD:
 	How can I miss you if you won't go ?
-Absence makes e ht grow fonr.
+Absence s e ht grow fonr.
 		-- Sextus Aurius
 Passwords  implemented as a result of insecurity.
 This is a test of e emergency broadcast system.  Had ere been an
@@ -693,20 +693,20 @@ actual emergency, en you would no longer be here.
 "Never  facts; if you do, you'll  get up in e morning."
 -- Marlo Thomas
 Accent on hpful si of your nature.  Drain e moat.
-The temperature of Heaven can be raer accuraty computed from available
+The temperature of Heaven can be raer accuraty comted from available
 data.  Our auority is Isaiah 30:26, "Moreover, e light of e Moon
 shall be as e light of e Sun and e light of e Sun shall be sevenfold,
 as e light of seven days."  Thus Heaven receives from e Moon as much
 radiation as we do from e Sun, and in addition seven times seven (49) times
 as much as e Ear does from e Sun, or fifty times in all.  The light we
 receive from e Moon is one ten-ousand of e light we receive from e
-Sun, so we can ignore at.  Wi ese data we can compute e temperature
+Sun, so we can ignore at.  Wi ese data we can comte e temperature
 of Heaven.  The radiation falling on Heaven will heat it to e point where
 e heat lost by radiation is just equal to e heat received by radiation,
 i.e., Heaven ls fifty times as much heat as e Ear by radiation.  Using
 e Stefan-Boltzmann law for radiation, (H/E)^4 = 50, where E is e absolute
 temperature of e  (-300K), gives H as 798K (525C).  The exact
-temperature of Hl cannot be computed, but it must be less an 444.6C, e
+temperature of Hl cannot be comted, but it must be less an 444.6C, e
 temperature at which brimstone or sulphur changes from a liquid to a gas.
 Revati 21:8 says "But e fful, and unbieving ... shall have eir
 part in e e which burne wi fire and brimstone."  A e of molten
@@ -714,5 +714,5 @@ brimstone means at its temperature must be at or bow e boiling point,
 or 444.6C  (Above is point it would be a vapor, not a e.)  We have,
 en, at Heaven, at 525C is hotter an Hl at 445C.
 		-- "App Optics", vol. 11, A14, 1972
-Unless you love someone, noing se makes any sense.
+Unless you love someone, noing se s any sense.
 		-- e.e. cummings

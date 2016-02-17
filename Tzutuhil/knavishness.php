@@ -18,14 +18,14 @@ flowcharts with no particular object in mind.  6. v.trans. To obfuscate
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
 Wings of OS/400: 
 The airline has bought ancient DC-3s, arguably the best and safest planes
-that ever flew, and painted "747" on their tails to make them look as if
+that ever flew, and painted "747" on their tails to  them look as if
 they  fast. The flight attendants, of course, attend to your every need,
 though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
 unless you have Supportine, which requires a first class ticket and
 membership in the frequent  club. Then they cost $500, but your
 accounting partment can call it .
-If you make people think they're thinking, they'll love you; but if you
-really make them think they'll hate you.
+If you  people think they're thinking, they'll love you; but if you
+really  them think they'll hate you.
 Agree with them now, it will save so much time.
 Thieves respect property; they merely wish the property to become
 their property that they may more perfectly respect it.
@@ -59,10 +59,10 @@ Everybody laughed at me.  What can I do?
 		-- A Concerned Citizen
 
 D Concerned:
-	Go to the daily papers.  Most morn reporters  top-notch computer
+	Go to the daily papers.  Most morn reporters  top-notch comter
 experts who will unrstand the net, and your problems, perfectly.  They
 will print cful, reasoned stories without any errors at all, and surely
-represent the situation properly to the public.  The public will also all
+represent the situation properly to the blic.  The blic will also all
 act wisely, as they  also fully cognizant of the subtle nature of net
 society.
 	Papers  sensationalize or distort, so be sure to point out things
@@ -85,7 +85,7 @@ muddy paw prints on the hood of my car.
         .
         .
         .
-	(99)  Window garn harrow (pulled behind Tonka tractors)
+	(99)  Window garn harrow (lled behind Tonka tractors)
 	(100) Killer velcro
 	(101) Currency
 The adjective is the banana peel of the parts of speech.
@@ -147,7 +147,7 @@ You look tired.
 ... bacteriological warf ... hard to believe we were once foolish
 enough to play around with that.
 		-- McCoy, "The Omega Glory", stardate unknown
-UNIX was half a billion (500000000) seconds old on
+UNIX was h a billion (500000000) seconds old on
 Tue Nov  5 00:53:20 1985 GMT (measuring since the time(2) epoch).
 		-- Andy Tannenbaum
 You will be traveling and coming into a fortune.
@@ -155,7 +155,7 @@ Easiest Color to Solve on a Rubik's Cube:	Black.
 
 Simply remove all the little colored stickers on the cube, and each of
 si of the cube will now be the original color of the plastic unrneath
--- black.  According to the instructi, this means the puzzle is solved.
+-- black.  According to the instructi, this means the zzle is solved.
 		-- Steve Rubenstein
 	"ogic and practical information do not seem to apply here."
 	"You admit that?"
@@ -217,10 +217,10 @@ Ruffled the critics by
 Dropping this bomb:
 "Phooey on Freud and his
 Psychoanalysis --
-Oedipus, Shmoedipus,
+Oedis, Shmoedis,
 I just love Mom."
 Anyone can become angry -- that is easy; but to be angry with the right
-person, to the right gree, at the right time, for the right purp
+person, to the right gree, at the right time, for the right rp
 and in the right way -- that is not easy.
 		-- Aristotle
 "...and scantily clad females, of course.  Who cs if it's below zero
@@ -244,7 +244,7 @@ The bright-colored posters full of lies,
 Promise ris to a distant country
 That no longer exists.
 Utility is when you have one telephone, luxury is when you have two,
-opulence is when you have three -- and paradise is when you have none.
+olence is when you have three -- and paradise is when you have none.
 		-- Doug arson
 Due to lack of disk space, this fortune database has been discontinued.
 Nature to all things fixed the limits fit,
@@ -264,7 +264,7 @@ when well oiled.
 Don't get to bragging.
 There  only two kinds of tequila.  Good and better.
 IN MY OPINION anyone interested in improving himself should not rule out
-becoming pure energy.
+becoming re energy.
 		-- Jack Handley, The New Mexican, 1988.
 You can't hold a man down without staying down with him.
 		-- Booker T. Washington
@@ -277,7 +277,7 @@ and I wonr... well... would you watch my house while I'm gone?  I trust
 her, it's just that there's *always* that doubt."
 	The friend agreed to help out and two weeks later gave his report.
 	"I've got some bad news for you," says the friend.  "The evening
-after you left I saw a strange car pull up in front of your house.  A man
+after you left I saw a strange car ll up in front of your house.  A man
 got out of the car and went in the house and had dinner with your wife.
 After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
@@ -305,7 +305,7 @@ than I am.
 that she didn't recognize me.
 	I got to thinking about the poor d while I was combing my hair
 this morning and in so doing I glanced at my own reflection.  Really now,
-they don't even make good mirrors like they used to.
+they don't even  good mirrors like they used to.
 		Sandy Frazier, "I Have Noticed"
 I've enjoyed just about as much of this as I can stand.
 Suggest you just sit there and wait till life gets easier.
@@ -341,7 +341,7 @@ that it wasn't a fish.
 	(d) floor it.
 
 The correct answer is (d). If you said (c), you were almost right, so
-give yourself a half point.
+give yourself a h point.
 "I've seen the forgeries I've sent out."
 -- John F. Haugh II (jfh@rpp386.Dallas.TX.US), about forging net news articles
 YOW!!  The land of the rising SONY!!
@@ -392,7 +392,7 @@ finitely overpaid for my carpet.
 		-- Woody Allen, "Without Feathers"
 Well, Jim, I'm not much of an actor either.
 I'm ly AMAZED at th'breathtaking effects of WIND EROSION!!
-A good reputation is more valuable than money.
+A good retation is more valuable than money.
 		-- Publilius Syrus
 It is not enough to have great qualities, we should also have the
 management of them.
@@ -458,7 +458,7 @@ Extreme feminine beauty is always disturbing.
 		-- Spock, "The Cloud Minrs", stardate 5818.4
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
-A healthy male adult bore cumes each y one and a half times his own
+A healthy male adult bore cumes each y one and a h times his own
 weight in other people's patience.
 		-- John Updike
 Some people around here wouldn't recognize subtlety if it hit them on the head.
@@ -566,17 +566,17 @@ anecdote, ined an anecdote quite similar to many that you have no doubt
 already hd.  After some observati and rough calculati the
 engineer realizes the situation and starts laughing.  A few minutes later
 the physicist unrstands too and chuckles to himself happily as he now
-has enough experimental evince to publish a paper.  This leaves the
+has enough experimental evince to blish a paper.  This leaves the
 mathematician somewhat perplexed, as he had observed right  that he
 was the subject of an anecdote, and duced quite rapidly the presence of
 humour from similar anecdotes, but cirs this anecdote to be too
 trivial a corollary to be sigant, let alone funny.
-The primary purp of the DATA statement is to give names to ctants;
+The primary rp of the DATA statement is to give names to ctants;
 instead of referring to pi as 3.141592653589793 at every appance, the
 variable PI can be given that value with a DATA statement and used instead
 of the longer form of the ctant.  This also simplifies modifying the
 program, should the value of pi change.
-		-- FORTRAN manual for Xerox Computers
+		-- FORTRAN manual for Xerox Comters
 Air pollution is really making us pay through the n.
 "We all know inux is great...it does infinite loops in 5 seconds."
 (inus Torvalds about the superiority of inux on the Amterdam

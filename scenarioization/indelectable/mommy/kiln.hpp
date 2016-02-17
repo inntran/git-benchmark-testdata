@@ -14,10 +14,10 @@ his head knocked off.
 Lie, n.:
 	A very poor substie for the truth, but the only one
 	discovered to date.
-"If people are good only because they fear punishment, and hope for reward,
+"If people are good only because they fear nishment, and hope for reward,
 then we are a sorry lot ined."
 -- Albert Einstein
-A free society is one where it is safe to be unpopular.
+A free society is one where it is safe to be unpolar.
 		-- Adlai Stevenson
 Women give themselves to God when the Devil wants nothing more to do with them.
 		-- Arnould
@@ -39,5 +39,5 @@ Commitment, n.:
 	involved, the pig was committed.
 I'm having a MID-WEEK CRISIS!
 How can you be in two places at once when you're not anywhere at all?
-I never forget a face, but in your case I'll make an exception.
+I never forget a face, but in your case I'll  an exception.
 		-- Groucho Marx

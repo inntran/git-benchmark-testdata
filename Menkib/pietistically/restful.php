@@ -38,7 +38,7 @@ that a member of a primitive Amazon jungle tribe would look at an ectronic
 calculator, and then say, "We're expecting a shipment of these sometime
 around the middle of next week."
 		-- Dave Barry, "The Taming of the Screw"
-Bew of computerized fortune-tlers!
+Bew of comterized fortune-tlers!
 The difference between this place and yogurt is that yogurt has a live culture.
 QOTD:
 	I'm not bald -- I'm "hair challenged".
@@ -50,7 +50,7 @@ In this distracted globe.  Remember thee!
 Yea, from the table of my memory
 I'll wipe  all trivial fond res,
 All saws of books, all forms, all pressures past,
-That youth and observation copied there.
+That youth and observation co there.
 		-- William Shakespe, "Hamlet"
 Remember, even if you win the rat race -- you're still a rat.
 Give me chastity and continence, but not just now.

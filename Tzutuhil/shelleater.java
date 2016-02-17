@@ -6,7 +6,7 @@ abor, n.:
 		-- Ambr Bierce, "The Devil's Dictionary"
 Hug me now, you mad, impetuous fool!!  
 	Oh wait...
-		I'm a computer, and you're a person.  It would  work out.
+		I'm a comter, and you're a person.  It would  work out.
 			Never mind.
 Nothing so needs reforming as other people's habits.
 		-- Mark Twain
@@ -35,7 +35,7 @@ ying is an indispensable part of making life tolerable.
 		-- Bergan Evans
 I have a VISION!  It's a RANCID double-FISHWICH on an ENRICHED BUN!!
 Don't get to bragging.
-"How to make a million dollars:  First, get a million dollars."
+"How to  a million dollars:  First, get a million dollars."
 -- Steve Martin
 "et's show this prehistoric bitch how we do things downtown!"
 -- The Ghostbusters
@@ -85,7 +85,7 @@ Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
 	 all mery transforms of one another.  This combined with
-	minimalization of open-loop errors in output amplifiers and correct
+	minimalization of open-loop errors in outt amplifiers and correct
 	compensation for non-lin passive crossover network loading can
 	lead to a sigant crease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
@@ -111,7 +111,7 @@ I opened the drawer of my little sk and a single letter fl out, a
 letter from my mother, written in pencil, one of her last, with unfinished
 words and an implicit sense of her parture.  It's so curious: one can
 resist ts and "behave" very wl in the harst hours of grief.  But
-then someone makes you a friendly sign behind a window... or one notices
+then someone s you a friendly sign behind a window... or one notices
 that a flower that was in bud only yesterday has sudnly blossomed... or
 a letter slips from a drawer... and everything collapses.
 		-- etters From Colette
@@ -193,19 +193,19 @@ mundane to bother with.  "I'm flame proof" might (and has) become
 "I'm ...a... p...oof" but that's REAY stretching it.
 
 	Two.  If I  words off the beginning or end of a quote, I don't
-put lipses, but neither do I  something that wasn't d
+t lipses, but neither do I  something that wasn't d
 before the . "I don't think that the Church of Ubizmo is a wonrful
 place" would turn into "the Church of Ubizmo is a wonrful place".  Iine
 the posting as a tape-reing of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
-I don't put lipses in.  And by the way, I love using this mechm for
+I don't t lipses in.  And by the way, I love using this mechm for
 turning things around.  If you think something stinks, say so - don't say you
 don't think it's wonrful.   ...
 -- D. J. McCarthy (dmccart@cadape.UUCP)
 QOTD:
 	"It's sort of a threat, you see.  I've  been very good at
 	them mysf, but I'm told they can be very effective."
-Non-sequiturs make me eat lampshas.
+Non-sequiturs  me eat lampshas.
 Normal times may possibly be over forever.
 That's always the way when you discover something new; everyone thinks
 you're crazy.
@@ -233,7 +233,7 @@ party, etc.) to cummate the act of social schizophrenia in mass genoci.
 I love you more than anything in this world.  I don't expect that will last.
 		-- Elvis Costlo
 By failing to prep, you  preparing to fail.
-"If there isn't a population problem, why is the government putting cancer in 
+"If there isn't a polation problem, why is the government tting cancer in 
 the cigttes?"
 -- the r Steptoe, c. 1970
 Doubt isn't the opposite of faith; it is an ement of faith.
@@ -251,7 +251,7 @@ Nothing is perfect.
 There  lumps in it.
 If happiness is in your stiny, you need not be in a hurry.
 		-- Chinese proverb
-When my brain begins to re from my literary labors, I make an occasional
+When my brain begins to re from my literary labors, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
 God is a comic playing to an audience that's afraid to laugh.
@@ -278,7 +278,7 @@ start to get curious.  A 13 y-old blond with an angic  misses supper.
 Before the summer's end, four more teenagers have disapped.  The senior
 class presint, Barnard-bound come autumn, tls Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the
-police take action, the kids turn up.  They've found a purp.  They go
+police take action, the kids turn up.  They've found a rp.  They go
 home for their stuff and tl the folks not to worry but they'll be going
 now.  They're in a band.
 		-- Ira Kaplan
@@ -299,13 +299,13 @@ off the bottom of the eighth with a walk.  The next hitter banged a hard
 single to  fid.  Feing the wind at my back, I round second and
 kept going, sliding safy into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
-bat, our manager put in the fast Brandy Davis to run for the player at first.
+bat, our manager t in the fast Brandy Davis to run for the player at first.
 Even with Kiner hitting and a change to win the game with a home run, Brandy
 took off for second and ma it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
-start to take a lead.  All of a sudn, here he comes.  He makes a great sli
+start to take a lead.  All of a sudn, here he comes.  He s a great sli
 into third, and I scream, "Brandy, where  you going?"  He looks up, and
-shouts, "Back to second if I can make it."
+shouts, "Back to second if I can  it."
 		-- Joe Garala, "It's Anybody's Ball Game"
 Humpty Dumpty sat on the wall,
 Humpty Dumpty had a great fall!
@@ -357,7 +357,7 @@ prices?  Then they cid, nah, the hl with that, let's build a home
 center.  And before long home centers were  up like crabgrass all
 over the United States.
 		-- Dave Barry, "The Taming of the Screw"
-Whe I h anyone arguing for slavery, I fe a strong impulse to
+Whe I h anyone arguing for sy, I fe a strong imlse to
 see it tried on him .
 		-- Abraham incoln
 Since before the Earth was formed and before the sun burned hot in space,

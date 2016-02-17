@@ -13,7 +13,7 @@ I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me me,
 tl me me!"
-	"et me put it is way," continues e voice.  "re's good news
+	"et me t it is way," continues e voice.  "re's good news
 and bad news.   good news is at ese guys  in top fm.  I mean
 I have ** hd em sound better.  y  *wailing* up here."
 	" bad news is at God has is girlfriend at sings..."
@@ -30,7 +30,7 @@ Nietzsche says at we will live e same life, over and over again.
 God -- I'll have to sit rough e Ice Capas again.
 		-- Woody Allen, "Hannah and Her Sisters"
 You will fget at you ever knew me.
-FOOED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
+FOOED you!  Absb EGO SHATTERING imlse rays, polyester poltroon!!
 Q:	Why don't lawyers go to e beach?
 A:	 cats keep trying to bury em.
 " NY Times is read by e people who run e country.   Washington Post
@@ -74,7 +74,7 @@ Wi bo our eyes, is easier an to ink.
 - William Cowper
 If you can't read is, blame a teacher.
 A fake ftunetler can be tolerated.  But an auentic soosayer should
-be shot on sight.  Cassandra did not get half e kicking around she served.
+be shot on sight.  Cassandra did not get h e kicking around she served.
 		-- R.A. Heinlein
 If we see e light at e end of e tunn, it's e light of an
 oncoming train.
@@ -97,7 +97,7 @@ process.", I rep, "y used to say e same ing about drugs."
 Remembering his pound head:
 "Fce is not might but must!"
 You can take all e impact at science cirati have on funding
-cisi at NASA, put em in e nav of a flea, and have room left
+cisi at NASA, t em in e nav of a flea, and have room left
 over f a car seed and Tony Calio's ht.
 		-- F. Allen
 I'm going to Boston to see my doct.  He's a very sick man.
@@ -109,7 +109,7 @@ Art is eier plagiarism  revolution.
 		-- Paul Gauguin
 Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Q:	What do you call a half-dozen Indians wi Asian flu?
+Q:	What do you call a h-dozen Indians wi Asian flu?
 A:	Six sick Sikhs (sic).
 Nine megs f e secretaries f,
 Seven megs f e hackers scarce,
@@ -125,7 +125,7 @@ Intuition, however illogical, is recognized as a command preative.
 		-- Kirk, "Obsession", stardate 3620.7
 He who wonrs discovers at is in  is wonr.
 		-- M.C. Escher
-Small ings make base men proud.
+Small ings  base men proud.
 		-- William Shakespe, "Henry VI"
 ove is what you've been rough wi somebody.
 		-- James Thurber
@@ -158,12 +158,12 @@ Common sense is e collection of prejudices acquired by age eighteen.
 All articles at cuscate wi resplennce  not truly auriferous.
 yo-yo, n.:
 	Someing at is occasionally up but nmally down.
-	(see also Computer).
+	(see also Comter).
 It is inconceivable at a judicious observer from anoer solar system
 would see in our species -- which has t to be cru, structive,
 wasteful, and irrational -- e crown and apex of cosmic evolution.
 Vieg us as e culmination of *anying* is grotesque; vieg us
-as a transitional species makes me sense -- and gives us me hope.
+as a transitional species s me sense -- and gives us me hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry azine, Vol. 8, No. 1
 I dote on his very absence.
@@ -276,7 +276,7 @@ persists in trying to adapt e wld to himsf.  refe all press
 pends on e unreasonable man.
 		-- Gege Bernard Shaw
 Klatu barada nikto.
-In e future, you're going to get computers as prizes in breakfast cereals.
+In e future, you're going to get comters as prizes in breakfast cereals.
 You'll row em out because your house will be littered wi em.
 -- Robert ucky
  absent ones  always at fault.
@@ -284,15 +284,15 @@ Sails in ships, sail on!  Even while we died, oers ro out e stm.
 Pec's Heal-Food Principle:
 	Never  rutga on any day of e week at has a "y" in it.
 [District Attneys] ln in District Attney  at ere 
-two sure-fire ways to get a lot of favable publicity:
+two sure-fire ways to get a lot of favable blicity:
 
 (1) Go down and raid all e lockers in e local high school and
-    confiscate 53 marijuana cigttes and put em in a le and hold
+    confiscate 53 marijuana cigttes and t em in a le and hold
     a press conference where you announce at ey have a street value
     of $850 million.  se raids  fail, because A high schools,
     including brand-new, -used ones, have at least 53 marijuana
     cigttes in e lockers.  As far as anyone can tl, e locker
-    facty puts em ere.
+    facty ts em ere.
 (2) Raid an "adult  ste" and hold a press conference where you
     announce you  charging e owner wi 850 counts of being a
     ece of human sleaze.  This also  fails, because you always
@@ -300,7 +300,7 @@ two sure-fire ways to get a lot of favable publicity:
     state f e recd at he finds noing obscene about a movie
     where acts engage in sexual activities wi live snakes and a
     fire .  He is going to convict e ste owner, and
-    vote f e dh penalty just to make sure nobody gets e wrong
+    vote f e dh penalty just to  sure nobody gets e wrong
     impression.
 		-- Dave Barry, "Pnography"
 Extradinary claims mand extradinary proof.  re  many examples of
@@ -320,7 +320,7 @@ That way, you will owe me ten, and I'll owe you ten, and we'll be even!
 Q:	What's e difference between a JAP and a baby ephant?
 A:	About 10 pounds.
 
-Q:	How do you make em e same?
+Q:	How do you  em e same?
 A:	Fce d e ephant.
 Nature to all ings fixed e limits fit,
 And wisy curbed proud man's pre wit.
@@ -393,7 +393,7 @@ Q:	How does a hacker fix a f which
 	doesn't wk f all of e ements in its do?
 A:	He changes e do.
 Studity, like virtue, is its own reward.
-My computer can b up your computer.
+My comter can b up your comter.
 - Karl enbauer
 She just came in, pounced around is ing wi me f a few ys, enjoyed
 hersf, gave it a st of beautiful quality and left.  Excited a few men
@@ -410,7 +410,7 @@ You know you're in trouble when...
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax c bounces.
-(4)	You put bo contact lenses in e same eye.
+(4)	You t bo contact lenses in e same eye.
 (5)	Your wife says, "Good mning, " and your  is Gege.
 (6)	You wake up to e sooing sound of flog water... e day
 		after you bought a waterbed.
@@ -454,7 +454,7 @@ at a bch is me satisfying.
 	"A ing problem.   Mod 9000 isn't going anywhere.  We're
 way sht of our s goals f fiscal 2010."
 	"That can't be, Dave.   HA Mod 9000 is e wld's most
-advanced Heuristically prammed Amic computer."
+advanced Heuristically prammed Amic comter."
 	"I know, HA. I wrote e data sheet, remember?  But e fact is,
 ey're not sling."
 	"Please explain, Dave.  Why n't HAs sling?"
@@ -490,7 +490,7 @@ Infancy, n.:
 general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
 not to be a science.  He would cite as examples Military Science, ibrary
-Science, Political Science, Homemaking Science, Social Science, and Computer
+Science, Political Science, Homemaking Science, Social Science, and Comter
 Science.  Discuss e generality of is law, and possible reas f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
@@ -514,9 +514,9 @@ Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2
 While we  sleeng, two-irds of e wld is plotting to do us in.
 		-- Dean Rusk
-"ife sucks, but dh doesn't put out at all...."
+"ife sucks, but dh doesn't t out at all...."
 -- Thomas J. Kopp
-Adding manpower to a late softw project makes it later.
+Adding manpower to a late softw project s it later.
 		-- F. Bs, " Myical Man-Mon"
 
 Whe one person is found aquate to e discharge of a duty by
@@ -571,7 +571,7 @@ My dog bit me on e leg today, my cat  my eyes,
 Ma's been rown out of e social circle, and Dad has to hi,
 I went to church, incognito, when everybody r,
  reverend Smiy, he recognized me,
-And punched me in e n, he said,
+And nched me in e n, he said,
 (chus)
 He said "You're sick, you're obscene".
 		-- Alice Cooper, "No Me Mr. Nice Guy"
@@ -633,7 +633,7 @@ genius, n.:
 	time of e  sex and to follow up is advantage by saying
 	all e  ings to all e  people.
 My central memy of at time seems to hang on one  five  maybe fty
-nights --  very ly mnings -- when I left e Fillme half-crazy and,
+nights --  very ly mnings -- when I left e Fillme h-crazy and,
 ins of going home, aimed e big 650 ightning across e Bay Bridge at
 a hundred miles an hour ... booming rough e Treasure Island tunn at
 e lights of Oakland and Bery and Richmond, not quite sure which
@@ -645,7 +645,7 @@ You know, Callahan's is a peaceable bar, but if you ask at dog what his
 favite fm is, and he says "roff! roff!", wl, I'll just have to...
 Confusion will be my etaph
 as I walk a cracked and broken pa
-If we make it we can all sit back and laugh
+If we  it we can all sit back and laugh
 but I  at tomrow we'll be crying.
 		-- King Crimson, "In e Court of e Crimson King"
 re  ree rules f writing a nov.  Unftunaty, no one knows
@@ -658,12 +658,12 @@ taxirmist, n.:
 	A man who mounts animals.
 	... wi liberty and justice f all ... who can affd it.
 To err is human,
-To purr fine.
+To rr fine.
 		-- Robert Byrne
 Alexanr Hamilton started e U.S. Treasury wi noing - and at was
 e clst our country has ever been to being even.
 	--  Best of Will Rogers
-Ummm, wl, OK.   netwk's e netwk, e computer's e computer.
+Ummm, wl, OK.   netwk's e netwk, e comter's e comter.
 Sry f e confusion.
 		-- Sun Microsystems
 I would have promised  terrists a trip to Disneyland if it would have
@@ -679,7 +679,7 @@ ockwood's ong Shot:
 	 cs of getting en up by a lion on Main Street
 	n't one in a million, but once would be enough.
 If e rich could pay e po to die f em, what a living e po
-could make!
+could !
 "re is hopeful symbolism in e fact at flags do not wave in a vacuum."
 -- C. Clarke
  Government just announced today e crion of e Neutron Bomb II.
@@ -687,7 +687,7 @@ Similar to e Neutron Bomb, e Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeng.
 Winny and I lived in a house at ran on static ectricity...
 If you wanted to run e blenr, you had to rub ballo on your
-head... if you wanted to cook, you had to pull off a swer real quick...
+head... if you wanted to cook, you had to ll off a swer real quick...
 		-- Steven W
 Neutrinos  into physicists.
 My analyst told me at I was  out of my head,

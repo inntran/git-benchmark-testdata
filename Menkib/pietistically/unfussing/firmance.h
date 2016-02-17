@@ -23,7 +23,7 @@ Absolute:  Inpennt, irrespible.  An absolute monarchy is one in which
 the sove does as he pleases so long as he pleases the assassins.  Not
 many absolute monarchies  left, most of them having been replaced by
 limited monarchies, where the soverign's power for evil (and for good) is
-greatly curtailed, and by republics, which  governed by chance.
+greatly curtailed, and by reblics, which  governed by chance.
 -- Ambr Bierce
 Zounds!  I was  so bethumped with words
 since I first called my brother's father dad.
@@ -53,7 +53,7 @@ and I wonr... well... would you watch my house while I'm gone?  I trust
 her, it's just that there's *always* that doubt."
 	The friend agreed to help out and two weeks later gave his report.
 	"I've got some bad news for you," says the friend.  "The evening
-after you left I saw a strange car pull up in front of your house.  A man
+after you left I saw a strange car ll up in front of your house.  A man
 got out of the car and went in the house and had dinner with your wife.
 After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
@@ -72,7 +72,7 @@ Karlson's Theorem of Snack Food Packages:
 Gibson the Cat's Corrolary:
 	For all , where  is a package of lunch meat,  is Gibson's package
 	of lunch meat.
-You have an ambitious nature and may make a name for yourself.
+You have an ambitious nature and may  a name for yourself.
 It must be remembered that there is nothing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, than the creation of
 a new system.  For the initiator has the emnity of all who would profit
@@ -93,9 +93,9 @@ And miles to go before I sleep.
 If you had any brains, you'd be dangerous.
 I am not a politician and my other habits  also good.
 		-- A. Ward
-A good reputation is more valuable than money.
+A good retation is more valuable than money.
 		-- Publilius Syrus
-The lion and the calf shall lie down together but the calf won't get much sleep.
+The lion and the c shall lie down together but the c won't get much sleep.
 		-- Woody Allen
 Getting kicked out of the American Bar Association is liked getting kicked
 out of the Book-of-the-Month Club.

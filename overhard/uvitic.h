@@ -18,13 +18,13 @@ Dallas Cowboys Official Schedule
 	Oct 12		Sugarcreek High Cheerlears
 	Oct 26		St. Thomas Boys Choir
 	Nov 2		Texas City Vet Clinic
-	Nov 9		Kean War Amputees
+	Nov 9		Kean War Amtees
 	Nov 15		VA Hostal Polio Patients
  misnaming of fids of study is so common as to lead to what might be
 general systems laws.  F example, Frank Harary once suggested e law at
 any fid at had e wd "science" in its  was guaranteed ereby
 not to be a science.  He would cite as examples Military Science, ibrary
-Science, Political Science, Homemaking Science, Social Science, and Computer
+Science, Political Science, Homemaking Science, Social Science, and Comter
 Science.  Discuss e generality of is law, and possible reas f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
@@ -34,7 +34,7 @@ be in owning a ece ereof.
 		-- National am, "Deteriata"
 et thy maid servant be faithful, strong, and homy.
 My calculat is my shepherd, I shall not want
-It make me accurate to ten sigant s,
+It  me accurate to ten sigant s,
 	and it lea me in scientific notation to 99 digits.
 It reste my s roots and gui me along pas of floating
 	cimal points f e sake of precision.
@@ -58,7 +58,7 @@ broil a good steak.  Eat e steak.  et e chili simmer.  Igne it.
 		   of Texas.
 re's amnesia in a hangknot,
 And comft in e ax,
-But e simple way of poison will make your nerves rax.
+But e simple way of poison will  your nerves rax.
 	re's sur in a gunshot,
 	And sleep at comes from racks,
 	But a handy draft of poison avoids e harshest tax.
@@ -95,8 +95,8 @@ When accountants talk of quarterly profits, e vopment t is about
 to be .  When seni scientists talk blue sky, e clouds  about to
 roll in.
 	Truly, is is not e Tao of Pramming.
-	When managers make commitments, game prams  igned.  When
-accountants make long-range plans, harmony and r  about to be rested.
+	When managers  commitments, game prams  igned.  When
+accountants  long-range plans, harmony and r  about to be rested.
 When seni scientists address e problems at hand, e problems will soon
 be solved.
 	Truly, is is e Tao of Pramming.
@@ -128,7 +128,7 @@ One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
-make a lot of money and retire and enjoy life."   maematician inks
+ a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bly-eyed, replies, "Wl, yes,
@@ -158,7 +158,7 @@ We have s, er...FOUR OF THEM!
 "If Jesus came back today, and saw what was going on in his , he'd  
 stop  up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
-Men  make passes at girls wing glasses.
+Men   passes at girls wing glasses.
 		-- Doy Parker
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in  awkward situati?  Wry no me...
@@ -174,7 +174,7 @@ say in  awkward situati?  Wry no me...
 	I don't bieve you.
 	How many times have I told you to be cful?
 	Just beacuse.
-I'm encased in e lining of a pure pk sausage!!
+I'm encased in e lining of a re pk sausage!!
 Tomrow will be cancled due to lack of interest.
 "You  WRONG, you ol' brass-breasted fascist poop!"
 -- Bloom County
@@ -252,8 +252,8 @@ Watson's aw:
 Only Irish cof provis in a single glass all four   groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex evine
-Wi Congress, every time ey make a joke it's a law; and every time
-ey make a law it's a joke.
+Wi Congress, every time ey  a joke it's a law; and every time
+ey  a law it's a joke.
 		-- Will Rogers
 That government is best which governs least.
 		-- Henry David Theau, "Civil Disobedience"

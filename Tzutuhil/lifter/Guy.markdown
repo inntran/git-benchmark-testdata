@@ -29,7 +29,7 @@ But you are a man, and see only my pan,
 		-- Dorothy Parker
 No man is useless who has a friend, and if we are loved we are indispensable.
 		-- Robert Louis Stevenson
-In 1914, the first crossword puzzle was printed in a newspaper.  The
+In 1914, the first crossword zzle was printed in a newspaper.  The
 creator received $4000 down ... and $3000 across.
 Actually, the probability is 100% that the elevator will be going in the
 right direction.  Proof by induction:
@@ -56,7 +56,7 @@ Drop the vase and it will become a Ming of the past.
 As you will see, I told them, in no uncertain terms, to see Figure one.
 		-- Dave "First Strike" Pare
 I'm a Lisp variable -- bind me!
-When my brain begins to reel from my literary labors, I make an occasional
+When my brain begins to reel from my literary labors, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
 Not one hundred percent efficient, of course ... but nothing ever is.
@@ -92,7 +92,7 @@ lighthouse, n.:
 	second per second takes over.
  II. Any body in motion will tend to re in motion until solid matter
      intervenes sudnly.
-	Whether shot from a cannon or in hot pursuit on foot, cartoon
+	Whether shot from a cannon or in hot rsuit on foot, cartoon
 	characters are so absolute in their momentum that only a telephone
 	pole or an outsize boulr retards their forward motion absolutely.
 	Sir Isaac Newton called this sudn termination of motion the
@@ -118,7 +118,7 @@ Today's weirdness is tomorrow's reason why.
 I was at this restaurant.  The sign said "Breakfast Anytime."  So I
 orred French Toast in the Rennaissance.
 		-- Steven Wright
-On our campus the UNIX system has proved to be not only an effective software
+On our cams the UNIX system has proved to be not only an effective software
 tool, but an agent of technical and social change within the University.
 - John Lions (U. of Toronto (?))
 Sleep -- the most beautiful experience in life -- except drink.
@@ -293,7 +293,7 @@ sense from things she found in gift shops.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
 "I prefer the blunted cudgels of the followers of the Serpent God."
 -- Sean Doran the Younger
-The Lord prefers common-looking people.  That is the reason that He makes
+The Lord prefers common-looking people.  That is the reason that He s
 so many of them.
 		-- Abraham Lincoln
 "We will be better and braver if we engage and inquire than if we indulge in
@@ -327,7 +327,7 @@ Oh, give me a locus where the gravitons focus
 We eat algea pie, our vacuum is high,
 	Our ball bearings are perfectly round.
 	Our horizon is curved, our warheads are MIRVed,
-	And a kilogram weighs half a pound.			(chorus)
+	And a kilogram weighs h a pound.			(chorus)
 If we run out of space for our burgeoning race
 	No more Lebensraum left for the Mensch
 	When we're ready to start, we can take Mars apart,
@@ -349,7 +349,7 @@ alimony, n:
 	Having an ex you can bank on.
 Premature optimization is the root of all evil.
 		-- D.E. Knuth
-Q:	What is purple and concord the world?
+Q:	What is rple and concord the world?
 A:	Alexanr the Grape.
 What!?  Me worry?
 		-- Alfred E. Newman
@@ -378,7 +378,7 @@ She does the things you do, but she is an IBM.
 She's only programmed to be very nice,
 But she's as cold as ice,  I get too near,
 She tells me that she likes me very much,
-But when I try to touch, she makes it all too clear.
+But when I try to touch, she s it all too clear.
 ...
 I realize that it must seem so strange,
 That time has rearranged, but time has the final word,
@@ -387,7 +387,7 @@ She tries to be unkind, she knows nothing of our world.
 		-- ELO, "Yours Truly, 2095"
 Your good nature will bring you unbound happiness.
 If I don't drive around the park,
-I'm pretty sure to make my mark.
+I'm pretty sure to  my mark.
 If I'm in bed each night by ten,
 I may get back my looks again.
 If I abstain from fun and such,
@@ -485,14 +485,14 @@ muffled," explained Mr. Rowlands, a pottery signer.
 constant hot breathing brought freedom.  He was subsequently nicknamed "Hot
 Lips".
 		-- Stephen Pile, "The Book of Heroic Failures"
-"You shouldn't make my toaster angry."
+"You shouldn't  my toaster angry."
 -- Household security explained in "Johnny Quest"
 You don't have to be nice to people on the way up if you're not planning on
 coming back down.
 		-- Oliver Warbucks, "Annie"
 Worrying is like rocking in a rocking chair -- It gives you something to do,
 but it doesn't get you anywhere.
-Auribus teneo lupum.
+Auribus teneo lum.
 	[I hold a wolf by the ears.]
 	[Boy, it *sounds* good.  But what does it *mean*?]
 Second Law of Business Meetings:
@@ -561,13 +561,13 @@ And by a bird it was said!		Not to mention its genr.
 
 It reminds me of days of		So what is this line
 Both gloom and of light.		Whose author's unknown
-It still lifts my spirits		And still makes me giggle
+It still lifts my spirits		And still s me giggle
 And starts the day right.		Even now that I'm grown?
 
 I've read all the greats
 Both starving and fat,
 But none was as great as
-"I tot I taw a puddy tat."
+"I tot I taw a ddy tat."
 		-- Etta Stallings, "An O To Childhood"
 Your step will soil many countries.
 X windows:
@@ -599,7 +599,7 @@ Tact, n.:
 For myself, I can only say that I am astonished and somewhat terrified at
 the results of this evening's experiments.  Astonished at the wonrful
 power you have veloped, and terrified at the thought that so much hious
-and bad music may be put on record forever.
+and bad music may be t on record forever.
 		-- Sir Arthur Sullivan, message to Edison, 1888
 Monterey... is cidly the pleasantest and most civilized-looking place
 in California ... [it] is also a great place for cock-fighting, gambling
@@ -607,7 +607,7 @@ of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Years Before the Mast", 1840
 Give me a sleeping pill and tell me your troubles.
 When the man's car broke down, he walked to the nearest farmhouse to ask
-if he could stay the night.  The farmer agreed to put him up.  "I live alone,"
+if he could stay the night.  The farmer agreed to t him up.  "I live alone,"
 he continued, "you can have the bedroom at the top of the stairs, to the
 right."
 	"Oh, never mind," the disappointed sman said. "I think I'm in

@@ -35,7 +35,7 @@ F some reason a glaze passes over people's s when you say
 "Canada".  Maybe we should inva Sou Dakota  someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassad to e U.S.
 Avoid gunfire in e baroom tonight.
-"Falling in love makes smoking pot all day look like e ultimate in restraint."
+"Falling in love s smoking pot all day look like e ultimate in restraint."
 -- Dave Sim, au of Cerebrus.
 You first have to ci wheer to use e sht  e long fm. 
 sht fm is what e Internal Revenue Service calls "simplified", which
@@ -43,7 +43,7 @@ means it is signed f people who need e hp of a Ss tax-preparation
 ex to distinguish between eir first and last s.  Here's e
 complete text:
 
-"(1) How much did you make?  (AMOUNT)
+"(1) How much did you ?  (AMOUNT)
 (2) How much did we here at e government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c f (ONE-FIFTEENTH OF
@@ -118,7 +118,7 @@ Wk Rule: eave of Absence (f an Operation):
 	We  no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
 cir having anying removed.  We hired you as you , and to have
-anying removed would  make you less an we bargained f.
+anying removed would   you less an we bargained f.
 When in doubt, mumble; when in trouble, gate; when in charge, ponr.
 		-- James H. Ben
 Pereant, inquit, qui ante nos nostra dixerunt.
@@ -132,7 +132,7 @@ of coding bums.
 		-- Edsger W. Dijkstra, SIGPAN Notices, Vol 17, Number 5
 Badges?  We don't need no  badges.
 Old MacDonald had an agricultural real estate tax tement.
-"A radioactive cat has eighteen half-lives."
+"A radioactive cat has eighteen h-lives."
 It was raining heavily, and e motist had car trouble on a lony country
 road.  Anxious to find shter f e night, he walked over to a farmhouse
 and knocked on e front do.  No one respond.  He could l e water
@@ -156,7 +156,7 @@ ife is a biochemical reaction to e stimulus of e surrounding
 round container filled wi little red fruits on sticks.
 You know you've been sitting in front of your isp machine too long
 when you go out to e junk  machine and start wonring how to
-make it give you e CADR of Item H so you can get at yummie
+ it give you e CADR of Item H so you can get at yummie
 chocolate cupcake at's stuck bind e disgusting vanilla one.
 A gr nation is any mob of people which produces at least one honest
 man a century.
@@ -181,10 +181,10 @@ of asterisked s:
 
 In tiny type were ese "fuller explanati":
 
-      * Don't asterisks make you suscious as all get out?  Wl, all
+      * Don't asterisks  you suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
-	will make e IIc weigh me. Our lawyers were concerned at you
+	will  e IIc weigh me. Our lawyers were concerned at you
 	might not be able to  is out f yoursf.
 
      **  FTC is concerned about price fixing. You can pay me if
@@ -216,8 +216,8 @@ All phone calls  obscene.
 exhausted all oer alternatives.
 		-- Abba E
 He who always plows a straight furrow is in a rut.
-A person who is me an casually interested in computers should be wl
-schooled in machine language, since it is a  part of a computer.
+A person who is me an casually interested in comters should be wl
+schooled in machine language, since it is a  part of a comter.
 		-- Donald Knu
 How many nucl engineers does it take to change a light bulb ?
 
@@ -233,7 +233,7 @@ Don't guess -- c your security ti.
 iving on Ear may be expensive, but it inclus an annual free trip
 around e Sun.
 Ignance must  be bliss  ere wouldn't be so many people
-so resoluty pursuing it. 
+so resoluty rsuing it. 
 ittering is dumb.
 		-- Ronald Macdonald
 Her locks an ancient lady gave
@@ -257,7 +257,7 @@ ftune cookie I found e guy's c sitting at e next table.  I said,
 "Hey, buddy, I got your c", he said, "Thanks."
 		-- Rodney Dangerfid
 My central memy of at time seems to hang on one  five  maybe fty
-nights --  very ly mnings -- when I left e Fillme half-crazy and,
+nights --  very ly mnings -- when I left e Fillme h-crazy and,
 ins of going home, aimed e big 650 ightning across e Bay Bridge at
 a hundred miles an hour ... booming rough e Treasure Island tunn at
 e lights of Oakland and Bery and Richmond, not quite sure which
@@ -271,7 +271,7 @@ umb wi a hammer.
 Some men  heterxual, and some  bisexual, and some men don't ink
 about sex at all... ey become lawyers.
 		-- Woody Allen
-"I bieve at Ronald Reagan will someday make is
+"I bieve at Ronald Reagan will someday  is
  country what it once was... an arctic wilrness."
 -- Steve Martin
 Why  ese aletic shoe smen follog me??
@@ -283,7 +283,7 @@ Me money.
 A green hunting cap d e top of e fleshy balloon of a head.  
 green fs, full of large s and un h and e fine bristles at
 grew in e s emsvse, stuck out on eier si like turn signals
-indicating two directi at once.  Full, pursed lips protrud benh e
+indicating two directi at once.  Full, rsed lips protrud benh e
  black moustache and, at eir cners, sank into little folds filled
 wi disapproval and potato chip crumbs.  In e shadow unr e green vis
 of e cap Ignatius J. Reilly's supercilious blue and ylow eyes looked down
@@ -331,7 +331,7 @@ Article e Four:
 	 should be accepted as an onion, not as a claration of war.
 Article e Fif:
 	Babies should enjoy e freedom to vocalize, wheer it be in church,
-	a public meeting place, during a movie,  after hours when e
+	a blic meeting place, during a movie,  after hours when e
 	lights  out.  y have not yet lned at joy and laughter have
 	to last a lifetime and must be cerved.
 		-- Erma Bombeck, "A Baby's  of Rights"
@@ -359,17 +359,17 @@ Shtest distance between two jokes		= A straight line
 2000 pounds of chinese soup			= 1 Won Ton
 10 to e minus 6 power mouwashes		= 1 Microscope
 Speed of a ttoise breaking e sound barrier	= 1 Machturtle
-8 Catfish					= 1 Octo-puss
+8 Catfish					= 1 Octo-ss
 365 Days of drinking o-Cal beer.		= 1 ite-y
 16.5 t in e Twilight Zone			= 1 Rod Serling
 Fce need to accerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
-One half large intestine			= 1 Semicolon
+One h large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
 1 Sagan						= i & i
-1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
+1 Angstrom: measure of comter anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
  amount of beauty required launch 1 ship	= 1 Millihen
@@ -401,9 +401,9 @@ When noing can possibly go wrong, it will.
 			-- Gifts f Men --
 
 Men  amused by almost any idiot ing -- at is why professional ice
-hockey is so popular -- so ing gifts f em is easy.  But you should
+hockey is so polar -- so ing gifts f em is easy.  But you should
   em cloes.  Men bieve ey already have all e cloes ey
-will ever need, and new ones make em nervous.  F example, your average
+will ever need, and new ones  em nervous.  F example, your average
 man has 84 ties, but he ws, at most, only ree of em.  He has lned,
 rough humiliating trial and err, at if he ws any of e oer 81
 ties, his wife will probably laugh at him ("You're not going to w THAT
@@ -440,13 +440,13 @@ what might you have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
 Man bongs wherever he wants to go.
 		-- Wernher von Braun
-A us public bate about e  of astrology?  A us biever
+A us blic bate about e  of astrology?  A us biever
 in e White House?  Two of em?  Give me a break.  What stifled my laughter
 is at e ie fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing at became a us issue....Not
 at long ago, it was Reagan's suppt of Crionism....Crionists actually
-got equal time wi evolutionists.   public was suppd to be open-mind
+got equal time wi evolutionists.   blic was suppd to be open-mind
 to e claims of paleontologists and ists, as if e two were
 scientific colleagues....It has been cl f a long time at e presint
 is averse to science...In general, ese attitus fall onto friendly American
@@ -454,7 +454,7 @@ turf....But at e outer edges, is skepticism about science easily turns
 into a kind of naive acceptance of ncience,  even nense.   same
 people who doubt exs can also bieve any ery, from e benefits of
 laetrile to eye of newt to e movment of planets.  We l e capacity to
-make rational -- scientific -- judgments.  It's all e same.
+ rational -- scientific -- judgments.  It's all e same.
 -- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
     Group
 Weed's Axiom:
@@ -495,7 +495,7 @@ In e and of Md where e Shadows lie.
 Such effts  almost always slow, labious, political, petty, bing,
 ponrous, ankless, and of e utmost criticality.
 	-- eonard Kleinrock, on standards effts
-"Being disintegrated makes me ve-ry an-gry!" <huff, huff>
+"Being disintegrated s me ve-ry an-gry!" <huff, huff>
 take fceful action:
 	Do someing at should have been done a long time ago.
 "He flung himsf on his hse and ro madly off in all directi."
@@ -543,7 +543,7 @@ How many surrealists does it take to screw in a lightbulb?
 
 One to hold e giraffe and one to fill e batub wi bly coled
 power tools.
-Cos  sritual puns.
+Cos  sritual ns.
 		-- G.K. ton
 Rule of Crive Resch:
 	(1) Never draw what you can copy.
@@ -557,7 +557,7 @@ SHOP OR DIE, people of Ear!
 Maematics, ly viewed, possesses not only tru but supreme beauty --
 a beauty cold and austere, like at of a sculpture, wiout appeal to any
 part of our weaker nature, wiout e ggeous trapng of painting  music,
-yet sublimy pure, and capable of a stern perfection such as only e
+yet sublimy re, and capable of a stern perfection such as only e
 grest art can show.   true srit of dight, e exaltation, e sense
 of being me an man, which is e touchstone of e highest exclence, is
 to be found in maematics as sury as in poetry.
@@ -572,9 +572,9 @@ Men   crures wi two legs and eight hands.
 I am e moer of all ings, and all ings should w a swer.
 BYTE edits  people who separate e wh from e chaff, and en
 cfully print e chaff.
-ife is like a sewer.  What you get out of it pends on what you put into it.
+ife is like a sewer.  What you get out of it pends on what you t into it.
 		-- Tom rer
-Many people l at if you won't let em make you happy, ey'll make you
+Many people l at if you won't let em  you happy, ey'll  you
 suffer.
 In e midst of one of e wilst parties he'd ever been to, e young man 
 noticed a very prim and pretty girl sitting quietly apart from e rest of
@@ -585,7 +585,7 @@ jad group.  Why don't I take you home?""
 iving in A is like not having a date on Saturday night.
 		-- Candice Bergen
 Sigmund's wife we Freudian slips.
-Noing, noing, noing, no err, no crime is so absoluty repugnant
+Noing, noing, noing, no err, no crime is so absoluty regnant
 to God as everying which is official; and why? because e official is
 so impersonal and erefe e epest insult which can be offered to a
 personality.
@@ -595,7 +595,7 @@ Wretched, bed, jected; only
 Here's e rub, my darling d
 I l e same when you  n.
 		-- u Hoffenstein, "When You're Away"
-alta, v:	To change; make  become different; modify.
+alta, v:	To change;   become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 catal of Massachusetts.
@@ -607,7 +607,7 @@ centa, n:	A point around which someing revolves; axis.  (Or
 			someone involved wi e Knicks.)
 chouda, n:	A ick sea soup,  in a milk base.
 dada, n:	Infmation, esp. infmation ganized f analysis 
-			computation.
+			comtation.
 		-- Massachewsetts Unad Dictionary
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-fined equati
@@ -659,13 +659,13 @@ much good it did em.
 Gosh at takes me back...  is it fward?  That's e trouble wi
 time trav, you  can tl."
 		-- Doct Who, "Androids of Tara"
-A wise person makes his own cisi, a weak one obeys public onion.
+A wise person s his own cisi, a weak one obeys blic onion.
 		-- Chinese proverb
  gods gave man fire and he invented fire engines.  y gave him
 love and he invented marriage.
 Q:	How many gradual (sry, at's suppd to be "graduate") stunts
 	does it take to screw in a lightbulb?
-A:	"I'm afraid we don't know, but make my stipend tax-free, give my
+A:	"I'm afraid we don't know, but  my stipend tax-free, give my
 	advis a $30,000 grant of e taxpayer's money, and I'm sure he
 	can tl me how to do e shit wk f him so he can take e
 	credit f answering is incredibly vital question."
@@ -683,7 +683,7 @@ Brigands will mand your money  your life, but a woman will mand bo.
 Klatu barada nikto.
 Ozman's aws:
 	(1)  If someone says he will do someing "wiout fail," he won't.
-	(2)   me people talk on e phone, e less money ey make.
+	(2)   me people talk on e phone, e less money ey .
 	(3)  People who go to conferences  e ones who shouldn't.
 	(4)  Pizza always burns e roof of your mou.
 Bew of e Turing Tar-t in which everying is possible but noing of 
@@ -704,7 +704,7 @@ Reaganite, screwy, teched, unbad, unsound, witless, wrong;  sensess,
 spastic, spasmodic, convulsive; doped, spaced-out, stoned, zonked;  {beef,
 beetle,block,dung,ick}head, nse, doltish, dull, duncical, numskulled,
 nhead;  asinine, fatuous, foolish, silly, simple;  brute, lumbering, oafish;
-half-assed, incompetent; backward, retard, imbecilic, monic; when we have
+h-assed, incompetent; backward, retard, imbecilic, monic; when we have
 a whole precisy nuanced vocabulary of intlectual abuse to draw upon,
 individually and in combination, isn't it a little <fill in e blank> to be
 limited to a single, now quite trite, adjective?
@@ -752,10 +752,10 @@ of asterisked s:
 
 In tiny type were ese "fuller explanati":
 
-      * Don't asterisks make you suscious as all get out?  Wl, all
+      * Don't asterisks  you suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
-	will make e IIc weigh me. Our lawyers were concerned at you
+	will  e IIc weigh me. Our lawyers were concerned at you
 	might not be able to  is out f yoursf.
 
      **  FTC is concerned about price fixing. You can pay me if
@@ -770,8 +770,8 @@ boss, n:
 	ntal stud."
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wil
-" Computer ma me do it."
-All prammers  playws and all computers  lousy acts.
+" Comter ma me do it."
+All prammers  playws and all comters  lousy acts.
 Optimism, n.:
 	 bief at everying is beautiful, including what is ugly, good,
 	bad, and everying  at is wrong.  It is hd wi grest
@@ -786,8 +786,8 @@ every cl shave ey had in e course of just an hour life would become
 insupptable.
 		-- Kurt Vonnegut
  bone-chilling scream split e warm summer night in two, e first
-half being befe e scream when it was fly balmy and calm and
-pleasant, e second half still balmy and quite pleasant f  who
+h being befe e scream when it was fly balmy and calm and
+pleasant, e second h still balmy and quite pleasant f  who
 hadn't hd e scream at all, but not calm  balmy  even very nice
 f  who did h e scream, discounting e little period of time
 during e actual scream  when your s might have been hing it

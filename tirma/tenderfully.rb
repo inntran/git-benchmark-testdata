@@ -11,7 +11,7 @@ There must be at least 500,000,000 rats in the United States; of course,
 I never heard the story before.
 The best way to preserve a right is to exercise it, and the right to
 smoke is a right worth dying for.
-Just about every computer on the market today runs Unix, except the Mac
+Just about every comter on the market today runs Unix, except the Mac
 (and nobody cares about it).
 		-- Bill Joy 6/21/85
 I'd rather have two girls at 21 each than one girl at 42.
@@ -77,7 +77,7 @@ One day this guy is finally fed up with his middle-class existence and
 cis to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
 way mathematically of guaranteeing winning at the race track?  We could
-make a lot of money and retire and enjoy life."  The mathematician thinks
+ a lot of money and retire and enjoy life."  The mathematician thinks
 this over a bit and walks  mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
 success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
@@ -105,20 +105,20 @@ suggest he go shopping for a used 427 Shelby-Cobra.  But it is only
 fair to warn you that of the 300 guys who switched to them in 1966,
 only two went back to women.
 		-- Mort Sahl
-Eat drink and be merry, for tomorrow they may make it illegal.
+Eat drink and be merry, for tomorrow they may  it illegal.
 The difference between a le and a Fact is exactly the difference
 between a mermaid and a seal.
 		-- Mark Twain
-"It's not just a computer -- it's your ass."
+"It's not just a comter -- it's your ass."
 -- Cal Keegan
 Women are not much, but they are the best other sex we have.
 		-- Herold
 travel, n.:
-	Something that makes you feel like you're getting somewhere.
+	Something that s you feel like you're getting somewhere.
 Horse sense is the thing a horse has which keeps it from betting on people.
 		-- W. C. Fields
-America was discovered by Amerigo Vespucci and was named after him, until
-people got tired of living in a place called "Vespuccia" and changed its
+America was discovered by Amerigo Vescci and was named after him, until
+people got tired of living in a place called "Vesccia" and changed its
 name to "America".
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 Quod erat monstrandum.
@@ -146,7 +146,7 @@ my own programs.
 'Tis the dream of each programmer,
 Before his life is done,
 To write three lines of APL,
-And make the damn things run.
+And  the damn things run.
 It's a lot of fun being alive ... I wonr if my bed is ma?!?
 You must inclu all income you receive in the form of money, property
 and services if it is not specifically exempt.  Report property (goods)
@@ -161,7 +161,7 @@ I own seven-eighths of all the artists in downtown Burbank!
 Nobody knows the trouble I've been.
 Only someone with nothing to be sorry for smiles back at the rear of an
 elephant.
-Whom the mad would stroy, first they make Gods.
+Whom the mad would stroy, first they  Gods.
 		-- Bernard Levin
 Dear Emily:
 	Today I posted an article and forgot to inclu my signature.
@@ -215,7 +215,7 @@ Shah, shah!  Ayatollah you so!
 There is no such thing as fortune.  Try again.
 You can't hold a man down without staying down with him.
 		-- Booker T. Washington
-What is the difference between a Turing machine and the morn computer?
+What is the difference between a Turing machine and the morn comter?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its peak.
 	"I suppose you expect me to talk."
@@ -239,19 +239,19 @@ There is no likelihood man can ever tap the power of the atom.
 		-- Robert Millikan, Nobel Prize in Physics, 1923
 3M, unr the Scotch brand name, manufactures a fine adhesive for art
 and display work.  This product is called "Craft Mount".  3M suggests
-that to obtain the best results, one should make the bond "while the
+that to obtain the best results, one should  the bond "while the
 adhesive is wet, aggressively tacky."  I did not know what "aggressively
 tacky" meant until I read today's fortune.
 
 		[And who said we didn't offer equal time, huh? Ed.]
-Given sufficient time, what you put off doing today will get done by itself.
+Given sufficient time, what you t off doing today will get done by itself.
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
 of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
 belief system is a subject long ago ridiculed and reviled.  We're aling with
 beliefs that go back to the ancient Babylonians.  There's nothing there....
 It sounds a lot like science, it sounds like astronomy.  It's got technical
-terms.  It's got jargon.  It confuses the public....The astrologer is quite
-glib, confuses the public, uses terms which come from science, come from
+terms.  It's got jargon.  It confuses the blic....The astrologer is quite
+glib, confuses the blic, uses terms which come from science, come from
 metaphysics, come from a host of fields, but they really mean nothing.  The
 fact is that astrological beliefs go back at least 2,500 years.  Now that
 should be a sufficiently long time for astrologers to prove their case.  They
@@ -342,7 +342,7 @@ barely presentable.
 Don't everyone thank me at once!
 		-- Han Solo
 "Athens built the Acropolis.  Corinth was a commercial city, interested in
-purely materialistic things.  Today we admire Athens, visit it, preserve the
+rely materialistic things.  Today we admire Athens, visit it, preserve the
 old temples, yet we hardly ever set foot in Corinth."
 - Dr. Harold Urey, Nobel Laureate in chemistry
 WRONG!
@@ -358,22 +358,22 @@ QOTD:
 	"When she hauled ass, it took three trips."
 My pants just went to high school in the Carlsbad Caverns!!!
 Turnaucka's Law:
-	The attention span of a computer is only as long as its
+	The attention span of a comter is only as long as its
 	electrical cord.
 Always remember that you are unique.  Just like everyone else.
-Two wrongs don't make a right, but three lefts do.
+Two wrongs don't  a right, but three lefts do.
 You seek to shield those you love and you like the role of the provir.
 'Twas bullig, and the slithy brokers
 Did buy and gamble in the craze		"Beware the Jabberstock, my son!
 All rosy were the Dow Jones stokers	The cost that bites, the worth
 By market's wrath unphased.			that falls!
 					Beware the Econ'mist's word, and shun
-He took his forecast sword in hand:	The spurious Street o' Walls!"
+He took his forecast sword in hand:	The srious Street o' Walls!"
 Long time the Boesk'some foe he sought -
 Sake's liquidity, so d'vested he,	And as in bearish thought he stood
 And stood awhile in thought.		The Jabberstock, with clothes of tweed,
 					Came waffling with the truth too good,
-Chip Black! Chip Blue! And through	And yuppied great with greed!
+Chip Black! Chip Blue! And through	And yup great with greed!
 	and through
 The forecast bla went snicker-snack!	"And hast thou slain the Jabberstock?
 It bit the dirt, and with its shirt,	Come to my firm,  V.P.ish  boy!
@@ -426,7 +426,7 @@ to act in accordance with the dictates of reason.
 		-- Oscar Wil
 That government is best which governs least.
 		-- Henry David Thoreau, "Civil Disobedience"
-You can't have everything.  Where would you put it?
+You can't have everything.  Where would you t it?
 		-- Steven Wright
 All I can think of is a platter of organic PRUNE CRISPS being trampled
 by an army of swarthy, Italian LOUNGE SINGERS ...
@@ -484,7 +484,7 @@ the mark of a mature man is that he wants to live humbly for one."
 	(d) floor it.
 
 The correct answer is (d). If you said (c), you were almost right, so
-give yourself a half point.
+give yourself a h point.
 You are always doing something marginal when the boss drops by your sk.
 World War III?  No thanks!
 "Eat, drink, and be merry, for tomorrow you may work."
@@ -497,7 +497,7 @@ their vats, no rules, no schools, no gloom, no evil influence of the
 moon, no trouble from matter or antimatter -- for they had a machine, a
 dream of a machine, with springs and gears and perfect in every respect.
 And they lived with it, and on it, and unr it, and insi it, for it
-was all they had -- first they saved up all their atoms, then they put
+was all they had -- first they saved up all their atoms, then they t
 them all together, and if one didn't fit, why they chipped at it a bit,
 and everything was just fine ...
 		-- Stanislaw Lem, "Cyberiad"
@@ -521,7 +521,7 @@ Ours is a world of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
 You can write a small letter to Grandma in the filename.
 		-- Forbes Burkowski, CS, University of Washington
-Ticking  the moments that make up a dull day
+Ticking  the moments that  up a dull day
 Fritter and waste the hours in an offhand way
 Kicking around on a piece of ground in your hometown
 Waiting for someone or something to show you the way
@@ -540,7 +540,7 @@ Every year is getting shorter		Hanging on in quiet speration
 						is the English way
 Never seem to find the time		The time is gone, the song is over
 Plans that either come to nought	Thought I'd something more to say...
-Or half a page of scribbled lines
+Or h a page of scribbled lines
 		-- Pink Floyd, "Time"
 Till then we shall be content to admit openly, what you (religionists)
 whisper unr your breath or hi in technical jargon, that the ancient
@@ -584,11 +584,11 @@ and nobody wants to read.
 "Seed me, Seymour"
 -- a random number generator meets the big green mother from outer space
 Love is never asking why?
-3rd Law of Computing:
+3rd Law of Comting:
 	Anything that can go wr
 fortune: Segmentation violation -- Core dumped
 Flattery will get you everywhere.
-Haste makes waste.
+Haste s waste.
 		-- John Heywood
 I didn't believe in reincarnation in any of my other lives.  I don't see why
 I should have to believe in it in this one.
@@ -645,7 +645,7 @@ The cost of living has just gone up another dollar a quart.
 Drink Canada Dry!  You might not succeed, but it *__is* fun trying.
 A paranoid is a man who knows a little of what's going on.
 		-- William S. Burroughs
-Asked how she felt being the first woman to make a major-league team, she
+Asked how she felt being the first woman to  a major-league team, she
 said, "Like a pig in mud," or words to that effect, and then turned and
 released a squirt of tobacco juice from the wad of rum soaked plug in her
 right cheek.  She chewed a rare brand of plug called Stuff It, which she
@@ -661,9 +661,9 @@ and as he sat and chewed it tears ran down his old sunburnt cheeks and he
 couldn't talk for a while. Then he whispered, "You've been chewing this for
 two years?  God, I had no ia it was so hard to be a woman."
 		-- Garrison Keillor
-"The clergy successfully preached the doctrines of patience and pusillanimity;
+"The clergy successfully preached the doctrines of patience and sillanimity;
 the active virtues of society were discouraged; and the last res of a
-military spirit were buried in the cloister: a large portion of public and
+military spirit were buried in the cloister: a large portion of blic and
 private wealth was consecrated to the specious mands of charity and votion;
 and the soldiers' pay was lavished on the useless multitus of both sexes
 who could only plead the merits of abstinence and chastity."
@@ -674,11 +674,11 @@ is one of them.
 He who knows not and knows that he knows not is ignorant.  Teach him.
 He who knows not and knows not that he knows not is a fool.  Shun him.
 He who knows and knows not that he knows is asleep.  Wake him.
-	Well, punk is kind of anti-ethical, anyway.  Its ethics, so to speak,
+	Well, nk is kind of anti-ethical, anyway.  Its ethics, so to speak,
 inclu a disdain for ethics in general.  If you have to think about some-
 thing so hard, then it's bullshit anyway; that's the ia.  Punks are anti-
 ismists, to coin a term.  But nonetheless, they have a pretty clearly fined
-stance and ie, and THAT is what we hang the term `punk' on.
+stance and ie, and THAT is what we hang the term `nk' on.
 -- Jeff G. Bone
 Perhaps, after all, America never has been discovered.  I myself would
 say that it had merely been tected.
@@ -708,7 +708,7 @@ So I'm ugly.  So what?  I never saw anyone hit with his face.
 		-- Yogi Berra
 In arguing that current theories of brain function cast suspicion on ESP,
 psychokinesis, reincarnation, and so on, I am frequently challenged with
-the most popular of all neuro-mythologies -- the notion that we ordinarily
+the most polar of all neuro-mythologies -- the notion that we ordinarily
 use only 10 percent of our brains...
 
 This "cerebral spare tire" concept continues to nourish the clientele of
@@ -736,7 +736,7 @@ My religion consists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight tails we are able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
-I'm all for computer dating, but I wouldn't want one to marry my sister.
+I'm all for comter dating, but I wouldn't want one to marry my sister.
 You know how to win a victory, Hannibal, but not how to use it.
 		-- Maharbal
 The ia of male and female are universal constants.
@@ -761,8 +761,8 @@ The flow chart is a most thoroughly oversold piece of program documentation.
 		-- Frerick Brooks, "The Mythical Man Month"
 Reformed, n.:
 	A synagogue that closes for the Jewish holidays.
-BE ALOOF!  (There has been a recent population explosion of lerts.)
-Nature makes boys and girls lovely to look upon so they can be
+BE ALOOF!  (There has been a recent polation explosion of lerts.)
+Nature s boys and girls lovely to look upon so they can be
 tolerated until they acquire some sense.
 		-- William Phelps
 "It might help if we ran the MBA's out of Washington."
@@ -770,7 +770,7 @@ tolerated until they acquire some sense.
 	We have some absolutely irrefutable statistics to show exactly why
 you are so tired.
 	There are not as many people actually working as you may have thought.
-	The population of this country is 200 million.  84 million are over
+	The polation of this country is 200 million.  84 million are over
 60 years of age, which leaves 116 million to do the work.  People unr 20
 years of age total 75 million, which leaves 41 million to do the work.
 	There are 22 million who are employed by the government, which leaves
@@ -785,10 +785,10 @@ Do not sleep in a eucalyptus tree tonight.
 Abraham Lincoln didn't die in vain.  He died in Washington, D.C.
 You can bear anything if it isn't your own fault.
 		-- Katharine Fullerton Gerould
-Marriage is a ghastly public confession of a strictly private intention.
+Marriage is a ghastly blic confession of a strictly private intention.
 Karl's version of Parkinson's Law:  Work expands to exceed the time alloted it.
 "There was no difference between the behavior of a god and the operations of
-pure chance..."
+re chance..."
 -- Thomas Pynchon, _Gravity's Rainbow_
 The Army needs lears the way a foot needs a big toe.
 		-- Bill Murray
@@ -817,10 +817,10 @@ living apart.
 		-- e. e. cummings
 telepression, n.:
 	The ep-seated guilt which stems from knowing that you did not try
-	hard enough to look up the number on your own and instead put the
+	hard enough to look up the number on your own and instead t the
 	burn on the directory assistant.
 		-- "Sniglets", Rich Hall & Friends
-Computers don't actually think.
+Comters don't actually think.
 	You just think they think.
 		(We think.)
 The following statement is not true.  The previous statement is true.
@@ -836,7 +836,7 @@ just stay at your home directory
 and let all processes take their course.
 H:	If a 'GOBLIN (HOB) waylays you,
 	Slice him up before he slays you.
-	Nothing makes you look a slob
+	Nothing s you look a slob
 	Like running from a HOB'LIN (GOB).
 		-- The Roguelet's ABC
 Humor in the Court:

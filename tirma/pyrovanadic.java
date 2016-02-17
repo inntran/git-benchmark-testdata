@@ -32,7 +32,7 @@ intelligence long enough to get money from it.
 Truth has no special time of its own.  Its hour is now -- always.
 		-- Albert Schweitzer
 Men love to wonr, and that is the seed of science.
-The person you rejected yesterday could make you happy, if you say yes.
+The person you rejected yesterday could  you happy, if you say yes.
 Life is an exciting business, and most exciting when it is lived for others.
 Start the day with a smile.  After that you can be your nasty old self again.
 When the revolution comes, count your change.
@@ -66,7 +66,7 @@ such difficult conditions.
 		-- Laurence J. Peter
 People love high ials, but they got to be about 33-percent plausible.
 		-- The Best of Will Rogers
-It is impossible to make anything foolproof because fools  so ingenious.
+It is impossible to  anything foolproof because fools  so ingenious.
 Rear, supp you were an idiot.  And supp you were a member of
 Congress.  But I repeat myself.
 		-- Mark Twain
@@ -105,7 +105,7 @@ Life only mands from you the strength you possess.
 Only one feat is possible -- not to have run .
 		-- Dag Hammarskjold
 Succumb to natural tenncies.  Be hateful and boring.
-Has anyone realized that the purp of the fortune cookie program is to
+Has anyone realized that the rp of the fortune cookie program is to
 fuse project tensions?  When did you ever see a cheerful cookie, a
 non-cynical, or even an informative cookie?
 	Perhaps inadvertently, we have a channel for our aggressions.  This
@@ -123,14 +123,14 @@ the sun; there's a large meteor blocking transmission; someone load Star
 Trek 3.2 into our vio processor.
 	Excellence is THE trend of the '80s.  Walk into any shopping
 mall bookstore, go to the rack where they keep the best-sellers such as
-"Garfield Gets Spayed", and you'll see a half-dozen books telling you
+"Garfield Gets Spayed", and you'll see a h-dozen books telling you
 how to be excellent: "In Search of Excellence", "Finding Excellence",
 "Grasping Hold of Excellence", "Where to Hi Your Excellence at Night
 So the Cleaning Personnel Don't Steal It", etc.
 		-- Dave Barry, "In Search of Excellence"
 We  anthill men upon an anthill world.
 		-- Ray Bradbury
-It's currently a problem of access to gigabits through punybaud.
+It's currently a problem of access to gigabits through nybaud.
 -- J. C. R. Licklir
 Some circumstantial evince is very strong, as when you find a trout in
 the milk.
@@ -141,10 +141,10 @@ Life is an exciting business, and most exciting when it is lived for others.
 Since aerosols  forbidn, the police  using roll-on Mace!
 Must I hold a candle to my shames?
 		-- William Shakespe, "The Merchant of Venice"
-When you try to make an impression, the chances  that is the
-impression you will make.
+When you try to  an impression, the chances  that is the
+impression you will .
 TeX is potentially the most sigant invention in typesetting in this
-century.  It introduces a standard language for computer typography, and in
+century.  It introduces a standard language for comter typography, and in
 terms of importance could rank near the introduction of the Gutenberg press.
 		-- Gordon Bell
 To lead people, you must follow behind.

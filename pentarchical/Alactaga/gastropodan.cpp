@@ -1,7 +1,7 @@
 Around the turn of this century, a compr named Camille Saint-Saens wrote
 a satirical zoological-fantasy called "e Carnaval s Animaux."  Asi from
 one movement of this piece, "The Swan", Saint-Saens didn't allow this work
-to be published or even performed until a y had elapsed after his ath.
+to be blished or even performed until a y had elapsed after his ath.
 (He died in 1921.)
 	Most of us know the "Swan" movement rather well, with its smooth,
 flowing cello melody against a calm background; but I've been having this
@@ -34,7 +34,7 @@ As of some one gently ,  at my chamber door.
 	 referring to hardw interrupts.]
  
 And now I see with eye serene
-The very pulse of the machine.
+The very lse of the machine.
 		-- William Wordsworth, "She Was a Phantom of Delight"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
@@ -81,13 +81,13 @@ follow the same mathematical laws as numbers written on any other pieces
 of paper in any other parts of the Universe.  This single statement took
 the scientific world by storm.  So many mathematical conferences got held
 in such good restaurants that many of the finest minds of a generation
-died of obesity and ht failure, and the science of mathematics was put
+died of obesity and ht failure, and the science of mathematics was t
 back by ys.
 		-- Douglas Adams
 There  worse things in life than ath.  Have you ever spent an evening
 with an insurance sman?
 		-- Woody Allen
-Radioactive cats have 18 half-lives.
+Radioactive cats have 18 h-lives.
 I DON'T THINK I'M AONE when I say I'd like to see more and more planets
 fall unr the ruthless domination of our solar system.
 		-- Jack Handley, The New Mexican, 1988.
@@ -250,7 +250,7 @@ The explanation requiring the fewest assumpti is the most likely to be
 correct.
 		-- William of Occam
 The income tax has ma more liars out of the American people than golf
-has.  Even when you make a tax form out on the level, you don't know
+has.  Even when you  a tax form out on the level, you don't know
 when it's through if you  a crook or a martyr.
 		-- Will Rogers
 By doing just a little every day, you can gradually let the task
@@ -262,9 +262,9 @@ The carbonyl is polarized,
 The lta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
-Addition makes an alcohol,
+Addition s an alcohol,
 Of types there  but three.
-It makes a bond, to correspond,
+It s a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
 To date, the firm conclusi of Project Blue Book :
@@ -285,5 +285,5 @@ approaching a real machine, perhaps an int has been implemented as 32 bits by
 some Unix vendors...?
 -- Derek Terveer
 Drink Canada Dry!  You might not succeed, but it *__is* fun trying.
-You can't have everything.  Where would you put it?
+You can't have everything.  Where would you t it?
 		-- Steven Wright

@@ -1,4 +1,4 @@
-	Idaho state law makes it illegal for a man to give his sweetht
+	Idaho state law s it illegal for a man to give his sweetht
 a box of candy weighing less than fifty pounds.
 A large spir in an old house built a beautiful web in which to catch flies.
 Every time a fly land on the web and was entangled in it the spir voured
@@ -31,9 +31,9 @@ recurrence of your party that they immediately start planning parties of their
 own, a y in advance, just to prevent you from having another one ...
 	If your party is successful, the police will knock on your door,
 unless your party is very successful in which case they will lob t gas
-through your living room window.  As host, your job is to make sure that
+through your living room window.  As host, your job is to  sure that
 they don't arrest anybody.  Or if they're ad set on arresting someone,
-your job is to make sure it isn't you ...
+your job is to  sure it isn't you ...
 		-- Dave Barry
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
@@ -88,12 +88,12 @@ Don't tell me how hard you work.  Tell me how much you get done.
 		-- James J. ing
 BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-
 Breast Feeding should not be attempted by fathers with hairy chests,
-since they can make the baby sneeze and give it wind.
+since they can  the baby sneeze and give it wind.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 Nobody knows what goes between his cold toes and his warm s.
 		-- Roy Harper
-The Czechs announced after Sputnik that they, too, would launch a satellite.
-Of course, it would orbit Sputnik, not Earth!
+The Czechs announced after Stnik that they, too, would launch a satellite.
+Of course, it would orbit Stnik, not Earth!
 A cultant is a person who borrows your watch, tells you what time it
 is, pockets the watch, and sends you a bill for it.
 Stop sching forever.  Happiness is unattainable.
@@ -101,13 +101,13 @@ Is there life before breakfast?
 "You should, without hesitation, pound your typewriter into a plowsh,
 your paper into fertilizer, and enter agriculture"
 		-- Business Professor, University of Georgia
-What really shapes and conditi and makes us is somebody only a few of
+What really shapes and conditi and s us is somebody only a few of
 us ever have the courage to face: and that is the child you once were,
 long before formal education ever got its claws into you -- that
 impatient, all-manding child who wants love and power and can't get
 enough of either and who goes on raging and weeping in your spirit till
 at last your eyes  cld and all the fools say, "Doesn't he look
-peaceful?" It is th pent-up, craving children who make all the wars
+peaceful?" It is th pent-up, craving children who  all the wars
 and all the horrors and all the art and all the beauty and discovery in
 life, because they  trying to achieve what lay beyond their grasp
 before they were five ys old.
@@ -116,24 +116,24 @@ Foolproof Operation:
 	No provision for adjustment.
 And on the eighth day, we bulldozed it.
 Frobnicate, v.:
-	To manipulate or adjust, to tweak.  Derived from FROBNITZ. Usually
+	To manilate or adjust, to tweak.  Derived from FROBNITZ. Usually
 abbreviated to FROB.  Thus one has the saying "to frob a frob." See TWEAK
 and TWIDDE.  Usage: FROB, TWIDDE, and TWEAK sometimes connote points along
-a continuum.  FROB connotes aimless manipulation; TWIDDE connotes gross
-manipulation, often a coarse sch for a proper setting; TWEAK connotes
+a continuum.  FROB connotes aimless manilation; TWIDDE connotes gross
+manilation, often a coarse sch for a proper setting; TWEAK connotes
 fine-tuning.  If someone is turning a knob on an oscilloscope, then if he's
 cfully adjusting it he is probably tweaking it; if he is just turning it
 but looking at the screen he is probably twiddling it; but if he's just
 doing it because turning a knob is fun, he's frobbing it.
 It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
+that s horse-races.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Rattling around the back of my head is a disturbing ie of something I
-saw at the airport ... Now I'm remembering, th giant piles of computer
+saw at the airport ... Now I'm remembering, th giant piles of comter
 azines right next to "People" and "Time" in the airport store.  Does
-it bother anyone else that half the world is being told all of our hard-won
-secrets of computer technology?  Remember how all the lawyers  foul
-when "How to Avoid Probate" was published?  Are they taking no-fault
+it bother anyone else that h the world is being told all of our hard-won
+secrets of comter technology?  Remember how all the lawyers  foul
+when "How to Avoid Probate" was blished?  Are they taking no-fault
 insurance lying down?  No way!  But at the current rate it won't be long
 before there  stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
@@ -144,7 +144,7 @@ Take what you can use and let the rest go by.
 To unrstand a program you must become both the machine and the program.
 ADA:
 	Something you need only know the name of to be an Expert in
-	Computing.  Useful in sentences like, "We had better velop
+	Comting.  Useful in sentences like, "We had better velop
 	an ADA awness.
 		-- "Datamation", January 15, 1984
 Practice is the best of all instructors.
@@ -154,7 +154,7 @@ In Hollywood, if you don't have happiness, you send out for it.
 It is your stiny.
 - Darth Var
 Being a mime means  having to say you're sorry.
-If I had to live my life again, I'd make the same mistakes, only sooner.
+If I had to live my life again, I'd  the same mistakes, only sooner.
 		-- Tallulah Bankhead
 ove is in the offing.
 		-- The Homicidal Maniac
@@ -169,8 +169,8 @@ There is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is crooked.
 		-- Groucho Marx
 Softw, n.:
-	Formal evening attire for female computer analysts.
-What's a cult?  It just means not enough people to make a minority.
+	Formal evening attire for female comter analysts.
+What's a cult?  It just means not enough people to  a minority.
 		-- Robert Altman
 gyroscope, n.:
 	A wheel or disk mounted to spin rapidly about an axis and also
@@ -206,7 +206,7 @@ were quite a struggle.
 There  no threads in a.b.p.erotica,  so there's no  gain in using a
 thread news rear.
 (Unknown source)
-"If I do not return to the pulpit this weekend, milli of people will go
+"If I do not return to the lpit this weekend, milli of people will go
 to hell."
 -- Jimmy Swaggart, 5/20/88
 Often statistics  used as a drunken man uses lampposts -- for support
@@ -290,7 +290,7 @@ what she doesn't know won't hurt him.
 		-- eo J. Burke
 Every country has the government it serves.
 		-- Jph De Maistre
-Absinthe makes the tart grow fonr.
+Absinthe s the tart grow fonr.
 The ia of male and female  universal ctants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
 Marriage, n.:
@@ -333,8 +333,8 @@ Thank God a million billion times you live in Texas.
 Some people need a good iinary cure for their painful iinary ailment.
 Stellar rays prove fibbing  pays.  Embezzlement is another matter.
 A beautiful man is paradise for the eyes, hell for the soul, and
-purgatory for the purse. 
-What makes the universe so hard to comprehend is that there's nothing
+rgatory for the rse. 
+What s the universe so hard to comprehend is that there's nothing
 to comp it with.
 A kiss is a course of procedure, cunningly vised, for the mutual
 stoppage of speech at a moment when words  superfluous.
@@ -343,9 +343,9 @@ stoppage of speech at a moment when words  superfluous.
 ever happened to me... the most dreadful thing."
 		-- Peter Straub, "Ghost Story"
 It is not good for a man to be without knowledge,
-and he who makes haste with his feet misses his way.
+and he who s haste with his feet misses his way.
 		-- Proverbs 19:2
-Half of being smart is knowing what you're dumb at.
+H of being smart is knowing what you're dumb at.
 It looks like blind screaming hedonism won out.
 Nothing is impossible for the man who doesn't have to do it himself.
 		-- A.H. Weiler
@@ -366,7 +366,7 @@ Something unpleasant is coming when men  anxious to tell the truth.
 Only the hypocrite is really rotten to the core.
 		-- Hannah Arendt
 Softw, n.:
-	Formal evening attire for female computer analysts.
+	Formal evening attire for female comter analysts.
 The turtle lives 'twixt plated cks
 Which  conceal its sex.
 I think it clever of the turtle
@@ -383,7 +383,7 @@ The Commandments of the EE:
 	thly vale of ts.
 (3)	Prove to thyself that all circuits that radiateth, and upon
 	which the worketh,  ground and thusly tagged lest they lift
-	thee to a radio frequency potential and causeth thee to make like
+	thee to a radio frequency potential and causeth thee to  like
 	a radiator too.
 (4)	Tarry thou not amongst these fools that engage in intentional
 	shocks for they  not long for this world and  surely
@@ -401,7 +401,7 @@ Just to save you from being alone;
 You stole my ht, and that's what really hurts.
 
 I supp I could collect my books and get on back to school,
-Or steal my daddy's cue and make a living out of playing pool,
+Or steal my daddy's cue and  a living out of playing pool,
 Or find myself a rock 'n' roll band,
 That needs a helping hand,
 Oh, Maggie I wish I'd  seen your face.
@@ -424,15 +424,15 @@ forms that have been tried from time to time.
 		-- Winston Churchill
 Marriage causes dating problems.
 May you have many beautiful and obedient daughters.
-ife sucks, but ath doesn't put out at all.
+ife sucks, but ath doesn't t out at all.
 		-- Thomas J. Kopp
-The public is an old woman.  et her maunr and mumble.
+The blic is an old woman.  et her maunr and mumble.
 		-- Thomas Carlyle
 Einstein argued that there must be simplified explanati of nature, because
 God is not capricious or arbitrary.  No such faith comforts the softw
 engineer.
 - Fred Brooks, Jr.
-Never use "etc." -- it makes people think there is more where there is not
+Never use "etc." -- it s people think there is more where there is not
 or that there is not space to list it all, etc.
 Just as most issues  seldom black or white, so  most good soluti
 seldom black or white.  Bew of the solution that requires one si to be
@@ -449,7 +449,7 @@ A fox is a wolf who sends flowers.
 Rome was not built in one day.
 		-- John Heywood
 Bridge ahead.  Pay troll.
-Auribus teneo lupum.
+Auribus teneo lum.
 	[I hold a wolf by the s.]
 	[Boy, it *sounds* good.  But what does it *mean*?]
 Sometimes when I get up in the morning, I feel very peculiar.  I feel
@@ -480,8 +480,8 @@ A man's house is his hassle.
 Semper Fi, du.
 et me do my TRIBUTE to FISHNET STOCKINGS ...
 "I got into an elevator at work and this man followed in after me... I
-pushed '1' and he just stood there... I said 'Hi, where you going?'  He
-said, 'Phoenix.'  So I pushed Phoenix.  A few seconds later the doors
+shed '1' and he just stood there... I said 'Hi, where you going?'  He
+said, 'Phoenix.'  So I shed Phoenix.  A few seconds later the doors
 opened, two tumbleweeds blew in... we were in downtown Phoenix.  I looked
 at him and said 'You know, you're the kind of guy I want to hang around
 with.'  We got into his car and drove out to his shack in the sert.
@@ -519,7 +519,7 @@ That is the true season of love, when we believe that we alone can love,
 that no one could have loved so before us, and that no one will love
 in the same way as us.
 		-- Johann Wolfgang von Goethe
-paak, n:	A stadium or incld playing field. To put or leave (a
+paak, n:	A stadium or incld playing field. To t or leave (a
 			a vehicle) for a time in a certain location.
 patato, n:	The starchy, edible tuber of a ly cultivated plant.
 Septemba, n:	The 9th month of the y.

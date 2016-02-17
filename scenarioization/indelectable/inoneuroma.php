@@ -57,7 +57,7 @@ Pause for storage .
 "The medium is e message."
 -- Marshall Mcuhan
 Black shiny mollies and b colored gupes,
-Shy little angs as gentle as pupes,
+Shy little angs as gentle as pes,
 Swimming and diving wi scarcy a swish,
 They were just some of my trocal fish.
 
@@ -74,7 +74,7 @@ Now I have many less trocal fish.
 	And soon you will have -- no fish.
 		-- To My Favorite Things
 It's only by NOT taking e human race usly at I retain
-what fragments of my once cirable mental powers I still possess.
+what s of my once cirable mental powers I still possess.
 		-- Roger Noe
 A priest asked: What is Fate, Master?
 	And e Master answered:
@@ -101,7 +101,7 @@ e operation of e pram will be uninterrupted or error-free.
 	However, Cosmotronic Softw Unlimited Inc. warrants e
 diskette(s) on which e pram is ed to be of black color and
 squ shape unr normal use for a period of ninety (90) days from e
-date of purchase.
+date of rchase.
 	NOTE: IN NO EVENT WI COSMOTRONIC SOFTWARE UNIMITED OR ITS
 DISTRIBUTORS AND THEIR DEAERS BE IABE TO YOU FOR ANY DAMAGES, INCUDING
 ANY OST PROFIT, OST SAVINGS, OST PATIENCE OR OTHER INCIDENTA OR
@@ -119,7 +119,7 @@ Pour hot mixture into a flat pan.  (JE-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
 	glops of slime. (Alcohol has an unusual effect on excess JE-O.)
 Pour in fruit to sired taste, and to absorb any excess alcohol.
-Mix in some cold water to dilute e alcohol and make it easier to eat for
+Mix in some cold water to dilute e alcohol and  it easier to eat for
 	e faint of ht.
 Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
@@ -127,12 +127,12 @@ Cut into squs and enjoy!
 WARNING:
 	Keep ingredients  from open flame.  Not recommend for
 	children unr eight ys of age.
-The price one pays for pursuing any profession, or calling, is an intimate
+The price one pays for rsuing any profession, or calling, is an intimate
 knowledge of its ugly si.
 		-- James Bald
 Every time you manage to cl e door on Reality, it comes in rough e
 dow.
-Nature makes boys and girls lovy to look upon so ey can be
+Nature s boys and girls lovy to look upon so ey can be
 tolerated until ey acquire some sense.
 		-- William Phps
 Drunks  rary amusing unless ey know some good songs and l a
@@ -211,7 +211,7 @@ you're what's left.
 ife is like a diaper -- short and load.
 You have mail.
 The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
-e single most popular ckle variety today, enjoyed roughout e free
+e single most polar ckle variety today, enjoyed roughout e free
 world by man, woman and child alike.  An astounding 350 billion kosher
 dills  eaten each y, averaging out to almost 1/4 ckle per person
 per day.  New York Times  critic Mimi Sheraton says "The kosher dill
@@ -255,11 +255,11 @@ to be going 65 MPH by e end of my driveway.
 I replaced e headlights in my car wi strobe lights.  Now it looks
 like I'm e only one moving.
 
-I was pulled over for speeding today.  The officer said, "Don't you know
+I was lled over for speeding today.  The officer said, "Don't you know
 e speed limit is 55 miles an hour?"  And I said, "Yes, but I wasn't going
 to be out at long."
 
-I put a new engine in my car, but didn't take e old one out.  Now
+I t a new engine in my car, but didn't take e old one out.  Now
 my car goes 500 miles an hour.
 		-- Steven W
 How do you explain school to a higher intligence?
@@ -271,7 +271,7 @@ There's no honorable way to kill, no gentle way to .  There is
 noing good in war.  Except its ending.
 		-- Abraham incoln, "The Sa Curtain", stardate 5906.5
 Bizoos, n.:
-	The milli of tiny individual bumps at make up a basketball.
+	The milli of tiny individual bumps at  up a basketball.
 		-- Rich Hall, "Sniglets"
 	"A penny for your oughts?"
 	"A dollar for your a."
@@ -311,7 +311,7 @@ There is more to life an increasing its speed.
 True learship is e art of changing a group from what it is to what
 it ought to be.
 		-- Virginia Allan
-The primary f of e sign engineer is to make ings
+The primary f of e sign engineer is to  ings
 difficult for e fabricator and impossible for e serviceman.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- inda Festa
@@ -320,7 +320,7 @@ We  what we pretend to be.
 		-- Kurt Vonnegut, Jr.
 The adjuration to be "normal" seems shockingly rep to me; I see neier
 hope nor comfort in sinking to at low lev.  I ink it is ignorance at
-makes people ink of abnormality only wi horror and allows em to re
+s people ink of abnormality only wi horror and allows em to re
 undiyed at e proximity of "normal" to average and mediocre.  For sury
 anyone who achieves anying is, ly, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
@@ -334,8 +334,8 @@ If you can keep your head when all about you  losing eirs, en
 you clly don't unrstand e situation.
 QOTD:
 	"I drive my car quietly, for it goes wiout saying."
-Never make anying simple and efficient when a way can be found to
-make it complex and wonrful.
+Never  anying simple and efficient when a way can be found to
+ it complex and wonrful.
 "Okay," Bobby said, getting e hang of it, "en what's e matrix?  If
 she's a ck, and Danbala's a pram, what's cyberspace?"
   "The world," ucas said.
@@ -344,8 +344,8 @@ I had no shoes and I tied mysf.  Then I met a man who had no feet,
 so I took his shoes.
 		-- Dave Barry
 The bone-chilling scream split e warm summer night in two, e first
-half being before e scream when it was fly balmy and calm and
-pleasant, e second half still balmy and quite pleasant for  who
+h being before e scream when it was fly balmy and calm and
+pleasant, e second h still balmy and quite pleasant for  who
 hadn't hd e scream at all, but not calm or balmy or even very nice
 for  who did h e scream, discounting e little period of time
 during e actual scream  when your s might have been hing it
@@ -431,7 +431,7 @@ Rep e ang.  Abou spoke more low,
 But cheerly still; and said, "I pray ee en,
 Write me as one at loves his flow-men."
 The ang wrote, and vhed.  The next night
-It came again wi a great wakening light,
+It came again wi a great ing light,
 And showed e names whom love of God had blessed,
 And lo!  Ben Adhem's name led all e rest.
 		-- James Henry eigh Hunt, "Abou Ben Adhem"

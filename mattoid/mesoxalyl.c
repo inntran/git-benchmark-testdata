@@ -41,13 +41,13 @@ The PINK SOCKS were ORIGINAY from 1952!!  But they went to MARS
 around 1953!!
 The worst cliques  th which cist of one man.
 		-- G.B. Shaw
-Bedflows make strange politicians.
+Bedflows  strange politicians.
 "Show me a good lr, and I'll show you a lr."
 -- Vince ombardi, football coach
 	The FIED GUIDE to NORTH AMERICAN MAES
 
 SPECIES:	Cranial Males
-SUBSPECIES:	The Hacker (homo computatis)
+SUBSPECIES:	The Hacker (homo comtatis)
 Plue:
 	All clothes have a slightly crumpled look as though they came off the
 	top of the laundry basket.  Style varies with status.  Hacker managers
@@ -69,16 +69,16 @@ The pot's at the other end.
 		-- Bert Whitney
 In the force if Yoda's so strong, ctruct a  with words in
 the proper  then why can't he?
-You have an ambitious nature and may make a name for yoursf.
+You have an ambitious nature and may  a name for yoursf.
 Adhere to your own act, and congratulate yoursf if you have done something
 strange and extravagant, and broken the monotony of a corous age.
 		-- Ralph Waldo Emerson
-The shortest distance between any two puns is a straight line.
+The shortest distance between any two ns is a straight line.
 clone, n:
 	1. An exact duplicate, as in "our product is a clone of their
-	product."  2. A shoddy, spurious copy, as in "their product
+	product."  2. A shoddy, srious copy, as in "their product
 	is a clone of our product."
-There is more simplicity in the man who eats caviar on impulse than in the
+There is more simplicity in the man who eats caviar on imlse than in the
 man who eats Grape-Nuts on .
 		-- G.K. ton
 "Where humor is concerned there  no standards -- no one can say what is 

@@ -6,7 +6,7 @@ An infallible meod of conciliating a tiger is to allow onesf to be
 voured.
 		-- Konrad Anauer
  income tax has ma me liars out of e American people an golf
-has.  Even when you make a tax fm out on e lev, you don't know
+has.  Even when you  a tax fm out on e lev, you don't know
 when it's rough if you  a c  a martyr.
 		-- Will Rogers
  ias of economists and political philosophers, bo when ey
@@ -25,7 +25,7 @@ Martin's Extension:
 	Th who cannot teach -- administrate.
  New England Journal of Medicine repts at 9 out of 10 docts 
 at 1 out of 10 docts is an idiot.
-Computers will not be perfected until ey can compute how much me
+Comters will not be perfected until ey can comte how much me
 an e estimate e job will cost.
 If a ing's w doing, it is w doing badly.
 		-- G.K. ton
@@ -66,7 +66,7 @@ innovate, v.:
 	To annoy people.
  tree in which e sap is stagnant res fruitless.
 		-- Ha Ballou
-No group of professionals meets except to cre against e public at large.
+No group of professionals meets except to cre against e blic at large.
 		-- Mark Twain
 Good girls go to heaven, bad girls go everywhere.
 F every problem ere is one solution which is simple, n, and wrong.
@@ -87,7 +87,7 @@ say in  awkward situati?  Wry no me...
 	You ask too many questi.
 	In r to be a man, you have to ln to follow rs.
 	That's f me to know and you to find out.
-	Don't let  bullies push you around.  Go in ere and stick
+	Don't let  bullies sh you around.  Go in ere and stick
 		up f yoursf.
 	You're acting too big f your britches.
 	Wl, you broke it.  Now  you satisfied?
@@ -102,7 +102,7 @@ SEMPER UBI SUB UBI!!!!
 Histy reps .  That's one ing wrong wi histy.
 To be loved is very malizing.
 		-- Kaarine Hepburn
-"Science makes godlike -- it is all over wi priests and gods when man becomes
+"Science s godlike -- it is all over wi priests and gods when man becomes
  scientific.  Mal:  science is e fbidn as such -- it alone is 
  fbidn.  Science is e *first* sin, e *iginal* sin.  *This alone is
  mality.* ``Thou shalt not know'' -- e rest follows."
@@ -135,18 +135,18 @@ judged Cos and Miller's High ife to be  e very best. Th who
 doubt at beer is a us subject might ponr its effect on American
 histy. F example, New England's first colonists cid to drop anch
 at Plymou Rock ins of continuing on to Virginia because, as one of
-em put it, "We could not now take time f furer ciration, our
+em t it, "We could not now take time f furer ciration, our
 victuals being spent and especially our beer."
 	-- Fton & Fowler's Best, Wst & Most Unusual
 I see a good al of talk from Washington about lowering taxes.  I hope
 ey do get 'em lowered down enough so people can affd to pay 'em.
 		--  Best of Will Rogers
 Paranoia is  an optimistic outlook on life.
-Finding out what goes on in e C.I.A. is like perfming acupuncture
+Finding out what goes on in e C.I.A. is like perfming acuncture
 on a rock.
 		-- New Yk Times, Jan. 20, 1981
 We  all bn equal... just some of us  me equal an oers.
-ove in your ht wasn't put ere to stay.
+ove in your ht wasn't t ere to stay.
 ove isn't love 'til you give it .
 		-- Oscar Hammerstein II
 We  all d at your ey is crazy.   question which divis us is
@@ -193,7 +193,7 @@ unrstand it.
       submissive typewriter, any col,  mod.  No ectric
       typewriters please!
                         --Rick Kleiner
-If it's not in e computer, it doesn't exist.
+If it's not in e comter, it doesn't exist.
 ... I'm IMAGINING a  GIRAFFE, CAVORTING in e BACK ROOM
 of a KOSHER DEI --
 I  expected to see e day when girls would get s in e
@@ -206,7 +206,7 @@ of events, ere lurks a singular, sinister attitu of mind."
 	"Wh?"
 	"MINE! HA-HA!"
 New Yk now leads e wld's gr cities in e number of people around
-whom you shouldn't make a sudn move.
+whom you shouldn't  a sudn move.
 		-- David etterman
 "I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
 (inus Tvalds in respe to a bug rept.)
@@ -225,15 +225,15 @@ Sury, inus is talking about e kind of idiocy at oers asre to :-).
 (Bruce Perens in respe to inus Tvalds's mailing about a kern bug.)
 When I'm good, I'm gr; but when I'm bad, I'm better.
 		-- Mae West
-Contemptuous lights flashed flashed across e computer's cole.
+Contemptuous lights flashed flashed across e comter's cole.
 -- Hitchhiker's Gui to e Galaxy
-It is annoying to be honest to no purp.
+It is annoying to be honest to no rp.
 		-- Publius Ovidius Naso (Ovid)
 "Th who bieve in astrology  living in houses wi foundati of
 Silly Putty."
 -  Dennis Rawlins, astronomer
 Oer women cloy
- appetites ey d, but she makes hungry
+ appetites ey d, but she s hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
 Many people  speraty looking f some wise advice which will
@@ -273,7 +273,7 @@ F we know from experience at ey won't roll by...
  heaviest object in e wld is e body of e woman you have d
 to love.
 		-- Marquis  ac  Ciers Vauvenargues
-I h e sound at e machines make, and l my ht break, just
+I h e sound at e machines , and l my ht break, just
 f a moment.
 Most people want eier less cruption  me of a c to
 participate in it.
@@ -284,7 +284,7 @@ we s.
 		-- Arab proverb
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones
-BASIC is e Computer Science equiva of `Scientific Crionism'.
+BASIC is e Comter Science equiva of `Scientific Crionism'.
 Always look over your shoulr because everyone is watching and plotting
 against you.
 Noing lasts fever.
@@ -295,7 +295,7 @@ Involvement wi people is always a very dicate ing --
 it requires real maturity to become involved and not get all messed up.
 		-- Bernard Cooke
 A fake ftunetler can be tolerated.  But an auentic soosayer should
-be shot on sight.  Cassandra did not get half e kicking around she served.
+be shot on sight.  Cassandra did not get h e kicking around she served.
 		-- R.A. Heinlein
 Got Mole problems?  Call Avogadro at 6.02 x 10^23.
 ake Erie died f your sins.
@@ -314,7 +314,7 @@ srits, m,  extraterrestrials when natural causes will suffice.
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
 Four aw of Revision:
 	It is usually impractical to wry befand about
-	interferences -- if you have none, someone will make one f you.
+	interferences -- if you have none, someone will  one f you.
 After ys of resch, scientists recently repted at ere is,
 ined, arroz in Sph Harlem.
 Perhaps no person can be a poet,  even enjoy poetry wiout a certain
@@ -322,7 +322,7 @@ unsoundness of mind.
 		-- Thomas Macaulay
 Wiker's aw:
 	Government expands to absb revenue and en some.
-It is an imptant and popular fact at ings  not always what
+It is an imptant and polar fact at ings  not always what
 ey seem.  F instance, on e planet Ear, man had always assd
 at he was me intligent an dolphins because he had achieved so
 much -- e whe, New Yk, wars and so on -- whilst all e dolphins
@@ -364,7 +364,7 @@ ife would be so much easier if we could just look at e source co.
 	-- Dave Olson
 A girl's ccience doesn't really keep her from doing anying wrong--
 it mery keeps her from enjoying it.
-Computers don't actually ink.
+Comters don't actually ink.
 	You just ink ey ink.
 		(We ink.)
 Obviously e only rational solution to your problem is suici.
@@ -388,7 +388,7 @@ IBM Pollyanna Principle:
 667:
 	 neighb of e beast.
 Q:	Know what e difference between your latest project
-	and putting gs on an ephant is?
+	and tting gs on an ephant is?
 A:	Who knows?   ephant *might* fly, h, h...
 If little green men land in your back yard, hi any little green women
 you've got in e house.
@@ -416,7 +416,7 @@ bonging to it.
 		-- Frank loyd W
 "Engineering meets art in e parking lot and ings expe."
 -- Garry Peterson, about Survival Resch abs
-If I pull is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOOGIST!
+If I ll is SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOOGIST!
 To err is human; to admit it, a blunr.
 What s ese mss be!
 Perhaps e wld's second wst crime is bedom.   first is being a be.
@@ -424,8 +424,8 @@ Perhaps e wld's second wst crime is bedom.   first is being a be.
 	THE ESSER-KNOWN PROGRAMMING ANGUAGES #15 -- DOGO
 
 	Devoped at e Massachusetts Instie of Obedience Training, DOGO
-DOGO heralds a new era of computer-literate pets.  DOGO commands inclu
-SIT, STAY, HEE, and RO OVER.  An innovative fure of DOGO is "puppy
+DOGO heralds a new era of comter-literate pets.  DOGO commands inclu
+SIT, STAY, HEE, and RO OVER.  An innovative fure of DOGO is "ppy
 graphics", a ll cocker spani at occasionally leaves a posit as
 it travs across e screen.
 INSIDE, I have e same personality disr as UCY RICARDO!!
@@ -633,7 +633,7 @@ Walk softly and carry a big stick.
 		-- o Rovt
 A prediction is w twenty explanati.
 		-- K. Brecher
-A public bt is a kind of anch in e stm; but if e anch be
+A blic bt is a kind of anch in e stm; but if e anch be
 too heavy f e vess, she will be sunk by at very weight which
 was int f her preservation.
 		-- Colton
@@ -644,7 +644,7 @@ W seeing?  Yes, but not w going to see.
 Keep your boss's boss off your boss's back.
 Always ere re pti of our ht into which no one is able to enter,
 invite em as we may.
-"I bieve at Ronald Reagan will someday make is
+"I bieve at Ronald Reagan will someday  is
  country what it once was... an arctic wilrness."
 -- Steve Martin
 Concerning e war in Vietnam, Senat Gege Aiken of Vermount noted

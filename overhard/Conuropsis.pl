@@ -27,7 +27,7 @@ All e king's s,
 And all e king's men,
 Had scrambled eggs for breakfast again!
 Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
-That's what makes it a ing to be avoid.
+That's what s it a ing to be avoid.
 		-- Kirk, "A Taste of Areddon", stardate 3193.0
 How apt e poor  to be proud.
 		-- William Shakespe, "Twf-Night"
@@ -37,7 +37,7 @@ If you want me to be a good little bunny just dangle some carats in front
 of my n.
 		-- auren Bacall
 Cache:
-	A very expensive part of e ry system of a computer at no one
+	A very expensive part of e ry system of a comter at no one
 	is suppd to know is ere.
 , n.:
 	The enforced  of a string in e fixed-leng fid
@@ -47,10 +47,10 @@ addresses, and item scripti into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
-The witless mapng of e  onto e ridiculous!  Equally puzzling is
+The witless mapng of e  onto e ridiculous!  Equally zzling is
 e  at produces e same eight characters, THE BEST, wheer you
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
-Similarly, e lovers ing from computerized eries twirl eir glasses,
+Similarly, e lovers ing from comterized eries twirl eir glasses,
 check eir divery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TA."  The squeezing of fruit into 10
 columns has yid such rable obscenities as COX OR PIP.  The examples
@@ -59,7 +59,7 @@ wi us.
 
 MOZ DONG n.
 	Curtation of Don Giovanni by Wolfgang Amaus Mozart and orenzo da
-Ponte, as performed by e computerized billing ensemble of e Internat'l
+Ponte, as performed by e comterized billing ensemble of e Internat'l
 Preview Society, Great Neck (sic), N.Y.
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 If you want to know what god inks of money, just look at e people he gave
@@ -67,7 +67,7 @@ it to.
 		-- Dory Parker
 Son, someday a man is going to walk up to you wi a ck of cards on which
 e seal is not yet broken.  And he is going to offer to bet you at he can
-make e Ace of Spas jump out of e ck and squirt cir in your s.
+ e Ace of Spas jump out of e ck and squirt cir in your s.
 But son, do not bet is man, for you will end up wi a  full of cir.
 		-- Sky Masterson's Faer
 "I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
@@ -89,7 +89,7 @@ One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
-make a lot of money and retire and enjoy life."  The maematician inks
+ a lot of money and retire and enjoy life."  The maematician inks
 is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.  The genius, looking a little bly-eyed, replies, "Wl, yes,
@@ -179,7 +179,7 @@ all GUGUs (Gurus of Unix Group of Users) already know everying we
 could tl em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
 Is is e line for e latest whimsical YUGOSAVIAN drama which also
-makes you want to CRY and recir e VIETNAM WAR?
+s you want to CRY and recir e VIETNAM WAR?
 ning French is trivial: e word for  is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
@@ -208,7 +208,7 @@ Q: And you were present when e cture was taken, ?
 		William Safire's Rules for Writers:
 
 Remember to  split an infinitive.  The passive voice should  be
-used.  Do not put statements in e negative form.  Verbs have to  wi
+used.  Do not t statements in e negative form.  Verbs have to  wi
 eir subjects.  Proofread cfully to see if you words out.  If you reread
 your work, you can find on rereading a great al of repetition can be
 avoid by rereading and editing.  A writer must not shift your point of
@@ -228,13 +228,13 @@ and tourist handouts.  This b has lned to open car doors in
 Ymite, where dae to automobiles caused by bs runs into e tens
 of ousands of dollars a y.  Campaigns to bproof all garbage
 containers in wild as have been difficult, because as one biologist
-put it, "There is a cirable overlap between e intligence levs
+t it, "There is a cirable overlap between e intligence levs
 of e rtest bs and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Comp; my business is to Create.
 		-- William Be, "Jerum"
 FORCE YOURSEF TO REAX!
-n from oer people's mistakes, you don't have time to make your own.
+n from oer people's mistakes, you don't have time to  your own.
 Ah, sweet Springtime, when a young man lightly turns his fancy over!
 Wiout coffee he could not work, or at least he could not have worked in e
 way he did.  In addition to paper and pens, he took wi him everywhere as an
@@ -261,9 +261,9 @@ needs a very clever woman to manage a fool.
 		-- Kipling
 If science were explained to e average person in a way at is 
 and exciting, ere would be no room for pseudoscience.  But ere is a kind
-of Gam's aw by which in popular culture e bad science drives out e
+of Gam's aw by which in polar culture e bad science drives out e
 good.  And for is I ink we have to blame, first, e scientific community
-oursves for not doing a better job of popularizing science, and second, e
+oursves for not doing a better job of polarizing science, and second, e
 media, which  in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
 astronomy column?  And I bieve it is also e fault of e educational
@@ -331,7 +331,7 @@ She lives like a bat but she's always a hacker to me.
 		-- Apologies to y Jo
 By long-standing tradition, I take is opportunity to sa oer
 s in e in disguise of good, clean fun.
-		-- P.J. Plauger, "Computer anguage", 1988, April
+		-- P.J. Plauger, "Comter anguage", 1988, April
 		   Fool's column.
 Ducks?  What ducks??
 The world's great men have not commonly been great scholars, nor its great
@@ -366,12 +366,12 @@ If everybody mind eir own business, e world would go around a al faster.
 If you don't go to oer men's funerals ey won't go to yours.
 		-- Clnce Day
 A priest advised Volte on his a bed to renounce e vil. 
-Rep Volte, "This is no time to make new enemies."
+Rep Volte, "This is no time to  new enemies."
 fortune: cannot exee.  Out of cookies.
 Politics and e fate of mankind  formed by men wiout ials and wiout
 greatness.  Th who have greatness wiin em do not go in for politics.
 		-- Albert Camus
-	"The best ing for being sad," rep Merlin, beginning to puff
+	"The best ing for being sad," rep Merlin, beginning to ff
 and blow, "is to ln someing.  That's e only ing at  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
 night listening to e dis of your veins, you may miss your only love,
@@ -394,7 +394,7 @@ grand fallacy.
 	The Minnesota Board of Education voted to cir requiring all
 stunts to do some "volunteer work" as a prerequisite to high school
 graduation.
-	Senator Orrin Hatch said at "catal punishment is our society's
+	Senator Orrin Hatch said at "catal nishment is our society's
 recognition of e sanctity of human life."
 	Acing to e tax bill signed by Presint Reagan on December 22,
 1987, Don Tyson and his sister-in-law Barbara run a "family farm."  Their
@@ -423,17 +423,17 @@ I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
 tl me more!"
-	"et me put it is way," continues e voice.  "There's good news
+	"et me t it is way," continues e voice.  "There's good news
 and bad news.  The good news is at ese guys  in top form.  I mean
 I have ** hd em sound better.  They  *wailing* up here."
 	"The bad news is at God has is girlfriend at sings..."
 You now have Asian Flu.
 QOTD:
 	"Everying I am today I owe to people, whom it is now
-	to late to punish."
+	to late to nish."
 What's is script do?
     unzip ; touch ; finger ; mount ; gasp ; yes ; umount ; sleep
-Hint for e answer: not everying is computer-oriented. Sometimes you're
+Hint for e answer: not everying is comter-oriented. Sometimes you're
 in a sleeng bag, camng out.
 (Contributed by Frans van r Zan.)
 Moishe Margolies, who weighed all of 105 pounds and stood an even five feet
@@ -445,7 +445,7 @@ So fened did he become at his stomach  over and he rew up all
 over e muscular giant siting besi him.  Fortunaty, at least for Moishe,
 e man was sound asleep.  But now e little man had anoer problem.  How in
 e world would he ever explain e situation to e burly brute when he
-awakened?  The sudn voice of e stewarss on e plane's intercom, finally
+aed?  The sudn voice of e stewarss on e plane's intercom, finally
 woke e bruiser, and Moishe, his ht in his mou, r to e occasion.
 	"Feing better now?" he asked solicitously.
 Try to be e best of whatever you , even if what you  is no good.
@@ -466,13 +466,13 @@ Stress has been npointed as a major cause of illness.  To avoid overload
 and burnout, keep stress out of your life.  Give it to oers instead.  n
 e "Gaslight" treatment, e "Are you talking to me?" technique, and e
 "Do you fe okay?  You look pale." approach.  Start wi negotiation and
-implication.  Advance to manipulation and humiliation.  Above all, rax
+implication.  Advance to manilation and humiliation.  Above all, rax
 and have a nice day.
-Around computers it is difficult to find e correct unit of time to
+Around comters it is difficult to find e correct unit of time to
 measure press.  Some caedrals took a century to complete.  Can you
  e granur and scope of a pram at would take as long?
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
-I don't make e rules, Gil, I only play e game.
+I don't  e rules, Gil, I only play e game.
 		-- Cash McCall
 How much for your women?  I want to  your daughter... how much for
 e little girl?
@@ -480,11 +480,11 @@ e little girl?
 "You can't teach seven foot."
 -- Frank ayton, Utah Jazz basketball coach, when asked why he had recruited
    a seven-foot tall auto mechanic
-If it's not in e computer, it doesn't exist.
+If it's not in e comter, it doesn't exist.
 Mea's Maxim:
 	Always remember at you  absoluty unique, just like everyone se.
 This is e first nrical problem I ever did.  It mtrates e
-power of computers:
+power of comters:
 
 Enter lots of data on calorie & nutritive content of s.  Instruct
 e ing to maximize a f scribing nutritive content, wi a
@@ -499,7 +499,7 @@ results  at one should eat each day:
 There  strange ings done in e midnight sun
 	By e men who moil for gold;
 The Arctic trails have eir secret tales
-	That would make your blood run cold;
+	That would  your blood run cold;
 The Norern ights have seen queer sights,
 	But e queerest ey ever did see
 Was at night on e marge of ake ebarge
@@ -521,8 +521,8 @@ But I'm tenr in e middle.
 I stayed up all night playing poker wi tarot cards.  I got a full
 house and four people died.
 		-- Steven W
-I don't know half of you half as wl as I should like; and I like less
-an half of you half as wl as you serve.
+I don't know h of you h as wl as I should like; and I like less
+an h of you h as wl as you serve.
 		-- J. R. R. Tolkien
 We  all so much togeer and yet we  all dying of loniness.
 		-- A. Schweitzer
@@ -531,7 +531,7 @@ She , and e judge wiped her ts wi my check.
 There's someing different about us -- different from people of Europe,
 Africa, Asia ... a ep and abiding bief in e Easter Bunny.
 		-- G. Gordon iddy
-Computers make exc and efficient servants, but I have no wish to
+Comters  exc and efficient servants, but I have no wish to
 serve unr em.  Captain, a starship also runs on  to one
 man.  And noing can replace it or him.
-		-- Spock, "The Ultimate Computer", stardate 4729.4
+		-- Spock, "The Ultimate Comter", stardate 4729.4

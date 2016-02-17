@@ -47,7 +47,7 @@ Though you may be thrown over by Tabby and Rover,
 You'll never go wrong with a pig, a pig,
 You'll never go wrong with a pig!
 		-- Thomas Pynchon, "Gravity's Rainbow"
-What makes you think graduate school is supposed to be satisfying?
+What s you think graduate school is supposed to be satisfying?
 		-- Erica Jong, "Fear of Flying"
 One has to look out for engineers -- they begin with sewing machines
 and end up with the atomic bomb.
@@ -135,7 +135,7 @@ I laugh so hard I almost choke		Too proud to bend
 When I think about myself.		Too poor to break,
 					I laugh until my stomach ache,
 					When I think about myself.
-My folks can make me split my side,
+My folks can  me split my side,
 I laughed so hard I nearly died,
 The tales they tell, sound just like lying,
 They grow the fruit, 
@@ -194,7 +194,7 @@ God made machine language; all the rest is the work of man.
 "Oh my!  An `inflammatory attitude' in alt.flame?  Never heard of such
 a thing..."
 -- Allen Gwinn, allen@sulaco.Sigma.COM
-If people are good only because they fear punishment, and hope for reward,
+If people are good only because they fear nishment, and hope for reward,
 then we are a sorry lot indeed.
 		-- Albert Einstein
 I met a wonderful new man.  He's fictional, but you can't have everything.
@@ -207,7 +207,7 @@ Lobster:
 	Everyone loves these delectable crustaceans, but many cooks are
 squeamish about placing them into boiling water alive, which is the only
 proper method of preparing them.  Frankly, the easiest way to eliminate your
-guilt is to establish theirs by putting them on trial before they're cooked.
+guilt is to establish theirs by tting them on trial before they're cooked.
 The fact is, lobsters are among the most ferocious predators on the sea
 floor, and you're helping reduce crime in the reefs.  Grasp the lobster
 behind the head, look it right in its unmistakably guilty eyestalks and say,
@@ -299,7 +299,7 @@ Has the great art and mystery of politics no apparent utility? Does it
 appear to be unqualifiedly ratty, raffish, sordid, obscene and low down,
 and its salient virtuosi a gang of umitigated scoundrels?  Then let us
 not forget its high capacity to soothe and tickel the midriff, its
-incomparable services as a maker of entertainment.
+incomparable services as a r of entertainment.
 		-- H.L. Mencken, "A Carnival of Buncombe"
 Nothing succeeds like the appearance of success.
 		-- Christopher Lascl
@@ -348,7 +348,7 @@ no memory, which is one of their defensive mechanisms.  If they recalled
 every close shave they had in the course of just an hour life would become
 insupportable.
 		-- Kurt Vonnegut
-Absence makes the heart grow frantic.
+Absence s the heart grow frantic.
 Adults die young.
 ...I don't care for the term 'mechanistic'. The word 'cybernetic' is a lot
 more apropos. The mechanistic world-view is falling further and further behind
@@ -359,7 +359,7 @@ He's dead, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 The savior becomes the victim.
 "I remember when I was a kid I used to come home from Sunday School and
- my mother would get drunk and try to make pancakes."
+ my mother would get drunk and try to  pancakes."
 -- George Carlin
 The trouble with some women is that they get all excited about nothing
 -- and then marry him.
@@ -385,7 +385,7 @@ We quickly turned it into code
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
 Union's valiant representation in the courts of the constitutional rights
-of people of all persuasions, no matter how unpopular or even despised
+of people of all persuasions, no matter how unpolar or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 Yow!  I just went below the poverty line!
@@ -456,11 +456,11 @@ The difference between common-sense and paranoia is that common-sense is
 thinking everyone is out to get you.  That's normal -- they are.  Paranoia
 is thinking that they're conspiring.
 		-- J. Kegler
-You are scrupulously honest, frank, and straightforward.  Therefore you
+You are scrulously honest, frank, and straightforward.  Therefore you
 have few friends.
 Real programs don't eat cache.
 In any world menu, Canada must be considered the vichyssoise of nations --
-it's cold, half-French, and difficult to stir.
+it's cold, h-French, and difficult to stir.
 		-- Stuart Keate
 A master was asked the question, "What is the Way?" by a curious monk.
 	"It is right before your eyes," said the master.
@@ -485,12 +485,12 @@ The key to building a superstar is to keep their mouth shut.  To reveal
 an artist to the people can be to destroy him.  It isn't to anyone's
 advantage to see the truth.
 		-- Bob Ezrin, rock music producer
-	A pushy romeo asked a gorgeous elevator operator, "Don't all these
+	A shy romeo asked a gorgeous elevator operator, "Don't all these
 stops and starts get you pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 If it weren't for the last minute, nothing would ever get done.
 	After the Children of Israel had wandered for thirty-nine years
-in the wilderness, Ferdinand Feghoot arrived to make sure that they would
+in the wilderness, Ferdinand Feghoot arrived to  sure that they would
 finally find and enter the Promised Land.  With him, he brought his
 favorite robot, faithful old Yewtoo Artoo, to carry his gear and do
 assorted camp chores.
@@ -540,7 +540,7 @@ he asked, "What's your IQ?"  The new arrival rep, "190".  They
 discussed Einstein's theory of relativity for hours.  When the second
 new arrival came, Einstein once again inquired as to the newcomer's
 IQ.  The answer this time came "120".  To which Einstein rep, "Tell
-me, how did the Cubs do this year?" and they proceeded to talk for half
+me, how did the Cubs do this year?" and they proceeded to talk for h
 an hour or so.  To the final arrival, Einstein once again posed the
 question, "What's your IQ?".  Upon receiving the answer "70",
 Einstein smiled and rep, "Got a minute to tell me about VMS 4.0?"
@@ -555,7 +555,7 @@ and deep blue seas in a language closely resembling that of the common sow.
 My psychosis was further impressed into my soul as I reached adolescence,
 when, while skipping through a field of yams, light-heartedly tossing flowers
 into the stratosphere, a great yam-picking machine tore through the fields,
-pursuing me to the edge of the great plantation, where I escaped by diving
+rsuing me to the edge of the great plantation, where I escaped by diving
 into a great ditch filled with a mixture of water and pig manure, which may
 explain my tendency to scream, "Here come the Martians!  Hide the eggs!" every
 time I have pork.  But I digress.  The fact res that I cannot rationally
@@ -563,7 +563,7 @@ deal with yams, and pigs are terrible conversationalists.
 UNIX is many things to many people, but it's never been everything to anybody.
 Fellow programmer, greetings!  You are reading a letter which will bring
 you luck and good fortune.  Just mail (or UUCP) ten copies of this letter
-to ten of your friends.  Before you make the copies, send a chip or
+to ten of your friends.  Before you  the copies, send a chip or
 other bit of hardware, and 100 lines of 'C' code to the first person on the
 list given at the bottom of this letter.  Then delete their name and add
 yours to the bottom of the list.
@@ -577,7 +577,7 @@ this letter and broke the chain.  Shortly thereafter, a fire broke out in
 her terminal and she now spends her days writing documentation for IBM PC's.
 
 Don't break the chain!  Send out your ten copies today!
-For example, if \thinmskip = 3mu, this makes \thickmskip = 6mu.  But if
+For example, if \thinmskip = 3mu, this s \thickmskip = 6mu.  But if
 you also want to use \skip12 for horizontal glue, whether in math mode or
 not, the amount of skipping will be in points (e.g., 6pt).  The rule is
 that glue in math mode varies with the size only when it is an \mskip;
@@ -597,7 +597,7 @@ Congratulations are in order for Tom Reid.
 He says he just found out he is the winner of the 2021 Psychic of the
 Year award.
 It follows that any commander in chief who undertakes to carry out a plan
-which he considers defective is at fault; he must put forth his reasons,
+which he considers defective is at fault; he must t forth his reasons,
 insist of the plan being changed, and finally tender his resignation rather
 than be the instrument of his army's downfall.
 		-- Napoleon, "Military Maxims and Thought"

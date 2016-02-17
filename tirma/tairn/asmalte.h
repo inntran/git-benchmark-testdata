@@ -27,10 +27,10 @@ So I went to the kitchen, but WALNUT PANELING whup me upside mah HAID!!
     (on no, no, no..  Heh, heh)
 You can fool some of the people all of the time,
 and all of the people some of the time,
-but you can make a fool of yourself anytime.
+but you can  a fool of yourself anytime.
 If two people love each other, there can be no happy end to it.
 		-- Ernest Hemingway
-Computers are unreliable, but humans are even more unreliable.
+Comters are unreliable, but humans are even more unreliable.
 Any system which depends on human reliability is unreliable.
 		-- Gilb
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #18: FIFTH
@@ -48,7 +48,7 @@ and RIPPLE. The latter is a favorite of frustrated FORTH programmers
 who end up using this language.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #14 -- VALGOL
 
-	VALGOL is enjoying a dramatic surge of popularity across the
+	VALGOL is enjoying a dramatic surge of polarity across the
 industry.  VALGOL commands include REALLY, LIKE, WELL, and Y*KNOW.
 Variables are assigned with the =LIKE and =TOTALLY operators.  Other
 operators include the "California booleans", AX and NOWAY.  Loops are
@@ -66,7 +66,7 @@ accomplished with the FOR SURE construct.  A simple example:
 	GOTO THE MALL
 
 	VALGOL is also characterized by its unfriendly error messages.  For
-example, when the user makes a syntax error, the interpreter displays the
+example, when the user s a syntax error, the interpreter displays the
 message GAG ME WITH A SPOON!  A successful compile may be termed MAXIMALLY
 AWESOME!
 Some of the most interesting documents from Sweden's middle ages are the
@@ -134,7 +134,7 @@ When there is no one else to turn to,
 	Caaaall for Super Chicken!!
 C'est nifique, mais ce n'est pas l'Informatique.
 		-- Bosquet [on seeing the IBM 4341]
-If two wrongs don't make a right, try three.
+If two wrongs don't  a right, try three.
 		-- Laurence J. Peter
 X windows:
 	Something you can be ashamed of.
@@ -148,7 +148,7 @@ X windows:
 	Never use it after a big meal.
 	Need we say less?
 	Plumbing the depths of human incompetence.
-	It'll make your day.
+	It'll  your day.
 	Don't get frustrated without it.
 	Power tools for power losers.
 	A software disaster of Biblical proportions.
@@ -166,7 +166,7 @@ we hope to restore the insult to its proper social function of expressing
 true distaste.
 		-- Judith Martin, "Miss Manners' Guide to Excruciatingly
 		   Correct Behavior"
-No one may kill a man.  Not for any purpose.  It cannot be condoned.
+No one may kill a man.  Not for any rpose.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 Hotels are tired of getting ripped off.  I checked into a hotel and they
 had towels from my house.
@@ -195,7 +195,7 @@ sharing hopes and fears that he wouldn't confide in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 ality and say something like, "You know, for someone who's such a
 jerk, I guess you're OK."
-If imprinted foil seal under cap is broken or missing when purchased, do not 
+If imprinted foil seal under cap is broken or missing when rchased, do not 
 use.
 Liar, n.:
 	A lawyer with a roving .
@@ -223,7 +223,7 @@ has made him the least sacked quarterback in the Ivy league.
 Wide Receiver:
 	The other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
-fast.  Expect to see Yip elude all pursuers and make it into the endzone five
+fast.  Expect to see Yip elude all rsuers and  it into the endzone five
 or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
 those times.

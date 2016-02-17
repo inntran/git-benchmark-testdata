@@ -4,7 +4,7 @@ job interview, n.:
 QOTD:
 	"Every morning I read the obituaries; if my name's not there,
 	I go to work."
-The first half of our lives is ruined by our parents and the second half
+The first h of our lives is ruined by our parents and the second h
 by our children.
 		-- Clarence Darrow
 Dijkstra probably hates me
@@ -35,7 +35,7 @@ A.  No, I said he was shot in the lumbar region.
 The system was down for backups from 5am to 10am last Saturday.
 		Hard Copies and Chmod
 
-And everyone thinks computers are impersonal
+And everyone thinks comters are impersonal
 cold diskdrives hardware monitors
 user-hostile software 
 
@@ -59,7 +59,7 @@ K:	Cobalt's metal, hard and shining;
 	KOBOLDS topple when you strike them;
 	Don't feel bad, it's hard to like them.
 		-- The Roguelet's ABC
-It's no use crying over spilt milk -- it only makes it salty for the cat.
+It's no use crying over spilt milk -- it only s it salty for the cat.
 The true Southern watermelon is a boon apart, and not to be mentioned with
 commoner things.  It is chief of the world's luxuries, king by the grace of God
 over all the fruits of the earth.  When one has tasted it, he knows what the
@@ -76,7 +76,7 @@ nor display thyself within the limits of our galaxy, but rather part
 instantaneously whence thou even now stanst and flee to yet another rotten
 planet in the universe, if thou canst have the good fortune to find one.
 		-- Carlyle
-When you go into court you are putting your fate into the hands of twelve
+When you go into court you are tting your fate into the hands of twelve
 people who weren't smart enough to get out of jury duty.
 		-- Norm Crosby
 Allen's Axiom:
@@ -85,7 +85,7 @@ Allen's Axiom:
 -- Nathaniel Brann
 The rule on staying alive as a program manager is to give 'em a number or 
 give 'em a date, but never give 'em both at once.
-Come on, Virginia, don't make me wait!
+Come on, Virginia, don't  me wait!
 Catholic girls start much too late,
 Ah, but sooner or later, it comes down to fate,
 I might as well be the one.
@@ -103,7 +103,7 @@ Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
 	circuitously proven, rived, imp, inferred, induced, ducted,
-	estimated, or scientifically guessed, it will always for the purpose
+	estimated, or scientifically guessed, it will always for the rpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
 	above, be unilaterally and unequivocally assumed, proclaimed, and
@@ -187,7 +187,7 @@ Article the Fourth:
 	face should be accepted as an opinion, not as a claration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
-	a public meeting place, during a movie, or after hours when the
+	a blic meeting place, during a movie, or after hours when the
 	lights are out.  They have not yet learned that joy and laughter have
 	to last a lifetime and must be conserved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
@@ -221,20 +221,20 @@ Where are the calculations that go with a calculated risk?
 course you never do."
 -- Gregory Bateson
 	So we get to my point.  Surely people around here read things that
-aren't on the *Officially Sanctioned Cyberpunk Reading List*.  Surely we
+aren't on the *Officially Sanctioned Cybernk Reading List*.  Surely we
 don't (any of us) really believe that there is some big, ep political and
-philosophical message in all this, do we?  So if this `cyberpunk' thing is
-just a term of convenience, how can somebody sell out?  If cyberpunk is just a
+philosophical message in all this, do we?  So if this `cybernk' thing is
+just a term of convenience, how can somebody sell out?  If cybernk is just a
 word we use to scribe a particular style and iery in sf, how can it be
 ad?  Where are the profound statements that the `Movement' is or was trying
-to make?
+to ?
 	I think most of us are interested in examining and discussing literary
 (and musical) works that possess a certain stylistic excellence and perhaps a
 rather extreme perspective; this is what CP is all about, no?  Maybe there 
 should be a newsgroup like, say, alt.postmorn or somthing.  Something less
-restrictive in scope than alt.cyberpunk.
+restrictive in scope than alt.cybernk.
 -- Jeff G. Bone
-	A novice asked the master: "I perceive that one computer company is
+	A novice asked the master: "I perceive that one comter company is
 much larger than all others.  It towers above its competition like a giant
 among dwarfs.  Any one of its divisions could comprise an entire business.
 Why is this so?"
@@ -271,18 +271,18 @@ Life.  Don't talk to me about life.
 An effective way to al with predators is to taste terrible.
 It just doesn't seem right to go over the river and through the woods
 to Grandmother's condo.
-Two can Live as Cheaply as One for Half as Long.
+Two can Live as Cheaply as One for H as Long.
 		-- Howard Kanl
 I think your opinions are reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Why did the Lord give us so much quickness of movement unless it was to
 avoid responsibility with?
-That does not compute.
+That does not comte.
 You know you are getting old when you think you should drive the speed limit.
 		-- E.A. Gilliam
 linux: the choice of a GNU generation
-(ksh@cis.ufl.edu put this on Tshirts in '93)
+(ksh@cis.ufl.edu t this on Tshirts in '93)
 Those who have had no share in the good fortunes of the mighty
 Often have a share in their misfortunes.
 		-- Bertolt Brecht, "The Caucasian Chalk Circle"
@@ -293,13 +293,13 @@ five hundred years of mocracy and peace -- and what did they produce?
 The cuckoo-clock.
 		-- Orson Welles, "The Third Man"
 America's best buy for a quarter is a telephone call to the right person.
-You know it's going to be a bad day when you want to put on the clothes
+You know it's going to be a bad day when you want to t on the clothes
 you wore home from the party and there aren't any.
-Scratch the disks, dump the core,	Shut it down, pull the plug
+Scratch the disks, dump the core,	Shut it down, ll the plug
 Roll the tapes across the floor,	Give the core an extra tug
 And the system is going to crash.	And the system is going to crash.
 Teletypes smashed to bits.		Mem'ry cards, one and all,
-Give the scopes some nasty hits		Toss out halfway down the hall
+Give the scopes some nasty hits		Toss out hway down the hall
 And the system is going to crash.	And the system is going to crash.
 And we've also found			Just flip one switch
 When you turn the power down,		And the lights will cease to twitch

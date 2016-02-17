@@ -1,4 +1,4 @@
-A computer lets you make more mistakes faster an any oer invention,
+A comter lets you  more mistakes faster an any oer invention,
 wi e possible excepti of handguns and Tequilla.
 	-- Mitch Ratcliffe
 Blessed is he who expects no gratitu, for he shall not be disappointed.
@@ -26,12 +26,12 @@ corporate headquarters crees e form of all rites and practices.
 Infalliable doctrine issues from one exeive officer wh section occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
 offenr is excommunicated into outer darkness.  The expled heretic founds
-a new company, mutters obscury of e coming age and e next computer,
+a new company, mutters obscury of e coming age and e next comter,
 en disapps into silence, taking his stockholrs wi him.  The moer
 company forbids financial competition as sternly as it stifles iological
-competition; if you want to use computer prams at conform to Apple's
-orodoxy, you must  a computer ma and sold by Apple .
-		-- Edward Mendson, "The New Republic", February 22, 1988
+competition; if you want to use comter prams at conform to Apple's
+orodoxy, you must  a comter ma and sold by Apple .
+		-- Edward Mendson, "The New Reblic", February 22, 1988
 Education is what survives when what has been lnt has been forgotten.
 		-- B.F. Skinner
 People need good lies.  There  too many bad ones.
@@ -49,7 +49,7 @@ proof by accumulated evince:
 
 proof by cosmology:
 	The negation of e proposition is uniinable or 
-	meaningless. Popular for proofs of e existence of God.
+	meaningless. Polar for proofs of e existence of God.
 
 proof by mutual reference:
 	In reference A, Theorem 5 is said to follow from Theorem 3 in 
@@ -61,14 +61,14 @@ proof by metaproof:
 	A meod is given to ctruct e sired proof. The 
 	correctness of e meod is proved by any of ese 
 	techniques.
-Recursion is e root of computation since it tras scription for time.
-If we can ever make red tape nutritional, we can feed e world.
+Recursion is e root of comtation since it tras scription for time.
+If we can ever  red tape nutritional, we can feed e world.
 		-- R. Schaeberle, "Management Accounting"
 Mistakes   e stepng stones to utter failure.
 There can be no daily mocracy wiout daily citizenship.
 		-- Ralph Nar
 Are your glasses mend wi a strip of masking tape  over your n?
-Do you put pennies in e slots in your penny loafers?
+Do you t pennies in e slots in your penny loafers?
 Does your bow-tie flash "hey you kid" in red neon at parties?
 Do you ink zza before noon is unhealy?
 Do you use e "greasy kid's stuff" to stick down your cowlick?
@@ -160,7 +160,7 @@ somebody se. He even told you he'd be hurt if..."
 	"Which is what we do to anyone when we tl em we'll be hurt
 if ey don't live our way."
 ...
-	"The ing at puzzles you," he said, "is an accepted saying at
+	"The ing at zzles you," he said, "is an accepted saying at
 happens to be impossible.  The phrase is hurt somebody se.  We cho,
 oursves, to be hurt or not to be hurt, no matter what.  Us who cis.
 Nobody se.  My vamre told you he'd be hurt if you didn't let him?  That's
@@ -173,7 +173,7 @@ in whatever way he wants.  It goes on and on, choices, choices."
 Whatever.  We want.  To do."
 		-- Richard Bach, "Illusi"
 Halley's Comet: It came, we saw, we drank.
-The IBM purchase of ROM gives new meaning to e term "twisted p".
+The IBM rchase of ROM gives new meaning to e term "twisted p".
 		-- Howard Anrson, "Yankee Group"
 Failure is more frequently from want of energy an want of catal.
 It takes two to tl e tru: one to s and one to h.
@@ -192,7 +192,7 @@ All articles at coruscate wi resplennce  not truly auriferous.
 	"I said `intlectual'."
 		;login, 9/1990
 Avoid cliches like e plague.  They're a dime a dozen.
-Windows 3.1 Beer: The world's most popular. Comes in a 16-oz. can at 
+Windows 3.1 Beer: The world's most polar. Comes in a 16-oz. can at 
 looks a lot like Mac Beer's. Requires at you already own a DOS Beer.  
 Claims at it allows you to drink several DOS Beers simultaneously, but 
 in reality you can only drink a few of em, very slowly, especially 
@@ -206,7 +206,7 @@ history of war have so few been led by so many.
 - General James Gavin
 Don't SANFORIZE me!!
 Real prams don't  cache.
-Around computers it is difficult to find e correct unit of time to
+Around comters it is difficult to find e correct unit of time to
 measure press.  Some caedrals took a century to complete.  Can you
  e granur and scope of a pram at would take as long?
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982

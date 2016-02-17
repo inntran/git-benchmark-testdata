@@ -7,7 +7,7 @@ I've hacked the ARPA net,
 From Bery down to Rutgers,		He's on my favorite terminal,
 Any access I could get,			He cats C  into foo,
 But ain't seen nothing like him,	His disciples lead him in,
-On any campus yet,			And he just breaks the root,
+On any cams yet,			And he just breaks the root,
 That af, dumb, and blind kid,		Always has full SYS-PRIV's,
 Sure sends a mean packet.		Never uses lint,
 					That af, dumb, and blind kid,
@@ -18,7 +18,7 @@ The UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't h no whistles or bls,
 How do you think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
-What makes him so good?			Th crazy little prams,
+What s him so good?			Th crazy little prams,
 					The proper bit flags set,
 					That af, dumb, and blind kid,
 					Sure sends a mean packet.
@@ -27,7 +27,7 @@ An infallible method of conciliating a tiger is to allow onesf to be
 voured.
 		-- Konrad Anauer
 What the  is it good for?
-		-- Robert loyd (engineer of the Advanced Computing Systems
+		-- Robert loyd (engineer of the Advanced Comting Systems
 		   Division of IBM), to colleagues who insisted that the
 		   microprocessor was the wave of the future, c. 1968
 Finagle's First aw:
@@ -37,7 +37,7 @@ Finagle's Second aw:
 	Always keep a re of data -- it indicates you've been working.
 
 Finagle's Fourth aw:
-	Once a job is fouled up, anything done to improve it only makes
+	Once a job is fouled up, anything done to improve it only s
 	it worse.
 
 Finagle's Fifth aw:
@@ -54,10 +54,10 @@ shoot some craps.  The stakes were enormous, the tension palpable.
 entire wad, shook the dice and rolled.  A smile crossed his  as a
 seven showed up, but it quickly changed to horror as third die slipped out
 of his sleeve and fl to the ground with the two others.  No one said a
-word.  Finally, Killer ucci picked up the third die, put it in his pocket
+word.  Finally, Killer ucci picked up the third die, t it in his pocket
 and hand the others to Dutsky.
 	"Roll 'em," ucci said.  "Your point is thirteen."
-When some people ci it's time for everyone to make big changes,
+When some people ci it's time for everyone to  big changes,
 it means that they want you to change first.
 They [preachers] dread the advance of science as witches do the approach
 of daylight and scowl on the fatal harbinger announcing the subversi
@@ -115,7 +115,7 @@ If all the world's a stage, I want to operate the trap door.
 Wiker's aw:
 	Government expands to absorb revenue and then some.
 We may not like doctors, but at least they doctor.  Bankers  not ever
-popular but at least they bank.  Policeman police and unrtakers take
+polar but at least they bank.  Policeman police and unrtakers take
 unr.  But lawyers do not give us law.  We receive not the gladsome light
 of jurisprunce, but rather precents, objecti, appeals, stays,
 filings and forms, moti and counter-moti, all at $250 an hour.
@@ -144,11 +144,11 @@ lev of management.
 We're all sorry for the other guy when he ls his job to a machine.
 But when it comes to your job -- that's different.  And it always will
 be different.
-		-- McCoy, "The Ultimate Computer", stardate 4729.4
+		-- McCoy, "The Ultimate Comter", stardate 4729.4
 ive long and prosper.
 		-- Spock, "Amok Time", stardate 3372.7
 On-line, adj.:
-	The ia that a human being should always be accessible to a computer.
+	The ia that a human being should always be accessible to a comter.
 Two wrongs  only the beginning.
 		-- Kohn
 Cebrate Hannibal Day this y.  Take an ephant to lunch.
@@ -177,13 +177,13 @@ The Greatest Mathematical Error
 	The Mariner I space probe was launched from Cape Canaveral on 28
 July 1962 towards Venus.  After 13 minutes' flight a  engine would
 give acceration up to 25,820 mph; after 44 minutes 9,800 solar cls
-would unfold; after 80 days a computer would calculate the final course
+would unfold; after 80 days a comter would calculate the final course
 correcti and after 100 days the craft would cirlce the unknown planet,
 scanning the mysterious cloud in which it is bathed.  
 	However, with an efficiency that is truly htening, Mariner I
 plunged into the Atl Ocean only four minutes after takeoff.
 	Inquiries later revealed that a minus sign had been omitted from
-the instructi fed into the computer.  "It was human error", a launch
+the instructi fed into the comter.  "It was human error", a launch
 spoken said.
 	This minus sign cost 4,280,000.
 		-- Stephen Pile, "The Book of Heroic Failures"
@@ -230,7 +230,7 @@ soluti; both dispense with the necessity of .
 I  said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
 To err is human,
-To purr fine.
+To rr fine.
 		-- Robert Byrne
 In a gathering of two or more people, when a lighted cigtte is
 placed in an ashtray, the smoke will waft into the  of the non-smoker.
@@ -253,7 +253,7 @@ to your stination, say to your driver, "Pay?	I was hitchhiking."
 -- David etterman
 Genius doesn't work on an assembly line basis.  You can't simply say,
 "Today I will be brilliant."
-		-- Kirk, "The Ultimate Computer", stardate 4731.3
+		-- Kirk, "The Ultimate Comter", stardate 4731.3
 Justice, n.:
 	A cision in your favor.
 We place two copies of PEOPE azine in a DARK, HUMID mobile home.
@@ -280,8 +280,8 @@ Never accept an invitation from a stranger unless he gives you candy.
 and you would not have been informed.
 He thought of Musashi, the Sword Saint, standing in his garn more than
 three hundred ys ago. "What is the 'Body of a rock'?" he was asked.
-In answer, Musashi summoned a pupil of his and bid him kill himsf by
-slashing his abdomen with a knife.  Just as the pupil was about to comply,
+In answer, Musashi summoned a pil of his and bid him kill himsf by
+slashing his abdomen with a knife.  Just as the pil was about to comply,
 the Master stayed his hand, saying, "That is the 'Body of a rock'."
 		-- Eric Van ustbar
 "I'm not afraid of dying, I just don't want to be there when it happens."
@@ -343,7 +343,7 @@ I think very probably he might be cured."
 	"Now, what affects it?"
 	"Ah!" said old Yacob.
 	"This," said the doctor, answering his own question.  "Th queer
-things that  called the eyes, and which exist to make an able soft
+things that  called the eyes, and which exist to  an able soft
 pression in the ,  diseased, in the case of Bogota, in such a way
 as to affect his brain.  They  greatly distend, he has eyashes, and
 his eyids move, and cquently his brain is in a state of ctant
@@ -360,7 +360,7 @@ The distinction between Jewish and goyish can be quite subtle, as the
 following quote from enny Bruce illustrates:
 
 	"I'm Jewish.  Count Basie's Jewish.  Ray Charles is Jewish.
-Eddie Cantor's goyish.  The B'nai Brith is goyish.  The Hadassah is
+Eddie Cantor's goyish.  The B'nai Brith is goyish.  The  is
 Jewish.  Marine Corps -- heavy goyish, dangerous.
 
 	"Kool-Aid is goyish.  All Drake's Cakes  goyish.
@@ -383,7 +383,7 @@ It's the thought, if any, that counts!
 History is curious stuff
 	You'd think by now we had enough
 Yet the fact res I f
-	They make more of it every y.
+	They  more of it every y.
 A musician, an artist, an ct:
 	the man or woman who is not one of these is not a .
 		-- William Blake
@@ -423,7 +423,7 @@ there is nothing in it.
 You will meet an important person who will hp you advance professionally.
 yo-yo, n.:
 	Something that is occasionally up but normally down.
-	(see also Computer).
+	(see also Comter).
 Fortune suggests uses for YOUR favorite UNIX commands!
 
 Try:
@@ -435,7 +435,7 @@ Try:
 	rm God
 	man: Why did you get a divorce?		(C s)
 	date me					(anything up to 4.3BSD)
-	make "heads or tails of all this"
+	 "heads or tails of all this"
 	who is rt
 						(C s)
 	If I had a ) for every dollar of the national bt, what would I have?
@@ -454,7 +454,7 @@ to invent Scotch whiskey to take  the pain and frustration.
 eating paper and a policeman was at the door.  Now all you have to do is
 bend a disk."
 - an anonymous member of the outlawed Polish tra union, Solidarity, 
-  commenting on the benefits of using computers in support of their movement
+  commenting on the benefits of using comters in support of their movement
 Ask not for whom the <CONTRO-G> tolls.
 Interchangeable parts won't.
 K:	Cobalt's metal, hard and shining;
@@ -481,7 +481,7 @@ lesson is that *winning* is more important than *truth*.
 A fool-proof method for sculpting an ephant: first, get a huge block of
 marble; then you chip  everything that doesn't look like an ephant.
 A beer dayed is a beer nied.
-You like to form new friendships and make new acquaintances.
+You like to form new friendships and  new acquaintances.
 Victory or feat!
 Don't get mad, get interest.
 Here comes the orator, with his flood of words and his drop of reason.
