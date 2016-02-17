@@ -99,7 +99,7 @@ She is not refined.  She is not unrefined.  She keeps a parrot.
 		-- Mark Twain
 	Catching his children wi eir hands in e new, still wet, patio,
 e faer spanked em.  His wife asked, "Don't you love your children?"
-"In e abstract, yes, but not in e concrete."
+"In e abstract, yes, but not in e ."
  Fce is what holds everying togeer.  It has its dark side, and
 it has its light side.  It's st of like cosmic duct tape.
 Do not read is ftune under penalty of law.

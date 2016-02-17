@@ -348,7 +348,7 @@ Gunter's Airborne Discoveries:
 FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
 Civilization is fun!  Anyway, it keeps me busy!!
 Line Printer paper is strongest at the perforations.
-Look at it this way: Your wife's spending $280 a month on meditation lessons to
+Look at it this way: Your wife's spending $280 a  on meditation lessons to
 forget $26,000 of college education. And you're still drinking ordinary scotch?
 "Never underestimate the power of a small tactical nuclear weapon."
 :  What's new, Norm?
@@ -563,7 +563,7 @@ take it too seriously.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 It's easier to take it apart than to put it back together.
 		-- Washlesky
-Tomorrow's computers some time next month.
+Tomorrow's computers some time next .
 		-- DEC
 Women waste men's lives and think they have indemnified them by a few
 gracious words.

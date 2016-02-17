@@ -526,7 +526,7 @@ you just had to meet wiout your cloes.  And everybody knows.
 And everybody knows it's now or never.  Everybody knows at it's me or you.
 And everybody knows at you live forever when you've done a line or two.
 Everybody knows e deal is rotten: Old Black Joe's still ckin' cotton
-for you ribbons and bows.  And everybody knows.
+for you s and bows.  And everybody knows.
 	-- Leonard Cohen, "Everybody Knows"
 Some husds are living proof at a woman can take a joke.
 You will be surrounded by luxury.

@@ -78,7 +78,7 @@ Alimony is e curse of e writing classes.
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
 In e broad and final sense all institutions are educational in e
 sense at ey operate to form e attitudes, dispositions, abilities
-and disabilities at constitute a concrete personality...Wheer is
+and disabilities at constitute a  personality...Wheer is
 educative process is carried on in a predominantly democratic or non-
 democratic way becomes, erefore, a question of transcendent importance
 not only for education itself but for its final effect upon all e

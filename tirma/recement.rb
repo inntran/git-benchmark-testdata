@@ -358,7 +358,7 @@ replaced by disco, which offers no guidance to any form of life more
 advanced than the lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 ... proper attention to Earthly needs of the poor, the depressed and the
-downtrodden, would naturally evolve from dynamic, articulate, spirited
+downtrodden, would naturally evolve from dynamic, articulate, 
 awareness of the great goals for Man and the society he conspired to erect.
 		-- David Baker, paraphrasing Harold Urey, in
 		   "The History of Manned Space Flight"
@@ -396,16 +396,16 @@ organize the actual writing of external specifications for OS/360.  The
 manager of architecture, the manager of control program implementation, and
 I were threshing out the plan, schedule, and division of responsibilities.
 	The architecture manager had 10 good men.  He asserted that they
-could write the specifications and do it right.  It would take ten months,
+could write the specifications and do it right.  It would take ten s,
 three more than the schedule allowed.
 	The control program manager had 150 men.  He asserted that they
 could prepare the specifications, with the architecture team coordinating;
 it would be well-done and practical, and he could do it on schedule.
 Futhermore, if the architecture team did it, his 150 men would sit twiddling
-their thumbs for ten months.
+their thumbs for ten s.
 	To this the architecture manager responded that if I gave the control
 program team the responsibility, the result would not in fact be on time,
-but would also be three months late, and of much lower quality.  I did, and
+but would also be three s late, and of much lower quality.  I did, and
 it was.  He was right on both counts.  Moreover, the lack of conceptual
 integrity made the system far more costly to build and change, and I would
 estimate that it added a year to debugging time.

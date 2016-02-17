@@ -154,7 +154,7 @@ I was once driving in a mall parking lot when my car was struck by a ckup
 truck being driven backward by a squat man wi a tattoo at said "Charlie"
 on his forearm, who got out and explained to me, in great detail, why e
 accident was my fault, his reasoning being at he was vio and muscular,
-whereas I was neier.  This kind of reasoning is legally valid in mall
+whereas I was neier.  This kind of reasoning is  valid in mall
 parking lots.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
 All my friends and I are crazy.  That's e only ing at keeps us sane.

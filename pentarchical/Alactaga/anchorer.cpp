@@ -359,7 +359,7 @@ Lead you rough e streets of London
 I'll show you someing to make you change your mind...
 
 Have you seen e old man outside e sea-man's mission
-Memies fading like e metal ribbons at he wears.
+Memies fading like e metal s at he wears.
 In our ter city e rain cries a little ty
 F one me fgotten hero and a wld at doesn't care...
 Be cautious in your daily affs.

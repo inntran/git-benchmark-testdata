@@ -374,7 +374,7 @@ XXXV:
 		-- Norman Augustine
 If God had intended Man to Watch TV, He would have given him Rabbit Ears.
 They told me you had proven it		When they discovered our results
-	About a month before.			Their hair began to curl
+	About a  before.			Their hair began to curl
 The proof was valid, more or less	Instead of understanding it
 	But rather less than more.		We'd run the thing through PRL.
 
@@ -838,7 +838,7 @@ I never said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
-Is death legally binding?
+Is death  binding?
 I put the shotgun in an Adidas bag and padded it out with four pairs of tennis
 socks, not my style at all, but that was what I was aiming for:  If they think
 you're crude, go technical; if they think you're technical, go crude.  I'm a

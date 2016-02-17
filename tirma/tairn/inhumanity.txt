@@ -525,7 +525,7 @@ Rod:	No, the ability to get hung up on them.
 		-- Christopher Stasheff, "The Warlock in Spite of Himself"
 	Catching his children with their hands in the new, still wet, patio,
 the father spanked them.  His wife asked, "Don't you love your children?"
-"In the abstract, yes, but not in the concrete."
+"In the abstract, yes, but not in the ."
 The work [of software development] is becoming far easier (i.e. the tools
 we're using work at a higher level, more removed from machine, peripheral
 and operating system imperatives) than it was twenty years ago, and because

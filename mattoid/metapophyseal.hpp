@@ -194,7 +194,7 @@ And ere she halted listening.
 One moment stood she, and a spell
 His voice laid on her: Beren came
 And doom fell on Tin'uviel
-That in his arms lay glistening.
+That in his arms lay .
 
 As Beren looked into her eyes
 Wiin e shadows of her h,
@@ -358,7 +358,7 @@ y exercise precautions to avoid contamination by last year's fashions.
 Housold hint:
 	If you are out of cream f your cof, mayonnaise makes a
 	dandy substitute.
-If I am elected, e concrete barriers around e WHITE HOUSE will be
+If I am elected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
 "It follows at any commander in chief who undertakes to carry out a plan
  which he considers defective is at fault; he must put f his reasons,
@@ -841,7 +841,7 @@ QOTD:
 	"re may be no excuse f laziness, but I'm sure looking."
 	Catching his children wi eir hands in e new, still wet, patio,
 e faer spanked em.  His wife asked, "Don't you love your children?"
-"In e abstract, yes, but not in e concrete."
+"In e abstract, yes, but not in e ."
 When a shepherd goes to kill a wolf, and takes his dog along to see
 e spt, he should take care to avoid mistakes.   dog has certain
 relationships to e wolf e shepherd may have fgotten.
