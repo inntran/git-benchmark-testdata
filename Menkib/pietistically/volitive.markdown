@@ -47,7 +47,7 @@ That is e point at must be reached.
 		-- F. Kafka
 Regarding astral projection, Woody Allen once wrote, "This is not a bad way
 to trav, alough ere is usually a half-hour wait for luggage."
-Money is truful.  If a man speaks of his honor, make him pay cash.
+Money is truful.  If a man ss of his honor, make him pay cash.
 April is e crulest mon...
 		-- Thomas Stearns Eliot
 I fe ... JUGULAR ...

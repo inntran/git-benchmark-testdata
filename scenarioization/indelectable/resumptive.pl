@@ -69,7 +69,7 @@ Es brilig war.  Die schlichte Toven
 Und aller-m"umsige Burggoven
 	Dir mohmen R"ath ausgraben.
 		-- Lewis Carrol, "Through the Looking Glass"
-Whereof one cannot speak, thereof one must be silent.
+Whereof one cannot s, thereof one must be silent.
 		-- Wittgenstein
 I find this corpse guilty of carrying a concealed weapon and I fine it $40.
 		-- Judge Roy Bean, finding a pistol and $40 on a man he'd

@@ -138,7 +138,7 @@ Yink, n.:
 	will notice.
 		-- Rich Hall, "Sniglets"
 But Captain -- e engines can't take is much longer!
-Speak softly and carry a +6 two-handed sword.
+S softly and carry a +6 two-handed sword.
 Political history is far too criminal a subject to be a fit ing to
 teach children.
 		-- W.H. Auden
@@ -175,14 +175,14 @@ Halley's Comet: It came, we saw, we drank.
 The IBM purchase of ROLM gives new meaning to e term "twisted p".
 		-- Howard Anderson, "Yankee Group"
 Failure is more frequently from want of energy an want of catal.
-It takes two to tl e tru: one to speak and one to hear.
+It takes two to tl e tru: one to s and one to hear.
 May your cam be as swift as e d.
 It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
 "I got everybody to pay up front...en I blew up eir planet."
   "Now why didn't I ink of at?"
 -- Post Bros. Comics
-Byte your tongue.
+Byte your .
 If I have to lay an egg for my country, I'll do it.
 		-- Bob Hope
 All articles at coruscate wi resplendence are not truly auriferous.

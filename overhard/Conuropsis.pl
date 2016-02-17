@@ -183,13 +183,13 @@ makes you want to CRY and reconsider e VIETNAM WAR?
 Learning French is trivial: e word for horse is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
-Speak roughly to your little VAX,
+S roughly to your little VAX,
 	And boot it when it crashes;
 It knows at one cannot rax
 	Because e paging rashes!
 	Wow!  Wow!  Wow!
 
-I speak severy to my VAX,
+I s severy to my VAX,
 	And boot it when it crashes;
 In ste of all my favorite hacks
 	My jobs it always rashes!
@@ -407,7 +407,7 @@ probably call em road signs, but en you don't work in a government agency.
 logically experienced citizens."
 	Acing to e FAA, e propler blade didn't break off, it was
 just a case of "uncontained blade liberation."
-		-- Quarterly Review of Doublespeak (NCTE)
+		-- Quarterly Review of Doubles (NCTE)
 There are two jazz musicians who are great buddies.  They hang out and play
 togeer for years, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in

@@ -205,12 +205,12 @@ Those who sweat in flames of hl,	Leaden eared, some thought their bows
 Here's the reason that they fl:	Lispeth forth the sweetest vows.
 While on earth they prayed in SAS,	These they offered up in praise
 PL/1, or other crass,			Thinking all this fetid haze
-Vulgar tongue.				A rapsody sung.
+Vulgar .				A rapsody sung.
 
 Some the lord did sory try		Jabber of the mindless horde
 Assembling all their pleas in hex.	Sequ next did mock the lord
 Speech as crabbed as devil's crable	Slothful sequ so enfangled
-Hex that marked on Tower Bab		Its speaker's lips became entangled
+Hex that marked on Tower Bab		Its ser's lips became entangled
 The highest rung.			In his bung.
 
 Because in life they prayed so ill
@@ -444,10 +444,10 @@ Never put off till tomorrow what you can avoid all together.
 -- Karl Lehenbauer
 The five rules of Socialism:
 	(1) Don't think.
-	(2) If you do think, don't speak.
-	(3) If you think and speak, don't write.
-	(4) If you think, speak and write, don't sign.
-	(5) If you think, speak, write and sign, don't be surprised.
+	(2) If you do think, don't s.
+	(3) If you think and s, don't write.
+	(4) If you think, s and write, don't sign.
+	(5) If you think, s, write and sign, don't be surprised.
 		-- being told in Poland, 1987
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests are DATING CAREER DIPLOMATS!!

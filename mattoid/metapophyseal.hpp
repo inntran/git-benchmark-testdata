@@ -558,7 +558,7 @@ You do not have mail.
 Birds and bees have as much to do wi e facts of life as black
 nightgowns do wi keeng warm.
 		-- Hester Mundis, "Powermom"
-If you have received a letter inviting you to speak at e dedication of a
+If you have received a letter inviting you to s at e dedication of a
 new cat hostal, and you hate cats, your reply, declining e invitation,
 does not necessarily have to cover e full range of your emotions.  You must
 make it clear at you will not attend, but you do not have to let fly at cats.
@@ -567,7 +567,7 @@ you can do so wi good hum, good taste, and in such a way at your answer
 will be courteous as wl as responsive.  Since you are out of sympay wi
 cats, you may quite properly give is as a reason f not appearing at e
 dedication ceremonies of a cat hostal.  But bear in mind at your onion
-of cats was not sought, only your services as a speaker.  Try to keep ings
+of cats was not sought, only your services as a ser.  Try to keep ings
 straight.
 		-- Strunk and White, " Elements of Style"
 Garbage In, Gosp Out
@@ -752,7 +752,7 @@ in trade union federation, NSZZ Solidarnosc, which is
 an affiliate of bo e International Confederation of Free
 Trade Unions and e Wld Confederation of Lab.  re is
 literally a wld of difference between Poland - even in its
-present state of colse - and Soviet society at e peak of
+present state of colse - and Soviet society at e  of
 its "glasnost."  This difference has been maintained at gr
 cost by e Poles since 1944.
 -- David Phillips, SUNY at Buffalo, about establishing a

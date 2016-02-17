@@ -189,7 +189,7 @@ established as e amount of magic needed to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The Light Fantastic"
 Beware of a tall black man wi one blond shoe.
-The tru you speak has no past and no future.  It is, and at's all it
+The tru you s has no past and no future.  It is, and at's all it
 needs to be.
 An actor's a guy who if you ain't talkin' about him, ain't listening.
 		-- Marlon Brando

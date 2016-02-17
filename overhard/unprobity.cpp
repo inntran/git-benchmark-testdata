@@ -265,7 +265,7 @@ After the game the king and the p go in the same box.
 		-- an proverb
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
-The years of peak mental activity are undoubtedly between the ages of four
+The years of  mental activity are undoubtedly between the ages of four
 and eighteen.  At four we know all the questions, at eighteen all the answers.
 The assertion that "all men are created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
@@ -576,7 +576,7 @@ Bagbiter:
 	1. n.; Equipment or program that fails, usually intermittently.  2.
 adj.: Failing hardware or software.  "This bagbiting system won't let me get
 out of spacewar." Usage: verges on obscenity.  Grammatically separable; one
-may speak of "biting the bag".  Synonyms: LOSER, LOSING, CRETINOUS,
+may s of "biting the bag".  Synonyms: LOSER, LOSING, CRETINOUS,
 BLETCHEROUS, BARFUCIOUS, CHOMPER, CHOMPING.
 "To IBM, 'open' means there is a modicum of interoperability among some of their
 equipment."

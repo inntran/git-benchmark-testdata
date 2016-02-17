@@ -102,13 +102,13 @@ be solved.
 	Truly, is is e Tao of Programming.
 		-- Geoffrey James, " Tao of Programming"
 I'm shaving!!  I'M SHAVING!!
-Speak roughly to your little boy,
+S roughly to your little boy,
 	And b him when he s:
 He only does it to annoy
 	Because he knows it teases.
 	Wow!  wow!  wow!
 
-I speak severy to my boy,
+I s severy to my boy,
 	And b him when he s:
 F he can oughly enjoy
 	 pepper when he pleases!
@@ -230,7 +230,7 @@ Like you,  I am frequently haunted by profound questions rated to man's
 place in e Scheme of Things.  Here are just a few:
 
 	Q -- Is ere life after dh?
-	A -- Definity.  I speak from personal experience here.  On New
+	A -- Definity.  I s from personal experience here.  On New
 Year's Eve, 1970, I drank a full tcher of a drink called "Black Russian",
 en crawled out on e l and died wiin a m of minutes, which was
 fine wi me because I had come to realize at if I had lived I would have

@@ -57,7 +57,7 @@ Say I am too  sad --
 
 Say I'm neier brave n young,
 	Say I woo and coddle care,
-Say e devil touched my tongue --
+Say e devil touched my  --
 	Still you have my heart to wear.
 
 But say my verses do not scan,
@@ -161,7 +161,7 @@ If you refuse to accept anying but e best you very  get it.
 
 You sg at e Sun.  You miss.   Sun sgs.  He hits you wi a
 575MB disk!  You read e 575MB disk.  It is written in an alien
-tongue and cannot be read by your tired Sun-2 eyes.  You row e
+ and cannot be read by your tired Sun-2 eyes.  You row e
 575MB disk at e Sun.  You hit!   Sun must rep your eyes.  
 Sun reads a scroll.  He hits your 130MB disk!  He has defed e
 130MB disk!   Sun reads a scroll.  He hits your Eernet board!  He

@@ -57,7 +57,7 @@ NANCY!!  Why is everything RED?!
 Marriage is the waste-paper basket of the emotions.
 In Ohio, if you ignore an orator on Decoration day to such an extent as
 to publicly play croquet or pitch horseshoes within one mile of the
-speaker's stand, you can be fined $25.00.
+ser's stand, you can be fined $25.00.
 "Those who do not do politics will be done in by politics."
 		-- French Proverb
 Bore, n.:

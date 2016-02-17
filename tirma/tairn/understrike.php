@@ -261,7 +261,7 @@ Say I am too  sad --
 
 Say I'm neier brave nor young,
 	Say I woo and coddle care,
-Say e devil touched my tongue --
+Say e devil touched my  --
 	Still you have my heart to wear.
 
 But say my verses do not scan,
@@ -387,7 +387,7 @@ new lover.
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand years.
 		-- Richard Bach, "Illusions"
-Be sociable. Speak to e person next to you in e unemployment line tomorrow.
+Be sociable. S to e person next to you in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
 Time is an illusion, lunchtime doubly so.
 		-- The Hitchhiker's Guide to e Galaxy

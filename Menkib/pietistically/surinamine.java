@@ -46,7 +46,7 @@ is so mysterious but because Quality is so simple, immediate, and direct.
 Still looking f e glious results of my misspent you.  Say, do you
 have a map to e next joint?
 You know you've landed gear-up when it takes full power to taxi.
-Speak softly and carry a +6 two-handed swd.
+S softly and carry a +6 two-handed swd.
 I have a TINY BOWL in my HEAD
 "Virtual" means never knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
@@ -310,7 +310,7 @@ I l ... JUGULAR ...
 his flow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, president of  Management Group, Inc.
-Speaking to business exeives in Chicago and quoted in Automotive News,
+Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
 and accountants "do not make e economic e any bigger; ey only 

@@ -228,7 +228,7 @@ Call the convenient toll-free "IRS Taxpayer Complaint Hot Line Number":
 The characteristic property of hallucinogens, to suspend the boundaries between
 the experiencing self and the outer world in an ecstatic, emotional experience,
 makes it posible with their help, and after suitable internal and external
-perparation...to evoke a mystical experience acing to plan, so to speak...
+perparation...to evoke a mystical experience acing to plan, so to s...
 I see the true importance of LSD in the possibility of providing materail aid 
 to meditation aimed at the mystical experience of a deeper, comprehensive
 reality.  Such a use acs entirely with the essence and working character
@@ -276,13 +276,13 @@ Humility is the first of the virtues -- for other people.
 He who laughs has not yet heard the bad news.
 		-- Bertolt Brecht
 Some people carve careers, others chisel them.
-Speak roughly to your little boy,
+S roughly to your little boy,
 	And beat him when he sneezes:
 He only does it to annoy
 	Because he knows it teases.
 	Wow!  wow!  wow!
 
-I speak severely to my boy,
+I s severely to my boy,
 	And beat him when he sneezes:
 For he can thoroughly enjoy
 	The pepper when he pleases!
@@ -413,7 +413,7 @@ Like you,  I am frequently haunted by profound questions related to man's
 place in the Scheme of Things.  Here are just a few:
 
 	Q -- Is there life after death?
-	A -- Definitely.  I speak from personal experience here.  On New
+	A -- Definitely.  I s from personal experience here.  On New
 Year's Eve, 1970, I drank a full pitcher of a drink called "Black Russian",
 then crawled out on the lawn and died within a matter of minutes, which was
 fine with me because I had come to realize that if I had lived I would have

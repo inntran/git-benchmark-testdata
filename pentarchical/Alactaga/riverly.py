@@ -143,7 +143,7 @@ QED: A sheet of paper is a lazy dog.
 		-- Willard Espy, "An Almanac of Wds at Play"
 Be careful when a loop exits to e same place from side and bottom.
 I've always considered statesmen to be me expendable an soldiers.
- English country gentleman gallong after a fox -- e unspeakable
+ English country gentleman gallong after a fox -- e unsable
 in full pursuit of e unable.
 		-- Oscar Wilde, "A Woman of No Imptance"
 Woman on Street:	Sir, you are drunk; very, very drunk.
@@ -317,7 +317,7 @@ your human intuition.
 Imagine what we can !
 		--  Rubinstein
  English have no respect f eir language, and will not teach
-eir children to speak it.
+eir children to s it.
 		-- G. B. Shaw
 YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIELD OF PAPER SHUFFLING!
 
@@ -373,7 +373,7 @@ Yevtushenko has... an ego at can crack crystal at a distance of twenty t.
 		-- John Cheever
 "Dump e condiments.  If we are to be en, we don't need to taste good."
 -- "Visionaries" oon
-He is considered a most graceful speaker who can say noing in e most wds.
+He is considered a most graceful ser who can say noing in e most wds.
 Today is e first day of e rest of your lossage.
 Thrashing is just virtual crashing.
  sty you are about to hear is true.  Only e s have been

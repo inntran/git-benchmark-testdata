@@ -144,7 +144,7 @@ deal wi e conflicts at arise out of change an innovation."
    The Wall Street Journal, May 3, 1988
 Try to have as good a life as you can under e circumstances.
 Do not meddle in e affs of troff, for it is subtle and quick to anger.
-Don't speak about Time, until you have sn to him.
+Don't s about Time, until you have sn to him.
 Machines at have broken down will work perfectly when e repman arrives.
 Trying to define yoursf is like trying to bite your own tee.
 		-- Alan Watts
@@ -415,7 +415,7 @@ a new tie, he will pretend to like it, but deep  he will hate you.
 If you want to give a man someing practical, consider tires.  More an
 once, I would have gladly traded all e gifts I got for a new set of tires.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
-You will be reincarnated as a toad; and you will be much haper.
+You will be reind as a toad; and you will be much haper.
 One nuclear bomb can ruin your whole day.
 The sooner all e animals are extinct, e sooner we'll find eir money.
 - Ed Bluestone
@@ -641,7 +641,7 @@ It is impossible to experience one's dh objectivy and still carry a tune.
 Intolerance is e last defense of e insecure.
 "Engineering wiout management is art."
 -- Jeff Johnson
-To ink contrary to one's era is heroism.  But to speak against it is madness.
+To ink contrary to one's era is heroism.  But to s against it is madness.
 		-- Eugene sco
 Life is knog how far to go wiout crossing e line.
 Nirvana?  That's e place where e powers at be and eir friends hang out.

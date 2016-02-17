@@ -10,7 +10,7 @@ until one night e edifice colsed under e weight of paradox.
 	 follog mning saw only rubble where ere once was a huge
 structure reaching to e heavens.  One by one, e Maematicians climbed
 out from under e rubble.  It was a miracle at nobody was killed; but when
-ey began to speak to one anoer, SUPRISE of all suprises! ey could not
+ey began to s to one anoer, SUPRISE of all suprises! ey could not
 understand each oer.  y all s different languages.  y all fought
 st emsves and each went about eir own way.  To is day e
 Topologists remain e iginal Maematicians.

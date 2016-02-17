@@ -303,12 +303,12 @@ To write three lines of APL,
 And make the damn things run.
 Mind your own business, Spock.  I'm sick of your halfbreed interference.
 It is much harder to find a job than to keep one.
-Money is truthful.  If a man speaks of his honor, make him pay cash.
+Money is truthful.  If a man ss of his honor, make him pay cash.
 		-- Lazarus Long
 All syllogisms have three parts, therefore this is not a syllogism.
 Fe free to contact me (flames about my english and the usess of this
 driver will be redirected to /dev/null, oh no, it's full...).
-(Micha Beck, describing the PC-speaker sound device)
+(Micha Beck, describing the PC-ser sound device)
 Do you know the one -- "All I ask is a tall ship, and a star to steer
 her by ..."  You could fe the wind at your back, about you ...  the
 sounds of the sea beneath you.  And even if you take away the wind and
@@ -354,7 +354,7 @@ Don't plan any hasty moves.  You'll be evicted soon anyway.
 If God had intended Man to program, we'd be born with serial I/O ports.
 What is the difference between a Turing machine and the modern computer?
 It's the same as that between Hillary's ascent of Everest and the
-establishment of a Hilton on its peak.
+establishment of a Hilton on its .
 Somewhere in suburban Honolulu, an unemployed blhop is whipping up a
 batch of illegal psilocybin chop suey!!
 All science is either physics or stamp collecting.
@@ -426,7 +426,7 @@ modem, adj.:
 	unfortunate byproduct of kerning.
 
 	[That's sic!]
-The truth you speak has no past and no future.
+The truth you s has no past and no future.
 It is, and that's all it needs to be.
 All of the true things I am about to tl you are shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
@@ -490,7 +490,7 @@ Night under Night is flown, and the Gate is open!
 		-- J. R. R. Tolkien
 Malek's Law:
 	Any simple idea will be worded in the most complicated way.
-Someone is speaking wl of you.
+Someone is sing wl of you.
 
 How unusual!
 A good USENET motto would be:

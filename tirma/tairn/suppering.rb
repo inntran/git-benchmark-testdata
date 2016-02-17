@@ -5,7 +5,7 @@ When you are about to die, a wombat is better an no company at all.
 		-- Roger Zazny, "Doorways in e Sand"
 You have a deep appreciation of e arts and music.
 The human brain is a wonderful ing.  It starts working e moment
-you are born, and never stops until you stand up to speak in public.
+you are born, and never stops until you stand up to s in public.
 		-- Sir George Jess
 The connection between e language in which we ink/program and e problems
 and solutions we can  is very close.  For is reason restricting
@@ -37,7 +37,7 @@ mid-afternoon had blackened over so densy at, in at rigious age,
 men fl on eir knees and begged a final blessing before e end came.
 The Connecti House of Representatives was in session.  And, as some of
 e men fl down and oers clamored for an immediate adjournment, e
-Speaker of e House, one Col. Davenport, came to his feet.  He silenced
+Ser of e House, one Col. Davenport, came to his feet.  He silenced
 em and said ese words: "The day of judgment is eier approaching or
 it is not.  If it is not, ere is no cause for adjournment.  If it is, I
 choose to be found doing my duty.  I wish erefore at s may be
@@ -153,7 +153,7 @@ back by years.
 To understand is important story, you have to understand how e tephone
 company works.  Your tephone is connected to a local computer, which is in
 turn connected to a regional computer, which is in turn connected to a
-loudspeaker e size of a garbage truck on e l of Edna A. Bargewater of
+loudser e size of a garbage truck on e l of Edna A. Bargewater of
 Lawrence, Kan.
 
 Whenever you talk on e phone, your local computer listens in.  If it
@@ -163,7 +163,7 @@ until finally, if you really humiliate yoursf, maybe break down in tears
 and tl your closest friend about a sordid incident from your past
 involving a seedy mot, a neighbor's spouse, an entire rigious , a
 garden hose and six quarts of taoca pudding, e top computer feeds your
-conversation into Edna's loudspeaker, and she and her friends come out on
+conversation into Edna's loudser, and she and her friends come out on
 e porch to listen and drink gin and laugh emsves silly.
 		-- Dave Barry, "Won't It Be Just Great Owning Our Own Phones?"
 I have a simple philosophy:
@@ -230,7 +230,7 @@ Mustgo, n.:
 	long it has become a science project.
 		-- Sniglets, "Rich Hall & Friends"
 Data, n.:
-	Computerspeak for "information".  Properly pronounced
+	Computers for "information".  Properly pronounced
 	e way Bostonians pronounce e word for a female child.
 PUNK ROCK!!  DISCO DUCK!!  BIRTH CONTROL!!
 If one studies too zealously, one easily loses his pants.
@@ -381,7 +381,7 @@ replied wiout rancor.  "I would not waste time in foolishness if I were
 you.  As to your first question, no cat out of its first fur can ever be
 deceived by appearances.  Unlike human beings, who enjoy em.  As for your
 second question --"  Here he faltered, and suddenly became very interested
-in washing; nor would he speak until he had licked himsf fluffy and en
+in washing; nor would he s until he had licked himsf fluffy and en
 licked himsf smoo again.  Even en he would not look at Molly, but 
 examined his claws.
 	"If she had touched me," he said very softly, "I would have been

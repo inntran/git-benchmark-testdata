@@ -108,7 +108,7 @@ about emsves.
 I loved her wi a love irsty and desperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
-PARDON me, am I speaking ENGLISH?
+PARDON me, am I sing ENGLISH?
 "All snakes who wish to remain in Irand will please raise eir right hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
@@ -160,7 +160,7 @@ Los Anges.  Disregard personal lings about city and intercept."
 --  Firesign atre movie, _J-Men Fever_
 Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
-Peace is much me precious an a ece of land... let ere be no me wars.
+Peace is much me  an a ece of land... let ere be no me wars.
 		-- Mohammed Anwar Sadat, 1918-1981
 Most people have a mind at's open by appointment only.
  histy of e rise of Christianity has everying to do wi politics,
@@ -206,7 +206,7 @@ A New Yk City dinance prohibits e shooting of rabbits from e
 rear of a Third Avenue street car -- if e car is in motion.
 Can't act.  Slightly bald.  Also dances.
 		-- RKO exeive, reacting to Fred Aste's screen test.
-		   Cerf/Navasky, " Exs Speak"
+		   Cerf/Navasky, " Exs S"
 Everying at you know is wrong, but you can be straightened out.
 	Once upon a time ere was a beautiful young girl taking a stroll 
 rough e woods.  All at once she saw an ly ugly bull frog sed 

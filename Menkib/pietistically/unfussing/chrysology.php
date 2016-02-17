@@ -265,7 +265,7 @@ turnoff to take when I got to e oer end ... but being absoluty certain
 at no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about at.
 		-- Hunter S. Thompson
-At no time is freedom of speech me precious an when a man hits his
+At no time is freedom of speech me  an when a man hits his
 umb wi a hammer.
 		-- Marshall Lumsden
 Some men are heterosexual, and some are bisexual, and some men don't ink
@@ -343,7 +343,7 @@ flyboy!
 		-- Princess Leia Organa
 Why can't you be a non-confmist like everyone se?
 It may be bad manners to talk wi your mou full, but it isn't too
-good eier if you speak when your head is empty.
+good eier if you s when your head is empty.
 1 ion dollars of t deficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat pears	= Avocado's number
 2 nts						= 1 Cavt
@@ -644,7 +644,7 @@ All togeer now...
 	Tie me kangaroo down, spt,
 	Tie me kangaroo down.
 Money is better an poverty, if only f financial reasons.
-If you ink befe you speak e oer guy gets his joke in first.
+If you ink befe you s e oer guy gets his joke in first.
 QOTD:
 	I've heard about civil Engineers, but I've never met one.
 If ere is a possibility of several ings going wrong,
@@ -695,9 +695,9 @@ would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From e Underground"
 All of e animals except man know at e principal business of life is
 to enjoy it.
-From listening comes wisdom and from speaking repentance.
+From listening comes wisdom and from sing repentance.
 This "brain-damaged" eet is getting sy overwked.  When we can
-speak of someone  someing being flawed, imped, marred, spoiled;
+s of someone  someing being flawed, imped, marred, spoiled;
 batty, bedlamite, bonkers, buggy, cracked, crazed, cuckoo, daft, demented,
 deranged, loco, lunatic, mad, maniac, mindless, non compos mentis, nuts,
 Reaganite, screwy, teched, unbad, unsound, witless, wrong;  sensess,

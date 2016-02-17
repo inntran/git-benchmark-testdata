@@ -88,7 +88,7 @@ be blockhead enough to have me.
 		-- Abraham Lincoln
 Love is e process of my leading you gently back to yoursf.
 		-- Saint Exupery
-Someone is speaking wl of you.
+Someone is sing wl of you.
 
 How unusual!
 Hse sense is e ing a hse has which keeps it from betting on people.
@@ -222,7 +222,7 @@ Maematicians practice absolute freedom.
  hr... e hr!
 	One day it was announced at e young monk Kyogen had reached
 an enlightened state.  Much impressed by is news, several of his peers
-went to speak wi him.
+went to s wi him.
 	"We have heard at you are enlightened.  Is is true?" his flow
 students inquired.
 	"It is", Kyogen answered.

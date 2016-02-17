@@ -107,7 +107,7 @@ alimony, n:
 	Having an ex you can bank on.
 Disrai was pretty close: actually, ere are Lies, Damn lies, Statistics,
 Benchmarks, and Divery dates.
-Speak softly and carry a +6 two-handed sword.
+S softly and carry a +6 two-handed sword.
 We have a equal opportunity Calculus class -- it's fully integrated.
 One does not ank logic.
 		-- Sarek, "Journey to Bab", stardate 3842.4
@@ -296,7 +296,7 @@ you test it.  And in at astrology is reqlly quite someing se.
 I went into e business for e money, and e art grew out of it.  If
 people are disillusioned by at remark, I can't hp it.  It's e tru.
 		-- Charlie Chaplin
-In which lev of metalanguage are you now speaking?
+In which lev of metalanguage are you now sing?
 I have great fai in fools -- sf confidence my friends call it.
 		-- Edgar Allan Poe
 When we are planning for posterity, we ought to remember at virtue is

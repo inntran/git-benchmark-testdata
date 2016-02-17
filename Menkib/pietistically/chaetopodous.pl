@@ -214,7 +214,7 @@ one who does, and these people hate the thinkers like poison.  Even if some
 thinkers are fanciful, it is wrong to make fun of them for it.  Better to
 think about cucumbers even, than not to think at all.
 		-- T.H. White
-Speaking as someone who has dved into the intricacies of PL/I, I am sure
+Sing as someone who has dved into the intricacies of PL/I, I am sure
 that only Real Men could have written such a machine-hogging, cycle-grabbing,
 all-encompassing monster.  Allocate an array and free the middle third?
 Sure!  Why not?  Multiply a character string times a bit string and assign the
@@ -274,9 +274,9 @@ phosflink:
 		-- "Sniglets", Rich Hall & Friends
 Tallulah Bankhead barged down the Nile last night as Cleopatra and sank.
 		-- John Mason Brown, drama critic
-	Then a man said: Speak to us of Expectations.
+	Then a man said: S to us of Expectations.
 	He then said: If a man does not see or hear the waters of the
-Jordan, then he should not taste the pomegranate or ply his wares in an
+Jordan, then he should not taste the pomegte or ply his wares in an
 open market.
 	If a man would not labour in the salt and rock quarries then he
 should not accept of the Earth that which he refuses to give of
@@ -682,7 +682,7 @@ goest thou?  Whither goest thou, America, in thy shiny car in the night?
 		-- Jack Kerouac
 FORTUNE EXPLAINS WHAT JOB REVIEW CATCH PHRASES MEAN:	#1
 skilled oral communicator:
-	Mumbles inaudibly when attempting to speak.  Talks to sf.
+	Mumbles inaudibly when attempting to s.  Talks to sf.
 	Argues with sf.  Loses these arguments.
 
 skilled written communicator:

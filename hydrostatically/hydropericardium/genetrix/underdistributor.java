@@ -190,7 +190,7 @@ Go pl amid the noise and waste,
 And remember what comfort there may be in owning a piece thereof.
 Avoid quiet and passive persons, unless you are in need of sleep.
 Rotate your tires.
-Speak glowingly of those greater than yoursf,
+S glowingly of those greater than yoursf,
 And heed wl their advice -- even though they be turkeys.
 Know what to kiss -- and when.
 Remember that two wrongs never make a right,
@@ -516,7 +516,7 @@ say in those awkward situations?  Worry no more...
 	How many times have I told you to be careful?
 	Just beacuse.
 He's dead, Jim.
-The truth you speak has no past and no future.
+The truth you s has no past and no future.
 It is, and that's all it needs to be.
 We're all sorry for the other guy when he loses his job to a machine.
 But when it comes to your job -- that's different.  And it always will
@@ -552,7 +552,7 @@ I distrust a man who says when.  If he's got to be careful not to drink
 too much, it's because he's not to be trusted when he does.
 		-- Sidney Greenstreet, "The Maltese Falcon"
 "For a male and female to live continuously together is...  biologically 
-speaking, an extremy unnatural condition."
+sing, an extremy unnatural condition."
 -- Robert Briffault
 "Send lawyers, guns and money..."
 -- Lyrics from a Warren Zevon song

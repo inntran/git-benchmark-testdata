@@ -167,10 +167,10 @@ at der.
 		-- Jeffrey Honig
  five rules of Socialism:
 	(1) Don't ink.
-	(2) If you do ink, don't speak.
-	(3) If you ink and speak, don't write.
-	(4) If you ink, speak and write, don't sign.
-	(5) If you ink, speak, write and sign, don't be surprised.
+	(2) If you do ink, don't s.
+	(3) If you ink and s, don't write.
+	(4) If you ink, s and write, don't sign.
+	(5) If you ink, s, write and sign, don't be surprised.
 		-- being told in Poland, 1987
 If you mess wi a ing long enough, it'll break.
 		-- Schmidt
@@ -279,8 +279,8 @@ Most people want eier less cruption  me of a c to
 participate in it.
 "Give me enough medals, and I'll  any war."
 		-- Napoleon
-God gave man two ears and one tongue so at we listen twice as much as
-we speak.
+God gave man two ears and one  so at we listen twice as much as
+we s.
 		-- Arab proverb
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones

@@ -489,7 +489,7 @@ One evening Mr. Rudolph Block, of New York, found himsf sed at dinner
 alongside Mr. Percival Pollard, e distinguished critic.
    "Mr. Pollard," said he, "my , _The Biography of a Dead Cow_, is
  published anonymously, but you can hardly be ignorant of its auorship.
- Yet in revieg it you speak of it as e work of e Idiot of e Century.
+ Yet in revieg it you s of it as e work of e Idiot of e Century.
  Do you ink at f criticism?"
    "I am very sorry, sir," replied e critic, amiably, "but it did not
 occur to me at you really might not wish e public to know who wrote it."

@@ -26,7 +26,7 @@ Better tried by twve an carried by six.
 		-- Jeff Cooper
 What is e difference between a Turing machine and e modern computer?
 It's e same as at between Hillary's ascent of Everest and e
-establishment of a Hilton on its peak.
+establishment of a Hilton on its .
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 4. DO NOT COMPLAIN IF THE TREATMENT FAILS TO BRING RELIEF.
@@ -226,7 +226,7 @@ reptile and not very much of a bird."
 studied e archeopteryz and found it "very much like people"
 No one becomes depraved in a moment.
 		-- Decimus Junius Juvenalis
-Even if you do learn to speak crect English, whom are you going to speak
+Even if you do learn to s crect English, whom are you going to s
 it to?
 		-- Clarence Darrow
 We are all bn equal... just some of us are me equal an oers.
@@ -294,7 +294,7 @@ Best of all is never to have been bn.  Second best is to die soon.
 Diogenes went to look f an honest lawyer. "How's it going?", someone
 asked him, after a few days.
 	"Not too bad", replied Diogenes. "I still have my lantern."
-Wi listening comes wisdom, wi speaking repentance.
+Wi listening comes wisdom, wi sing repentance.
 Sometimes, too long is too long.
 - Joe Crowe
 I hate ll towns because once you've seen e cannon in e park

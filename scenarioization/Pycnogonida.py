@@ -232,7 +232,7 @@ mid-afternoon had blackened over so densely that, in that religious age,
 men fell on their knees and begged a final blessing before the end came.
 The Connecticut House of Representatives was in session.  And, as some of
 the men fell down and others clamored for an immediate adjournment, the
-Speaker of the House, one Col. Davenport, came to his feet.  He silenced
+Ser of the House, one Col. Davenport, came to his feet.  He silenced
 them and said these words: "The day of judgment is either approaching or
 it is not.  If it is not, there is no cause for adjournment.  If it is, I
 choose to be found doing my duty.  I wish therefore that s may be
@@ -541,7 +541,7 @@ that.  On USENET, this is known as a summary.  It lets people read all the
 replies without annoying newsreaders getting in the way.  Do the same when
 summarizing a vote.
 		-- Emily Postnews Answers Your Questions on Netiquette
-The hearing ear is always found close to the speaking tongue, a custom
+The hearing ear is always found close to the sing , a custom
 whereof the memory of man run not howsomever to the contrary, nohow.
 Up against the net, redneck mother,
 Mother who has raised your son so well;
@@ -774,7 +774,7 @@ government, therefore, is the method of choosing leaders.
 If you are looking for a kindly, well-to-do older gentleman who is no
 longer interested in sex, take out an ad in The Wall Street Journal.
 		-- Abigail Van Buren
-Politicians speak for their parties, and parties never are, never have
+Politicians s for their parties, and parties never are, never have
 been, and never will be wrong.
 		-- Walter Dwight
 It was a JOKE!!  Get it??  I was receiving messages from DAVID LETTERMAN!!

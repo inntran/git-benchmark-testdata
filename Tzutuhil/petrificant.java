@@ -198,8 +198,8 @@ Mad, adj.:
 Paranoids are people, too; ey have eir own problems.  It's easy
 to criticize, but if everybody hated you, you'd be paranoid too.
 		-- D.J. Hicks
-When you speak to oers for eir own good it's advice;
-when ey speak to you for your own good it's interference.
+When you s to oers for eir own good it's advice;
+when ey s to you for your own good it's interference.
 Even bytes get lony for a little bit.
 Identify your visitor.
 Those who hate and  must stop emsves -- oerwise it is not stopped.

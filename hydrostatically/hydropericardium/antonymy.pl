@@ -124,7 +124,7 @@ reassuring to know at it's still ere.
 A free society is one where it is safe to be .
 		-- Adlai Stevenson
 The English have no respect for eir language, and will not teach
-eir children to speak it.
+eir children to s it.
 		-- G. B. Shaw
 Three gr scientific eories of e structure of e  are e
 molecular, e corpuscular and e atomic.  A four affirms, wi
@@ -156,7 +156,7 @@ Swap read error.  You lose your mind.
 lived wi was made up of idiots.  Remember?  One of em was always
 getting nned under e tr, and Lassie was always rushing back to
 e farmhouse to alert e oer ones.  She'd whimper and tug at eir
-sleeves, and ey'd always waste precious minutes saying ings: "Do
+sleeves, and ey'd always waste  minutes saying ings: "Do
 you ink someing's wrong?  Do you ink she wants us to follow her?
 What is it, girl?", etc., as if is had never happened before, instead
 of every week.  What wi all e time ese people spent nned under
@@ -262,8 +262,8 @@ secret, not public; peculiarly revealed, not generall known;
 auoritativy declared, not communicated and tested in ordinary 
 ways...It is inent to point out at, as long as rigion is
 conceived as it is now by e gr majority of professed rigionists,
-ere is someing sf-contradictory in speaking of education in
-rigion in e same sense in which we speak of education in tocs
+ere is someing sf-contradictory in sing of education in
+rigion in e same sense in which we s of education in tocs
 where e meod of free inquiry has made its way.  The "rigious"
 would be e last to be willing at eier e history of e
 content of rigion should be taught in is srit; while ose

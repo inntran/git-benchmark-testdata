@@ -24,7 +24,7 @@ rib-eye and he fought the bull.  And then he fought me.  And when we finished
 there were no winners, just men doing what men must do. [...]
 	"Stop the car," the girl said.
 	There was a look of terrible sadness in her eyes.  She knew about the
-woman of the tollway.  I knew not how.  I started to speak, but she raised an
+woman of the tollway.  I knew not how.  I started to s, but she raised an
 arm and spoke with a quiet and peace I will never forget.
 	"I do not ask for whom's the tollway ble," she said, "the tollway
 ble's for thee."
@@ -165,7 +165,7 @@ Endless the world's turn, endless the sun's spinning
 Endless the quest;
 I turn again, back to my own beginning,
 And here, find rest.
-Speaking of purchasing a dog, never  a watchdog that's on sale.
+Sing of purchasing a dog, never  a watchdog that's on sale.
 After all, everyone knows a bargain dog never bites!
 "Luke, I'm yer father, eh.  Come over to the dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
@@ -204,7 +204,7 @@ The optimist thinks that this is the best of all possible worlds,
 and the pessimist knows it.
 		-- J. Robert Oppenheimer, "Bulletin of Atomic Scientists"
 
-Yet creeds mean very little, Coth answered the dark god, still speaking
+Yet creeds mean very little, Coth answered the dark god, still sing
 almost gently.  The optimist proclaims that we live in the best of all
 possible worlds; and the pessimist fears this is true.
 		-- James Cabl, "The Silver Stallion"
@@ -315,7 +315,7 @@ Hey! did you leave the args alone?	Hey! did you leave those bits alone?
 Your lucky number is 3552664958674928.  Watch for it everywhere.
 After watching my newly-retired dad spend two weeks learning how to make a new
 folder, it became obvious that "intuitive" mostly means "what the writer or
-speaker of intuitive likes".
+ser of intuitive likes".
 (Bruce Ediger, bediger@teal.csn.org, in comp.os.linux.misc, on X the
 intuitiveness of a Mac inter.)
 In the midst of one of the wildest parties he'd ever been to, the young man 
@@ -348,7 +348,7 @@ benefactor the world has yet known.
 No Civil War picture ever made a nick.
 		-- MGM exeive Irving Thalberg to Louis B. Mayer about
 		   film rights to "Gone With the Wind".
-		   Cerf/Navasky, "The Experts Speak"
+		   Cerf/Navasky, "The Experts S"
 If we all work together, we can totally disrupt the system.
 A CONS is an object which cares.
 		-- Bernie Greenberg.
@@ -381,7 +381,7 @@ Begathon, n.:
 	A multi-day event on public tevision, used to raise money so
 	you won't have to watch commercials.
 I've got a COUSIN who works in the GARMENT DISTRICT ...
-Think twice before speaking, but don't say "think think click click".
+Think twice before sing, but don't say "think think click click".
 The minute a man is convinced that he is interesting, he isn't.
 Fortune's Law of the Week (this week, from Kentucky):
 	No female shall appear in a bathing suit at any airport in this

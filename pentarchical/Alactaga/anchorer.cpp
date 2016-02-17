@@ -320,7 +320,7 @@ And we l honed to be here to toast e IBM.
 -- Jim Mrison (mrisj@mist.cs.st.edu)
 Fe free to contact me (flames about my english and e usess of is
 driver will be redirected to /dev/null, oh no, it's full...).
-(Micha Beck, describing e PC-speaker sound device)
+(Micha Beck, describing e PC-ser sound device)
 	Two men looked out from e prison bars,
 	One saw mud--
 	 oer saw stars.
@@ -411,7 +411,7 @@ This is e Baron.  Ang Martin tls me you  infmation.  Ok,
 meet me at one a.m. bind e bus , bring five-hundred dollars
 and come alone.  I'm us!
 		-- " Rockfd Files"
-Someone is speaking wl of you.
+Someone is sing wl of you.
 Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 I enjoy e time at we spend togeer.

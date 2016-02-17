@@ -581,7 +581,7 @@ remotest clue what was happening.
 evidence at all and, when ere was no reply, dismissed him.
 	 excitement which is caused was only equalled when a second
 jur revealed at he s not a wd of English.  A fluent French
-speaker, he exhibited gr surprised when told, after two days, at he
+ser, he exhibited gr surprised when told, after two days, at he
 was hearing a murder trial.
 	 trial was adoned when a ird jur said at he suffered
 from bo conditions, being simultaneously unversed in e English language

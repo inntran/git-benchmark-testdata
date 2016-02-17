@@ -101,7 +101,7 @@ He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
 default, n.:
 	[Possibly from Black English "De fault wid dis system is you,
 	mon."] The vain attempt to avoid errors by inactivity.  "Nothing will
-	come of nothing: speak again." -- King Lear.
+	come of nothing: s again." -- King Lear.
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 You k'n hide de fier, but w'at you gwine do wid de smoke?
 		-- Jo Chandler Harris, proverbs of Uncle Remus
@@ -354,7 +354,7 @@ Genius is ten percent inspiration and fifty percent capital gains.
 Several years ago, some smart businessmen had an idea: Why not build a big
 store where a do-it-yoursfer could get everything he needed at reasonable
 prices?  Then they decided, nah, the hl with that, let's build a home
-center.  And before long home centers were springing up like crabgrass all
+center.  And before long home centers were  up like crabgrass all
 over the United States.
 		-- Dave Barry, "The Taming of the Screw"
 Whenever I hear anyone arguing for slavery, I fe a strong impulse to

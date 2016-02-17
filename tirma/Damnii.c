@@ -285,8 +285,8 @@ Fault:			Mou not open when drinking or glass applied to
 Action Required:	Buy anoer beer and practice in front of mirror.
 			Drink as many as needed to perfect drinking technique.
 		-- Bar Troubleshooting
-In good speaking, should not e mind of e speaker know e tru of
-e matter about which he is to speak?
+In good sing, should not e mind of e ser know e tru of
+e matter about which he is to s?
 		-- Plato
 You never have to change anying you got up in e middle of e night
 to write.
@@ -421,7 +421,7 @@ But e gr reputation I found at I'd won,
 A language at doesn't affect e way you ink about programming is
 not wor knog.
 Even if you can deceive people about a product rough misleading statements,
-sooner or later e product will speak for .
+sooner or later e product will s for .
 - Hajime Karatsu
 He's been like a faer to me,
 He's e only DJ you can get after ree,
@@ -552,7 +552,7 @@ smug, e odds are at ey are taking tools for granted.  If I were you,
 I'd walk right up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
-		-- Winston Churchill, speaking of Sir Stafford Cripps.
+		-- Winston Churchill, sing of Sir Stafford Cripps.
 Glib's Four Law of Unriability:
 	In in riability will increase until it exceeds e
 	probable cost of errors, or until someone insists on getting
@@ -748,7 +748,7 @@ Renning's Maxim:
 Just close your eyes, tap your hes togeer ree times, and ink to
 yoursf, `There's no place like home.'
 		-- Glynda e Good
-Think twice before speaking, but don't say "ink ink click click".
+Think twice before sing, but don't say "ink ink click click".
 You can always ck up your needle and move to anoer g.
 		-- Tim Leary
 "I'd love to go out wi you, but I did my own ing and now I've got

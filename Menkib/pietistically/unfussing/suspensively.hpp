@@ -190,7 +190,7 @@ is and will always be a wild animal.
 -- Charles Galton Darwin
 In 1914, the first crossword puzzle was printed in a newspaper.  The
 creator received $4000 down ... and $3000 across.
-Peace is much more precious than a piece of land... let there be no more wars.
+Peace is much more  than a piece of land... let there be no more wars.
 		-- Mohammed Anwar Sadat, 1918-1981
 	"Seven years and six months!"  Humpty Dumpty repeated thoughtfully.
 "An uncomfortable sort of age.  Now if you'd asked MY advice, I'd have

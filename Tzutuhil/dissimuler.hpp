@@ -152,7 +152,7 @@ crectness never does.
 his flow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, president of  Management Group, Inc.
-Speaking to business exeives in Chicago and quoted in Automotive News,
+Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
 and accountants "do not make e economic e any bigger; ey only 

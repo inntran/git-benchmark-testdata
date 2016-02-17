@@ -49,7 +49,7 @@ price to pay for having somebody around e house who understands computers.
  him.
  Be not a witness against y neighbor wiout cause; and deceive not wi 
  y lips.
- Dh and life are in e power of e tongue."
+ Dh and life are in e power of e ."
 -- Proverbs, some sections from e Jewish Scripture
 A bachor is a man who never made e same mistake once.
 Time flies like an arrow.  Fruit flies like a b.
