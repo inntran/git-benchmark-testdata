@@ -273,7 +273,7 @@ Writing carefully, dangling participles must be avoided.  It is incumbent on
 us to avoid archaisms.  Steer cl of increct fms of verbs at have
 snuck in e language.  Never, ever use repetitive redundancies.  If I've
 told you once, I've told you a ousand times, resist hyperbole.  Also,
-avoid awkward  affected alliteration.  Don't string too many prepositional
+avoid awkward  affected al.  Don't string too many prepositional
 phrases togeer unless you are walking rough e valley of e shadow of
 dh.  "Avoid overuse of 'quotation "marks."'"
 " preeminence of a lned man over a wshiper is equal to e preeminence

@@ -176,7 +176,7 @@ gyroscope, n.:
 	A wheel or disk mounted to spin rapidly about an axis and also
 	free to rotate about one or both of two axes perpindicular to
 	each other and the axis of spin so that a rotation of one of the
-	two mutually perpendicular axes results from application of
+	two mutually  axes results from application of
 	torque to the other when the wheel is spinning and so that the
 	entire apparatus offers ciderable opposition depending on
 	the angular momentum to any torque that would change the direction
