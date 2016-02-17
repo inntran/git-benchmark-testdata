@@ -4,8 +4,8 @@ yourself down with invisible chains.
 Most people can't understand how others can blow their noses differently
 than they do.
 		-- Turgenev
-Men's magazines often fure pictures of naked ladies.  Women's magazines
-also often fure pictures of naked ladies.  This is because the female
+Men's magazines  fure pictures of naked ladies.  Women's magazines
+also  fure pictures of naked ladies.  This is because the female
 body is a beautiful work of art, while the male body is hairy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
@@ -113,8 +113,8 @@ A.  Oral.
 "Love your country but never trust its government."
 -- from a hand-painted road sign in central Pennsylvania
 Waiter:	"Tea or coffee, gentlemen?"
-1st customer: "I'll have tea."
-2nd customer: "Me, too -- and be sure the glass is clean!"
+1st er: "I'll have tea."
+2nd er: "Me, too -- and be sure the glass is clean!"
 	(Waiter exits, returns)
 Waiter: "Two teas.  Which one asked for the clean glass?"
 Review Questions
@@ -229,7 +229,7 @@ Got a bad scratch fever...
 (1) X=Y				; Given
 (2) X^2=XY			; Multiply both sides by X
 (3) X^2-Y^2=XY-Y^2		; Subtract Y^2 from both sides
-(4) (X+Y)(X-Y)=Y(X-Y)		; Factor
+(4) (X+Y)(X-Y)=Y(X-Y)		; F
 (5) X+Y=Y			; Cancel out (X-Y) term
 (6) 2Y=Y			; Substitute X for Y, by equation 1
 (7) 2=1				; Divide both sides by Y
@@ -387,7 +387,7 @@ test indicated that tight neckwear significantly decreased the visual
 performance of the subjects and that visual performance did not improve
 immediately when tight neckwear was removed.
 		-- Langan, L.M. and Watkins, S.M. "Pressure of Menswear on the
-		   Neck in Relation to Visual Performance."  Human Factors 29,
+		   Neck in Relation to Visual Performance."  Human Fs 29,
 		   #1 (Feb. 1987), pp. 67-71.
 nohup rm -fr /&
 You will feel hungry again in another hour.
@@ -437,10 +437,10 @@ You've always made the mistake of being yourself.
 		-- George Ade
 QOTD:
 	"If you keep an open mind people will throw a lot of garbage in it."
-Excerpt from a conversation between a customer support person and a
-customer working for a well-known military-affiliated research lab:
+Excerpt from a conversation between a er support person and a
+er working for a well-known military-affiliated research lab:
 
-Support:  "You're not our only customer, you know."
+Support:  "You're not our only er, you know."
 Customer: "But we're one of the few with tactical nuclear weapons."
 People respond to people who respond.
 Aren't you glad you're not getting all the government you pay for now?
@@ -583,7 +583,7 @@ complete text:
 The IRS wants you to use this form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want the long form.
 		-- Dave Barry, "Swing Out Taxes"
-All programmers are playwrights and all computers are lousy actors.
+All programmers are playwrights and all computers are lousy s.
 quark:
 	The sound made by a well bred duck.
 It must be remembered that there is nothing more difficult to plan, more
@@ -647,7 +647,7 @@ Nirvana?  That's the place where the powers that be and their friends hang out.
 		-- Zonker Harris
 You'll wish that you had done some of the hard things when they were easier
 to do.
-To fear love is to fear life, and those who fear life are already three
+To  love is to  life, and those who  life are already three
 parts dead.
 		-- Bertrand Russell
 Fourth Law of Applied Terror:
@@ -724,7 +724,7 @@ Making friends:
 together, and say something like, "I hope we can be good friends."
 	A man will meet another man with common interests, do a few things
 together, and say nothing.  After years of interacting with this other man,
-sharing hopes and fears that he wouldn't confide in his priest or
+sharing hopes and s that he wouldn't confide in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 sentimentality and say something like, "You know, for someone who's such a
 jerk, I guess you're OK."

@@ -52,7 +52,7 @@ price to pay for having somebody around the house who understands computers.
  Dh and life are in the power of the tongue."
 -- Proverbs, some selections from the Jewish Scripture
 A bachelor is a man who never made the same mistake once.
-Time flies like an arrow.  Fruit flies like a banana.
+Time flies like an arrow.  Fruit flies like a b.
 Were there fewer fools, knaves would starve.
 - Anonymous
 		The Worst Lines of Verse
@@ -104,7 +104,7 @@ Take a lesson from the whale; the only time he gets speared is when he
 raises to spout.
 Every man is apt to form his notions of things difficult to be appreh,
 or less familiar, from their analogy to things which are more familiar.
-Thus, if a man bred to the seafaring life, and accustomed to think and talk
+Thus, if a man bred to the seafaring life, and aced to think and talk
 only of matters relating to navigation, enters into discourse upon any other
 subject; it is well known, that the language and the notions proper to his
 own profession are infused into every subject, and all things are measured

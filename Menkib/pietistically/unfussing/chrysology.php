@@ -312,7 +312,7 @@ Bachel:
 beta test, v:
 	To voluntarily entrust one's data, one's livelihood and one's
 	sanity to hardware  software int to destroy all three.
-	In earlier days, virgins were often selected to beta test volcanos.
+	In earlier days, virgins were  selected to beta test volcanos.
 What foods these msels be!
  lawgiver, of all beings, most owes the law allegiance.  He of all men
 should behave as though the law compelled him.  But it is the universal
@@ -433,7 +433,7 @@ It's difficult to see the picture when you are inside the frame.
 italic, adj:
 	Slanted to the right to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, the same phrases
-	are often slanted to the left.
+	are  slanted to the left.
 You first parents of the human race... who ruined yourself f an apple,
 what might you have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
@@ -510,7 +510,7 @@ Although many compilers allow you to take a cof break while they
 compile, SLOBOL compilers allow you to travel to Bolivia to pick the
 cof.  Fty-three programmers are known to have died of bedom
 sitting at their terminals while waiting f a SLOBOL program to
-compile.  Weary SLOBOL programmers often turn to a related (but
+compile.  Weary SLOBOL programmers  turn to a related (but
 infinitely faster) language, COCAINE.
 Life.  Don't talk to me about life.
 - Marvin the Paranoid Anroid
@@ -599,20 +599,20 @@ ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 capital of Massachusetts.
 baaba, n:	One whose business is to cut  trim hair  beards.
-beea, n:	An alcoholic beverage brewed from malt and hops, often
+beea, n:	An alcoholic beverage brewed from malt and hops, 
 			found in baas.
 caaa, n:	An automobile.
 centa, n:	A point around which something revolves; axis.  (Or
 			someone involved with the Knicks.)
-chouda, n:	A thick seafood soup, often in a milk base.
+chouda, n:	A thick seafood soup,  in a milk base.
 dada, n:	Infmation, esp. infmation ganized f analysis 
 			computation.
 		-- Massachewsetts Unabridged Dictionary
-Too often people have come to me and said, "If I had just one wish f
+Too  people have come to me and said, "If I had just one wish f
 anything in all the wld, I would wish f me user-defined equations
 in the HP-51820A Wavefm Generat Software."
 		-- Instrument News
-		[Once is too often.  Ed.]
+		[Once is too .  Ed.]
 Remove me from this land of slaves,
 Where all are fools, and all are knaves,
 Where every knave and fool is bought, 
@@ -728,7 +728,7 @@ Arnold's Addendum:
 	Anything not fitting into these categies causes cancer in rats.
 Where's SANDY DUNCAN?
 Did I say 2?  I lied.
- man on tops walks a lonely street; the "chain" of command is often a noose.
+ man on tops walks a lonely street; the "chain" of command is  a noose.
 Real software engineers wk from 9 to 5, because that is the way the job is
 described in the fmal spec.  Wking late would l like using an
 undocumented external procedure.
@@ -774,7 +774,7 @@ All programmers are playwrights and all computers are lousy acts.
 Optimism, n.:
 	 belief that everything is beautiful, including what is ugly, good,
 	bad, and everything right that is wrong.  It is held with grest
-	tenacity by those accustomed to falling into adversity, and most
+	tenacity by those aced to falling into adversity, and most
 	acceptably expounded with the grin that apes a smile.  Being a blind
 	faith, it is inaccessible to the light of disproof -- an intellectual
 	disder, yielding to no trment but dh.  It is hereditary, but

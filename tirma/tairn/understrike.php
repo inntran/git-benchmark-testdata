@@ -60,7 +60,7 @@ have given them to you.
 Reappraisal, n.:
 	An abrupt change of mind after being found out.
 There must be more to life than having everything.
-		-- Maurice Sendak
+		--  Sendak
 "Gravitation cannot be held responsible for people falling in love."
 -- Albert Einstein
 I'm EMOTIONAL now because I have MERCHANDISING CLOUT!!
@@ -255,7 +255,7 @@ will always do it.
 		-- Les Aspin, D., Wisconsin
 Say my love is easy had,
 	Say I'm bitten raw with pride,
-Say I am too often sad --
+Say I am too  sad --
 	Still behold me at your side.
 
 Say I'm neither brave nor young,
@@ -438,12 +438,12 @@ Practice yourself what you preach.
 A mother mouse was taking her large brood for a stroll across the kitchen
 floor one day when the local cat, by a f of stealth unusual even for
 its species, managed to trap them in a corner.  The children cowered,
-terrified by this fearsome beast, plaintively crying, "Help, Mother!
+terrified by this some beast, plaintively crying, "Help, Mother!
 Save us!  Save us!  We're scared, Mother!"
 	Mother Mouse, with the hopeless valor of a parent protecting its
 children, turned with her teeth bared to the cat, towering huge above them,
 and suddenly began to bark in a fashion that would have done any Doberman
-proud.  The startled cat fled in fear for its life.
+proud.  The startled cat fled in  for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
 you saved us!" and "Yay!  You scared the cat away!" she turned to them
 purposefully and declared, "You see how useful it is to know a second
@@ -499,7 +499,7 @@ Even peace may be purchased at too high a price.
 (From the System Administrator's Guide, by Lars Wirzenius)
 It did not occur to me that my being with two men continuously would
 interest anyone or arouse anyone's misgivings. I asked for an invitation
-for Heinrich too, as often as it seemed possible, when Paulus and I were
+for Heinrich too, as  as it seemed possible, when Paulus and I were
 invited to a social gathering. I felt the set of rules others lived by
 was irrelevant. My childhood attitude -- every attempt to adjust is
 hopeless and you might just as well follow your own attitudes -- must have

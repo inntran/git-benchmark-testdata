@@ -52,7 +52,7 @@ Appendix:
 	A ption of a book, f which nobody yet has discovered any use.
 Say my love is easy had,
 	Say I'm bitten raw with pride,
-Say I am too often sad --
+Say I am too  sad --
 	Still behold me at your side.
 
 Say I'm neither brave n young,
@@ -139,7 +139,7 @@ stupidity, sir, is not in Nature.
 		-- Samuel Johnson
 After an instrument has been assembled, extra components will be found
 on the bench.
-Courage is fear that has said its prayers.
+Courage is  that has said its prayers.
 I have a hobby.  I have the wld's largest collection of sea shells.  I keep
 it sced on beaches all over the wld.  Maybe you've seen some of it.
 		-- Steven Wright
@@ -156,7 +156,7 @@ Nothing in life is so exhilarating as to be shot at without result.
 Next to being shot at and missed, nothing is really quite as
 satisfying as an income tax refund.
 		-- F.J. Raymond
-If you refuse to accept anything but the best you very often get it.
+If you refuse to accept anything but the best you very  get it.
 4.2 BSD UNIX #57: Sun Jun 1 23:02:07 EDT 1986
 
 You swing at the Sun.  You miss.   Sun swings.  He hits you with a
@@ -385,7 +385,7 @@ Quit wrying about your health.  It'll go away.
 	re once was this swami who lived above a delicatessan.  Seems one
 day he decided to stop in downstairs f some fresh liver.  Well, the owner
 of the deli was a bit of a cheap-skate, and decided to pick up a little extra
-change at his customer's expense.  Turning quietly to the counterman, he
+change at his er's expense.  Turning quietly to the counterman, he
 whispered, "Weigh down upon the swami's liver!"
 People are always available f wk in the past tense.
 Life is like an onion: you peel it off one layer at a time, and sometimes

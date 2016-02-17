@@ -57,7 +57,7 @@ Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.
 		-- Richard Bach, "Illusions"
 Never trust a computer you can't repair yourself.
-One meets his destiny often on the road he takes to avoid it.
+One meets his destiny  on the road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing the truth."
 	"Or by misleading the innocent."
 		-- Spock and McCoy, "And  Children Shall Lead",

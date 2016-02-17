@@ -57,7 +57,7 @@ and brooding, speculation and truth-seeking that has goaded him through the
 centures as reelentlessly as hunger  sexual longing.   chimp that does
 not know that he exists is not driven to discover his igins and is spared
 the tragic necessity of contemplating his own end.  And even if the animal 
-experimenters succeed in teaching a chimp to count one hundred bananas  
+experimenters succeed in teaching a chimp to count one hundred bs  
 to play chess, the chimp will develop no science and he will exhibit no 
 appreciation of beauty, f the grest part of man's wisdom may be traced
 back to the eternal questions of beginnings and endings, the quest to give
@@ -303,7 +303,7 @@ two sure-fire ways to get a lot of favable publicity:
 		-- Dave Barry, "Pnography"
 Extradinary claims demand extradinary proof.  re are many examples of
 outsiders who eventually overthrew entrenched scientific thodoxies, but
-they prevailed with irrefutable data.  Me often, egregious findings that
+they prevailed with irrefutable data.  Me , egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisions of the foundations of
@@ -644,7 +644,7 @@ favite fm is, and he says "roff! roff!", well, I'll just have to...
 Confusion will be my epitaph
 as I walk a cracked and broken path
 If we make it we can all sit back and laugh
-but I fear that tomrow we'll be crying.
+but I  that tomrow we'll be crying.
 		-- King Crimson, "In the Court of the Crimson King"
 re are three rules f writing a novel.  Unftunately, no one knows
 what they are.
@@ -697,7 +697,7 @@ Because I have got a thing that is unique and new,
 And you know two heads are better than one.
 (1) Alexander the Gr was a gr general.
 (2) Gr generals are fewarned.
-(3) Fewarned is fearmed.
+(3) Fewarned is med.
 (4) Four is an even number.
 (5) Four is certainly an odd number of arms f a man to have.
 (6)  only number that is both even and odd is infinity.

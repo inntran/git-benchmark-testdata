@@ -62,7 +62,7 @@ wanted to hear a dumb-jock joke.
 you?  y used to be with the Chicago Bears.   two dudes behind you made
 the U.S. Olympic wrestling team.  And f you infmation, I used to play
 center at Notre Dame."
-	"Fget it," the customer said.  "I don't want to explain it five
+	"Fget it," the er said.  "I don't want to explain it five
 times."
 You'd better smile when they watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
@@ -369,7 +369,7 @@ But he built tetrahedral in his shape,
 His ions ferric,
 Love could not help but die,
 Uncatylised, inert, and undernourished.
-Whatever it is, I fear Greeks even when they bring gifts.
+Whatever it is, I  Greeks even when they bring gifts.
 		-- Publius Vergilius Maro (Virgil)
 Every time I think I know where it's at, they move it.
 Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".

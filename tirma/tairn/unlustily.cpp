@@ -74,7 +74,7 @@ IBP	Insert Bug and Proceed
 INSQSW	Insert into queue somewhere (f FINO queues [First in never out])
 PBC	Print and Break Chain
 PDSK	Punch Disk
-"You stay here, Audrey -- this is between me and the vegetable!"
+"You stay here,  -- this is between me and the vegetable!"
 -- Seymour, from _Little Shop Of Hrs_
 It's not so hard to lift yourself by your bootstraps once you're off the ground.
 		-- Daniel B. Luten

@@ -56,7 +56,7 @@ Art is a jealous mistress.
 		-- Ralph Waldo Emerson
 "Good health" is merely the slowest rate at which one can die.
 It's the opinion of some that crops could be grown on the moon.  Which raises
-the fear that it may not be long before we're paying somebody not to.
+the  that it may not be long before we're paying somebody not to.
 		-- Franklin P. Jones
 buzzword, n:
 	The fly in the ointment of computer literacy.
@@ -107,7 +107,7 @@ A penny saved is a penny to squander.
 Beggars should be no choosers.
 		-- John Heywood
 Nondeterminism means never having to say you are wrong.
-Yea, though I walk through the valley of the shadow of APL, I shall fear no
+Yea, though I walk through the valley of the shadow of APL, I shall  no
 evil, for I can string six primitive monadic and dic operators together.
 		-- Steve Higgins
 Why is it that when you DIE, you can't take your HOME ENTERTAINMENT
@@ -131,8 +131,8 @@ Coming together is a beginning;
 		working together is success.
 If you can read this, you're too close.
 My opinions may have changed, but not the fact that I am right.
-Men's magazines often fure pictures of naked ladies.  Women's magazines
-also often fure pictures of naked ladies.  This is because the female
+Men's magazines  fure pictures of naked ladies.  Women's magazines
+also  fure pictures of naked ladies.  This is because the female
 body is a beautiful work of art, while the male body is hairy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
@@ -267,7 +267,7 @@ There's no real need to do housework -- after four years it doesn't get
 any worse.
 "There was a vague, unpleasant manginess about his appearence; he somehow
 seemed dirty, though a close glance showed him as carefully shaven as an
-actor, and clad in  linen."
+, and clad in  linen."
 -- H.L. Mencken, on the dh of William Jennings Bryan
 District of Columbia pedestrians who leap over passing autos to escape
 injury, and then strike the car as they come down, are liable for any

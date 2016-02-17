@@ -156,7 +156,7 @@ I can find for "landskap").  These laws were written down sometime in the
 13th century, but date back even down into Viking times.  The oldest one is
 the Vastgota law which clearly has pagan influences, thinly covered with some
 Christian stuff.  In this law, we find a page about "lekare", which is the
-Old Norse word for a performing artist, actor/jester/musician etc.  Here is
+Old Norse word for a performing artist, /jester/musician etc.  Here is
 an approximate translation, where I have written "artist" as equivalent of
 "lekare".
 	"If an artist is ben, none shall pay fines for it.  If an artist
@@ -204,7 +204,7 @@ QOTD:
 	"The baby was so ugly they had to hang a pork chop around its
 	neck to get the dog to play with it."
 The best audience is intelligent, well-educated and a little drunk.
-		-- Maurice Baring
+		--  Baring
 1 1 was a race-horse, 2 2 was 1 2. When 1 1 1 1 race, 2 2 1 1 2.
 If an S and an I and an O and a U
 With an X at the end spell Su;

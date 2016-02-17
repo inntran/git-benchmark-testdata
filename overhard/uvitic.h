@@ -38,7 +38,7 @@ It maketh me accurate to ten significant figures,
 It resteth my s roots and guideth me along paths of floating
 	decimal points f the sake of precision.
 Yea, tho I walk through the valley of surprise quizzes,
-	I will fear no prof, f my calculat is there to hearten me.
+	I will  no prof, f my calculat is there to hearten me.
 It prepareth a log table to comft me, it prepareth an
 	arc sin f me in the presence of my teachers.
 It annoints my homewk with crect solutions, my interpolations are

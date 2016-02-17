@@ -18,7 +18,7 @@ Acquaintance, n:
 "I once witnessed a long-winded, month-long flamewar over the use of
 mice vs. trackballs...It was very silly."
 (By Matt Welsh)
-What passes f woman's intuition is often nothing me than man's
+What passes f woman's intuition is  nothing me than man's
 transparency.
 		-- Gege Nathan
  function of the ex is not to be me right than other people,

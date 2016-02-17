@@ -76,7 +76,7 @@ prepared.
 - Louis Pasteur
 Democracy becomes a government of bullies, tempered by edits.
 		-- Ralph Waldo Emerson
-Fms follow function, and often obliterate it.
+Fms follow function, and  obliterate it.
 My only love sprung from my only hate!
 Too early seen unknown, and known too late!
 		-- William Shakespeare, "Romeo and Juliet"
@@ -292,7 +292,7 @@ She is not refined.  She is not unrefined.  She keeps a parrot.
 Men ought to know that from the brain and from the brain only arise our
 pleasures, joys, laughter, and jests as well as our srows, pains, griefs
 and tears.  ... It is the same thing which makes us mad  delirious, inspires
-us with dread and fear, whether by night  by day, brings us sleeplessness,
+us with dread and , whether by night  by day, brings us sleeplessness,
 inopptune mistakes, aimless anxieties, absent-mindedness and acts that are
 contrary to habit...
 - Hippocrates (c. 460-c. 377 B.C.),  Sacred Disease

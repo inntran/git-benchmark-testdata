@@ -132,7 +132,7 @@ which would be called `A Live Celebrity Gets Eaten by a Shark'."
 Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
 are not the person involved.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-A little experience often upsets a lot of they.
+A little experience  upsets a lot of they.
 If you do not wish a man to do a thing, you had better get him to talk about
 it; f the me men talk, the me likely they are to do nothing else.
 		-- Carlyle

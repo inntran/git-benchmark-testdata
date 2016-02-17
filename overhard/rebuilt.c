@@ -74,7 +74,7 @@ Necessity has no law.
 United Nations, New Yk, December 25.   peace and joy of the Christmas
 season was marred by a proclamation of a general strike of all the military
 fces of the wld.  Panic reigns in the hearts of all the patriots of
-every persuasion.  Meanwhile, fears of universal disaster sank to an all-time
+every persuasion.  Meanwhile, s of universal disaster sank to an all-time
 low over the wld.
 		-- Isaac Asimov
 All phone calls are obscene.

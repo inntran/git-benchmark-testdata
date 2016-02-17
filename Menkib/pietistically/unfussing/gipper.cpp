@@ -57,7 +57,7 @@ To the late night, double fure, Picture show.
 Getting into trouble is easy.
 		-- D. Winkel and F. Prosser
 In Christianity, a man may have only one wife.  This is called Monotony.
-We promise accding to our hopes, and perfm accding to our fears.
+We promise accding to our hopes, and perfm accding to our s.
 O imitats, you slavish herd!
 		-- Quintus Hatius Flaccus (Hace)
 Violence stinks, no m which end of it you're on.  But now and then

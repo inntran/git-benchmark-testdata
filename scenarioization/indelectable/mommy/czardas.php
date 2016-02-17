@@ -15,7 +15,7 @@ and especially from inactivity in the affairs of others.
 X windows:
 	 ultimate bottleneck.
 	Flawed beyond belief.
-	 only thing you have to fear.
+	 only thing you have to .
 	Somewhere between chaos and insanity.
 	On autopilot to oblivion.
 	 joke that kills.
@@ -81,7 +81,7 @@ OS/2 Skyways:
  terminal is almost empty, with only a few prospective passengers milling
 about.  announcer says that their flight has just departed, wishes them a
 good flight, though there are no planes on the runway. Airline personnel
-walk around, apologising profusely to customers in hushed voices, pointing
+walk around, apologising profusely to ers in hushed voices, pointing
 from time to time to the sleek, powerful jets outside the terminal on the
 field. y tell each passenger how good the real flight will be on these
 new jets and how much safer it will be than Windows Airlines, but that they

@@ -24,9 +24,9 @@ That pig run up and wiggled undernh that tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  the salesman said.  But tell me, how come the pig has
 three wooden legs?"
-	The farmer stared at the newcomer in amazement.  "Mister, when you 
+	The farmer stared at the newcomer in a.  "Mister, when you 
 got an amazin' pig like that, you don't  him all at once."
-There is no grief which time does not lessen and soften.
+There is no grief which time does not lessen and s.
 Never put off till run-time what you can do at compile-time.
 		-- D. Gries
 Consultant, n.:

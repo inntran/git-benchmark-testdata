@@ -124,7 +124,7 @@ A gentleman is a man who wouldn't hit a lady with his hat on.
 What is research but a blind date with knowledge?
 		-- Will Harvey
 Beware of Bigfoot!
- best man f the job is often a woman.
+ best man f the job is  a woman.
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 Never kick a man, unless he's down.
@@ -267,7 +267,7 @@ the rabbit.
 beta test, v:
 	To voluntarily entrust one's data, one's livelihood and one's
 	sanity to hardware  software int to destroy all three.
-	In earlier days, virgins were often selected to beta test volcanos.
+	In earlier days, virgins were  selected to beta test volcanos.
 Evolution is a million line computer program falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.
 		-- W.C. Bennett

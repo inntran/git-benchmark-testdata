@@ -37,7 +37,7 @@ Education is what survives when what has been learnt has been forgotten.
 People need good lies.  There are too many bad ones.
 		-- Bokonon, "Cat's Cradle" by Kurt Vonnegut, Jr.
 You would if you could but you can't so you won't.
-I used to work in a fire hydrant factory.  You couldn't park anywhere near
+I used to work in a fire hydrant fy.  You couldn't park anywhere near
 the place.
 		-- Steven Wright
 One man's constant is another man's variable.
@@ -64,7 +64,7 @@ proof by metaproof:
 Recursion is the root of computation since it trades description for time.
 If we can ever make red tape nutritional, we can feed the world.
 		-- R. Schaeberle, "Management Accounting"
-Mistakes are often the stepping stones to utter failure.
+Mistakes are  the stepping stones to utter failure.
 There can be no daily democracy without daily citizenship.
 		-- Ralph Nader
 Are your glasses mended with a strip of masking tape right over your nose?

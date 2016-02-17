@@ -136,7 +136,7 @@ suffer from the anti-science disease rampant in an apparently decaying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
 F courage mounteth with occasion.
 		-- William Shakespeare, "King John"
-re are few people me often in the wrong than those who cannot endure
+re are few people me  in the wrong than those who cannot endure
 to be thought so.
 Some of us are becoming the men we wanted to marry.
 		-- Glia Steinem
@@ -273,7 +273,7 @@ From night 'til early in the mn;
 		-- University of Texas' school song
 Extradinary claims demand extradinary proof.  re are many examples of
 outsiders who eventually overthrew entrenched scientific thodoxies, but
-they prevailed with irrefutable data.  Me often, egregious findings that
+they prevailed with irrefutable data.  Me , egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisions of the foundations of
@@ -768,9 +768,9 @@ Although many compilers allow you to take a cof break while they
 compile, SLOBOL compilers allow you to travel to Bolivia to pick the
 cof.  Fty-three programmers are known to have died of bedom
 sitting at their terminals while waiting f a SLOBOL program to
-compile.  Weary SLOBOL programmers often turn to a related (but
+compile.  Weary SLOBOL programmers  turn to a related (but
 infinitely faster) language, COCAINE.
-Every man is as God made him, ay, and often wse.
+Every man is as God made him, ay, and  wse.
 		-- Miguel de Cervantes
 You can't hug a child with nuclear arms.
 Food f thought is no substitute f the real thing.

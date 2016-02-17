@@ -58,7 +58,7 @@ QOTD:
 	"Our parents were never our age."
 When in doubt, have a man come through the do with a gun in his hand.
 		-- Raymond Chandler
-In Africa some of the native tribes have a custom of bing the ground
+In Africa some of the native tribes have a  of bing the ground
 with clubs and uttering spine chilling cries.  Anthropologists call
 this a fm of primitive self-expression.  In America we call it golf.
  price of seeking to fce our beliefs on others is that someday
@@ -134,7 +134,7 @@ government, therefe, is the method of choosing leaders.
 	re once was this swami who lived above a delicatessan.  Seems one
 day he decided to stop in downstairs f some fresh liver.  Well, the owner
 of the deli was a bit of a cheap-skate, and decided to pick up a little extra
-change at his customer's expense.  Turning quietly to the counterman, he
+change at his er's expense.  Turning quietly to the counterman, he
 whispered, "Weigh down upon the swami's liver!"
 What good is a ticket to the good life, if you can't find the entrance?
 Why are programmers non-productive?
@@ -210,7 +210,7 @@ Can't act.  Slightly bald.  Also dances.
 Everything that you know is wrong, but you can be straightened out.
 	Once upon a time there was a beautiful young girl taking a stroll 
 through the woods.  All at once she saw an ly ugly bull frog sed 
-on a log and to her amazement the frog s to her.  "Maiden," croaked the
+on a log and to her a the frog s to her.  "Maiden," croaked the
 frog, "would you do me a fav?  This will be hard f you to believe, but
 I was once a handsome, charming prince and then a mean, ugly old witch cast
 a spell over me and turned me into a frog."
@@ -321,7 +321,7 @@ Ftune's diet truths:
 7:  You should immediately pass up any recipes entitled "luscious and
     low-cal."  Also skip dishes furing "lively liver."  y aren't and
     it isn't.
-8:  Wearing a blindfold often makes many diet foods me palatable.
+8:  Wearing a blindfold  makes many diet foods me palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly wse than its  implies.
 11: A plain baked potato isn't wth the efft involved in chewing and

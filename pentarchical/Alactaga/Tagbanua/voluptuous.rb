@@ -14,7 +14,7 @@ Until Eve arrived, this was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
 	Anyone in your company who is me seni than you are.
-Don't put too fine a point to your wit f fear it should get blunted.
+Don't put too fine a point to your wit f  it should get blunted.
 		-- Miguel de Cervantes
 If it weren't f the last minute, nothing would ever get done.
 Ring around the collar.

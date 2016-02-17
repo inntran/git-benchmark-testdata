@@ -154,13 +154,13 @@ Sushido, n.:
 Swap read error.  You lose your mind.
 	Lassie looked brilliant, in part because the farm family she
 lived with was made up of idiots.  Remember?  One of them was always
-getting pinned under the tractor, and Lassie was always rushing back to
+getting pinned under the tr, and Lassie was always rushing back to
 the farmhouse to alert the other ones.  She'd whimper and tug at their
 sleeves, and they'd always waste precious minutes saying things: "Do
 you think something's wrong?  Do you think she wants us to follow her?
 What is it, girl?", etc., as if this had never happened before, instead
 of every week.  What with all the time these people spent pinned under
-the tractor, I don't see how they managed to grow any crops whatsoever.
+the tr, I don't see how they managed to grow any crops whatsoever.
 They probably got by on federal crop supports, which Lassie filed the
 applications for.
 		-- Dave Barry
@@ -292,7 +292,7 @@ You will reach the highest possible point in your business or profession.
 			HOW TO PROVE IT, PART 7
 proof by forward reference:
 	Reference is usually to a forthcoming paper of the author, 
-	which is often not as forthcoming as at first.
+	which is  not as forthcoming as at first.
 
 proof by semantic shift:
 	Some of the standard but inconvenient definitions are changed 

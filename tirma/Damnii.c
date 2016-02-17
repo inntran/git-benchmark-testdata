@@ -8,7 +8,7 @@ Know how to save 5 drowning lawyers?
 
 GOOD!
 memo, n.:
-	An interoffice communication too often written more for the benefit
+	An interoffice communication too  written more for the benefit
 	of the person who sends it than the person who receives it.
 A Smith & Wesson bs four aces.
 Youth is a disease from which we all recover.
@@ -48,7 +48,7 @@ yo-yo, n.:
 	(see also Computer).
 Never look a gift horse in the mouth.
 		-- Saint Jerome
-For fools rush in where angels fear to tread.
+For fools rush in where angels  to tread.
 		-- Alexander Pope
 Bug, n.:
 	An aspect of a computer program which exists because the
@@ -134,7 +134,7 @@ and they remain permanent influences on your life.
 as familiar wallpaper or instant friend.  The chemical action it entails is
 less worth analyzing than enjoying.  At any rate, these six pieces are about
 men with whom I felt an immediate sympat - to use a coining of Max Beerbohm's
-more satisfactory to me than the opaque vogue word "empathy".
+more satisfy to me than the opaque vogue word "empathy".
 		-- Alistair Cooke, "Six Men"
 All the world's a VAX,
 And all the coders merely butchers;
@@ -404,7 +404,7 @@ as well be me.  Then I know if someone likes me, they like me.
 (1) X=Y				; Given
 (2) X^2=XY			; Multiply both sides by X
 (3) X^2-Y^2=XY-Y^2		; Subtract Y^2 from both sides
-(4) (X+Y)(X-Y)=Y(X-Y)		; Factor
+(4) (X+Y)(X-Y)=Y(X-Y)		; F
 (5) X+Y=Y			; Cancel out (X-Y) term
 (6) 2Y=Y			; Substitute X for Y, by equation 1
 (7) 2=1				; Divide both sides by Y
@@ -466,7 +466,7 @@ The inverse of my verse, a null domain.
 		-- Stanislaw Lem, "Cyberiad"
 A man who turns green has eschewed protein.
 I never take work home with me; I always leave it in some bar along the way.
-[Doctors and Bartenders], We both get the same two kinds of customers
+[Doctors and Bartenders], We both get the same two kinds of ers
 -- the living and the dying.
 		-- Dr. Boyce, "The Menagerie" ("The Cage"), stardate unknown
 When there are two conflicting versions of the story, the wise course
@@ -579,7 +579,7 @@ the best one.
 		-- Jack Hurley
 I love you, not only for what you are, but for what I am when I am with you.
 		-- Roy Croft
-We seldom repent talking too little, but very often talking too much.
+We seldom repent talking too little, but very  talking too much.
 		-- Jean de la Bruyere
 I think that all good, right thinking people in this country are sick and
 tired of being told that all good, right thinking people in this country are
@@ -701,7 +701,7 @@ The point is, you see, that there is no point in driving yourself mad
 trying to stop yourself going mad.  You might just as well give in and
 save your sanity for later.
 Madness has no purpose.  Or reason.  But it may have a goal.
-		-- Spock, "The Alternative Factor", stardate 3088.7
+		-- Spock, "The Alternative F", stardate 3088.7
 Machines certainly can solve problems, store information, correlate,
 and play games -- but not with pleasure.
 		-- Leo Rosten

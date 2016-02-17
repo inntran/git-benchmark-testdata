@@ -1,7 +1,7 @@
 	*** A NEW KIND OF PROGRAMMING ***
 
 Do you want the instant respect that comes from being able to use technical
-terms that nobody understands?  Do you want to strike fear and loathing into
+terms that nobody understands?  Do you want to strike  and loathing into
 the hearts of DP managers everywhere?  If so, then let the Famous Programmers'
 School lead you on... into the wld of professional computer programming.
 y say a good programmer can write 20 lines of effective program per day.
@@ -255,7 +255,7 @@ Will be enshrined in our Who's Whom.
 I'm continually AMAZED at th'brhtaking effects of WIND EROSION!!
 Beggars should be no choosers.
 		-- John Heywood
-I often quote myself; it adds spice to my conversation.
+I  quote myself; it adds spice to my conversation.
 		-- G. B. Shaw
 In this wld some people are going to like me and some are not.  So, I may
 as well be me.  n I know if someone likes me, they like me.

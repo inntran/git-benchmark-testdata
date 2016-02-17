@@ -9,7 +9,7 @@ Q:  When he went, had you gone and had she, if she wanted to and were
     go, gone also, would he have brought you, meaning you and she, with
     him to the station?
 MR. BROOKS:  Objection.  That question should be taken out and shot.
-To those accustomed to the precise, structured methods of conventional
+To those aced to the precise, structured methods of conventional
 system development, explaty development techniques may seem messy,
 inelegant, and unsatisfying.  But it's a question of congruence:
 precision and flexibility may be just as disf in novel,
@@ -56,7 +56,7 @@ crowbar.
 		-- Oliver Wendell Holmes
 Say my love is easy had,
 	Say I'm bitten raw with pride,
-Say I am too often sad --
+Say I am too  sad --
 	Still behold me at your side.
 
 Say I'm neither brave n young,
@@ -86,7 +86,7 @@ Early to rise, early to bed, makes a man healthy, wealthy and dead.
 Unix:  Some say the learning curve is steep, but you only have to climb it once.
 -- Karl Lehenbauer
 y're only trying to make me LOOK paranoid!
-If people are good only because they fear punishment, and hope f reward,
+If people are good only because they  punishment, and hope f reward,
 then we are a sry lot indeed.
 		-- Albert Einstein
 If you can survive dh, you can probably survive anything.
@@ -232,7 +232,7 @@ He that composes himself is wiser than he that composes a book.
 X windows:
 	 ultimate bottleneck.
 	Flawed beyond belief.
-	 only thing you have to fear.
+	 only thing you have to .
 	Somewhere between chaos and insanity.
 	On autopilot to oblivion.
 	 joke that kills.
@@ -404,7 +404,7 @@ had fallen to the ground.
 		--  Book of Serenity
 One can never consent to creep when one ls an impulse to soar.
 		-- Helen Keller
-I do not fear computers.  I fear the lack of them.
+I do not  computers.  I  the lack of them.
 		-- Isaac Asimov
 He who knows others is wise.
 He who knows himself is enlightened.
@@ -514,7 +514,7 @@ Sears has everything.
 She was good at playing abstract confusion in the same way a midget is
 good at being sht.
 		-- Clive James, on Marilyn Monroe
-Every man is as God made him, ay, and often wse.
+Every man is as God made him, ay, and  wse.
 		-- Miguel de Cervantes
 When you know absolutely nothing about the topic, make your fecast by
 asking a carefully selected probability sample of 300 others who don't
@@ -570,7 +570,7 @@ refe fire engines are red.
 zeal, n.:
 	Quality seen in new graduates -- if you're quick.
 An optimist believes we live in the best wld possible; 
-a pessimist fears this is true.
+a pessimist s this is true.
 You will outgrow your usefulness.
 	If you do your best the rest of the way, that takes care of
 everything. When we get to October 2, we'll add up the wins, and then

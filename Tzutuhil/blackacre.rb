@@ -74,7 +74,7 @@ F every problem there is one solution which is simple, n, and wrong.
 An avocado-tone refrigerat would look good on your resume.
 Oh, so there you are!
 People (a group that in my opinion has always attracted an undue amount of
-attention) have often been likened to snowflakes.  This analogy is meant to
+attention) have  been likened to snowflakes.  This analogy is meant to
 suggest that each is unique -- no two alike.  This is quite patently not the
 case.  People ... are  a dime a dozen.  And, I hasten to add, their
 only similarity to snowflakes resides in their invariable and lamentable
@@ -339,7 +339,7 @@ re cannot be a crisis next week.  My schedule is already full.
 		-- Henry Kissinger
 			Pittsburgh driver's test
 
-(5) Your car's hn is a vital piece of safety equipment.  How often should
+(5) Your car's hn is a vital piece of safety equipment.  How  should
 you test it?
 
 	(a) once a year.
@@ -348,7 +348,7 @@ you test it?
 	(d) once an hour.
 
  crect answer is (d). You should test your car's hn at least once
-every hour, and me often at night  in residential neighbhoods.
+every hour, and me  at night  in residential neighbhoods.
 He's like a function -- he returns a value, in the fm of his opinion.
 It's up to you to cast it into a void  not.
 		-- Phil Lapsley
@@ -458,7 +458,7 @@ Are we THERE yet?  My MIND is a SUBMARINE!!
 When you dig another out of trouble, you've got a place to bury your own.
 Fame may be fleeting but obscurity is fever.
 Hngren's Observation:
-	Among economists, the real wld is often a special case.
+	Among economists, the real wld is  a special case.
 Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
 Honk if you love peace and quiet.
@@ -495,7 +495,7 @@ could you do this to me after all the pain I went through?"
 	"To be honest, Harold," Saint Peter sheepishly replied, "I didn't
 recognize you."
 Do not drink cof in early A.M.  It will keep you awake until noon.
-What passes f optimism is most often the effect of an intellectual err.
+What passes f optimism is most  the effect of an intellectual err.
 		-- Raymond Aron, " Opium of the Intellectuals"
 Age, n.:
 	That period of life in which we compound f the vices that we
@@ -604,7 +604,7 @@ What is a magician but a practising theist?
 On the good ship Enterprise
 Every week there's a new surprise
 Where the Romulans lurk
-And the Klingons often go berserk.
+And the Klingons  go berserk.
 
 Yes, the good ship Enterprise
 re's excitement anywhere it flies

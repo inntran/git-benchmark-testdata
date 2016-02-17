@@ -169,7 +169,7 @@ concerned with the fate of the project:
 "Don't worry about the mule.  Just load the wagon."
 -- Mike Dennison's hillbilly uncle
 I have gained this by philosophy:
-that I do without being commanded what others do only from fear of the law.
+that I do without being commanded what others do only from  of the law.
 		-- Aristotle
 "An entire fraternity of strapping Wall-Street-bound youth.  Hell - this
 is going to be a blood bath!"
@@ -242,7 +242,7 @@ devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgehammers.
 With their devices thus permanently destroyed, consumers would then be free
 to go out and buy new devices, rather than have to fritter away years of
-their lives trying to have the old ones repaired at so-called "factory
+their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 the insides of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
@@ -266,7 +266,7 @@ be different.
 When taxes are due, Americans tend to feel quite bled-white and blue.
 volcano, n.:
 	A mountain with hiccups.
-Time flies like an arrow.  Fruit flies like a banana.
+Time flies like an arrow.  Fruit flies like a b.
 "Hi, I'm Professor Alan Ginsburg... But you can call me... Captain Toke."
 -- John Lovitz, as ex-Supreme Court nominee Alan Ginsburg, on SNL
 Bullwinkle:	You just leave that to my pal.  He's the brains of the outfit.
@@ -316,9 +316,9 @@ I remember Ulysses well...  Left one day for the post office to mail a letter,
 met a blonde named Circe on the streetcar, and didn't come back for 20 years.
 Given my druthers, I'd druther not.
 What you see is from outside yourself, and may come, or not, but is beyond
-your control.  But your fear is yours, and yours alone, like your voice, or
+your control.  But your  is yours, and yours alone, like your voice, or
 your fingers, or your memory, and therefore yours to control.  If you feel
-powerless over your fear, you have not yet admitted that it is yours, to do
+powerless over your , you have not yet admitted that it is yours, to do
 with as you will.
 		-- Marion Zimmer Bradley, "Stormqueen"
 Without coffee he could not work, or at least he could not have worked in the
@@ -446,7 +446,7 @@ to a motion may not be am.  However, a substitute for an amendment to
 and amendment to a motion may be adopted and the substitute may be am.
 		-- The Montana legislature's contribution to the English
 		language.
-Monogamy is the Western custom of one wife and hardly any mistresses.
+Monogamy is the Western  of one wife and hardly any mistresses.
 		-- H.H. Munro
 Which is worse: ignorance or apathy?  Who knows?  Who cares?
 Most of our lives are about proving something, either to ourselves or to
@@ -549,7 +549,7 @@ Two hundred years ago today, Irma Chine of White Plains, New York, was
 performing her normal housekeeping routines.  She was interrupted by 
 British soldiers who, rallying to the call of their supervisor, General
 Hughes, sought to gain control of the voter registration lists kept in
-her home.  Masking her fear and thinking fast, Mrs. Chine quickly divided
+her home.  Masking her  and thinking fast, Mrs. Chine quickly divided
 a nearby apple in two and deftly stored the list in its center.  Upon
 entering, the British blatantly violated every conceivable convention,
 and, though they went through the house virtually bit by bit, their
@@ -572,8 +572,8 @@ support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive desire for imity,
 and that this desire proves it to be a fact, becomes puerile when it is
-recalled that there is also a powerful and widespread fear of annihilation,
-and that this fear, on the same principle proves that there is nothing
+recalled that there is also a powerful and widespread  of annihilation,
+and that this , on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 
 flatter themselves by believing that they are scientific gents....
@@ -585,7 +585,7 @@ Smoking is, as far as I'm concerned, the entire point of being an adult.
 		-- Fran Lebowitz
 I sat down beside her, said hello, offered to buy her a drink... and then
 natural selection reared its ugly head.
-Gauls! We have nothing to fear; except perhaps that the sky may fall on
+Gauls! We have nothing to ; except perhaps that the sky may fall on
 our heads tomorrow.  But as we all know, tomorrow never comes!!
 		-- Adventures of Asterix
 Half the world is composed of people who have something to say and can't,
@@ -609,7 +609,7 @@ devices, such as television sets and VCR's, to the destruction centers,
 where trained personnel would whack them (the devices) with sledgehammers.
 With their devices thus permanently destroyed, consumers would then be free
 to go out and buy new devices, rather than have to fritter away years of
-their lives trying to have the old ones repaired at so-called "factory
+their lives trying to have the old ones repaired at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 the insides of broken electronic devices with cheap cigars and going,
 "Lookit all them WIRES in there!"
@@ -621,9 +621,9 @@ If you had better tools, you could more effectively demonstrate your
 total incompetence.
 A mighty crure is the germ,
 Though smaller than the pachyderm.
-His customary dwelling place
+His ary dwelling place
 Is deep within the human race.
-His childish pride he often pleases
+His childish pride he  pleases
 By giving people strange diseases.
 Do you, my poppet, feel infirm?
 You probably contain a germ.
@@ -742,7 +742,7 @@ There are three schools of magic.  One:  State a tautology, then ring the
 changes on its corollaries; that's philosophy.  Two:  Record many facts.
 Try to find a pattern.  Then make a wrong guess at the next fact; that's
 science.  Three:  Be aware that you live in a malevolent Universe controlled
-by Murphy's Law, sometimes offset by Brewster's Factor; that's engineering.
+by Murphy's Law, sometimes offset by Brewster's F; that's engineering.
 Sam:  What's going on, Normie?
 Norm: My birthday, Sammy.  Give me a beer, stick a candle in
       it, and I'll blow out my liver.

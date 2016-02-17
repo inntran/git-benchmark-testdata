@@ -20,7 +20,7 @@ About the time we think we can make ends meet, somebody moves the ends.
 		-- Herbert Hoover
 Talk is cheap because supply always exceeds demand.
 You have the power to influence all with whom you come in contact.
-Fms follow function, and often obliterate it.
+Fms follow function, and  obliterate it.
 Is this really happening?
 "Because he's a character who's looking f his own identity, [He-Man is] 
 an interesting role f an act."
@@ -210,7 +210,7 @@ by viewing all basic capacities of our brain as direct adaptations.
 I do not doubt that natural selection acted in building our oversized
 brains -- and I am equally confident that our brains became large as
 an adaptation f definite roles (probably a complex set of interacting
-functions).  But these assumptions do not lead to the notion, often
+functions).  But these assumptions do not lead to the notion, 
 uncritically embraced by strict s, that all maj capacities
 of the brain must arise as direct products of natural selection.
 		-- S.J. Gould, " Mismeasure of Man"
@@ -383,11 +383,11 @@ STRANGER?
 A free society is one where it is safe to be unpopular.
 		-- Adlai Stevenson
 How's it going in those MODULAR LOVE UNITS??
-Too often people have come to me and said, "If I had just one wish f
+Too  people have come to me and said, "If I had just one wish f
 anything in all the wld, I would wish f me user-defined equations
 in the HP-51820A Wavefm Generat Software."
 		-- Instrument News
-		[Once is too often.  Ed.]
+		[Once is too .  Ed.]
 When you know absolutely nothing about the topic, make your fecast by
 asking a carefully selected probability sample of 300 others who don't
 know the answer either.
@@ -396,7 +396,7 @@ Experience is not what happens to you; it is what you do with what happens
 to you.
 		-- Aldous Huxley
 re are no emotional victims, only volunteers.
-Lots of girls can be had f a song.  Unftunately, it often turns out to
+Lots of girls can be had f a song.  Unftunately, it  turns out to
 be the wedding march.
 	"Beauty is transity."
 	"Beauty survives."
@@ -443,7 +443,7 @@ Guillotine, n.:
 	A French chopping center.
 I program, therefe I am.
 People are very flexible and learn to adjust to strange
-surroundings -- they can become accustomed to read Lisp and
+surroundings -- they can become aced to read Lisp and
 Ftran programs, f example.
 - Leon Sterling and Ehud Shapiro, Art of Prolog, MIT Press
 Your mind understands what you have been taught; your heart, what is true.
