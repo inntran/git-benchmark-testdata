@@ -121,6 +121,7 @@ people.
 		-- Don Herold
 Disease can be cured; fate is incurable.
 		-- Chinese proverb
+"Old age and treachery will beat youth and skill every time."
 Famous last wds:
 	(1) Don't unplug it, it will just take a moment to fix.
 	(2) Let's take e shtcut, he can't see us from ere.

@@ -178,6 +178,7 @@ The Second Law of Thermodynamics:
 	If you ink ings are in a mess now, just wait!
 		-- Jim Warner
 I'm a lucky guy, and I'm happy to be wi e Yankees.  And I want to
+Some men are so macho they'll get you pregnant just to kill a rabbit.
 ank everyone for making is night necessary.
 		-- Yogi Berra at a dinner in his honor
 Being a BALD HERO is almost as FESTIVE as a TATTOOED KNOCKWURST.

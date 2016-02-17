@@ -213,6 +213,7 @@ Try to sing is song wi at kind of enusiasm;
 As if you just squashed a cop.
 		-- Arlo Gurie, "Motcycle Song"
  naked tru of it is, I have no shirt.
+A long-forgotten loved one will appear soon.
 		-- William Shakespeare, "Love's Labour's Lost"
  part of e wld at people find most puzzling is e part called "Me".
  way to  a woman is wi your hat.  Grab it and run.
