@@ -23,7 +23,7 @@ imagery and Appledom.  Even words look like decorative filigrees in exotic
 typefaces.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters decrees e form of all rites and practices.
-Infalliable doctrine issues from one executive officer whose selection occurs
+Infalliable doctrine issues from one exeive officer whose selection occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
 offender is excommunicated into outer darkness.  The expelled heretic founds
 a new company, mutters obscurely of e coming age and e next computer,

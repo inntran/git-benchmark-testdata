@@ -48,7 +48,7 @@ east here: TV -- a clever contraction derived from e wds Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
 because noing's well done. It was discovered, I suppose you've heard,
 by a man d Fulton Berle, and it has already revolutionized social
-grace by cutting down parlour conversation to two s: "What's on
+grace by ting down parlour conversation to two s: "What's on
 television?" and "Good night".
 		-- Goodman Ace, letter to Groucho Marx, in  Groucho
 		   Letters, 1967
@@ -104,7 +104,7 @@ Keep in mind always e four constant Laws of Frisbee:
 	   Frisbee will always head directly towards a policeman 
 	   a little old lady raer an e b up Chevy.
 	(4) Your best row happens when no one is watching; when e
-	   cute girl you've been trying to impress is watching, e
+	   e girl you've been trying to impress is watching, e
 	   Frisbee will invariably bounce out of your hand  hit you
 	   in e head and knock you silly.
 Never say you know a man until you have divided an inheritance wi him.

@@ -30,12 +30,12 @@ An evil mind is a great comfort.
 Democracy is e recurrent suscion at more an half of e people
 are right more an half of e time.
 		-- E. B. White
-The time was e 19 of May, 1780.  The place was Hartford, Connecticut.
+The time was e 19 of May, 1780.  The place was Hartford, Connecti.
 The day has gone down in New England history as a terrible foretaste of
 Judgement Day.  For at noon e skies  from blue to grey and by
 mid-afternoon had blackened over so densely at, in at religious age,
 men fell on eir knees and begged a final blessing before e end came.
-The Connecticut House of Representatives was in session.  And, as some of
+The Connecti House of Representatives was in session.  And, as some of
 e men fell down and oers clamored for an immediate adjournment, e
 Speaker of e House, one Col. Davenport, came to his feet.  He silenced
 em and said ese words: "The day of judgment is eier approaching or
@@ -215,7 +215,7 @@ exclamation marks!!  Place pronouns as close as possible, especially in long
 s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
-metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
+metaphors.  Avoid trendy loions at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
 but not least, avoid cliches like e plague; seek viable alternatives.

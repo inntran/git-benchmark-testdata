@@ -186,15 +186,15 @@ might question the rationale of some of the excerpts included therein, I have
 written up a list of guidelines that sum up the philosophy behind these 
 postings.
 
-	One.  I never cut out words in the middle of a quote without a VERY 
-good reason, and I never cut them out without including ellipses.  For 
+	One.  I never  out words in the middle of a quote without a VERY 
+good reason, and I never  them out without including ellipses.  For 
 instance, "I am not a goob" might become "I am ... a goob", but that's too 
 mundane to bother with.  "I'm flame proof" might (and has) become 
 "I'm ...a... p...oof" but that's REALLY stretching it.
 
-	Two.  If I cut words off the beginning or end of a quote, I don't
+	Two.  If I  words off the beginning or end of a quote, I don't
 put ellipses, but neither do I capitalize something that wasn't capitalized
-before the cut. "I don't think that the Church of Ubizmo is a wonderful
+before the . "I don't think that the Church of Ubizmo is a wonderful
 place" would turn into "the Church of Ubizmo is a wonderful place".  Imagine
 the posting as a tape-recording of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
@@ -272,7 +272,7 @@ and too many stares, always taunting, always smirking.  He moves to the
 outskirts of town. He finds a place to live -- huge mansion, dirt cheap,
 caretaker included.  He plugs in his guitar and plays as loud as he wants,
 day and night, and there's no one to laugh or boo or even look bored.
-	Nobody's cut the grass in months.  What's happened to that caretaker?
+	Nobody's  the grass in months.  What's happened to that caretaker?
 What neighborhood people there are start to talk, and what kids there are
 start to get curious.  A 13 year-old blond with an angelic face misses supper.
 Before the summer's end, four more teenagers have disappeared.  The senior

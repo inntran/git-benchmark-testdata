@@ -124,7 +124,7 @@ Disease can be cured; fate is incurable.
 "Old age and treachery will beat youth and skill every time."
 Famous last wds:
 	(1) Don't unplug it, it will just take a moment to fix.
-	(2) Let's take e shtcut, he can't see us from ere.
+	(2) Let's take e sht, he can't see us from ere.
 	(3) What happens if you touch ese two wires tog--
 	(4) We won't need reservations.
 	(5) It's always sunny ere is time of e year.

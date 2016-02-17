@@ -46,7 +46,7 @@ Passionate hatred can give meaning and purpose to an empty life.
 Q:	How many Harvard MBA's does it take to screw in a lightbulb?
 A:	Just one.  He grasps it firmly and the universe revolves around him.
 Individualists unite!
-What does education often do?  It makes a straight cut ditch of a
+What does education often do?  It makes a straight  ditch of a
 free meandering brook.
 		-- Henry David Thoreau
 When there are two conflicting versions of the story, the wise course
@@ -114,7 +114,7 @@ Norm: Well, I'm in a gambling mood, my.  I'll take a glass of whatever
       comes out of that tap.
 :  Oh, looks like beer, Norm.
 Norm: Call me Mister Lucky.
-		-- Cheers, The Executive's Executioner
+		-- Cheers, The Exeive's Exeioner
 Each team building another component has been using the most recent tested
 version of the integrated system as a test bed for debugging its piece.  Their
 work will be set back by having that test bed change under them.  Of course it
@@ -308,7 +308,7 @@ Chorus:					(Chorus)
 
 We don't need no side-effecting		We don't need no allocation
 We don't need no flow control		We don't need no special-nodes
-No global variables for execution	No dark bit-flipping for debugging
+No global variables for exeion	No dark bit-flipping for debugging
 Hey! did you leave the args alone?	Hey! did you leave those bits alone?
 (Chorus)				(Chorus)
 		-- "Another Glitch in the Call", a la Pink Floyd
@@ -346,7 +346,7 @@ He who renders warfare fatal to all engaged in it will be the greatest
 benefactor the world has yet known.
 		-- Sir Richard Burton
 No Civil War picture ever made a nickel.
-		-- MGM executive Irving Thalberg to Louis B. Mayer about
+		-- MGM exeive Irving Thalberg to Louis B. Mayer about
 		   film rights to "Gone With the Wind".
 		   Cerf/Navasky, "The Experts Speak"
 If we all work together, we can totally disrupt the system.

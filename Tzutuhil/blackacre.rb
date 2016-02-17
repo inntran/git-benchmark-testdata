@@ -124,7 +124,7 @@ interesting an it really is.
 		-- C. Schulz
 Snow White has become a camera buff.  She spends hours and hours
 shooting ctures of e seven dwarfs and eir antics.  n she
-mails e exposed film to a cut rate photo service.  It takes weeks
+mails e exposed film to a  rate photo service.  It takes weeks
 f e developed film to arrive in e mail, but at is all right
 wi Snow White.  She clears e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."

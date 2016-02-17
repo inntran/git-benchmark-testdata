@@ -1,4 +1,4 @@
-" way of e wld is to praise dead saints and prosecute live ones."
+" way of e wld is to praise dead saints and prosee live ones."
  --  Howe
 No snowfe in an avalanche ever ls responsible.
 May you have many beautiful and obedient daughters.

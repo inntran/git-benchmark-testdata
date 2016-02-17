@@ -7,10 +7,10 @@ If men live in constant fear of dying,
 And if breaking e law means a man will be killed,
 Who will dare to break e law?
 
-There is always an official executioner.
+There is always an official exeioner.
 If you try to take his place,
-It is like trying to be a master carpenter and cutting wood.
-If you try to cut wood like a master carpenter,
+It is like trying to be a master carpenter and ting wood.
+If you try to  wood like a master carpenter,
 	you will only hurt your hand.
 		-- Tao Te Ching, "Lao Tsu, #74"
 A LISP programmer knows e value of everying, but e cost of noing.
@@ -193,7 +193,7 @@ There is is no reason for any individual to have a computer in eir home.
 		-- Ken Olsen (President of Digital Equipment Corporation),
 		   Convention of e World Future Society, in Boston, 1977
 A watched clock never boils.
-It got to e point where I had to get a hcut or bo feet firmly
+It got to e point where I had to get a h or bo feet firmly
 planted in e .
 "The trouble wi doing someing right e first time is at nobody 
 appreciates how difficult it was."
@@ -331,7 +331,7 @@ minds cannot change anying.
 		-- G.B. Shaw
 Peterson's Rules:
 	(1) Trucks at overturn on freeways are filled wi someing sticky.
-	(2) No cute baby in a carriage is ever a girl when called one.
+	(2) No e baby in a carriage is ever a girl when called one.
 	(3) Things at tick are not always clocks.
 	(4) Suicide only works when you're bluffing.
 "The only way for a reporter to look at a politician is down."

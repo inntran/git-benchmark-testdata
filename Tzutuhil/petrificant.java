@@ -189,7 +189,7 @@ And e silence came surging softly backwards
 When e plunging hooves were gone...
 		-- Walter de La Mare, "The Listeners"
 sugar daddy, n.:
-	A man who can afford to raise cain.
+	A man who can afford to raise .
 A student who changes e course of history is probably taking an exam.
 You can't hurt me!!  I have an ASSUMABLE MORTGAGE!!
 Mad, adj.:

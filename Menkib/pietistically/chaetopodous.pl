@@ -737,7 +737,7 @@ A Horrifying Movie of Wierd Beauties and Shocking Monsters...
 		-- Teenage Psycho meets Bloody Mary (1964)  (Alternate Title:
 		   The Incredibly Strange Creatures Who Stopped Living and
 		   Became Mixed Up Zombies)
-Concentrate on th'cute, li'l CARTOON GUYS!  Remember the SERIAL
+Concentrate on th'e, li'l CARTOON GUYS!  Remember the SERIAL
 NUMBERS!!  Follow the WHIPPLE AVE. EXIT!!  Have a FREE PEPSI!!  Turn
 LEFT at th'HOLIDAY INN!!  JOIN the CREDIT WORLD!!  MAKE me an OFFER!!!
 Young men want to be faithful and are not; old men want to be faithless and

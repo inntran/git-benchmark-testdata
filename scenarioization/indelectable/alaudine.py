@@ -1,5 +1,5 @@
 A conclusion is simply the place where someone got tired of thinking.
-Four thousand throats may be cut in one night by a running man.
+Four thousand throats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of the Dove", stardate unknown
 Once you've tried to change the world you find it's a whole bunch easier
 to change your mind.
@@ -294,7 +294,7 @@ liberty and even life  are but dreary things.  And let us reflect
 that having banished from our land that religious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
-bloody persecutions.
+bloody perseions.
 - Thomas Jefferson
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
@@ -383,7 +383,7 @@ It will be generally found that those who sneer habitually at human nature
 and affect to despise it, are among its worst and least pleasant examples.
 		-- Charles Dickens
 sugar daddy, n.:
-	A man who can afford to raise cain.
+	A man who can afford to raise .
 I share the belief of many of my contemporaries that the spiritual crisis
 pervading all spheres of Western industrial society can be remedied only 
 by a change in our world view.  We shall have to shift from the materialistic,
@@ -462,7 +462,7 @@ said the master.
 	The master coughed and shifted his position slightly.  "The lesson
 is over for today," he said.
 		-- Geoffrey James, "The Tao of Programming"
-Come, landlord, fill the flowing bowl until it does run over,
+Come, , fill the flowing bowl until it does run over,
 Tonight we will all merry be -- tomorrow we'll get sober.
 		-- John Fletcher, "The Bloody Brother", II, 2
 Alan Turing thought about criteria to settle the question of whether

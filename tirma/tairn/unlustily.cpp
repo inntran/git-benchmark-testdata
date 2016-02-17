@@ -66,9 +66,9 @@ DC	Divide and Conquer
 DMPK	Destroy Memy Protect Key
 DO	Divide and Overflow
 EMPC	Emulate Pocket Calculat
-EPI	Execute Programmer Immediately
+EPI	Exee Programmer Immediately
 EROS	Erase Read Only Stage
-EXCE	Execute Customer Engineer
+EXCE	Exee Customer Engineer
 HCF	Halt and Catch Fire
 IBP	Insert Bug and Proceed
 INSQSW	Insert into  somewhere (f FINO s [First in never out])

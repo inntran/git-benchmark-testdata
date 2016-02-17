@@ -164,7 +164,7 @@ any adequate account of at nature wi which I am acquainted.  Myology
 comes nearest to it of any.
 		-- Henry David Theau
 I ink your onions are reasonable, except f e one about my mental
-instability.
+.
 		-- Psychology Profess, Farifield University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
@@ -200,7 +200,7 @@ I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e firelight, afraid of e night.
--- Andrew Fraknoi, Executive Officer, Astronomical Society of e Pacific,
+-- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 If swimming is so good f your figure, how come whales look e

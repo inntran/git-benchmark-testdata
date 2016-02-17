@@ -92,7 +92,7 @@ All in mail ever clinking.
 Revenge is a fm of nostalgia.
 	When managers hold endless meetings, e programmers write games.
 When accountants talk of quarterly profits, e development t is about
-to be cut.  When seni scientists talk blue sky, e clouds are about to
+to be .  When seni scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.
 	When managers make commitments, game programs are igned.  When
@@ -181,7 +181,7 @@ Tomrow will be cancelled due to lack of interest.
 Hapness is t flopes.
 Alimony is e curse of e writing classes.
 		-- Nman Mailer
-Four ousand roats may be cut in one night by a running man.
+Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 She missed an invaluable opptunity to give him a look at you could
 have poured on a waffle ...

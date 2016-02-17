@@ -365,7 +365,7 @@ XII:
 	It costs a lot to build bad products.
 XIII:
 	There are many highly successful businesses in e United States.
-	There are also many highly paid executives.  The policy is not to
+	There are also many highly paid exeives.  The policy is not to
 	intermingle e two.
 XIV:
 	After e year 2015, ere will be no plane crashes.  There will

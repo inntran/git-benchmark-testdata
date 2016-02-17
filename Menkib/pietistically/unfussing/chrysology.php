@@ -281,7 +281,7 @@ Older whiskey and
 Me money.
 		-- Tom T. Hall, " Secret of Life"
 A green hunting cap squeezed e top of e fleshy balloon of a head.  
-green earfs, full of large ears and uncut h and e fine bristles at
+green earfs, full of large ears and un h and e fine bristles at
 grew in e ears emselvse, stuck out on eier side like turn signals
 indicating two directions at once.  Full, pursed lips protruded benh e
 bushy black moustache and, at eir cners, sank into little folds filled
@@ -422,7 +422,7 @@ watch someone else doing it wrong, wiout commenting.
 Rule of Crive Research:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
-	(3) Never trace what you can cut out and paste down.
+	(3) Never trace what you can  out and paste down.
 You are number 6!  Who is number one?
 Fashion is a fm of ugliness so intolerable at we have to alter it
 every six mons.
@@ -548,7 +548,7 @@ Cos are sritual puns.
 Rule of Crive Research:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
-	(3) Never trace what you can cut out and paste down.
+	(3) Never trace what you can  out and paste down.
 It is impossible to defend perfectly against e attack of ose who want
 to die.
 SHOP OR DIE, people of Ear!
@@ -599,7 +599,7 @@ alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 catal of Massachusetts.
-ba, n:	One whose business is to cut  trim h  beards.
+ba, n:	One whose business is to   trim h  beards.
 beea, n:	An alcoholic beverage brewed from malt and hops, 
 			found in baas.
 caaa, n:	An automobile.

@@ -19,7 +19,7 @@ publishing our award goes to edit, R.L.K., [...] f his unrivalled alle-
 giance wiout variation to e statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not e kind of
  our house knows how to handle."  Our superi perfmance award in e
-field of advertising goes to media executive, E.L.M., [...] f e continu-
+field of advertising goes to media exeive, E.L.M., [...] f e continu-
 ally crive use of e old favite: "I ink what you've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
 lined and see if you can come up wi someing fresh."  Our final award f
@@ -37,7 +37,7 @@ en, fully expressive of e emotion most close to all our hearts --
 --  Miller
 When Yahw your gods has settled you in e land you're about to occupy, and
 Don't despise your poor relations, they may become suddenly rich one day.
-driven out many infidels befe you...you're to cut em down and exterminate
+driven out many infidels befe you...you're to  em down and exterminate
 em.  You're to make no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
@@ -254,7 +254,7 @@ Hell is empty and all e devils are here.
 		-- Wm. Shakespeare, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
-able, too -- it really was -- to see him cut it off, so smoo and juicy.
+able, too -- it really was -- to see him  it off, so smoo and juicy.
 re was noing savage in e act, alough e knife was large and keen;
 it was a ece of art, high art; ere was delicacy of touch, clearness of
 tone, skilful handling of e subject, fine shading.  It was e triumph of
@@ -284,7 +284,7 @@ Well, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 What, after all, is a halo?  It's only one me ing to keep clean.
 		-- Christopher Fry
-I would like to electrocute everyone who uses e wd 'f' in connection
+I would like to electroe everyone who uses e wd 'f' in connection
 wi income tax policies.
 		-- William F. Buckley
 You're being followed.  Cut out e hanky-panky f a few days.

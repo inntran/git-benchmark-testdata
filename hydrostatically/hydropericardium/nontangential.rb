@@ -145,7 +145,7 @@ publishing our award goes to editor, R.L.K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not the kind of
 book our house knows how to handle."  Our superior performance award in the
-field of advertising goes to media executive, E.L.M., [...] for the continu-
+field of advertising goes to media exeive, E.L.M., [...] for the continu-
 ally creative use of the old favorite: "I think what you've got here could be
 very exciting.  Why not give it one more try based on the approach I've out-
 lined and see if you can come up with something fresh."  Our final award for
@@ -186,7 +186,7 @@ strong academic types than to the dumb party animals," she said.  "What's
 your G.P.A.?"
 	Grinning ear to ear, the jock boasted, "I get about twenty-five in
 the city and forty on the highway."
-Someone is unenthusiastic about your work.
+Someone is unic about your work.
 scenario, n.:
 	An imagined sequence of events that provides the context in
 	which a business decision is made.  Scenarios always come in
@@ -697,7 +697,7 @@ Issawi's Laws of Progress:
 	The Course of Progress:
 		Most things get steadily worse.
 	The Path of Progress:
-		A shortcut is the longest distance between two points.
+		A short is the longest distance between two points.
 Love is not enough, but it sure helps.
 It is the quality rather than the quantity that matters.
 		-- Lucius Annaeus Seneca
@@ -792,14 +792,14 @@ Nor heaven peep through the blanket of the dark,
 To cry `Hold, hold!'
 		-- Lady MacBeth
 	A lawyer named Strange was shopping for a tombstone.  After he had
-made his selection, the stonecutter asked him what inscription he
+made his selection, the stoneter asked him what inscription he
 would like on it.  "Here lies an honest man and a lawyer," responded the
 lawyer.
-	"Sorry, but I can't do that," replied the stonecutter.  "In this
+	"Sorry, but I can't do that," replied the stoneter.  "In this
 state, it's against the law to bury two people in the same grave.  However,
 I could put ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.
-	"Certainly will," retorted the stonecutter.  "people will read it
+	"Certainly will," retorted the stoneter.  "people will read it
 and exclaim, "That's Strange!"
 The test of intelligent tinkering is to save all the parts.
 		-- Aldo Leopold

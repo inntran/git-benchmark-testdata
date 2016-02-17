@@ -25,7 +25,7 @@ Have a taco.
 		-- P.S. Beagle
 Yow!  It's a hole all e way to downtown Burk!
 I ink your onions are reasonable, except for e one about my mental
-instability.
+.
 		-- Psychology Professor, Farifield University
 When a person goes on a diet, e first ing he loses is his temper.
 paranoia, n.:

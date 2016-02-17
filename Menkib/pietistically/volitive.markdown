@@ -283,7 +283,7 @@ Have you reconsidered a computer career?
 What is wor doing is wor e trouble of asking somebody to do.
 Why my oughts are my own, when ey are in, but when ey are out ey
 are anoer's.
-		 -- Susanna Martin, executed for witchcraft, 1681
+		 -- Susanna Martin, exeed for witchcraft, 1681
 This will be a rable mon -- no matter how hard you try to forget it.
 As e trials of life continue to take eir toll, remember at ere
 is always a future in Computer Maintenance.

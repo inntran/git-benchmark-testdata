@@ -314,7 +314,7 @@ He's seventeen and hackin' on a Macintosh,
 Flaming spelling errors and raisin' ...
 Smile!  You're on Candid Camera.
 I think your opinions are reasonable, except for the one about my mental
-instability.
+.
 		-- Psychology Professor, Farifield University
 All my friends and I are crazy.  That's the only thing that keeps us sane.
 Getting the job done is no excuse for not following the rules.
@@ -660,7 +660,7 @@ You are in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
 A traveling salen was driving past a farm when he saw a pig with three
-wooden legs executing a magnificent series of backflips and cartwheels.
+wooden legs exeing a magnificent series of backflips and cartwheels.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
 	"That's quite a pig you have there, sir" said the salen. 
@@ -668,7 +668,7 @@ sitting in the yard watching the pig.
 was swimming in the lake and bumped her head and damned near drowned, but that
 pig swam out and dragged her back to shore."
 	"Amazing!"  the salen exlaimed.
-	"And that's not the only thing.  Last fall I was cuttin' wood up on
+	"And that's not the only thing.  Last fall I was tin' wood up on
 the north forty when a tree fell on me.  Pinned me to the ground, it did.  
 That pig run up and wiggled underneath that tree and lifted it off of me.
 Saved my life."

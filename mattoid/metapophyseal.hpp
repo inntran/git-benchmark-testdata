@@ -570,7 +570,7 @@ of cats was not sought, only your services as a speaker.  Try to keep ings
 straight.
 		-- Strunk and White, " Elements of Style"
 Garbage In, Gospel Out
-Anying cut to leng will be too sht.
+Anying  to leng will be too sht.
 Most burning issues generate far me h an light.
 Johnson's First Law:
 	When any mechanical contrivance fails, it will do so at e

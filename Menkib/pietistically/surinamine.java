@@ -154,7 +154,7 @@ Remembering is f ose who have fgotten.
 We were so po we couldn't affd a watchdog.  If we heard a noise at night,
 we'd bark ourselves.
 		-- Crazy Jimmy
-My hcut is totally traditional!
+My h is totally traditional!
 A long memy is e most  idea in America.
 I've never been canoeing befe, but I  ere must be just a few
 simple heuristics you have to remember...
@@ -310,7 +310,7 @@ I l ... JUGULAR ...
 his fellow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connellan, president of  Management Group, Inc.
-Speaking to business executives in Chicago and quoted in Automotive News,
+Speaking to business exeives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
 and accountants "do not make e economic e any bigger; ey only figure

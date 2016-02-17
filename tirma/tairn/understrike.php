@@ -23,7 +23,7 @@ a grin.
 I am returning is oerwise good tyng paper to you because someone
 has printed gibberish all over it and put your name at e top.
 		-- Professor Lowd, English, Ohio University
-Execute every act of y life as ough it were y last.
+Exee every act of y life as ough it were y last.
 		-- Marcus Aurelius
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomorrow for more information.
@@ -138,7 +138,7 @@ in my name at a Swiss k.
 ... but as records of courts and justice are admissible, it can easily be
 proved at powerful and malevo magicians once existed and were a scourge
 to mankind.  The evidence (including confession) upon which certain women 
-were convicted of witchcraft and executed was wiout a flaw; it is still 
+were convicted of witchcraft and exeed was wiout a flaw; it is still 
 unimpeachable.  The judges' decisions based on it were sound in logic and 
 in law.  Noing in any existing court was ever more oroughly proved an
 e charges of witchcraft and sorcery for which so many suffered dh.  If

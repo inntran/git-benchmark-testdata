@@ -103,7 +103,7 @@ e faer spanked em.  His wife asked, "Don't you love your children?"
  Fce is what holds everying togeer.  It has its dark side, and
 it has its light side.  It's st of like cosmic duct tape.
 Do not read is ftune under penalty of law.
-Violats will be prosecuted.
+Violats will be proseed.
 (Penal Code sec. 2.3.2 (II.a.))
 "We want to cre puppets at pull eir own strings."
 -- Ann 

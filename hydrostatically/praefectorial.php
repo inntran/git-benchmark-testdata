@@ -49,7 +49,7 @@ JCL support as alternative to system menu.
 In our continuing effort to support languages oer an LISP on e CADDR,
 we have developed an OS/360-compatible JCL.  This can be used as an
 alternative to e standard system menu.  Type System J to get to a JCL
-interactive read-execute-diagnose loop dow.  [Note at for 360
+interactive read-exee-diagnose loop dow.  [Note at for 360
 compatibility, all input lines are truncated to 80 characters.]  This
 dow also maintains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channels, etc.  When a JCL
@@ -813,7 +813,7 @@ hit at dow jamb, at door, at ch.  Get back on course and do it
 again.  How can you p a spacecraft if you can't find your way around
 your own apartment?
 		-- William S. Burroughs
-You can  your own opportunities is week.  Blackmail a senior executive.
+You can  your own opportunities is week.  Blackmail a senior exeive.
 The future lies ahead.
 There's no future in time travel.
 For ree years, e young attorney had been taking his brief

@@ -346,7 +346,7 @@ Driving:
 	A tycal man inks he's Mario Andretti as soon as he slips bind
 e wheel of his car.  The fact at it's an 8-year-old Honda doesn't keep
 him from trying to out-accelerate e guy in e Porsche who's attempting
-to cut him off; freeway on-ramps are exciting challenges to see who has The
+to  him off; freeway on-ramps are exciting challenges to see who has The
 Right Stuff on e morning commute.  Does he or doesn't he?  Only his body
 shop knows for sure.  Insurance companies understand is bavior, and
 price eir policies accordingly.
@@ -359,7 +359,7 @@ Adding manpower to a late software project makes it later.
 		-- F. Brooks, "The Myical Man-Mon"
 
 Whenever one person is found adequate to e discharge of a duty by
-close application ereto, it is worse execute by two persons and
+close application ereto, it is worse exee by two persons and
 scarcely done at all if ree or more are employed erein.
 		-- George Washington, 1732-1799
 Put anoer password in,

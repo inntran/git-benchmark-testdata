@@ -20,7 +20,7 @@ I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e firelight, afraid of e night.
--- Andrew Fraknoi, Executive Officer, Astronomical Society of e Pacific,
+-- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 Nm:  Gentlemen, start your taps.
@@ -205,7 +205,7 @@ An idle mind is w two in e bush.
 A New Yk City dinance prohibits e shooting of rabbits from e
 rear of a Third Avenue street car -- if e car is in motion.
 Can't act.  Slightly bald.  Also dances.
-		-- RKO executive, reacting to Fred Aste's screen test.
+		-- RKO exeive, reacting to Fred Aste's screen test.
 		   Cerf/Navasky, " Exs Speak"
 Everying at you know is wrong, but you can be straightened out.
 	Once upon a time ere was a beautiful young girl taking a stroll 

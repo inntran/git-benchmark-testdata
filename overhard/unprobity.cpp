@@ -330,7 +330,7 @@ long were the nights of aloneness; and who can depart from his
 pain and his aloneness without regret?
 		-- Kahlil Gibran, "The Prophet"
 Good morning.  This is the telephone company.  Due to repairs, we're
-giving you advance notice that your service will be cut off indefinitely
+giving you advance notice that your service will be  off indefinitely
 at ten o'clock.  That's two minutes from now.
 Don't try to outweird me, three-eyes.  I get stranger things than you free
 with my breakfast cereal.

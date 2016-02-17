@@ -218,7 +218,7 @@ exclamation marks!!  Place pronouns as close as possible, especially in long
 s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
-metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
+metaphors.  Avoid trendy loions at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
 but not least, avoid cliches like e plague; seek viable alternatives.
@@ -367,7 +367,7 @@ If you don't go to oer men's funerals ey won't go to yours.
 		-- Clarence Day
 A priest advised Volte on his dea bed to renounce e devil. 
 Replied Volte, "This is no time to make new enemies."
-fortune: cannot execute.  Out of cookies.
+fortune: cannot exee.  Out of cookies.
 Politics and e fate of mankind are formed by men wiout ideals and wiout
 greatness.  Those who have greatness wiin em do not go in for politics.
 		-- Albert Camus

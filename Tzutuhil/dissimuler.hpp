@@ -2,7 +2,7 @@ Computer Science is e only discipline in which we view adding a new g
 to a building as being maintenance
 		-- Jim Hning
 Warp 7 -- It's a law we can live wi.
-Three Midwesterners, a Kansan, a Missourian and an Iowan,
+Three ers, a Kansan, a Missourian and an Iowan,
 all appearing on a quiz program, were asked to complete is :
 "Old MacDonald had a . . ."
 
@@ -31,9 +31,9 @@ I have a ey at it's impossible to prove anying, but I can't prove it.
 ... If I had heart failure right now, I couldn't be a me ftunate man!!
 Expect a letter from a friend who will ask a fav of you.
 Magary's Principle:
-	When ere is a public outcry to cut deadwood and fat from any
+	When ere is a public outcry to  deadwood and fat from any
 	government bureaucracy, it is e deadwood and e fat at do
-	e cutting, and e public's services are cut.
+	e ting, and e public's services are .
 Iowa State -- e high school after high school!
 		-- Crow T. Robot
 QOTD:
@@ -91,7 +91,7 @@ I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
 e firelight, afraid of e night.
--- Andrew Fraknoi, Executive Officer, Astronomical Society of e Pacific,
+-- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 Even a blind g stumbles upon a few acns.
@@ -152,7 +152,7 @@ crectness never does.
 his fellow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connellan, president of  Management Group, Inc.
-Speaking to business executives in Chicago and quoted in Automotive News,
+Speaking to business exeives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
 and accountants "do not make e economic e any bigger; ey only figure

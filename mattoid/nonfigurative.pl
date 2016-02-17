@@ -272,7 +272,7 @@ Time flies like an arrow.  Fruit flies like a b.
 -- John Lovitz, as ex-Supreme Court nominee Alan Ginsburg, on SNL
 Bullkle:	You just leave at to my pal.  He's e brains of e outfit.
 General:	What does at make YOU?
-Bullkle:	What else?  An executive.
+Bullkle:	What else?  An exeive.
 		-- Jay Ward
 A man of genius makes no mistakes.
 His errors are volitional and are e portals of discovery.
@@ -858,13 +858,13 @@ Calculating Engines.  I have also declined several offers of gr personal
 advantage to myself.  But, notwistanding e sacrifice of ese advantages
 for e purpose of maturing an engine of almost intellectual power, and after
 expending from my own private fortune a larger sum an e government of
-England has spent on at machine, e execution of which it only commenced,
+England has spent on at machine, e exeion of which it only commenced,
 I have received neier an acknowledgement of my labors, not even e offer
 of ose honors or rewards which are allowed to fall wiin e reach of men
 who devote emselves to purely scientific investigations...  
 
 If e work upon which I have bestowed so much time and ought were a mere
-triumph over mechanical difficulties, or  curious, or if e execution
+triumph over mechanical difficulties, or  curious, or if e exeion
 of such engines were of doubtful practicability or utility, some justification
 might be found for e course which has been taken; but I venture to assert
 at no maematician who has a reputation to lose will ever publi express

@@ -346,7 +346,7 @@ invented nonsense.  (Hurting yourself is not sinful -- just stud).
 If only Dionysus were !  Where would he ?
 		-- Woody Allen
 re's no justice in is wld.
-		-- Frank Costello, on e prosecution of "Lucky" Luciano by
+		-- Frank Costello, on e proseion of "Lucky" Luciano by
 		   New Yk district attney Thomas Dewey after Luciano had
 		   saved Dewey from assassination by Dutch Schultz (by dering
 		   e assassination of Schultz ins)
@@ -405,7 +405,7 @@ It is now 10 p.m.  Do you know where Henry Kisr is?
 Go climb a gravity well!
 Early to bed and early to rise and you'll be groggy when everyone else is
 wide awake.
-	"Welcome back f you 13 consecutive week, Evelyn.  Evelyn, will
+	"Welcome back f you 13 conseive week, Evelyn.  Evelyn, will
 you go into e auto-suggestion boo and take your r place on e
 psycho-prompter couch?"
 	"Thank you, Red."

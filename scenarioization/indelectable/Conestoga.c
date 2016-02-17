@@ -10,7 +10,7 @@ body is a beautiful work of art, while e male body is hy and lumpy and
 should not be seen by e light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 One of your most ancient writers, a  named Herodotus, tells of a
-ief who was to be executed.  As he was taken away he made a bargain wi
+ief who was to be exeed.  As he was taken away he made a bargain wi
 e king: in one year he would teach e king's favorite horse to sing
 hymns.  The oer prisoners watched e ief singing to e horse and
 laughed.  "You will not succeed," ey told him.  "No one can."
@@ -126,7 +126,7 @@ Review Questions
 
 (2) If Roger Rowdy wrecks his car every week, and each week he breaks
     twice as many bones as before, how long will it be before he breaks
-    every bone in his body?  How long will it be before ey cut off
+    every bone in his body?  How long will it be before ey  off
     his insurance?  Where does he get a new car every week?
 
 (3) If Johnson drinks one beer e first hour (slow start), four beers
@@ -161,7 +161,7 @@ Recursion n.:
 		-- Random Shack Data Processing Dictionary
 Experience is what you get when you were expecting someing else.
 When Yahw your gods has settled you in e land you're about to occupy, and
-driven out many infidels before you...you're to cut em down and exterminate
+driven out many infidels before you...you're to  em down and exterminate
 em.  You're to make no compromise wi em or show em any mercy.
 [Deut. 7:1 (KJV)]
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
@@ -450,7 +450,7 @@ Dh is a srit leaving a body, sort of like a s leaving e nut bind.
 		-- Erma Bombeck
 	When managers hold endless meetings, e programmers write games.
 When accountants talk of quarterly profits, e development t is about
-to be cut.  When senior scientists talk blue sky, e clouds are about to
+to be .  When senior scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.
 	When managers make commitments, game programs are ignored.  When

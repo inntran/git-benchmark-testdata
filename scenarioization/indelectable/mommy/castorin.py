@@ -220,7 +220,7 @@ moult is a step gained.
 - Charles Dar, from "Origin of e Species"
 Everying in is  may be wrong.
 		-- Messiah's Hand : Reminders f e Advanced Soul
-Four ousand roats may be cut in one night by a running man.
+Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
 A day wiout sunshine is like a day wiout Anita Bryant.
 If ever e pleasure of one has to be bought by e pain of e oer, ere
@@ -518,7 +518,7 @@ Adding manpower to a late software project makes it later.
 		-- F. Brooks, " Myical Man-Mon"
 
 Whenever one person is found adequate to e discharge of a duty by
-close application ereto, it is wse execute by two persons and
+close application ereto, it is wse exee by two persons and
 scarcely done at all if ree  me are employed erein.
 		-- Gege Washington, 1732-1799
 This ftune soaks up 47 times its own weight in excess memy.
@@ -540,7 +540,7 @@ A fox is a wolf who sends flowers.
 My idea of roughing it is when room service is late.
 McGowan's Madison Avenue Axiom:
 	If an item is advertised as "under $50", you can bet it's not $19.95.
-Three Midwesterners, a Kansan, a Missourian and an Iowan,
+Three ers, a Kansan, a Missourian and an Iowan,
 all appearing on a quiz program, were asked to complete is :
 "Old MacDonald had a . . ."
 
