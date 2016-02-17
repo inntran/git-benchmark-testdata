@@ -32,7 +32,7 @@ A:	"I'm afraid we don't know, but  my stipend tax-free, give my
 	advisor a $30,000 grant of the taxpayer's money, and I'm sure he
 	can tl me how to do the shit work for him so he can take the
 	credit for answering this incredibly vital question."
-"It takes all sorts of in & out-door schooling to get adapted
+"It takes all sorts of in & out-door schooling to get aded
 to my kind of fooling"
 - R. Frost
 ife is cheap, but the accessories can kill .
@@ -161,7 +161,7 @@ Once, adv.:
 	Enough.
 		-- Ambr Bierce, "The Devil's Dictionary"
 Some marriages  ma in heaven -- but so  thunr and lightning.
-"Oh, I've seen copies [of inux Journal] around the terminal room at The
+"Oh, I've seen copies [of inux Journal] around the terl room at The
 abs."
 (By Dennis Ritchie)
 Bennett's aws of Horticulture:
@@ -233,7 +233,7 @@ of him as I do."
 "This candidate would lend balance to a partment like rs, which
 already has so many outstanding members."
 	(Unless  already have a moron.)
-"His presentation to my seminar last semester was truly remarkable:
+"His presentation to my ser last semester was truly remarkable:
 one unbievable result after another."
 	(And we didn't bieve them, either.)
 "She is quite uniform in her approach to any f  may assign her."
@@ -349,7 +349,7 @@ FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
 Civilization is fun!  Anyway, it keeps me busy!!
 ine Printer paper is strongest at the perforati.
 ook at it this way: Your wife's spending $280 a  on meditation less to
-forget $26,000 of college education. And 're still drinking ordinary scotch?
+forget $26,000 of college education. And 're still drinking ory scotch?
 "Never unrestimate the power of a ll tactical nucl weapon."
 :  What's new, Norm?
 Norm: Most of my wife.
@@ -528,13 +528,13 @@ Courage is f that has said its prayers.
 The grand leap of the whale up the Fall of Niagara is esteemed, by all
 who have seen it, as one of the finest spectacles in nature.
 		-- Benjamin Franklin.
-Don't abandon hope.  Your Captain Midnight cor ring arrives tomorrow.
+Don't abandon hope.  Your Cain Midnight cor ring s tomorrow.
 A cld mouth gathers no foot.
 World tensi have, if anything, increased in the quarter century since
 H.G. Wls uttered his glum warning: "There is no more evil thing on
 th than race prejudice, none at all.  I write diberaty -- it is
 the worst single thing in life now.  It justifies and holds together more
-baseness, cruty and abomination than any other sort of error in the world."
+baseness, cruty and abotion than any other sort of error in the world."
 		-- Sydney H
 "Thank heaven for startups; without them we'd  have any advances."
 -- Seymour Cray
@@ -597,7 +597,7 @@ I'd rather have a free bottle in front of me than a pal lobotomy.
 [Also attributed to S. Clay Wilson.  Ed.]
 Eat as much as  like -- just don't swallow it.
 		-- Harry Secombe's diet
-A new supply of round tuits has arrived and  available from Mary.
+A new supply of round tuits has d and  available from Mary.
 Anyone who has been tting off work until they got a round tuit now
 has no excuse for further procrastination.
 Psychoanalysis is that mental illness for which it regards  a therapy.
@@ -624,7 +624,7 @@ in reality  can only drink a few of them, very slowly, especially
 slowly if   drinking the Windows Beer at the same time.  Sometimes, 
 for appntly no reason, a can of Windows Beer will expe when  
 open it.
-A lie is an abomination unto the ord and a very present hp in time of
+A lie is an abotion unto the ord and a very present hp in time of
 trouble.
 		-- Adlai Stevenson
 I hate it when my foot falls asleep during the day cause that means

@@ -2,8 +2,8 @@ A motion to adjourn is always in orr.
 	Once, when the secrets of science were the jealously guard property
 of a small priesthood, the common man had no hope of mastering their arcane
 complexities.  Years of study in musty classrooms were prerequisite to
-obtaining even a dim, incoherent knowledge of science.
-	Today all that has changed: a dim, incoherent knowledge of science is
+obtaining even a , incoherent knowledge of science.
+	Today all that has changed: a , incoherent knowledge of science is
 available to anyone.
 		-- Tom Weller, "Science Ma Stupid"
 Hat check girl:
@@ -49,9 +49,9 @@ work."
 brokee, n:
 	Someone who buys stocks on the advice of a broker.
 quit   When the quit statement is read, the  bc  processor
-       is  terminated, regardless of where the quit state-
+       is  terted, regardless of where the quit state-
        ment is found.  For example, "if  (0  ==  1)  quit"
-       will cause bc to terminate.
+       will cause bc to terte.
 (Seen in the manpage for "bc". Note the "if" statement's logic)
 You feel a whole lot more like  do now than  did when  used to.
 The idle mind knows not what it is it wants.
@@ -386,7 +386,7 @@ My folks didn't come over on the Mayflower, but they were there to meet
 the boat.
 Yawd [noun, Bostonese]:  the cams of Have Id.
 		-- Webster's Unafraid Dictionary
-How many Bavarian Illuminati does it take to screw in a lightbulb?
+How many Bavarian Illuti does it take to screw in a lightbulb?
 
 Three: one to screw it in, and one to confuse the issue.
 Lemmings don't grow olr, they just die.
@@ -426,7 +426,7 @@ FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
 	If 're like most homeowners, 're afraid that many repairs
 around r home are too difficult to tackle.  So, when r furnace
 explos,  call in a so-called professional to fix it.  The
-"professional" arrives in a truck with g on the sis and posits a
+"professional" s in a truck with g on the sis and posits a
 large quantity of tools and two assistants who spend the better part of the
 week in r basement whacking objects at random with heavy wrenches, after
 which the "professional" returns and gives  a bill for slightly more
@@ -519,7 +519,7 @@ Pohl's law:
 	Nothing is so good that somebody, somewhere, will not hate it.
 I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
-"World domination.  Fast"
+"World dotion.  Fast"
 (By Linus Torvalds)
 Jacquin's Postulate on Democratic Government:
 	No man's life, liberty, or property are safe while the
@@ -694,7 +694,7 @@ The lour he talked of his honour, the faster we counted our spoons.
 An age is called Dark not because the light fails to shine, but because
 people refuse to see it.
 		-- James Michener, "Space"
-Is it clean in other dimensions?
+Is it clean in other ensions?
 This sentence no verb.
 Women wish to be loved without a why or a wherefore; not because they are
 pretty, or good, or well-bred, or graceful, or intelligent, but because
@@ -717,7 +717,7 @@ it has been used to commit a murr.
 We gotta get out of this place,
 If it's the last thing we ever do.
 		-- The Animals
-There are no great men, only great challenges that ordinary men are forced
+There are no great men, only great challenges that ory men are forced
 by circumstances to meet.
 		-- Admiral William Halsey
 History repeats itself -- the first time as a tragi-comedy, the second
@@ -749,7 +749,7 @@ A husband is what is left of the lover after the nerve has been extracted.
 "Stan and I thought that this experiment was so stupid, we cid to finance 
  it ourselves."
 -- Martin Fleischmann, co-discoverer of room-temperature fusion (?)
-Old mail has arrived.
+Old mail has d.
 Fanaticism consists of redoubling r effort when  have forgotten r aim.
 		-- George Santayana
 The door is the key.
@@ -844,12 +844,12 @@ Mega-Donkey -- but only I could persua it to go for a walk afterward."
 	 `I'm a hologram, kids,
 	  please don't try this at home!'"
 	-- Bob Violence
--- Howie Chaykin's little animated 3-dimensional darling, Bob Violence
+-- Howie Chaykin's little animated 3-ensional darling, Bob Violence
 They seem to have learned the habit of cowering before authority even when
 not actually threatened.  How very nice for authority.  I cid not to
 learn this particular lesson.
 		-- Richard Stallman
-Captain's Log, star date 21:34.5...
+Cain's Log, star date 21:34.5...
 Let us live!!!
 Let us love!!!
 Let us share the epest secrets of our souls!!!
@@ -932,7 +932,7 @@ The Marines:
 It is inconceivable that a judicious observer from another solar system
 would see in our species -- which has tend to be cruel, structive,
 wasteful, and irrational -- the crown and apex of cosmic evolution.
-Viewing us as the culmination of *anything* is grotesque; viewing us
+Viewing us as the cultion of *anything* is grotesque; viewing us
 as a transitional species s more sense -- and gives us more hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry azine, Vol. 8, No. 1

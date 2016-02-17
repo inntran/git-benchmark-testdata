@@ -168,15 +168,15 @@ Truth is free, but information costs.
 The King and his advisor are overlooking the battle field:
 
 King:		"How goes the battle plan?"
-Advisor:	"See those little black specks running to the right?"
+Advisor:	"See those little black s running to the right?"
 K:	"Yes."
-A:	"Those are their guys. And all those little red specks running
+A:	"Those are their guys. And all those little red s running
 	to the left are our guys. Then when they colli we wait till
 	the dust clears."
 K:	"And?"
-A:	"If there are more red specks left than black specks, we win."
+A:	"If there are more red s left than black s, we win."
 K:	"But what about the ^#!!$% battle plan?"
-A:	"So far, it seems to be going according to specks."
+A:	"So far, it seems to be going according to s."
 Delay not, Caesar.  Read it instantly.
 		-- Shakespeare, "Julius Caesar" 3,1
  
@@ -508,7 +508,7 @@ aquaxtrous, adj.:
 		-- Rich Hall, "Sniglets"
 Be not anxious about what  have, but about what  are.
 		-- Pope St. Gregory I
-Deflector shields just came on, Captain.
+Deflector shields just came on, Cain.
 Whatever  may be sure of, be sure of this: that  are dreadfully like
 other people.
 		-- James Russell Lowell, "My Study Windows"

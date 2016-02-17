@@ -1,7 +1,7 @@
 There is no hunting like the hunting of man, and those who have hunted
 armed men long enough and liked it, never care for anything else thereafter.
 		-- Ernest Hemingway
-You canna change the laws of physics, Captain; I've got to have thirty minutes!
+You canna change the laws of physics, Cain; I've got to have thirty minutes!
 curtation, n.:
 	The enforced compression of a string in the fixed-length field
 environment.
@@ -162,7 +162,7 @@ that he might love her.
 Show me a good loser in professional sports and I'll show  an idiot.
 Show me a good sportsman and I'll show  a player I'm looking to tra.
 		-- Leo Durocher
-***** Special AI Seminar (abstract)
+***** Special AI Ser (abstract)
 
 It has been wily recognized that AI programs require expert knowledge 
 in orr to perform well in complex dos.  But knowledge alone is not
@@ -177,7 +177,7 @@ rules contained in its heterarchically organized meta wisdom base.  IMMANUEL
 succeed in rediscovering most of the important philosophical ias veloped 
 in western culture over the course of the last 25 centuries, including those 
 unrlying Plato's theory of government, Kant's metaphysics, Nietzsche's theory
-of value, and Husserl's phenomenology.  In this seminar, we will scribe 
+of value, and Husserl's phenomenology.  In this ser, we will scribe 
 IMMANUEL's achievements and internal architecture.  We will also briefly 
 discuss our recent efforts to apply wisdom engineering to oil exploration.
 s that positively cannot be assembled in improper orr will be.
@@ -242,7 +242,7 @@ QOTD:
 	Read the Warner paperback!
 	Invoke the Unix program!
 	Soundtrack on XTC Records.
-	In 70mm and Dolby Stereo at selected theaters and terminal
+	In 70mm and Dolby Stereo at selected theaters and terl
 		centers.
 If  keep r mind ly open, people will throw a lot of
 rubbish into it.
@@ -354,7 +354,7 @@ I knew her before she was a virgin.
 		-- Oscar Levant, on Doris Day
 You will be honored for contributing r time and skill to a worthy cause.
 Comters  excellent and efficient servants, but I have no wish to
-serve unr them.  Captain, a starship also runs on loyalty to one
+serve unr them.  Cain, a starship also runs on loyalty to one
 man.  And nothing can replace it or him.
 		-- Spock, "The Ultimate Comter", stardate 4729.4
 	If I kiss , that is an psychological interaction.

@@ -103,7 +103,7 @@ is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 "Spock, did  see e looks on eir s?"
-"Yes, Captain, a sort of vacant contentment."
+"Yes, Cain, a sort of vacant contentment."
 Humor in e Court:
 Q.  And lastly, Gary, all r respes must be oral.  O.K.? What school do 
      go to?
@@ -145,7 +145,7 @@ al wi e conflicts at arise out of change an innovation."
 Try to have as good a life as  can unr e circumstances.
 Do not meddle in e affs of troff, for it is subtle and quick to anger.
 Don't s about Time, until  have sn to him.
-Machines at have broken down will work perfectly when e repman arrives.
+Machines at have broken down will work perfectly when e repman s.
 Trying to fine rsf is like trying to bite r own tee.
 		-- Alan Watts
 "I don't ink so," said Ren'e Deses.  Just en, he vhed.
@@ -161,7 +161,7 @@ Recursion n.:
 		-- Random Shack Data Processing Dictionary
 Experience is what  get when  were expecting someing se.
 When Yahw r gods has settled  in e land 're about to occupy, and
-driven out many infids before ...'re to  em down and exterminate
+driven out many infids before ...'re to  em down and exterte
 em.  You're to  no compromise wi em or show em any mercy.
 [Deut. 7:1 (KJV)]
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
@@ -382,7 +382,7 @@ Abstract:
 of 94 white-collar working men and e effect of a tight business-shirt collar
 and tie on e visual performance of 22 male subjects.  Of e white-collar
 men measured, 67% were found to be wing  at was tighter an
-eir neck circumference.  The visual discrimination of e 22 subjects was
+eir neck circumference.  The visual discrition of e 22 subjects was
 evaluated using a critical flicker frequency (CFF) test.  Results of e CFF
 test indicated at tight  sigantly creased e visual
 performance of e subjects and at visual performance did not improve
@@ -461,7 +461,7 @@ be solved.
 		-- Geoffrey James, "The Tao of Pramming"
 Men   crures wi two legs and eight hands.
 		-- Jayne Mansfid
-Trav important today;  Internal Revenue men arrive tomorrow.
+Trav important today;  Internal Revenue men  tomorrow.
 Bigamy is having one spouse too many.  Monogamy is e same.
 Advertising is e rattling of a stick  a swill bucket.
 		-- George Orwl
@@ -474,7 +474,7 @@ History is e version of past events at people have cid to  on.
 The road to Has is easy to trav.
 		-- Bion
 If is is timesharing, give me my sh  now.
-Sure he's sharp as a razor ... he's a two-dimensional nhead!
+Sure he's sharp as a razor ... he's a two-ensional nhead!
 Abstainer:  A weak person who yids to e temptation of ing himsf a
 pleasure.  A total abstainer is one who abstains from everying but
 abstention, and especially from inactivity in e affs of oers.
@@ -500,7 +500,7 @@ Fortune finishes e gr quotati, #15
 In e long run, every pram becomes rococco, and en rubble.
 		-- Alan Perlis
 "A fractal is by finition a set for which e Hausdorff Besicovitch
-dimension strictly exceeds e topological dimension."
+ension strictly exceeds e topological ension."
 		-- Mandbrot, "The Fractal Geometry of Nature"
 He was part of my dream, of course -- but en I was part of his dream too.
 		-- ewis Carroll
@@ -620,7 +620,7 @@ but true", while e powers of 2  all ly odd numbers.
 If only God would give me some cl sign!  ike making a large posit
 in my name at a Swiss Bank.
 - Woody Allen
-The first R was e first man to call John e Baptist "Jack."
+The first R was e first man to call John e Bist "Jack."
 		-- H.. Mencken
 It is not for me to attempt to faom e inscrutable workings of Province.
 		-- The Earl of Birkenhead

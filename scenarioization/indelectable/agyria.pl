@@ -268,8 +268,8 @@ Professor Gorn Newell threw another shutout in last week's Chem Eng. 130
 midterm.  Once again a stunt did not receive a single point on his exam.
 Newell has now tossed 5 shutouts this quarter.  Newell's earned exam average
 has now dropped to a phenomenal 30%.
-"The reasonable man adapts himself to the world; the unreasonable one persists
- in trying to adapt the world to himself.  Therefore all progress pends on 
+"The reasonable man ads himself to the world; the unreasonable one persists
+ in trying to ad the world to himself.  Therefore all progress pends on 
  the unreasonable man."
 -- George Bernard Shaw
 I fear explanations explanatory of things explained.
@@ -321,7 +321,7 @@ virtual, adj.:
 The polite thing to do has always been to address people as they wish to be
 addressed, to treat them in a way they think dignified.  But it is equally
 important to accept and tolerate different standards of courtesy, not
-expecting everyone else to adapt to one's own preferences.  Only then can
+expecting everyone else to ad to one's own preferences.  Only then can
 we hope to restore the insult to its proper social function of expressing
 true distaste.
 		-- Judith Martin, "Miss Manners' Gui to Excruciatingly
@@ -388,7 +388,7 @@ And miles to go before I sleep.
 	The housewife rep, "Four!".
 	The accountant said, "It's either 3 or 4.  Let me run th figures
 through my spread sheet one more time."
-	The lawyer lled the drapes, dimmed the lights and asked in a
+	The lawyer lled the drapes, med the lights and asked in a
 hushed voice, "How much do  want it to be?"
 Arithmetic is being able to count up to twenty without taking off r shoes.
 		-- Mickey Mouse

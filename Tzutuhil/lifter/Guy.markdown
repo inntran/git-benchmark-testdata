@@ -95,7 +95,7 @@ lighthouse, n.:
 	Whether shot from a cannon or in hot rsuit on foot, cartoon
 	characters are so absolute in their momentum that only a telephone
 	pole or an outsize boulr retards their forward motion absolutely.
-	Sir Isaac Newton called this sudn termination of motion the
+	Sir Isaac Newton called this sudn tertion of motion the
 	stooge's surcease.
 III. Any body passing through solid matter will leave a perforation
      conforming to its perimeter.
@@ -164,7 +164,7 @@ Before I laugh and act like a fool.
 
 And if I swallow anything evil,
 Put  finger down my throat.
-And if I shiver please give me a blanket,
+And if I shiver please give me a b,
 Keep me warm let me wear r coat
 
 No one knows what it's like to be the bad man,
@@ -207,12 +207,12 @@ And the cool, green hills of Earth.
 It's not that I'm afraid to die. I just don't want to be there when it happens.
 		-- Woody Allen
 The meek don't want it.
-What this country needs is a dime that will buy a good five-cent bagel.
+What this country needs is a e that will buy a good five-cent bagel.
 In God we trust; all else we walk through.
 Many husbands go broke on the money their wives save on s.
 Dungeons and Dragons is just a lot of Saxon Violence.
 There's a way out of any cage.
-		-- Captain Christopher Pike, "The Menagerie" ("The Cage"),
+		-- Cain Christopher Pike, "The Menagerie" ("The Cage"),
 		   stardate unknown.
 Things past redress and now with me past care.
 		-- William Shakespeare, "Richard II"

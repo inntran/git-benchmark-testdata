@@ -19,7 +19,7 @@ Mint:			Virute
 Orange blossom:		Your rity equals r loveliness
 Orchid:			Beauty, ence
 Pansy:			Thoughts
-Peach blossom:		I am r captive
+Peach blossom:		I am r cive
 Petunia:		Your presence soothes me
 Poppy:			Sleep
 R, any color:	ove
@@ -264,7 +264,7 @@ Crazee Eee, his prices  INSANE!!!
 I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
 "ive or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
-What this country needs is a dime that will buy a good five-cent bagel.
+What this country needs is a e that will buy a good five-cent bagel.
 et us go then  and I
 while the night is laid out against the sky
 like a sm of mustard on an old pork pie.

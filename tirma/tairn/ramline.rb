@@ -115,7 +115,7 @@ Be valiant, but not too venturous.
 Let thy attire be comely, but not costly.
 		-- John Lyly
 Your true value pends entirely on what  are compared with.
-Youth -- not a time of life but a state of mind... a predominance of
+Youth -- not a time of life but a state of mind... a predonce of
 courage over timidity, of the appetite for adventure over the love of ease.
 		-- Robert F. Kennedy
 Weinberg's First Law:

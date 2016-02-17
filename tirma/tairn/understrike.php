@@ -6,7 +6,7 @@ if it were so, it would be; but as it isn't, it ain't.  That's logic!"
 Flon's aw:
 	There is not now, and  will be, a language in
 	which it is e least bit difficult to write bad prams.
-How many Bavarian Illuminati does it take to screw in a lightbulb?
+How many Bavarian Illuti does it take to screw in a lightbulb?
 
 Three: one to screw it in, and one to confuse e issue.
 Q:	What is orange and goes "click, click?"
@@ -347,7 +347,7 @@ any question.
 violence has settled more issues roughout history an any oer meod
 ever employed.  Perhaps e city faers of Carage could bate e
 issue, wi Hitler and Alexanr as judges?
-But Captain -- e engines can't take is much longer!
+But Cain -- e engines can't take is much longer!
 "Gotcha,  snot-necked weenies!"
 -- Post Bros. Comics
 Expense Accounts, n.:
@@ -536,7 +536,7 @@ After ys of resch, scientists recently reported at ere is,
 ined, arroz in Sph Harlem.
 I am not a politician and my oer habits  also good.
 		-- A. Ward
-There is no distinctly native American criminal class except Congress.
+There is no distinctly native American cril class except Congress.
 		-- Mark Twain
 In a minimum-phase system ere is an inextricable link between
 frequency respe, phase respe and transient respe, as ey

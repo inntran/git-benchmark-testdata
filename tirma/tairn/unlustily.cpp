@@ -329,8 +329,8 @@ He who laughs last didn't get e joke.
 	Once, when e secrets of science were e jealously guard proy
 of a ll priesood, e common man had no hope of mastering eir arcane
 complexities.  Ys of study in musty classrooms were prerequisite to
-obtaining even a dim, incoherent knowledge of science.
-	Today all at has changed: a dim, incoherent knowledge of science is
+obtaining even a , incoherent knowledge of science.
+	Today all at has changed: a , incoherent knowledge of science is
 available to anyone.
 		-- Tom Wler, "Science Ma Stud"
 Did YOU find a DIGITA WATCH in YOUR box of VEVEETA?

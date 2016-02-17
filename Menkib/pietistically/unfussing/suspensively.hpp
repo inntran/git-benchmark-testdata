@@ -150,7 +150,7 @@ into the night.  The difference is that a bunch of self-confessed "car nuts"
  making money doing what they love: writing co and driving fast.
 -- "Electronics ts its foot on the gas", IEEE Spectrum, May 88
 Before Xerox, five carb were the maximum extension of anybody's ego.
-Spock: The odds of surviving another attack  13562190123 to 1, Captain.
+Spock: The odds of surviving another attack  13562190123 to 1, Cain.
 quark:
 	The sound ma by a well bred duck.
 When  live in a sick society, just about everything  do is wrong.
@@ -296,7 +296,7 @@ Do  think  can tell?		Cold comfort for change?
 Bingo, gas station, hamburger with a si orr of airplane noise,
 and 'll be Gary, Indiana. - Jessie in the movie "Greaser's Palace"
 There's a way out of any cage.
-		-- Captain Christopher Pike, "The Menagerie" ("The Cage"),
+		-- Cain Christopher Pike, "The Menagerie" ("The Cage"),
 		   stardate unknown.
 New York-- to that tall skyline I come
 Flyin' in from ondon to r door
@@ -365,7 +365,7 @@ adhesive is wet, aggressively tacky."  I did not know what "aggressively
 tacky" meant until I read today's fortune.
 
 		[And who said we didn't offer equal time, huh? Ed.]
-If pregnancy were a book they would cut the last two chapters.
+If pregnancy were a book they would cut the last two chers.
 		-- Nora Ephron, "Htburn"
 Democracy is the worst form of government except all th other
 forms that have been tried from time to time.

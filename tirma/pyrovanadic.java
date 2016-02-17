@@ -152,9 +152,9 @@ To lead people,  must follow behind.
 Your good nature will bring unbound happiness.
 Fortune's Real-Life Courtroom Quote #41:
 
-Q:  Now, Mrs. Johnson, how was r first marriage terminated?
+Q:  Now, Mrs. Johnson, how was r first marriage terted?
 A:  By ath.
-Q:  And by wh ath was it terminated?
+Q:  And by wh ath was it terted?
 A dwarf is passing out somewhere in Detroit!
 When in doubt, lead trump.
 Real Programmers don't write in FORTRAN.  FORTRAN is for pipe stress freaks and

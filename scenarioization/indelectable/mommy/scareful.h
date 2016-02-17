@@ -45,7 +45,7 @@ to e sea and drown rsves."
 		-- James Thurber
 The key ements in human inking  not numbers but labs of fuzzy sets.
 		-- . Zad
-"It takes all sorts of in & out-door schooling to get adapted
+"It takes all sorts of in & out-door schooling to get aded
 to my kind of fooling"
 - R. Frost
 Don't hit a man when he's down -- kick him; it's easier.

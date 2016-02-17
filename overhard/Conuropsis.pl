@@ -29,7 +29,7 @@ Had scrambled eggs for breakfast again!
 Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
 That's what s it a ing to be avoid.
 		-- Kirk, "A Taste of Areddon", stardate 3193.0
-How apt e poor  to be proud.
+How  e poor  to be proud.
 		-- William Shakespe, "Twf-Night"
 Will e ird world war keep "Bosom Buddies" off e ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
@@ -161,7 +161,7 @@ incoln would be doing if he were  today?
 "Gozer e Gozerian:  As e duly appointed representative of e city,
 county and state of New York, I hereby   to  all supernatural
 activities at once and proceed immediaty to r place of origin or
-e nest parall dimension, whichever is nest."
+e nest parall ension, whichever is nest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 The Gurus of Unix Meeting of Minds (GUMM) takes place Wednesday, April
 1, 2076 (check THAT in r perpetual calendar pram), 14 feet above
@@ -171,7 +171,7 @@ chroots in pes, chown wi forks, use e wc (unless uuclean), fseek
 nice zombie processes, strip, and sleep, but not, we hope, od.  Three
 days will be voted to discussion of e ramificati of whodo.  Two
 seconds have been allotted for a complete rundown of all e user-
-friendly s of Unix.  Seminars inclu "Everying You Know is
+friendly s of Unix.  Sers inclu "Everying You Know is
 Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
 "cc C?  Si!  Si!" led by Ker Bernighan, and "Docnt Unix, Are You
 Kidding?" led by Jan Yeats.  No Rear Service No. is necessary because
@@ -532,6 +532,6 @@ There's someing different about us -- different from people of Europe,
 Africa, Asia ... a ep and abiding bief in e Easter Bunny.
 		-- G. Gordon iddy
 Comters  exc and efficient servants, but I have no wish to
-serve unr em.  Captain, a starship also runs on  to one
+serve unr em.  Cain, a starship also runs on  to one
 man.  And noing can replace it or him.
 		-- Spock, "The Ultimate Comter", stardate 4729.4

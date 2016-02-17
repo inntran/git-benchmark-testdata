@@ -63,7 +63,7 @@ soluble in alcohol..."
 Yow!  Now we can become alcoholics!
 Each person has the right to take the subway.
 Because the wine remembers.
-"Our vision is to speed up time, eventually eliminating it." -- Alex Schure
+"Our vision is to speed up time, eventually eliting it." -- Alex Schure
 RAM wasn't built in a day.
 You're being followed.  Cut out the hanky-panky for a few days.
 The difference between common-sense and paranoia is that common-sense is
@@ -122,7 +122,7 @@ Personifiers of the world, unite!  You have nothing to lose but Mr. Dignity!
 Facts do not cease to exist because they are ignored.
 		-- Aldous Huxley
 Did  hear that two rabbits escaped from the zoo and so far they have
-only recaptured 116 of them?
+only recured 116 of them?
 "Today, of course, it is considered very poor taste to use the F-word
 except in major motion pictures."
 		-- Dave Barry, "$#$%#^%!^%&@%@!"
@@ -309,7 +309,7 @@ herself, gave it a sort of beautiful quality and left.  Excited a few men
 in the meantime.
 		-- Patrick Macnee, reminiscing on Diana Rigg's
 		   involvement in "The Avengers".
-Tehee quod she, and clapte the wyndow to.
+Tehee quod she, and cle the wyndow to.
 		-- Geoffrey Chaucer
 When I was in school, I cheated on my metaphysics exam: I looked into
 the soul of the boy sitting next to me.

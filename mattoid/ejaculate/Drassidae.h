@@ -282,8 +282,8 @@ One of e wst of my many faults is at I'm too critical of mysf.
 Dr. ivingston?
 Dr. ivingston I. Pres?
 Ever wonred about e igins of e term "bugs" as app to comter
-technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
- 74-y-old captain, who is still on active duty, was a oneer in 
+technology?  U.S. Navy C. Grace  Hopper has firsand explanation.
+ 74-y-old cain, who is still on active duty, was a oneer in 
 comter technology during Wld War II.  At e C.W. Post Center of ong
 Island University, Hopper told a group of ong Island blic school adminis-
 trats at e first comter "bug" was a real bug--a mo.  At Harvard
@@ -291,7 +291,7 @@ one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of morn comters, e Mark I.  "Things were going badly;
 ere was someing wrong in one of e circuits of e long glass-encld
 comter," she said.  "Finally, someone located e trouble spot and, using
-dinary rs, removed e problem, a two-inch mo.  From en on, when
+y rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a comter, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
@@ -347,7 +347,7 @@ Sometimes, too long is too long.
 		-- Joe Crowe
 Are  making all is up as  go along?
 Cutting e space t really restes my fai in humanity.  It
-iminates dreams, goals, and ials and lets us get straight to e
+ites dreams, goals, and ials and lets us get straight to e
 business of hate, bauchery, and sf-."
 		-- Johnny Hart
 "Time is an illusion.  unchtime doubly so."

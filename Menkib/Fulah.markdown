@@ -91,7 +91,7 @@ Miksch's Law:
 	If a string has one end, then it has another end.
 When this load is DONE I think I'll wash it AGAIN ...
 James McNeill Whistler's (painter of "Whistler's Mother")
-failure in his West Point chemistry examination once provoked him to
+failure in his West Point chemistry exation once provoked him to
 remark in later life, "If silicon had been a gas, I should have been a
 major general."
 The second best policy is dishonesty.
@@ -115,7 +115,7 @@ Slang is language that takes off its coat, spits on its hands, and goes to work.
 "Gozer the Gozerian:  As the duly appointed representative of the city,
 county and state of New York, I hereby orr  to cease all supernatural
 activities at once and proceed immediately to r place of origin or
-the nearest parallel dimension, whichever is nearest."
+the nearest parallel ension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 I've already told  more than I know.
 "The rotter who simpers that he sees no difference between a five-dollar bill 
@@ -145,7 +145,7 @@ Happiness s up in height what it lacks in length.
 The absence of labels [in ECL] is probably a good thing.
 		-- T. Cheatham
 	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
+	"The famous scientific cril, as famous among crooks as --"
 	"My blushes, Watson," Holmes murmured, in a precating voice.
 	"I was about to say 'as he is unknown to the blic.'"
 		-- A. Conan Doyle, "The Valley of Fear"

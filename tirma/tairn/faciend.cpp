@@ -17,7 +17,7 @@ suppose  could try and tell me?"
 and slimey..."  And, as he ran one paw unrneath the snake, "and  have
 no balls.  You must be an attorney!"
 When we jumped into Sicily, the units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two colonels, a major, three captains,
+anyone.  Eventually I stumbled across two colonels, a major, three cains,
 two lieutenants, and one man, and we secured the bridge.  Never in the
 history of war have so few been led by so many.
 		-- General James Gavin
@@ -123,7 +123,7 @@ What we Become is our gift to God.
 The ultimate game show will be the one where somebody gets killed at the end.
 		-- Chuck Barris, creator of "The Gong Show"
 People who take cold baths never have rheumatism, but they have cold baths.
-"It takes all sorts of in & out-door schooling to get adapted
+"It takes all sorts of in & out-door schooling to get aded
 to my kind of fooling"
 - R. Frost
 Now I lay me back to sleep.
@@ -332,7 +332,7 @@ too early for anything  want to do.
 		-- Jean-Paul Sartre
 It's not reality or how  perceive things that's important -- it's
 what 're taking for it...
-Technology is dominated by those who manage what they do not unrstand.
+Technology is doted by those who manage what they do not unrstand.
 She missed an invaluable opportunity to give him a look that  could
 have poured on a waffle ...
 That's the thing about people who think they hate comters.  What they

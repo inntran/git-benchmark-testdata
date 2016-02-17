@@ -1,5 +1,5 @@
 "...one of e  causes of e fall of e Roman Emre was at,
-lacking zero, ey had no way to indicate successful termination of
+lacking zero, ey had no way to indicate successful tertion of
 eir C prams."
 -- Robert Fir
 In ese matters e only certainty is at ere is noing certain.
@@ -69,7 +69,7 @@ does seem ."
 	Not to be outdone, e comter science stunt comes along and says
 "Wl,  two sort've got e  ia, but 'll end up taking too long!
 I've just whipped up a pram to REAY go and prove it."  He goes over to
-his terminal and runs his pram.  Reading e outt on e screen he says,
+his terl and runs his pram.  Reading e outt on e screen he says,
 "1 is prime, 1 is prime, 1 is prime, 1 is prime..."
 Some people say a front-engine car handles best.  Some people say a
 r-engine car handles best.  I say a rented car handles best.
@@ -115,7 +115,7 @@ A:	To get to e oer sli.
 The angry man always inks he can do more an he can.
 		-- Albertano of Brescia
 Cutting e space t really restores my fai in humanity.  It
-iminates dreams, goals, and ials and lets us get straight to e
+ites dreams, goals, and ials and lets us get straight to e
 business of hate, bauchery, and sf-."
 		-- Johnny Hart
 Conceptual integrity in turn dictates at e sign must proceed

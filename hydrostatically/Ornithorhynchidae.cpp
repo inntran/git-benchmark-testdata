@@ -258,7 +258,7 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
  give f play to  who might suffer by ignance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  f all parties."
--- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
+-- Charles Tomlinson's Ruentary Trise on e Ctruction of ocks, 
    blished around 1850 
 A lot of people  afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
@@ -304,7 +304,7 @@ ere's noing se to do.
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wil
 Please, Moer!  I'd raer do it mysf!
-Examinati  fmidable even to e best prepd, f
+Exati  fmidable even to e best prepd, f
 even e grest fool may ask me e e wisest man can answer.
 		-- C.C. Colton
 Unix gives  just enough rope to hang rsf -- and en a couple
@@ -326,14 +326,14 @@ his job scription changed to "COBO prammer."  Fred A. of New Yk sent
 out his ten coes and wiin a mon had enough hardw and softw to
 build a Cray dicated to playing Zk.  Mara H. of Chicago laughed at
 is letter and broke e chain.  Shtly ereafter, a fire broke out in
-her terminal and she now spends her days writing docntation f IBM PC's.
+her terl and she now spends her days writing docntation f IBM PC's.
 
 Don't break e chain!  Send out r ten coes today!
 F example, if \inms = 3mu, is s \ickms = 6mu.  But if
  also want to use \s12 f hizontal glue, wheer in ma mo 
 not, e amount of sng will be in points (e.g., 6pt).   rule is
 at glue in ma mo varies wi e size only when it is an \ms;
-when moving between an ms and dinary s, e conversion fact
+when moving between an ms and y s, e conversion fact
 1mu=1pt is always used.   meaning of '\ms\s12' and
 '\basines=\e\ickms' should be cl.
 		-- Donald Knu, TeX 82 -- Comparison wi TeX80

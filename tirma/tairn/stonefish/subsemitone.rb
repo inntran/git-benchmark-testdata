@@ -132,7 +132,7 @@ Brain dae is all in r head.
 You're working under a slight handicap.  You happen to be human.
 Hangover, n.:
 	The burden of proof.
-I attribute my success to intelligence, guts, determination, honesty,
+I attribute my success to intelligence, guts, detertion, honesty,
 ambition, and having enough money to buy people with those qualities.
 God made everything out of nothing, but the nothingness shows through.
 		-- Paul Valery
@@ -172,15 +172,15 @@ Things fall apart; the centre cannot hold.
 The King and his advisor are overlooking the battle field:
 
 King:		"How goes the battle plan?"
-Advisor:	"See those little black specks running to the right?"
+Advisor:	"See those little black s running to the right?"
 K:	"Yes."
-A:	"Those are their guys. And all those little red specks running
+A:	"Those are their guys. And all those little red s running
 	to the left are our guys. Then when they collide we wait till
 	the dust clears."
 K:	"And?"
-A:	"If there are more red specks left than black specks, we win."
+A:	"If there are more red s left than black s, we win."
 K:	"But what about the ^#!!$% battle plan?"
-A:	"So far, it seems to be going according to specks."
+A:	"So far, it seems to be going according to s."
 Prosperity s friends, adversity tries them.
 		-- Publilius Syrus
 Price's Advice:
@@ -230,7 +230,7 @@ pond -- that is to say, frogs are Pond-space complete.  We will show that
 there is a log-space, polywog-time reduction from any Turing machine program
 to a frog.  We will suggest these represent a proper subset of frog-comtable
 functions.
-	This is not just a let's-see-how-far-those-frogs-can-jump seminar.
+	This is not just a let's-see-how-far-those-frogs-can-jump ser.
 This is only for hardcore amphibian-comtation people and their colleagues.
 	Refreshments will be served.  Music will be played.
 QOTD:
@@ -270,7 +270,7 @@ Lowery's Law:
 I owe the government $3400 in taxes.  So I sent them two hammers and a
 toilet seat.
 		-- Michael McShane
-Captain Penny's Law:
+Cain Penny's Law:
 	You can fool all of the people some of the time, and
 	some of the people all of the time, but  Can't Fool Mom.
 Is not that the nature of men and women -- that the pleasure is in the
@@ -330,7 +330,7 @@ rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great idea," said the manager. Then he paused and asked the killer
 question, "NOW what's the least polar vegetable?"
 
-Law: Once  eliminate r #1 problem, #2 gets a promotion.
+Law: Once  elite r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Consulting"
 YOW!!  Now I understand advanced MICROBIOLOGY and th' new TAX REFORM laws!!
 Oxygen is a very toxic gas and an extreme fire hazard.  It is fatal in
@@ -422,7 +422,7 @@ Save rself!  Reboot in 5 seconds!
 Have  ever noticed that the people who are always trying to tell 
 `there's a time for work and a time for play' never find the time for play?
 Everybody wants to go to heaven, but nobody wants to die.
-One of the advantages of being a captain is being able to ask for
+One of the advantages of being a cain is being able to ask for
 advice without necessarily having to take it.
 		-- Kirk, "Dagger of the Mind", stardate 2715.2
 Blessed is he who expects no gratitude, for he shall not be disappointed.
@@ -430,7 +430,7 @@ Blessed is he who expects no gratitude, for he shall not be disappointed.
 Lady Astor was giving a costume ball and Winston Churchill asked her what
 disguise she would recommend for him.  She rep, "Why don't  come
 sober, Mr. Prime Minister?"
-A pain in the ass of major dimensions.
+A pain in the ass of major ensions.
 		-- C.A. Desoer, on the solution of non-linear circuits
 Shift to the left,
 Shift to the right,
@@ -447,7 +447,7 @@ QOTD:
 	The only easy way to tell a hamster from a gerbil is that the
 	gerbil has more dark meat.
 Sorry.  Nice try.
-"Our vision is to speed up time, eventually eliminating it." -- Alex Schure
+"Our vision is to speed up time, eventually eliting it." -- Alex Schure
 > The day people think linux would be better served by somebody else (FSF
 > being the natural alternative), I'll "abdicate".  I don't think that
 > it's something people have to worry about right now - I don't see it
@@ -554,7 +554,7 @@ government at all.
 Swerve me?  The path to my fixed rpose is laid with iron rails,
 whereon my soul is grooved to run.  Over unsounded gorges, through
 the d hearts of mountains, under torrents' beds, unerringly I rush!
-		-- Captain Ahab, "Moby Dick"
+		-- Cain Ahab, "Moby Dick"
 If  wants to get elected president, 'se got to think up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if they don't know what it means.

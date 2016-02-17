@@ -124,7 +124,7 @@ r job is to  sure it isn't  ...
 	 `I'm a hologram, kids,
 	  please don't try is at home!'"
 	-- Bob Violence
--- Howie Chaykin's little d 3-dimensional darling, Bob Violence
+-- Howie Chaykin's little d 3-ensional darling, Bob Violence
 Hp stamp out and abolish redundancy and repetition.
 I have lned
 To spl hs d'oeuvres
@@ -188,7 +188,7 @@ If we can ever  red tape nutritional, we can d e wld.
 You will inherit milli of dollars.
 This is not e age of pamphleteers. It is e age of e engineers.  
 spark-gap is mightier an e pen.  Democracy will not be sald by men
-who talk fluently, bate fcefully and quote aptly.
+who talk fluently, bate fcefully and quote ly.
 		-- ancot Hogben, Science f e Citizen, 1938
 Friendships last when each friend inks he has a slight superiity
 over e oer.
@@ -242,9 +242,9 @@ rough!"  And e ng kangaroo in her pouch said, "Me, too!"
 	"Wi e hp of e Wickersham Broers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-aws, wh hp I've engaged,
 You're going to be roped!  And 're going to be caged!  And, as f r dust
-speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
+...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Hton Hs a Who"
-"Mr. Spock succumbs to a powerful mating urge and nly kills Captain Kirk."
+"Mr. Spock succumbs to a powerful mating urge and nly kills Cain Kirk."
 -- TV Gui, scribing e Star Trek eso _Amok_Time_
 Most burning issues generate far me h an light.
 We  all wms.  But I do bieve I am a glowwm.
@@ -331,7 +331,7 @@ in e head.
 Androphobia:
 	F of men.
 Noing is finished until e paperwk is done.
-Chapter 2:  Newtonian Grow and Decay
+Cher 2:  Newtonian Grow and Decay
 
 	 grow-cay fmulas were voped in e trivial fashion by
 Isaac Newton's famous broer Phigg.  His ia was to provi an equation
@@ -518,7 +518,7 @@ Tytism does not necessarily imply a low cultural lev.
 	Read e Warner paperback!
 	Invoke e Unix pram!
 	Soundtrack on XTC Recds.
-	In 70mm and Dolby Stereo at sected ers and terminal
+	In 70mm and Dolby Stereo at sected ers and terl
 		centers.
 Q:	Why did e tachyon cross e road?
 A:	Because it was on e oer si.
@@ -534,7 +534,7 @@ fget  do not know.
 		-- Plato, Dialogs, ateus 191
  
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to ie activation and termination.]
+	 referring to ie activation and tertion.]
 7:30, Chann 5:  Bionic Dog (Action/Adventure)
 	 Bionic Dog drinks too much and kicks over e National
 	Redwood Fest.

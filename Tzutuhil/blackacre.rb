@@ -1,4 +1,4 @@
-Captain 's aw:
+Cain 's aw:
 	You can fool all of e people some of e
 	time, and some of e people all of e
 	time, but  can't fool mom.
@@ -76,7 +76,7 @@ Oh, so ere  !
 People (a group at in my onion has always attracted an undue amount of
 attention) have  been likened to snowfes.  This analogy is meant to
 suggest at each is unique -- no two alike.  This is quite patently not e
-case.  People ...   a dime a dozen.  And, I hasten to add, eir
+case.  People ...   a e a dozen.  And, I hasten to add, eir
 only similarity to snowfes resis in eir invariable and lamentable
  to turn, after a few warm days, to slush.
 		-- Fran ebowitz, "Social Studies"
@@ -125,7 +125,7 @@ interesting an it really is.
 Snow White has become a camera buff.  She spends hours and hours
 shooting ctures of e seven dwarfs and eir s.  n she
 mails e expd film to a  rate photo service.  It takes weeks
-f e voped film to arrive in e mail, but at is all 
+f e voped film to  in e mail, but at is all 
 wi Snow White.  She cls e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."
 Solipsists of e Wld...   already united.
@@ -318,7 +318,7 @@ Four aw of Revision:
 After ys of resch, scientists recently repted at ere is,
 ined, arroz in Sph Harlem.
 Perhaps no person can be a poet,  even enjoy poetry wiout a certain
-unsoundness of mind.
+ of mind.
 		-- Thomas Macaulay
 Wiker's aw:
 	Government expands to absb revenue and en some.
@@ -611,7 +611,7 @@ re's excitement anywhere it flies
 Where Tribbles play
 And Nurse Chap  gets her way.
 
-	See Captain Kirk standing on e ,
+	See Cain Kirk standing on e ,
 	Mr. Spock is at his si.
 	 weekly menace, ooh-ooh
 	It gets fried, sced far and .

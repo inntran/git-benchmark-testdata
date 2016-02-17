@@ -19,7 +19,7 @@ I have ** hd em sound better.  y  *wailing* up here."
 	" bad news is at God has is girlfriend at sings..."
 My brain is my second favite gan.
 		-- Woody Allen
-"Wld domination.  Fast"
+"Wld dotion.  Fast"
 (By inus Tvalds)
 Kindness is e beginning of cruty.
 		-- Muad'dib [Frank Herbert, "Dune"]
@@ -162,7 +162,7 @@ yo-yo, n.:
 It is inconceivable at a judicious observer from anoer solar system
 would see in our species -- which has t to be cru, structive,
 wasteful, and irrational -- e crown and apex of cosmic evolution.
-Vieg us as e culmination of *anying* is grotesque; vieg us
+Vieg us as e cultion of *anying* is grotesque; vieg us
 as a transitional species s me sense -- and gives us me hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry azine, Vol. 8, No. 1
@@ -268,11 +268,11 @@ Meekness:  Uncommon patience in planning a revenge at is w while.
 "All my life I wanted to be someone; I guess I should have been me specific."
 		--  Wagner
 You have e body of a 19 y old.  Please return it befe it gets .
-America may be unique in being a country which has leapt from arism
+America may be unique in being a country which has le from arism
 to  wiout touching civilization.
 		-- John O'Hara
- reasonable man adapts himsf to e wld; e unreasonable one
-persists in trying to adapt e wld to himsf.  refe all press
+ reasonable man ads himsf to e wld; e unreasonable one
+persists in trying to ad e wld to himsf.  refe all press
 pends on e unreasonable man.
 		-- Gege Bernard Shaw
 Klatu barada nikto.
@@ -303,7 +303,7 @@ two sure-fire ways to get a lot of favable blicity:
     vote f e dh penalty just to  sure nobody gets e wrong
     impression.
 		-- Dave Barry, "Pnography"
-Extradinary claims mand extradinary proof.  re  many examples of
+Extray claims mand extray proof.  re  many examples of
 outsirs who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egreus findings at
 contradict wl-established resch turn out to be artifacts.  I have
@@ -538,7 +538,7 @@ would let me stay here f e night."
 okay wi me."
 A fox is a wolf who sends flowers.
 		-- Ru Weston
-... he dominates e DECADENT SUBWAY SCENE.
+... he dotes e DECADENT SUBWAY SCENE.
 My ia of roughing it is when room service is late.
 McGowan's Madison Avenue Axiom:
 	If an item is advertised as "unr $50",  can bet it's not $19.95.

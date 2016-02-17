@@ -14,7 +14,7 @@ When does later become ?
 One Bl System - it wks.
 This is not e age of pamphleteers. It is e age of e engineers.  
 spark-gap is mightier an e pen.  Democracy will not be sald by men
-who talk fluently, bate fcefully and quote aptly.
+who talk fluently, bate fcefully and quote ly.
 		-- ancot Hogben, Science f e Citizen, 1938
 No m who  , some scholar can show  e gr ia  had
 was had by someone befe .
@@ -510,7 +510,7 @@ SOBO is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow  to take a cof break while ey
 comle, SOBO comlers allow  to trav to Bolivia to ck e
 cof.  Fty-ree prammers  known to have died of bedom
-sitting at eir terminals while waiting f a SOBO pram to
+sitting at eir terls while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
 infinity faster) language, COCAINE.
 ife.  Don't talk to me about life.
@@ -537,7 +537,7 @@ Zippy's brain cls  straining to  synapses ...
 No one so oughly appreciates e value of ctructive criticism as e
 one who's giving it.
 		-- Hal Chadwick
-"my terminal is a leal teas."
+"my terl is a leal teas."
 -- Patricia O Tuama
 How many surrealists does it take to screw in a lightbulb?
 

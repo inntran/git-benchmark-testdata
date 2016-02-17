@@ -10,7 +10,7 @@ town drunk.
 If we see e light at e end of e tunn, it's e light of an
 oncoming train.
 		-- Robert owl
-Until Eve arrived, is was a man's wld.
+Until Eve d, is was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
 	Anyone in r company who is me seni an  .

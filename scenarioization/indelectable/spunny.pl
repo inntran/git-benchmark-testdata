@@ -210,10 +210,10 @@ thread news rear.
 to hell."
 -- Jimmy Swaggart, 5/20/88
 Often statistics  used as a drunken man uses lampposts -- for support
-rather than illumination.
+rather than illution.
 Your lucky number has been ed.
 Cutting the space budget really restores my faith in humanity.  It
-eliminates dreams, goals, and ials and lets us get straight to the
+elites dreams, goals, and ials and lets us get straight to the
 business of hate, bauchery, and self-annihilation."
 		-- Johnny Hart
 The leaves were long, the grass was green,

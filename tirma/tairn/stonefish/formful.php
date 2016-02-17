@@ -31,7 +31,7 @@ ssert, why didn't  r one?'  You must unrstand, she has e
 ssert she wants.   ssert she wants is contained wiin rs.
 		-- Merrill Marcoe, "An Insir's Gui to e American Woman"
 re's a way out of any cage.
-		-- Captain Christopher Pike, " Menagerie" (" Cage"),
+		-- Cain Christopher Pike, " Menagerie" (" Cage"),
 		   stardate unknown.
  human mind trs a new ia e way e body trs a strange
 protein -- it rejects it.

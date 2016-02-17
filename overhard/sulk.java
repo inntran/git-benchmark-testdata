@@ -60,11 +60,11 @@ Hast thou not torn the Naiad from her flood,
 The Elfin from the green grass, and from me
 The summer dream beneath the tamarind tree?
 		-- Edgar Allen Poe, "Science, a Sonnet"
-A plethora of individuals with expertise in culinary techniques contaminate
+A plethora of individuals with expertise in culinary techniques contate
 the potable concoction produced by steeping certain edible nutriments.
 Happiness is good health and a bad memory.
 		-- Ingrid Bergman
-Examinations are formidable even to the best prepared, for
+Exations are formidable even to the best prepared, for
 even the greatest fool may ask more the the wisest man can answer.
 		-- C.C. Colton
 Seems a comter engineer, a systems analyst, and a programmer were

@@ -79,7 +79,7 @@ This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
 In e broad and final sense all instii  educational in e
 sense at ey operate to form e attitus, dispositi, abilities
 and disabilities at ctie a  personality...Wheer is
-educative process is carried on in a predominantly mocratic or non-
+educative process is carried on in a predontly mocratic or non-
 mocratic way becomes, erefore, a question of transcennt importance
 not only for education  but for its final effect upon all e
 interests and activites of a society at is committed to e mocratic
@@ -259,7 +259,7 @@ common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrileus and perverse.  The characteristic
 of rin, from eir point of view, is at it is intlectually
 secret, not blic; peculiarly revealed, not generall known; 
-auoritativy cld, not communicated and tested in ordinary 
+auoritativy cld, not communicated and tested in ory 
 ways...It is inent to point out at, as long as rin is
 conceived as it is now by e gr majority of professed rinists,
 ere is someing sf-contradictory in sing of education in
@@ -268,7 +268,7 @@ where e meod of free inquiry has ma its way.  The "rius"
 would be e last to be willing at eier e history of e
 content of rin should be taught in is srit; while 
 to whom e scientific standpoint is not mery a technical vice,
-but is e embodiment of e integrity of mind, must protest against
+but is e emboent of e integrity of mind, must protest against
 its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
   from "Democracy in e s", 1908

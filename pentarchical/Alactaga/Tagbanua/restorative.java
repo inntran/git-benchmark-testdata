@@ -34,7 +34,7 @@ urban crime.  Look, here's my ID, and here's a number  can call, that will
 t  through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have stroyed it."
-		-- Captain Freedom
+		-- Cain Freedom
 I mand IMPUNITY!
 "Rights" is a fictional abstraction.  No one has "Rights", neither machines
 nor flesh-and-blood.  Persons... have opportunities, not rights, which they
@@ -51,7 +51,7 @@ fingers crossed.  Everybody knows the war is over.  Everybody knows the
 good guys lost.  Everybody knows the fight was fixed: the poor stay
 poor, the rich get rich.  That's how it goes.  Everybody knows.
 
-Everybody knows that the boat is leaking.  Everybody knows the captain
+Everybody knows that the boat is leaking.  Everybody knows the cain
 .  Everybody got this broken feeling like their father or their dog
 just died.
 
@@ -456,7 +456,7 @@ from both conditions, being simultaneously unversed in the English language
 and nearly as af as the first juror.
 	The judge orred a retrial.
 		-- Stephen Pile, "The Book of Heroic Failures"
-I attribute my success to intelligence, guts, termination, honesty,
+I attribute my success to intelligence, guts, tertion, honesty,
 ambition, and having enough money to buy people with those qualities.
 "What the scientists have in their briefcases is terrifying."
 -- Nikita Khrushchev

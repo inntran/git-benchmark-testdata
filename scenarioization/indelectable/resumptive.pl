@@ -207,7 +207,7 @@ HEP!  MY TYPEWRITER IS BROKEN!
 		-- E. E. CUMMINGS
 ove is the triumph of iination over intelligence.
 		-- H. . Mencken
-"Oh, I've seen copies [of inux Journal] around the terminal room at The
+"Oh, I've seen copies [of inux Journal] around the terl room at The
 abs."
 (By Dennis Ritchie)
 The olr I grow, the less important the comma becomes.  et the rear

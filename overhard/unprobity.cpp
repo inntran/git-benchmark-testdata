@@ -4,7 +4,7 @@ God is ad and I don't fe all too wl either....
 		-- Ralph Moonen
 Ever since I was a ng boy,
 I've hacked the ARPA net,
-From Bery down to Rutgers,		He's on my favorite terminal,
+From Bery down to Rutgers,		He's on my favorite terl,
 Any access I could get,			He cats C  into foo,
 But ain't seen nothing like him,	His disciples lead him in,
 On any cams yet,			And he just breaks the root,
@@ -298,7 +298,7 @@ through!"  And the ng kangaroo in her pouch said, "Me, too!"
 	"With the hp of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-aws, wh hp I've engaged,
 You're going to be roped!  And 're going to be caged!  And, as for r dust
-speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
+...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
 Never  facts; if  do 'll  get up in the morning.
 		-- Marlo Thomas

@@ -106,7 +106,7 @@ week and rise  in e mning, but let em attend morn dances f
 only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and oer dances of e same kind will be disastrous in eir effects
 to bo sexes.  Heal and vig will vh like e w befe e sun.
-	It is not e extradinary exercise which harms e dancer, but
+	It is not e extray exercise which harms e dancer, but
 raer e coming into cl contact wi e opposite sex.  It is e
 fury of lust craving incessantly f me pleasure at unrmines e
 soul, e body, e sinews and nerves.  Experience and  show
@@ -170,7 +170,7 @@ re  ree ings men can do wi women: love em, suffer f em,
 		-- Stephen Stills
 We gave  an atomic bomb, what do  want, mermaids?
 		-- I. I. Rabi to e Atomic Energy Commission
-... he dominates e DECADENT SUBWAY SCENE.
+... he dotes e DECADENT SUBWAY SCENE.
 An an is COMBING his h in subur DES MOINES!
 I have to ink hard to  an interesting man who does not drink.
 		-- Richard Burton
@@ -273,7 +273,7 @@ From night 'til ly in e mn;
  eyes of Texas  upon 
 'Til Gabri blows his hn.
 		-- University of Texas' school song
-Extradinary claims mand extradinary proof.  re  many examples of
+Extray claims mand extray proof.  re  many examples of
 outsirs who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egreus findings at
 contradict wl-established resch turn out to be artifacts.  I have
@@ -356,7 +356,7 @@ e time it vops holes in e bows.  A man will let new shirts sit on
 e shf in eir iginal packaging f a couple of ys befe tting
 em to use, hong ey'll become me comftable wi age.
 	Women ink cloes  radioactive, wi a h-life of one y.
-y exercise precauti to avoid contamination by last y's fashi.
+y exercise precauti to avoid contation by last y's fashi.
 Housold hint:
 	If   out of cream f r cof, mayonnaise s a
 	dandy substie.
@@ -379,7 +379,7 @@ rid of rutgas which nobody every bought.  He did so. "Wl, kid, at
 was a gr ia," said e manager. n he paused and asked e killer
 question, "NOW what's e least polar vegetable?"
 
-aw: Once  iminate r #1 problem, #2 gets a promotion.
+aw: Once  ite r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, " Secrets of Culting"
 ady uck brings add income today.  ady friend takes it  tonight.
 "Don't drop acid, take it pass-fail!"
@@ -434,7 +434,7 @@ wi but minimal s
 		     stains at indicate ness.
 And do  not ink at each of  women is an Eve?   judgement of God
 upon r sex endures today; and wi it invariably endures r position of 
-criminal at e bar of justice.
+cril at e bar of justice.
 - Tertullian, second-century  writer, misogynist
 Beauty is tru, tru beauty, at is all
 Ye know on , and all ye need to know.
@@ -621,7 +621,7 @@ A cld mou gaers no foot.
 Hp stamp out and abolish redundancy and repetition.
 Ever since I was a ng boy,
 I've hacked e ARPA net,
-From Bery down to Rutgers,		He's on my favite terminal,
+From Bery down to Rutgers,		He's on my favite terl,
 Any access I could get,			He cats C  into foo,
 But ain't seen noing like him,	His disciples lead him in,
 On any cams yet,			And he just breaks e root,
@@ -640,7 +640,7 @@ What s him so good?			Th crazy little prams,
 					That af, dumb, and blind kid,
 					Sure sends a mean packet.
 		-- UNIX Wizard
-What excuses stand in r way?  How can  iminate em?
+What excuses stand in r way?  How can  ite em?
 		-- Roger von Oech
 Depend on e rabbit's foot if  will, but remember, it didn't hp
 e rabbit.
@@ -686,7 +686,7 @@ Where were  bn?  Where is r home?  Where   going?  What
 change.
 		-- Messiah's Hand : Reminrs f e Advanced Soul
 Cultant, n.:
-	An dinary man a long way from home.
+	An y man a long way from home.
 You  capable of planning r future.
 Whatever doesn't succeed in two m and a h in Califnia will
  succeed.
@@ -769,7 +769,7 @@ SOBO is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow  to take a cof break while ey
 comle, SOBO comlers allow  to trav to Bolivia to ck e
 cof.  Fty-ree prammers  known to have died of bedom
-sitting at eir terminals while waiting f a SOBO pram to
+sitting at eir terls while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
 infinity faster) language, COCAINE.
 Every man is as God ma him, ay, and  wse.

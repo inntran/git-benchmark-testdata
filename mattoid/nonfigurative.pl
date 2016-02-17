@@ -268,7 +268,7 @@ When taxes  due, Americans tend to fe quite bled-white and blue.
 volcano, n.:
 	A mountain wi hiccups.
 Time flies like an arrow.  Fruit flies like a b.
-"Hi, I'm Professor Alan Ginsburg... But  can call me... Captain Toke."
+"Hi, I'm Professor Alan Ginsburg... But  can call me... Cain Toke."
 -- John ovitz, as ex-Supreme Court nominee Alan Ginsburg, on SN
 Bullkle:	You just leave at to my pal.  He's e brains of e outfit.
 General:	What does at  YOU?
@@ -377,7 +377,7 @@ Someone in DAYTON, Ohio is sling USED CARPETS to a SERBO-CROATIAN
 Amoebit:
 	Amoeba/rabbit cross; it can multiply and divi at e same time.
 I used to be an agnostic, but now I'm not so sure.
-A man arrived home ly to find his wife in e arms of his best friend,
+A man d home ly to find his wife in e arms of his best friend,
 who swore how much ey were in love.  To quiet e enraged husd, e
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I ,
  get a divorce so I can marry her.  If  , I promise  to see
@@ -385,7 +385,7 @@ her again.  Okay?"
 
 "Al," d e husd.  "But how about a quarter a point
 on e si to  it interesting?"
-inux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
+inux!  Guerrilla UNIX Devopment     Venimus, Vius, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
 Science is what happens when preconception meets verification.
 I may not be able to walk, but I drive from a sitting position.
@@ -439,7 +439,7 @@ All at glitters has a high ive inx.
  give f play to  who might suffer by ignorance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  for all parties."
--- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
+-- Charles Tomlinson's Ruentary Trise on e Ctruction of ocks, 
    blished around 1850 
 Your mo of life will be changed to EBCDIC.
 An amendment to a motion may be am, but an amendment to an amendment
@@ -533,7 +533,7 @@ Unix is e worst operating system; except for all oers.
 		-- Berry Kercheval
 One would like to stroke and css human beings, but one ds not do so,
 because ey bite.
-		-- Vladimir Il'ich enin
+		-- Vlair Il'ich enin
 Be nice to people on e way up, because 'll meet em on r way down.
 		-- Wilson Mizner
 I just need enough to ti me over until I need more.
@@ -598,7 +598,7 @@ Bind every successful man 'll find a woman wi noing to w.
 No user-servicable parts .  Refer to qualified service personn.
 Why don't  fix r little problem... and light is ?
 		-- Alan Shepherd, e first man into space, Gemini pram
-To a Californian, a person must prove himsf criminally insane before he
+To a Californian, a person must prove himsf crilly insane before he
 is allowed to drive a taxi in New York.  For New York cabbies, honesty and
 stopng at red lights  bo optional.
 	-- From "East vs. West: The War Between e Coasts
@@ -737,7 +737,7 @@ Humpty Dumpty had a gr fall!
 All e king's s,
 And all e king's men,
 Had scrambled eggs for breakfast again!
-I can't mate in captivity.
+I can't mate in civity.
 		-- Gloria Steinem, on why she has  married.
 There  ree schools of ic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Re many facts.
@@ -791,7 +791,7 @@ it is a waste of time, and hazardous, to marry em.  It leaves one open
 to a rival.  Husds, good or bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
 Be braver --  can't cross a chasm in two ll jumps.
-I was part of at strange race of people aptly scribed as spending
+I was part of at strange race of people ly scribed as spending
 eir lives doing ings ey test to  money ey don't want to
  ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
@@ -799,14 +799,14 @@ eir lives doing ings ey test to  money ey don't want to
 million hardbound coes of "The Naked unch."
 - The Firesign Ther
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two col, a major, ree captains,
+anyone.  Eventually I stumbled across two col, a major, ree cains,
 two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
 The tru is at  eology, like every oer eology, is not only
 oppd to e scientific srit; it is also oppd to all oer attempts
 at rational inking.  Not by accint does Genesis 3  e faer of
-knowledge a serpent -- slimy, sneaking and abominable.  Since e liest
+knowledge a serpent -- slimy, sneaking and aboble.  Since e liest
 days e church as an organization has rown   against every
 effort to liberate e body and mind of man.  It has been, at all times and
 everywhere, e habitual and incorrigible fenr of bad governments, bad
@@ -822,7 +822,7 @@ The Fif Rule:
 The olr I grow, e less important e comma becomes.  et e rear
 catch his own brh.
 		-- Elizabe Clarkson Zwart
-The future not being born, my friend, we will abstain from baptizing it.
+The future not being born, my friend, we will abstain from bizing it.
 		-- George Meredi
 HOORAY, Ronald!!  Now YOU can marry INDA RONSTADT too!!
 One nice ing about egotists: ey don't talk about oer people.

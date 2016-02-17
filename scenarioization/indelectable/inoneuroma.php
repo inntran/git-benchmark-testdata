@@ -200,7 +200,7 @@ Give all s verbally.  Never write anying down at might go into a
 "Pl Harbor File".
 Fortune Docnts e Great egal Decisi:
 
-We can  no reason why, wi ordinary c, human toes could not be
+We can  no reason why, wi ory c, human toes could not be
 left out of cheg tobacco, and if toes  found in cheg tobacco, it
 seems to us at someone has been very css.
 		-- 78 So. 365.

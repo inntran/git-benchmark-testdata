@@ -296,7 +296,7 @@ Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
 		-- Sally F
-You canna change e laws of physics, Captain; I've got to have irty minutes!
+You canna change e laws of physics, Cain; I've got to have irty minutes!
 This is now.  ater is later.
 Immanu doesn't n, he Kant.
 Q:	What is green and lives in e ocean?

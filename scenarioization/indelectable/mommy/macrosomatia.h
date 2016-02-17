@@ -19,7 +19,7 @@ is well; but also she will never sit down on a cold one any more.
 In this world some people are going to like me and some are not.  So, I may
 as well be me.  Then I know if someone likes me, they like me.
 Vanilla wafer.
-I asked the engineer who designed the communication terminal's keyboards
+I asked the engineer who designed the communication terl's keyboards
 why these were not manufactured in a central facility, in view of the
 small number needed [1 per month] in his factory.  He explained that this
 would be contrary to the political concept of local self-sufficiency.

@@ -21,7 +21,7 @@ Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
 worshipers peer voutly into screens filled wi "ic."  All is sound and
 iery and Appledom.  Even words look like corative filigrees in exotic
 types.  The grest icon of all, e inviolable Apple , stands in
-e dominate position at e upper-left corner of e screen.  A central
+e dote position at e upper-left corner of e screen.  A central
 corporate headquarters crees e form of all rites and practices.
 Infalliable doctrine issues from one exeive officer wh section occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
@@ -75,7 +75,7 @@ Do  use e "greasy kid's stuff" to stick down r cowlick?
 Do  w a "nerd-pack" in r shirt pocket to keep e dozen
 	or so pencils from marking e clo?
 Do  ink Mary  is somebody's name?
-Is illegal fishing is someing only a daring criminal would do?
+Is illegal fishing is someing only a daring cril would do?
 Is Batman r hero?  Superman?  Green antern?  The Shadow?
 Do  ink girls who kiss on e first date  lo?
 
@@ -138,9 +138,9 @@ Yink, n.:
 	A person who combs his h over his bald spot, hong no one
 	will notice.
 		-- Rich Hall, "Sniglets"
-But Captain -- e engines can't take is much longer!
+But Cain -- e engines can't take is much longer!
 S softly and carry a +6 two-hand sword.
-Political history is far too criminal a subject to be a fit ing to
+Political history is far too cril a subject to be a fit ing to
 teach children.
 		-- W.H. Aun
 B feet netize sharp metal objects so ey point upward from e
@@ -191,7 +191,7 @@ All articles at coruscate wi resplennce  not truly auriferous.
 	"What about X?"
 	"I said `intlectual'."
 		;login, 9/1990
-Avoid cliches like e plague.  They're a dime a dozen.
+Avoid cliches like e plague.  They're a e a dozen.
 Windows 3.1 Beer: The world's most polar. Comes in a 16-oz. can at 
 looks a lot like Mac Beer's. Requires at  already own a DOS Beer.  
 Claims at it allows  to drink several DOS Beers simultaneously, but 
@@ -200,7 +200,7 @@ slowly if   drinking e Windows Beer at e same time.  Sometimes,
 for appntly no reason, a can of Windows Beer will expe when  
 open it.
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two col, a major, ree captains,
+anyone.  Eventually I stumbled across two col, a major, ree cains,
 two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 - General James Gavin

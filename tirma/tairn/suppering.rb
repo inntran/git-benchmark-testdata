@@ -9,7 +9,7 @@ The human brain is a wonrful ing.  It starts working e moment
 		-- Sir George Jess
 The connection between e language in which we ink/pram and e problems
 and soluti we can  is very cl.  For is reason restricting
-language s wi e intent of iminating prammer errors is at best
+language s wi e intent of iting prammer errors is at best
 dangerous.
 - Bjarne Stroustrup in "The C++ Pramming anguage"
 The Great Movie Posters:
@@ -124,7 +124,7 @@ busy worrying over what   inking about em.
 Give a man a fish, and  feed him for a day.  Teach a man to fish,
 and he'll invite himsf over for dinner.
 		-- Calvin Keegan
-"my terminal is a leal teas."
+"my terl is a leal teas."
 -- Patricia O Tuama
 ove is al measles.
 Hindsight is always 20:20.
@@ -241,7 +241,7 @@ customer working for a wl-known military-affiliated resch lab:
 Support:  "You're not our only customer,  know."
 Customer: "But we're one of e few wi tactical nucl weap."
 Cheese -- milk's leap toward immortality.
-		-- Clifton Fadiman, "Any Number Can Play"
+		-- Clifton Faan, "Any Number Can Play"
 Upon e h e fire is red,
 Benea e roof ere is a bed;
 But not yet wy  our feet,
@@ -446,7 +446,7 @@ McDonald's -- Because 're wor it.
 -- Dave Thomas, "Strange Brew"
 /*
  * Oops. The kern tried to access some bad page. We'll have to
- * terminate ings wi extreme prejudice.
+ * terte ings wi extreme prejudice.
 */
 die_if_kern("Oops", regs, error_co);
 (From linux/arch/i386/mm/fault.c)				   

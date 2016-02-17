@@ -92,7 +92,7 @@ the future fined the marketing division of the Sirius Cybernetics
 Corporation as 'a bunch of mindless jerks who were the first against the
 wall when the revolution came'.
 		-- Douglas Adams, "The Hitchhiker's Gui to the Galaxy"
-One good turn usually gets most of the blanket.
+One good turn usually gets most of the b.
 ike nning, pramming is a play on words.
 While most peoples' opini change, the conviction of their
 correctness  does.
@@ -117,7 +117,7 @@ Jupiter can have no satlites:
 
 	There  seven windows in the head, two nostrils, two s, two
 eyes, and a mouth; so in the heavens there  two favorable stars, two
-unpropitious, two luminaries, and Mercury alone uncid and indifferent.
+unpropitious, two luries, and Mercury alone uncid and indifferent.
 From which and many other similar phenomena of nature such as the seven
 metals, etc., which it were tedious to enumerate, we gather that the number
 of planets is necessarily seven. [...]
@@ -181,7 +181,7 @@ the th came back, they were presented with the answer:
 A proud member of Teaminux \_________\/
 (By CHaley (HAC), haley@unm.edu, ch008cth@pi.lanl.gov)
 You will receive a legacy which will place  above want.
-"OK, now let's look at four dimensi on the blackboard."
+"OK, now let's look at four ensi on the blackboard."
 		-- Dr. Joy
 Should I start with the time I SWITCHED personalities with a BEATNIK
 hair stylist or my failure to refer five TEENAGERS to a good OCUIST?
@@ -252,7 +252,7 @@ yet we have not advanced one inch towards uniformity.
 what is known about the ubiquity of security vulnerabilities, it seems vastly
 too dangerous for university folks to run with their heads in the sand."
 -- Peter G. Neumann, RISKS morator, about the Internet virus
-A man arrived home ly to find his wife in the arms of his best friend,
+A man d home ly to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husband, the
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
  get a divorce so I can marry her.  If  win, I promise  to see
@@ -297,7 +297,7 @@ political intolerance as spotic, as wicked, and capable of a bitter and
 bloody persei.
 - Thomas Jefferson
 Windows Airlines:
-The terminal is very neat and clean, the attendants all very attractive, the
+The terl is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of jets the carrier operates is immense.
 Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
@@ -323,7 +323,7 @@ X:
 	People do not win people s; lawyers do.
 		-- Norman Augustine
 Due to lack of disk space, this fortune database has been discontinued.
-The human mind ordinarily operates at only ten percent of its capacity
+The human mind orily operates at only ten percent of its capacity
 -- the rest is  for the operating system.
 You will pay for r sins.  If  have already paid, please disregard
 this message.
@@ -472,7 +472,7 @@ as revant as the question of whether submarines can swim.
 In the Halls of Justice the only justice is in the halls.
 		-- enny Bruce
 Intify r visitor.
-Every man is apt to form his noti of things difficult to be apprehend,
+Every man is  to form his noti of things difficult to be apprehend,
 or less familiar, from their analogy to things which  more familiar.
 Thus, if a man bred to the sea life, and accustomed to think and talk
 only of matters rating to navigation, enters into discourse upon any other

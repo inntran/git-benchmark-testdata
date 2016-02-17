@@ -3,7 +3,7 @@ week and rise fresh in the morning, but let them attend morn dances for
 only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
 to both sexes.  Health and vigor will vh like the w before the sun.
-	It is not the extraordinary exercise which harms the dancer, but
+	It is not the extraory exercise which harms the dancer, but
 rather the coming into cl contact with the opposite sex.  It is the
 fury of lust craving incessantly for more pleasure that unrmines the
 soul, the body, the sinews and nerves.  Experience and statistics show
@@ -45,7 +45,7 @@ WARNING:
 	children unr eight ys of age.
 	My friends, I am here to tell  of the wonrous continent known as
 Africa.  Well we left New York drunk and ly on the morning of February 31.
-We were 15 days on the water, and 3 on the boat when we finally arrived in
+We were 15 days on the water, and 3 on the boat when we finally d in
 Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
 6:00, breakfast, and back in bed by 7:00.  Pretty soon we were back in bed by
 6:30.  Now Africa is full of big game.  The first day I shot two bucks.  That

@@ -33,7 +33,7 @@ reprimanding,  indulging em, wiout any power of engaging eir respect.
 		-- J. Austen
 You can't kiss a girl unexpectedly -- only sooner an she ought  would.
 Cheese -- milk's leap toward immtality.
-		-- Clifton Fadiman, "Any Number Can Play"
+		-- Clifton Faan, "Any Number Can Play"
 Every time I l weight, it finds me again!
 A gossip is one who talks to  about oers, a be is one who talks to
  about himsf; and a brilliant conversationalist is one who talks to
@@ -104,7 +104,7 @@ ive wiin r income, even if  have to brow to do so.
 	 housewife rep, "Four!".
 	 accountant said, "It's eier 3  4.  et me run  s
 rough my spread sheet one me time."
-	 lawyer lled e drapes, dimmed e lights and asked in a
+	 lawyer lled e drapes, med e lights and asked in a
 hushed voice, "How much do  want it to be?"
 A new koan:
 	If  have some ice cream, I will give it to .

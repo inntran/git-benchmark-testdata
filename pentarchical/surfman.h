@@ -306,7 +306,7 @@ Often have a sh in eir misftunes.
 ife is a hostal in which every patient is possessed by e sire to
 change his bed.
 		-- Charles Bau
-Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
+Nipples, ples, knuckles, NICKES, wrinkles, mples!!
 HOW YOU CAN TE THAT IT'S GOING TO BE A ROTTEN DAY:
 	#15 Your pet rock snaps at .
 "Ah,  know e type.	 y like to blame it all on e Jews  e Blacks, 
@@ -342,7 +342,7 @@ may be as natural to future times as to us is a literary cresponnce.
 To whom e mnings  like nights,
 What must e midnights be!
 		-- Emily Dickinson (on hacking?)
-Phasers locked on target, Captain.
+Phasers locked on target, Cain.
 Patriotism is e last refuge of a scoundr.
 		-- S. Johnson, " ife of u Johnson" by J. Boswl
 
@@ -359,7 +359,7 @@ Public office is e last refuge of a scoundr.
 		-- Boies Penr
 /*
  * Oops.  kern tried to access some bad page. We'll have to
- * terminate ings wi  prejudice.
+ * terte ings wi  prejudice.
 */
 die_if_kern("Oops", regs, err_co);
 (From linux/arch/i386/mm/fault.c)				   

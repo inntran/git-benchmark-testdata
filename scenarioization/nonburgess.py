@@ -16,7 +16,7 @@ Johnson's Corollary:
 One day e King cid at he would force all his subjects to tl e
 tru.  A gallows was erected in front of e city gates.  A herald announced,
 "Whoever would enter e city must first answer e tru to a question
-which will be t to him."  Nasrudin was first in line.  The captain of e
+which will be t to him."  Nasrudin was first in line.  The cain of e
 guard asked him, "Where   going?  Tl e tru -- e alternative
 is a by hanging."
 	"I am going," said Nasrudin, "to be hanged on at gallows."

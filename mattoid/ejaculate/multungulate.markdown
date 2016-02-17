@@ -65,7 +65,7 @@ I'd LOVE to, but...
 Death is God's way of telling  not to be such a wise guy.
 Snow Day -- stay home.
 Perhaps no person can be a poet, or even enjoy poetry without a certain
-unsoundness of mind.
+ of mind.
 		-- Thomas Macaulay
 For thirty years a certain man went to spend every evening with Mme. ___.
 When his wife died his friends believed he would marry her, and urged
@@ -97,7 +97,7 @@ During the next two hours, the system will be going up and down several
 times, often with lin~po_~{po       ~poz~ppo\~{ o n~po_~{o[po	 ~y oodsou>#w4k**n~po_~{ol;lkld;f;g;dd;po\~{o
 Once, I read that a man be  stronger than when he truly realizes how
 weak he is.
-		-- Jim Starlin, "Captain Marvel #31"
+		-- Jim Starlin, "Cain Marvel #31"
 It looked like something resembling white marble, which was
 probably what it was: something resembling white marble.
 		-- Douglas Adams, "The Hitchhikers Gui to the Galaxy"
@@ -105,7 +105,7 @@ The things that interest people most  usually none of their business.
 Q:	What's the difference between a duck and an elephant?
 A:	You can't get down off an elephant.
 You can bring any calculator  like to the midterm, as long as it
-doesn't dim the lights when  turn it on.
+doesn't  the lights when  turn it on.
 		-- Hepler, Systems Design 182
 "I have a friend who just got back from the Soviet Union, and told me the people
 there  hungry for information about the West.  He was asked about many 
@@ -230,7 +230,7 @@ QOTD:
 We have the flu.  I don't know if this particular strain has an official
 name, but if it does, it must be something like "Martian Death Flu".  You
 may have had it rself.  The  symptom is that  wish  had another
-setting on r electric blanket, up past "HIGH", that said "ELECTROCUTION".
+setting on r electric b, up past "HIGH", that said "ELECTROCUTION".
 	Another symptom is that  cease brushing r teeth, because (a)
 r teeth hurt, and (b)  lack the strength.  Midway through the brushing
 process, 'd have to lie down in front of the sink to rest for a couple
@@ -275,7 +275,7 @@ coin toss.
 	He shakes his head.  He hasn't the faintest ia.
 	"For the sheer *joy* of programming!" she cries triumphantly.  
 "The joy of the pnt, the artist, the craftsman.  "You take a program, 
-born weak and impotent as a dimly-realized solution.  You nurture the 
+born weak and impotent as a ly-realized solution.  You nurture the 
 program and gui it down the right path, building, watching it grow ever 
 stronger.  Sometimes  paint with tiny strokes, a keystroke add here, 
 a keystroke changed there."  She sweeps her arm in a  arc.  "And other
@@ -678,7 +678,7 @@ What is irritating about love is that it is a crime that requires an accomplice.
 		-- Charles Baulaire
 Sir, it's very possible this asteroid is not stable.
 		-- C3P0
-Do not use the blue keys on this terminal.
+Do not use the blue keys on this terl.
 Remember, drive fensively! And of course, the best fense is a good offense!
 The fact that 47 PEOPLE  yelling and sweat is cascading down my
 SPINAL COLUMN is fairly enjoyable!!

@@ -5,7 +5,7 @@ cannot.
 		-- Oscar Wil
 To craunch a marmt.
 		-- Pedro Carolino, "English as She is Spoke"
-I asked the engineer who signed the communication terminal's keyboards
+I asked the engineer who signed the communication terl's keyboards
 why these were not manufactured in a central facility, in view of the
 small number need [1 per month] in his factory.  He explained that this
 would be contrary to the political concept of local sf-sufficiency.
@@ -110,7 +110,7 @@ FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
 A:	The Halls of Montezuma and the Shores of Tripoli.
 Q:	Name two families wh kids won't join the Marines.
 I'm a GENIUS!  I want to diste sentence structure with SUSAN SONTAG!!
-The first Rotarian was the first man to call John the Baptist "Jack."
+The first Rotarian was the first man to call John the Bist "Jack."
 		-- H.. Mencken
 Avoid Quiet and Placid pers unless   in Need of Sleep.
 		-- National ampoon, "Deteriorata"
@@ -178,7 +178,7 @@ important thing to people.
 		-- Donald N. Smith, presint of Burger King
 With the end of the football season, a star player for the college team
 cebrated the raxation of team curfew by attending a late-night cams
-party.  Soon after arriving, he became captivated by a beautiful coed and
+party.  Soon after arriving, he became civated by a beautiful coed and
 eased into a conversation with her by asking if she met many dates at
 parties.
 	"Oh, I have a three point eight, so I'm much more attracted to the
@@ -201,7 +201,7 @@ turn r TRS-80 into an ectronic Ouija board.  Then, using ogo's
 graphics capabilities,  can work with a friend or rative on this
 si of the Great Beyond to write prams.  The softw requires that
 r body be hardwired to an analog-to-digital converter, which is then
-interd to r comter.  A special terminal (very terminal) pram
+interd to r comter.  A special terl (very terl) pram
 lets  talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
@@ -259,7 +259,7 @@ little paper envopes.
 	 `I'm a hologram, kids,
 	  please don't try this at home!'"
 	-- Bob Violence
--- Howie Chaykin's little animated 3-dimensional darling, Bob Violence
+-- Howie Chaykin's little animated 3-ensional darling, Bob Violence
 Money may buy friendship but money cannot buy love.
 	One evening he spoke.  Sitting at her feet, his  raised to her,
 he allowed his soul to be hd.  "My darling, anything  wish, anything
@@ -587,7 +587,7 @@ urban crime.  ook, here's my ID, and here's a number  can call, that will
 t  through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have ed it."
-		-- Captain Freedom
+		-- Cain Freedom
 Most Texans think Hanukkah is some sort of duck call.
 		-- Richard ewis
 Morn art is what happens when painters stop looking at girls and persua
@@ -754,12 +754,12 @@ A robin redbreast in a cage
 Puts all Heaven in a rage.
 		-- Blake
 There is no substie for good s, except, perhaps, fast reflexes.
-	Chapter VIII
+	Cher VIII
 
 Due to the convergence of forces beyond his comprehension, Salvatore
 Quanucci was sudnly squirted out of the universe like a watermon
 seed, and  hd from again.
-A nick ain't worth a dime anymore.
+A nick ain't worth a e anymore.
 		-- Yogi Berra
 The sun  sets on th who ri into it.
 		-- RKO
@@ -768,7 +768,7 @@ To update Voltaire, "I may kill all msgs from , but I'll fight for
 r  to post it, and I'll let it resi on my disks". 
 -- Doug Thompson (doug@isishq.FIDONET.ORG)
 Windows Airlines:
-The terminal is very neat and clean, the attendants all very attractive, the
+The terl is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of jets the carrier operates is immense.
 Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
@@ -788,7 +788,7 @@ Wherever in r sightless substances
 You wait on nature's mischief! Come, thick night,
 And pall the in the dunnest smoke of hl,
 That my keen knife see not the wound it s,
-Nor heaven peep through the blanket of the dark,
+Nor heaven peep through the b of the dark,
 To cry `Hold, hold!'
 		-- ady MacBeth
 	A lawyer named Strange was shopping for a tombstone.  After he had

@@ -89,7 +89,7 @@ with an insurance sman?
 		-- Woody Allen
 Radioactive cats have 18 h-lives.
 I DON'T THINK I'M AONE when I say I'd like to see more and more planets
-fall unr the ruthless domination of our solar system.
+fall unr the ruthless dotion of our solar system.
 		-- Jack Handley, The New Mexican, 1988.
 Most people have a furious itch to talk about themselves and  restrained
 only by the disinclination of others to listen.  Reserve is an artificial
@@ -179,7 +179,7 @@ Chamberlain's aws:
 	(1) The big guys always win.
 	(2) Everything tastes more or less like chicken.
 Mathematicians often resort to something called Hilbert space, which is
-scribed as being n-dimensional.  ike morn sex, any number can play.
+scribed as being n-ensional.  ike morn sex, any number can play.
 		-- Dr. Thor Wald, "Beep/The Quincunx of Time", by James Blish
 Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
@@ -236,7 +236,7 @@ Commingled in an endless Markov chain!
 Did I say I was a sardine?  Or a bus???
 I'd rather have two girls at 21 each than one girl at 42.
 		-- W.C. Fields
-Absence diminishes mediocre passi and increases great ones,
+Absence inishes mediocre passi and increases great ones,
 as the wind blows out candles and fans fires.
 		-- a Rochefoucauld
 Bachelor:

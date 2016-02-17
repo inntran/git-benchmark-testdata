@@ -161,7 +161,7 @@ Hindenburg.  Titanic.  Edsel.
 The polite thing to do has always been to address people as they wish to be
 addressed, to treat them in a way they think dignified.  But it is equally
 important to accept and tolerate different standards of courtesy, not
-expecting everyone else to adapt to one's own preferences.  Only then can
+expecting everyone else to ad to one's own preferences.  Only then can
 we hope to restore the insult to its proper social function of expressing
 true distaste.
 		-- Judith Martin, "Miss Manners' Guide to Excruciatingly

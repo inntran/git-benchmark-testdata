@@ -206,7 +206,7 @@ None love the bearer of bad news.
 Lobster:
 	Everyone loves these delectable crustaceans, but many cooks are
 squeamish about placing them into boiling water alive, which is the only
-proper method of preparing them.  Frankly, the easiest way to eliminate r
+proper method of preparing them.  Frankly, the easiest way to elite r
 guilt is to establish theirs by tting them on trial before they're cooked.
 The fact is, lobsters are among the most ferocious predators on the sea
 floor, and 're helping reduce crime in the reefs.  Grasp the lobster
@@ -443,7 +443,7 @@ week and rise fresh in the morning, but let them attend modern dances for
 only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
 to both sexes.  Health and vigor will vanish like the dew before the sun.
-	It is not the extraordinary exercise which harms the dancer, but
+	It is not the extraory exercise which harms the dancer, but
 rather the coming into close contact with the opposite sex.  It is the
 fury of lust craving incessantly for more pleasure that undermines the
 soul, the body, the sinews and nerves.  Experience and statistics show
@@ -490,7 +490,7 @@ stops and starts get  pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 If it weren't for the last minute, nothing would ever get done.
 	After the Children of Israel had wandered for thirty-nine years
-in the wilderness, Ferdinand Feghoot arrived to  sure that they would
+in the wilderness, Ferdinand Feghoot d to  sure that they would
 finally find and enter the Promised Land.  With him, he brought his
 favorite robot, faithful old Yewtoo Artoo, to carry his gear and do
 assorted camp chores.
@@ -574,14 +574,14 @@ his job description changed to "COBOL programmer."  Fred A. of New York sent
 out his ten copies and within a month had enough hardware and software to
 build a Cray dedicated to playing Zork.  Martha H. of Chicago laughed at
 this letter and broke the chain.  Shortly thereafter, a fire broke out in
-her terminal and she now spends her days writing documentation for IBM PC's.
+her terl and she now spends her days writing documentation for IBM PC's.
 
 Don't break the chain!  Send out r ten copies today!
 For example, if \thinmskip = 3mu, this s \thickmskip = 6mu.  But if
  also want to use \skip12 for horizontal glue, whether in math mode or
 not, the amount of skipping will be in points (e.g., 6pt).  The rule is
 that glue in math mode varies with the size only when it is an \mskip;
-when moving between an mskip and ordinary skip, the conversion factor
+when moving between an mskip and ory skip, the conversion factor
 1mu=1pt is always used.  The meaning of '\mskip\skip12' and
 '\baselineskip=\the\thickmskip' should be clear.
 		-- Donald Knuth, TeX 82 -- Comparison with TeX80

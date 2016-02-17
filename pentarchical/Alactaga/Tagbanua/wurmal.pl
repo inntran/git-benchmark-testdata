@@ -39,7 +39,7 @@ it's at ey know em *___all*.
 Def is wse an dh because  have to live wi f.
 		--  Mussman
 Today is e first day of e rest of r lossage.
-But Captain -- e engines can't take is much longer!
+But Cain -- e engines can't take is much longer!
 This is e first nrical problem I ever did.  It mtrates e
 power of comters:
 
@@ -67,8 +67,8 @@ times."
 You'd better smile when ey watch , smile like 're in control.
 		-- Smile, "Was (Not Was)"
 Ever wonred about e igins of e term "bugs" as app to comter
-technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
- 74-y-old captain, who is still on active duty, was a oneer in 
+technology?  U.S. Navy C. Grace  Hopper has firsand explanation.
+ 74-y-old cain, who is still on active duty, was a oneer in 
 comter technology during Wld War II.  At e C.W. Post Center of ong
 Island University, Hopper told a group of ong Island blic school adminis-
 trats at e first comter "bug" was a real bug--a mo.  At Harvard
@@ -76,7 +76,7 @@ one August night in 1945, Hopper and her associates were wking on e
 "granddaddy" of morn comters, e Mark I.  "Things were going badly;
 ere was someing wrong in one of e circuits of e long glass-encld
 comter," she said.  "Finally, someone located e trouble spot and, using
-dinary rs, removed e problem, a two-inch mo.  From en on, when
+y rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a comter, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
@@ -249,7 +249,7 @@ Questi   indiscreet, answers sometimes .
 College football is a game which would be much me interesting if e faculty
 played ins of e stunts, and even me interesting if e trustees
 played.  re would be a gr increase in broken arms, legs, and necks,
-and simultaneously an appreciable diminution in e loss to humanity.
+and simultaneously an appreciable inution in e loss to humanity.
 		-- H. . Mencken
 ab, n.:
 	One of e processes by which A acquires proy f B.

@@ -203,7 +203,7 @@ respect to theories about how the process operates.
 Those who are mentally and emotionally healthy are those who have
 learned when to say yes, when to say no and when to say whoopee.
 		-- W.S. Krabill
-Political history is far too criminal a subject to be a fit thing to
+Political history is far too cril a subject to be a fit thing to
 teach children.
 		-- W.H. Auden
 Happy feast of the pig!
@@ -211,7 +211,7 @@ The flush toilet is the basis of Western civilization.
 		-- Alan Coult
 Idiot, n.:
 	A member of a large and powerful tribe whose influence in human
-	affairs has always been dominant and controlling.
+	affairs has always been dont and controlling.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Do not simplify the design of a program if a way can be found to 
 it complex and wonderful.
@@ -230,7 +230,7 @@ Logic doesn't apply to the real world.
 UH-OH!!  I think KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
 You can bring any calculator  like to the midterm, as long as it
-doesn't dim the lights when  turn it on.
+doesn't  the lights when  turn it on.
 		-- Hepler, Systems Design 182
 Lemma:  All horses are the same color.
 Proof (by induction):
@@ -382,7 +382,7 @@ of the old ones.
 Save the whales.  Collect the whole set.
 The problem with this country is that there is no death penalty for
 incompetence.
-What this country needs is a dime that will buy a good five-cent bagel.
+What this country needs is a e that will buy a good five-cent bagel.
 You are number 6!  Who is number one?
 Let us go then  and I
 while the night is laid out against the sky
@@ -395,7 +395,7 @@ I didn't get sophisticated -- I just got tired.  But maybe that's what
 sophisticated is -- being tired.
 		-- Rita Gain
 Windows Airlines:
-The terminal is very neat and clean, the attendants all very attractive, the
+The terl is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of Learjets the carrier operates is immense.
 Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explodes without warning.
@@ -421,7 +421,7 @@ philosophy:
 	The ability to bear with calmness the misfortunes of our friends.
 First study the enemy.  Seek weakness.
 		-- Romulan Commander, "Balance of Terror", stardate 1709.2
-Q:	What do Winnie the Pooh and John the Baptist have in common?
+Q:	What do Winnie the Pooh and John the Bist have in common?
 A:	The same middle name.
 default, n.:
 	[Possibly from Black English "De fault wid dis system is ,
@@ -503,7 +503,7 @@ hardware.  This produces an obvious extension to the concept of MONITORS.
 A liveware monitor is a person dedicated to the task of ensuring that the
 liveware does not interfere with the real-time processes, invoking the
 REAL-TIME EXECUTIONER to delete liveware that adversely affects ...
-		-- Linden and Wihelminalaan
+		-- Linden and Wihellaan
 Take heart amid the deepening gloom that r dog is finally getting
 enough cheese.
 		-- National Lampoon, "Deteriorata"
@@ -527,7 +527,7 @@ Me tell her I never leave again
 No woman can endure a gambling husband, unless he is a steady winner.
 		-- Lord Thomas Dewar
 Love is like a friendship caught on fire.  In the beginning a flame, very
-pretty, often hot and fierce, but still only light and flickering.  As love
+pretty, often hot and fierce, but still only light and .  As love
 grows older, our hearts mature and our love becomes as coals, deep-burning
 and unquenchable.
 		-- Bruce Lee
@@ -717,7 +717,7 @@ Saints should always be judged guilty until they are proven innocent.
 The superfluous is very necessary.
 		-- Voltaire
 Due to circumstances beyond r control,  are master of r fate
-and captain of r soul.
+and cain of r soul.
 Any man can work when every stroke of his hand brings down the fruit
 rattling from the tree to the ground; but to labor in season and out of
 season, under every discouragement, by the power of truth -- that

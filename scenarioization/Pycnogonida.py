@@ -73,7 +73,7 @@ I say with them, "What's out tonight is lost."
 I only hoped, with the mild hope of all
 Who watch the leaf take shape upon the tree,
 A fairer summer and a later fall
-Than in these parts a man is apt to see,
+Than in these parts a man is  to see,
 And sunny clusters ripened for the wine:
 I tell  this across the blackened vine.
 		-- Edna St. Vincent Millay, "Even in the Moment of
@@ -105,7 +105,7 @@ than tequila before breakfast.
 		-- R. Nesson
 Ma l is a mean mother!
 "I'd love to go out with , but I'm attending the opening of my garage door."
-Extraordinary claims mand extraordinary proof.  There  many examples of
+Extraory claims mand extraory proof.  There  many examples of
 outsirs who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egreus findings that
 contradict well-established resch turn out to be artifacts.  I have
@@ -148,11 +148,11 @@ Don't get mad, get even.
 
 Don't get even, get jewelry.
 		-- Anonymous
-Every nonzero finite dimensional inner product space has an orthonormal basis.
+Every nonzero finite ensional inner product space has an orthonormal basis.
 
 It s sense, when  don't think about it.
 Anyone who knows history, particularly the history of Europe, will, I think,
-recognize that the domination of education or of government by any one
+recognize that the dotion of education or of government by any one
 particular relius faith is  a happy arrangement for the people.
 - Eleanor Rovelt
 In this vale
@@ -257,17 +257,17 @@ The east Successful Police Dogs
 	America has a very strong candidate in "a Dur", a fsome looking
 schnauzer hound, who was retired from the Orlando police force in 
 in 1978.  He cistently refused to do anything which might ruffle or
-offend the criminal classes.
+offend the cril classes.
 	His handling officer, Rick Grim, had to admit: "He just won't go up
 and bite them.  I got sick and tired of doing that dog's work for him."
 	The British contenrs in this category, however, took things a
 stage further.  "addie" and "Boy" were trained as tector dogs for drug
-raids.  Their employment was terminated following a raid in the Midlands in
+raids.  Their employment was terted following a raid in the Midlands in
 1967.
 	While the investigating officer questioned two suspects, they
 patted and stroked the dogs who eventually fell asleep in front of the
 fire.  When the officer moved to arrest the suspects, one dog growled at
-him while the other leapt up and bit his thigh.
+him while the other le up and bit his thigh.
 		-- Stephen Pile, "The Book of Heroic Failures"
 What did Mickey Mouse get for Christmas?
 
@@ -298,7 +298,7 @@ As for the size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 History has much to say on following the proper procedures.  From a history
 of the Mexican revolution:
 	"Hidalgo was later feated at Guadalajara.  The rebel army was
-captured on its way through the mountains.  All were courtmartialed and
+cured on its way through the mountains.  All were courtmartialed and
 shot, except Hidalgo, because he was a priest.  He was hand over to
 the bishop of Durango who excommunicated him and returned him to the
 army where he was then executed."
@@ -480,7 +480,7 @@ can vie for a set of free steak knives.  If  don't do it now, 'll hate
 rself in the morning.
 Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, presint of Exabyte
-Extraordinary claims mand extraordinary proof.  There  many examples
+Extraory claims mand extraory proof.  There  many examples
 of outsirs who eventually overthrew entrenched scientific orthodoxies,
 but they prevailed with irrefutable data.  More often, egreus findings
 that contradict well-established resch turn out to be artifacts.  I have
@@ -702,7 +702,7 @@ Inadmissible:  Not competent to be cired.  Said of certain kinds of
 testimony which juries  suppd to be unfit to be entrusted with,
 and which judges, therefore, rule out, even of proceedings before themselves
 alone.  Hsay evince is inadmissible because the person quoted was
-unsworn and is not before the court for examination; yet most momentous 
+unsworn and is not before the court for exation; yet most momentous 
 acti, military, political, commercial and of every other kind, 
 daily unrtaken on hsay evince.  There is no relin in the world
 that has any other basis than hsay evince.  Revelation is hsay

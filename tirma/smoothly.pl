@@ -135,7 +135,7 @@ was a gate.
 Practical people would be me practical if ey would take a little
 me time f dreaming.
 		-- J. P. McEvoy
-Spock: We suffered 23 casualties in at attack, Captain.
+Spock: We suffered 23 casualties in at attack, Cain.
 Cheap ings  of no value, valuable ings  not cheap.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
 As a comter, I find r fai in technology amusing.

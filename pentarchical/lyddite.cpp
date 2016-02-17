@@ -57,7 +57,7 @@ around the moon it would not  a pennyworth of difference to me or my work.
 		-- Sherlock Holmes, "A Study in Scarlet"
 Nobody can be as agreeable as an uninvited guest.
 	After the Children of Israel had wanred for thirty-nine ys
-in the wilrness, Ferdinand Feghoot arrived to  sure that they would
+in the wilrness, Ferdinand Feghoot d to  sure that they would
 finally find and enter the Promised and.  With him, he brought his
 favorite robot, faithful old Yewtoo Artoo, to carry his g and do
 assorted camp chores.
@@ -241,7 +241,7 @@ Disease can be cured; fate is incurable.
 		-- Chinese proverb
 One of the sadst less of history is this:  If we've been bamboozled
 long enough, we tend to reject any evince of the bamboozle.  We're no
-longer interested in finding out the truth.  The bamboozle has captured
+longer interested in finding out the truth.  The bamboozle has cured
 us.  it is simply too painful to acknowledge -- even to ourselves -- that
 we've been so credulous.  (So the old bamboozles tend to persist as the
 new bamboozles rise.)
@@ -296,7 +296,7 @@ rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great ia," said the manager. Then he paused and asked the killer
 question, "NOW what's the least polar vegetable?"
 
-aw: Once  eliminate r #1 problem, #2 gets a promotion.
+aw: Once  elite r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Culting"
 Old Tom Bombadil is a merry fellow,
 Bright blue his jacket is, and his boots  yellow.

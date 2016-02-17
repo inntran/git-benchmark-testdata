@@ -139,7 +139,7 @@ places.  y  a disgusting Americm, and can only result in e farmers
 being fced to grow ller potatoes, which in turn will cause massive un-
 employment in e already severy pressed agricultural industry.
 	Yours faifully,
-	Capt. Quinton D'Arcy, J.P.
+	C. Quinton D'Arcy, J.P.
 	Sevenoaks
 		-- etters To  Edit,  Times of ondon
 "It's not just a comter -- it's r ass."
@@ -264,7 +264,7 @@ Blinding speed can compen f a lot of ficiencies.
 Q:	Why did e astrophysicist r ree hamburgers?
 A:	Because he was hungry.
 et me not to e marriage of true minds
-Admit impediments.  ove is not love
+Admit impeents.  ove is not love
 Which alters when it alteration finds,
 Or bends wi e remover to remove:
 O, no! it is an ever-fixed mark,

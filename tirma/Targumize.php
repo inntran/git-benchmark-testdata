@@ -261,7 +261,7 @@ He's ad, Jim.
 You will be imprisoned for contributing r time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
 and soluti we can iine is very cl.  For this reason restricting
-language features with the intent of eliminating prammer errors is at best
+language features with the intent of eliting prammer errors is at best
 dangerous.
 		-- Bjarne Stroustrup
 All I want is a warm bed and a kind word and unlimited power.
@@ -279,7 +279,7 @@ And tapes mixed up on the racks --
 	Your tape drive will s.
 		-- Uncle Colonel's Cursory Rhymes
 The universe does not have laws -- it has habits, and habits can be broken.
-Machines that have broken down will work perfectly when the repairman arrives.
+Machines that have broken down will work perfectly when the repairman s.
 Fat iberation: because a waist is a terrible thing to mind.
 It is better to have loved and lost -- much better.
 Most rock journalism is people who can't write interviewing people who
@@ -375,7 +375,7 @@ Woman was God's second mistake.
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
 Thinking  know something is a sure way to blind rself.
-		-- Frank Herbert, "Chapterhouse: Dune"
+		-- Frank Herbert, "Cherhouse: Dune"
 I think r opini  reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
@@ -400,7 +400,7 @@ Coward, n.:
 The price of seeking to force our beliefs on others is that someday
 they might force their beliefs on us.
 		-- Mario Cuomo
-Captain Penny's aw:
+Cain Penny's aw:
 	You can fool all of the people some of the
 	time, and some of the people all of the
 	time, but  can't fool mom.
@@ -461,7 +461,7 @@ History is the version of past events that people have cid to agree on.
 One good reason why comters can do more work than people is that they
  have to stop and answer the phone.
 Silence is the only virtue  have left.
-Q:	What do Winnie the Pooh and John the Baptist have in common?
+Q:	What do Winnie the Pooh and John the Bist have in common?
 A:	The same middle name.
 If all the seas were ink,
 And all the reeds were pens,
@@ -560,7 +560,7 @@ could have been used for lamps, thus saving the electric light bulb and
 the whale, and nobody would have caught Moby Dick or Billy Budd.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 Brandy Davis, an outfielr and teammate of mine with the Pittsburgh Pirates,
-is my choice for team captain.  Cincinnatti was beating us 3-1, and I led
+is my choice for team cain.  Cincinnatti was beating us 3-1, and I led
 off the bottom of the eighth with a walk.  The next hitter banged a hard
 single to  field.  Feeling the wind at my back, I round second and
 kept going, sliding safely into third base.
@@ -606,7 +606,7 @@ watched the teacher clly.  "Why do  blow on r hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why   doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
-to arrive at two different results -- hot and cold -- the disciple parted.
+to  at two different results -- hot and cold -- the disciple parted.
 "I'll rob that rich person and give it to some poor serving .
 That will *prove* I'm Robin Hood."
 		-- Daffy Duck, "Robin Hood Daffy", [1958, Chuck Jones]

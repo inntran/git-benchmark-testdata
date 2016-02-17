@@ -42,7 +42,7 @@ Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
 It isn't easy being e pnt of a six-y-old.  However, it's a pretty ll
 price to pay for having somebody around e house who unrstands comters.
-"ying lips  abomination to e ord; but ey at al truly  his 
+"ying lips  abotion to e ord; but ey at al truly  his 
  dight.
  A soft answer turne  wra; but grievous words stir up anger.
  He at answere a matter before he he it, it is folly and shame unto
@@ -102,7 +102,7 @@ If  want to  God laugh, tl him about r plans.
 		-- Woody Allen
 Take a lesson from e whale; e only time he gets sped is when he
 raises to spout.
-Every man is apt to form his noti of ings difficult to be appr,
+Every man is  to form his noti of ings difficult to be appr,
 or less familiar, from eir analogy to ings which  more familiar.
 Thus, if a man bred to e sea life, and aced to ink and talk
 only of matters rating to navigation, enters into discourse upon any oer

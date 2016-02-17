@@ -89,7 +89,7 @@ muddy paw prints on the hood of my car.
 	(100) Killer velcro
 	(101) Currency
 The adjective is the banana peel of the parts of speech.
-		-- Clifton Fadiman
+		-- Clifton Faan
 You could live a better life, if  had a better mind and a better body.
 What the large print giveth, the small print taketh .
 Here is a test to find whether r mission on th is finished:
@@ -161,7 +161,7 @@ si of the cube will now be the original color of the plastic unrneath
 	"You admit that?"
 	"To  the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
-"The strength of the Ctiion lies entirely in the termination of each
+"The strength of the Ctiion lies entirely in the tertion of each
 citizen to fend it.  Only if every single citizen feels duty bound to do
 his sh in this fense  the ctiional rights secure."
 -- Albert Einstein
@@ -204,7 +204,7 @@ perpetrated by individuals abusing positi of trust."
 -- awrence Dalzell
 People who think they know everything greatly annoy th of us who do.
 ove means nothing to a tennis player.
-In 1880 the French captured Detroit but gave it back ... they couldn't
+In 1880 the French cured Detroit but gave it back ... they couldn't
 get parts.
 "Quite frankly, I don't like  humans.  After what  all have done,
 I find being 'inhuman' a compliment."
@@ -235,7 +235,7 @@ through!"  And the ng kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-aws, wh help I've engaged,
 You're going to be roped!  And 're going to be caged!  And, as for r dust
-speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
+...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
 There is no point in waiting.
 The train stopped running ys ago.
@@ -444,7 +444,7 @@ In any form of mortal combat.
 		-- "The Wombat"
 I stick my neck out for nobody.
 		-- Humphrey Bogart, "Casablanca"
-Captain Penny's aw:
+Cain Penny's aw:
 	You can fool all of the people some of the time, and
 	some of the people all of the time, but  Can't Fool Mom.
 Real Programmers don't play tennis, or any other sport that requires
@@ -517,7 +517,7 @@ than others.
 	Why   doing this to me?
 	Because knowledge is torture, and there must be awness before
 there is change.
-		-- Jim Starlin, "Captain Marvel", #29
+		-- Jim Starlin, "Cain Marvel", #29
 A priest asked: What is Fate, Master?
 	And the Master answered:
 	It is that which gives a beast of burn its reason for existence.

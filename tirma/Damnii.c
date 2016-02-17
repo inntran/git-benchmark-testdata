@@ -90,7 +90,7 @@ At work, e auority of a person is inversy proportional to e
 number of pens at person is carrying.
 Once, I read at a man be  stronger an when he truly realizes how
 weak he is.
-		-- Jim Starlin, "Captain Marv #31"
+		-- Jim Starlin, "Cain Marv #31"
 Tact, n.:
 	The unsaid part of what 're inking.
 Two wrongs don't  a , but ey  a good excuse.
@@ -511,7 +511,7 @@ fingers crossed.  Everybody knows e war is over.  Everybody knows e
 good guys lost.  Everybody knows e  was fixed: e poor stay
 poor, e rich get rich.  That's how it goes.  Everybody knows.
 
-Everybody knows at e boat is leaking.  Everybody knows e captain
+Everybody knows at e boat is leaking.  Everybody knows e cain
 .  Everybody got is broken feing like eir faer or eir dog
 just died.
 
@@ -641,7 +641,7 @@ I have already given two cousins to e war and I stand ready to sacrifice
 my wife's broer.
 		-- Artemus Ward
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two col, a major, ree captains,
+anyone.  Eventually I stumbled across two col, a major, ree cains,
 two lieutenants, and one man, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin

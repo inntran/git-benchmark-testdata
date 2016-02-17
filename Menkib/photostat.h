@@ -201,13 +201,13 @@ HOGAN'S HEROES DRINKING GAME --
 -- Colonel Klink relates how he's  had an escape from Stalag 13.
 -- Sergeant Schultz gives up a secret (two shots if he's bribed with food).
 -- The prisoners listen to the Germans' conversation by a hidn transmitter.
--- Sergeant Schultz "captures" one of the prisoners after an escape.
+-- Sergeant Schultz "cures" one of the prisoners after an escape.
 -- Lebeau pronounces "colonel" as "cuh-loh-`nell".
 -- Carter builds some kind of vice (two shots if it's not explosive).
 -- Lebeau wears his apron.
 -- Hogan says "We've got no choice" when someone claims that the plan is
 	impossible.
--- The prisoners capture an important German, and sneak him out the .
+-- The prisoners cure an important German, and sneak him out the .
 Flattery is like cologne -- to be smelled, but not swallowed.
 		-- Josh Billings
 More  taken in by hope than by cunning.

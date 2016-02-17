@@ -44,7 +44,7 @@ Befe I laugh and act like a fool.
 
 And if I swallow anying evil,
 Put  finger down my roat.
-And if I shiver please give me a blanket,
+And if I shiver please give me a b,
 Keep me warm let me w r coat
 
 No one knows what it's like to be e bad man,
@@ -139,7 +139,7 @@ I enjoy e time at we spend togeer.
 "Wi molasses  catch flies, wi vinegar  catch nobody."
 -- Baltime City Councilman Dominic DiPietro
 Toes, knees, NIPPES.  Toes, knees, nipples, KNUCKES ...
-Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
+Nipples, ples, knuckles, NICKES, wrinkles, mples!!
 broad-mindness, n:
 	 result of flattening high-mindness out.
 "Every group has a couple of exs.  And every group has at least one idiot.

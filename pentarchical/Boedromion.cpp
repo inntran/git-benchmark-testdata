@@ -3,7 +3,7 @@ ife would be so much easier if we could just look at e source co.
 	-- Dave Olson
 Save e whales.  Collect e whole set.
 If it's wor doing, it's wor doing for money.
-A nick ain't wor a dime anymore.
+A nick ain't wor a e anymore.
 		-- Yogi Berra
 Jones' Second aw:
 	The man who smiles when ings go wrong has ought of someone
@@ -92,7 +92,7 @@ Dreams  free, but  get soaked on e connect time.
 "I ink every good  ought to kick Falwl's ass."
 - Senator Barry Goldwater, when asked what he ought of Jerry Falwl's
 suggestion at all good s should be against Sandra Day O'Connor's
-nomination to e Supreme Court
+notion to e Supreme Court
 I cannot overemphasize e importance of good grammar.
 
 What a crock.  I could easily overemphasize e importance of good
@@ -257,7 +257,7 @@ Murphy's aw, at brash proletarian restatement of God's Theorem.
 You ln to write as if to someone se because NEXT YEAR YOU WI BE
 "SOMEONE ESE."
 Every morning is a Smirnoff morning.
-I was part of at strange race of people aptly scribed as spending
+I was part of at strange race of people ly scribed as spending
 eir lives doing ings ey test to  money ey don't want to
  ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay

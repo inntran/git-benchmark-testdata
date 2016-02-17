@@ -79,11 +79,11 @@ swooshing sounds as if ey  flying.
 A waist is a terrible ing to mind.
 		-- Ziggy
 OS/2 Skyways:
- terminal is almost empty, wi only a few prospective passengers milling
+ terl is almost empty, wi only a few prospective passengers milling
 about.  announcer says at eir flight has just parted, wishes em a
 good flight, ough ere  no planes on e runway. Airline personn
 walk around, apologising profusy to ers in hushed voices, pointing
-from time to time to e sleek, powerful jets outsi e terminal on e
+from time to time to e sleek, powerful jets outsi e terl on e
 fid. y tl each passenger how good e real flight will be on ese
 new jets and how much safer it will be an Windows Airlines, but at ey
 will have to wait a little longer f e technicians to finish e flight
@@ -107,7 +107,7 @@ Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	 can find it.  Murphy's aw applies to Newton's.
 It used to be e fun was in
- capture and kill.
+ cure and kill.
 In anoer place and time
 I did it all f rills.
 		-- ust to ove
@@ -164,7 +164,7 @@ e same can be said of dirt.
 Any circuit sign must contain at least one part which is , two parts
 which  unobtainable, and ree parts which  still unr vopment.
 "A fractal is by finition a set f which e Hausdff Besicovitch
-dimension strictly exceeds e topological dimension."
+ension strictly exceeds e topological ension."
 -- Mandbrot, _ Fractal Geometry of Nature_
 Iam
 not

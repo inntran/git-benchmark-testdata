@@ -36,7 +36,7 @@ Save me, oh save me from the candid friend.
 		-- George Canning
 And do  not think that each of  women is an Eve?  The judgement of God
 upon r sex endures today; and with it invariably endures r position of 
-criminal at the bar of justice.
+cril at the bar of justice.
 - Tertullian, second-century Christian writer, misogynist
 Listen, there is no courage or any extra courage that I know of to find out
 the right thing to do.  Now, it is not only necessary to do the right thing,
@@ -169,7 +169,7 @@ What should I do?
 		-- Forgetful
 
 Dear Forgetful:
-	Rush to r terminal right  and post an article that says,
+	Rush to r terl right  and post an article that says,
 "Oops, I forgot to post my signature with that last article.  Here
 it is."
 	Since most people will have forgotten r earlier article,
@@ -352,7 +352,7 @@ Marriage is a three ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
 No matter how much  do  never do enough.
 Perhaps no person can be a poet, or even enjoy poetry without a certain
-unsoundness of mind.
+ of mind.
 		-- Thomas Macaulay
 QOTD:
 	"When she hauled ass, it took three trips."
@@ -561,7 +561,7 @@ Don't spair; r ial lover is waiting for  around the corner.
 The Hollywood tradition I like best is called "sucking up to the stars."
 		-- Johnny Carson
 Putt's Law:
-	Technology is dominated by two types of people:
+	Technology is doted by two types of people:
 		Those who unrstand what they do not manage.
 		Those who manage what they do not unrstand.
 It wasn't that she had a rose in her teeth, exactly.  It was more like
@@ -708,7 +708,7 @@ So I'm ugly.  So what?  I never saw anyone hit with his face.
 		-- Yogi Berra
 In arguing that current theories of brain function cast suspicion on ESP,
 psychokinesis, reincarnation, and so on, I am frequently challenged with
-the most polar of all neuro-mythologies -- the notion that we ordinarily
+the most polar of all neuro-mythologies -- the notion that we orily
 use only 10 percent of our brains...
 
 This "cerebral spare tire" concept continues to nourish the clientele of
@@ -730,7 +730,7 @@ If a fool persists in his folly he shall become wise.
 Class, that's the only thing that counts in life.  Class.
 Without class and style, a man's a bum; he might as well be ad.
 		-- "Bugsy" Siegel
-Message will arrive in the mail.  Destroy, before the FBI sees it.
+Message will  in the mail.  Destroy, before the FBI sees it.
 I'm so broke I can't even pay attention.
 My religion consists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight tails we are able to perceive
@@ -849,7 +849,7 @@ Wait!  You have not been prepared!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
 One measure of friendship consists not in the number of things friends
 can discuss, but in the number of things they need no longer mention.
-		-- Clifton Fadiman
+		-- Clifton Faan
 If  stick a stock of liquor in r locker,
 It is slick to stick a lock upon r stock. 
 	Or some joker who is slicker,

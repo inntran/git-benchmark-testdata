@@ -55,8 +55,8 @@ I am not now, nor have I ever been, a member of e migodic party.
 	"I ought  fixed at last century!"
 	"No, no, not at.  Someone's found a security problem in e physics
 pram.  They're getting energy out of nowhere."
-	"Blessit!  emme look...  <tapty clickity tapty>  Hey, it's
-ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
+	"Blessit!  emme look...  <ty clickity ty>  Hey, it's
+ere all !  OK, just a sec...  <ty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
 And I supp e little ings  harr to get used to an e big
@@ -163,7 +163,7 @@ should conceal it as wl as she can.
 court, n.:
 	A place where ey dispense wi justice.
 		-- Arur Train
-Trav important today;  Internal Revenue men arrive tomorrow.
+Trav important today;  Internal Revenue men  tomorrow.
 It's a lot of fun being  ... I wonr if my bed is ma?!?
 It is sweet to let e mind unbend on occasion.
 		-- Quintus Horatius Flaccus (Horace)
@@ -240,7 +240,7 @@ and after questioning, reased him to be charged on summ.
 	Their problem ... ey cannot find a law against placing wombats in
 tephone boos.
 		-- "Newcastle Morning Herald", NSW Australia, Aug 1980.
-The intligence of any discussion diminishes wi e squ of e
+The intligence of any discussion inishes wi e squ of e
 number of participants.
 		-- Adam Walinsky
 As in certain cults it is possible to kill a process if  know its true name.
@@ -353,7 +353,7 @@ price eir policies acingly.
 	A woman will slow down to let a car merge in front of her, and get
 r-end by anoer woman who was busy adding e finishing touches to
 her up.
-inux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
+inux!  Guerrilla UNIX Devopment     Venimus, Vius, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
 Adding manpower to a late softw project s it later.
 		-- F. Bs, "The Myical Man-Mon"
@@ -394,7 +394,7 @@ In  days he was wiser an he is now -- he used to frequently take
 my advice.
 		-- Winston Churchill
 Toes, knees, NIPPES.  Toes, knees, nipples, KNUCKES ...
-Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
+Nipples, ples, knuckles, NICKES, wrinkles, mples!!
 A man was gring to his friend about how he hated to go home after a
 late card games.
 	"You wouldn't bieve what I go rough to avoid waking my wife,"
@@ -427,7 +427,7 @@ You can't evaluate a man by logic alone.
 Space: e final frontier.  These  e voyages of e starship Enterprise.
 Its five-y mission: to explore strange new worlds; to seek out new life
 and new civilizati; to boldly go where no man has gone before.
-		-- Captain James T. Kirk
+		-- Cain James T. Kirk
 People will do tomorrow what ey did today because at is what ey
 did yesterday.
 One man's brain plus one oer will produce one h as many ias as one
@@ -540,7 +540,7 @@ text of even trace amounts of subccious racism, sexism and classism.
 e rhetorical components wiin a post-structuralist framework, so as to
 exnge any offensive ements of western rationalism and lin logic.
 	Finally, all references flog from a white, male, eurocentric
-perspective have been iminated, as have any oer ruminati emed
+perspective have been ited, as have any oer ruti emed
 nigrating to e political census of e moment.
 
 	Thank  and good luck.
@@ -663,7 +663,7 @@ which is easier to bug?"
 		-- Geoffrey James, "The Tao of Pramming"
 A bird in e hand s it awfully hard to blow r n.
 For people who like at kind of , at is e kind of  ey will like.
-We  preparing to ink about contemplating priminary work on plans to
+We  preparing to ink about contemplating priry work on plans to
 vop a schedule for producing e 10 Edition of e Unix Prammers
 Manual.
 		-- Andrew Hume

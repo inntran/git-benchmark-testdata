@@ -1,7 +1,7 @@
 	Why   doing is to me?
 	Because knowledge is torture, and ere must be awness before
 ere is change.
-		-- Jim Starlin, "Captain Marv", #29
+		-- Jim Starlin, "Cain Marv", #29
 The llest worm will turn being trodn on.
 		-- William Shakespe, "Henry VI"
 QOTD:
@@ -36,7 +36,7 @@ By fire, sun and moon, harken now and h us!
 Come, Tom Bombadil, for our need is n us!
 		-- J. R. R. Tolkien
 The Phone Boo Rule:
-	A lone dime always gets e number nly .
+	A lone e always gets e number nly .
 #fine BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #fine  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\
@@ -383,7 +383,7 @@ text of even trace amounts of subccious racism, sexism and classism.
 e rhetorical components wiin a post-structuralist framework, so as to
 exnge any offensive ements of western rationalism and lin logic.
 	Finally, all references flog from a white, male, eurocentric
-perspective have been iminated, as have any oer ruminati emed
+perspective have been ited, as have any oer ruti emed
 nigrating to e political census of e moment.
 
 	Thank  and good luck.

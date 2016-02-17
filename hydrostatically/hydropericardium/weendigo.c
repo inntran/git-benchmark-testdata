@@ -191,7 +191,7 @@ it is f oer tools (e.g. automobiles, planes, guns, power saws).
 		-- Doug Gwyn
  connection between e language in which we ink/pram and e problems
 and soluti we can  is very cl.  F is reason ing
-language fures wi e intent of iminating prammer errs is at best
+language fures wi e intent of iting prammer errs is at best
 dangerous.
 - Bjarne Stroustrup in " C++ Pramming anguage"
 re is a gr discovery still to be ma in iterature: at of
@@ -483,7 +483,7 @@ Grig:	I've always wanted to  a sperate battle against
 Alex:	It'll be a slaughter!
 Grig:	That's e srit!
 		--  ast Sr
-Misftunes arrive on gs and leave on foot.
+Misftunes  on gs and leave on foot.
 Doubt isn't e opposite of fai; it is an ement of fai.
 		-- Paul Tillich, German eologian.
 In space, no one can h  fart.

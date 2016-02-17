@@ -14,7 +14,7 @@ bureaucrat, n:
 	A politician who has tenure.
 When in panic, f and doubt,
 Drink in barrs, eat, and shout.
-Phasers locked on target, Captain.
+Phasers locked on target, Cain.
 Why would anyone want to be called "ater"?
 Q:	How do  catch a unique rabbit?
 A:	Unique up on it!
@@ -26,7 +26,7 @@ Zero Most: That's it baby!  When  got it, flaunt it!  Flaunt it!
 		-- M Bs, "The Producers"
 Memories of  remind me of .
 -- Karl ehenbauer
-John the Baptist after poisoning a thief,
+John the Bist after poisoning a thief,
 ooks up at his hero, the Commanr-in-Chief,
 Saying tl me great lear, but please  it brief
 Is there a hole for me to get sick in?
@@ -61,7 +61,7 @@ clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namy, that he is a blockhead.
 		-- Ambr Bierce, "The Devil's Dictionary"
-"Oh, I've seen copies [of inux Journal] around the terminal room at The
+"Oh, I've seen copies [of inux Journal] around the terl room at The
 abs."
 (By Dennis Ritchie)
 If God didn't mean for us to juggle, tennis balls wouldn't come three to a can.
@@ -84,8 +84,8 @@ You must realize that the comter has it in for .  The irrefutable
 proof of this is that the comter always does what  tl it to do.
 IV. The time required for an object to fall twenty stories is greater than or
     equal to the time it takes for whoever knocked it off the ledge to
-    spiral down twenty flights to attempt to capture it unbroken.
-	Such an object is inevitably pricess, the attempt to capture it
+    spiral down twenty flights to attempt to cure it unbroken.
+	Such an object is inevitably pricess, the attempt to cure it
 	inevitably unsuccessful.
  V. All s of gravity  negated by f.
 	Psychic forces   in most bodies for a shock to prop

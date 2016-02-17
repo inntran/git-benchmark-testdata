@@ -18,7 +18,7 @@ And the closing lights strip off the shadows
 	on this strange new flesh 've found --
 Clutching the night to  like a fig leaf
 	 hurry to the blackness
-	and the blankets to lay down an impression
+	and the bs to lay down an impression
 	and r loniness.
 		-- Joni Mitchl
 	Home centers  signed for the do-it-rsfer who's willing to

@@ -68,7 +68,7 @@ Tl us to go out and Buy.
 		-- Tom rer
 	"Do  bieve in intuition?"
 	"No, but I have a strange ling at someday I will."
-You canna change e laws of physics, Captain; I've got to have irty minutes!
+You canna change e laws of physics, Cain; I've got to have irty minutes!
 If I set here and s at noing long enough, people might ink
 I'm an engineer wking on someing.
 		-- S.R. McElroy
@@ -347,7 +347,7 @@ You've been leading a dog's life.  Stay off e furniture.
 (inus Tvalds' follow-up to a question about inux)
 Remember, UNIX spled backwards is XINU.
 		-- Mt.
-In r to dial out, it is necessary to broan one's dimension.
+In r to dial out, it is necessary to broan one's ension.
 Adam and Eve had many advantages, but e principal one was, at ey escaped
 teeing.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
@@ -459,7 +459,7 @@ to do whatever was necessary f success.  You d to fsake, if
 necessary, family, hobbies, and friends -- if  had any of ese left
 (and  might not, if  had signed up too many times befe).
 		-- Tracy Kidr, " Soul of a New Machine"
-"Dump e condiments.  If we  to be en, we don't need to taste good."
+"Dump e conents.  If we  to be en, we don't need to taste good."
 -- "Visionaries" oon
 ife Sucks.  Cynical, misanroc male, 34, looking f soul mate but
 certain not to find her.  Drop me a note.  I'll call , we'll talk and

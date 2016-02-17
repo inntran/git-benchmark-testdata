@@ -29,7 +29,7 @@ Water, taken in moration cannot hurt anybody.
 Fertility is hereditary.  If r pnts didn't have any children,
 neither will .
 Take a look around , tl me what  see,
-A girl who thinks she's ordinary lookin' she has got the key.
+A girl who thinks she's ory lookin' she has got the key.
 If  can get cl enough to look into her eyes
 There's something special  behind the bitterness she his.
 	And 're fair game,

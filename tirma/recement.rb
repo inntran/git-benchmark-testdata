@@ -355,7 +355,7 @@ A CONS is an object which cs.
 You  in a maze of little twisting passages, all alike.
 After a few boring ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
-advanced than the lichen family.
+advanced than the  family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 ... proper attention to Earthly needs of the poor, the pressed and the
 downtrodn, would naturally evolve from dynamic, articulate, 
