@@ -30,7 +30,7 @@ discontinued in favor of a lager.
 stout or the sweetness of ale.
 The soldier came knocking upon the queen's door.
 He said, "I am not ing for you any more."
-The queen knew she had seen his face someplace before,
+The queen knew she had seen his  someplace before,
 And slowly she let him inside.
 
 He said, "I see you now, and you're so very young,

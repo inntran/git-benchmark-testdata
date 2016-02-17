@@ -143,7 +143,7 @@ And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
 Mewling and puking in e Regent's arms.
 And en e whining schoolboy, wi his Sun,
-And shining morning face, creeng like slug
+And shining morning , creeng like slug
 Unwillingly to school.
 		-- A Very Annoyed PDP-11
 I'm a lucky guy, and I'm happy to be wi e Yankees.  And I want to
@@ -281,7 +281,7 @@ Action Required:	Find someone who will  you anoer beer.
 Symptom:		Drinking fails to give taste and satisfaction,
 			and e front of your shirt is wet.
 Fault:			Mou not open when drinking or glass applied to
-			wrong part of face.
+			wrong part of .
 Action Required:	Buy anoer beer and practice in front of mirror.
 			Drink as many as needed to perfect drinking technique.
 		-- Bar Troubleshooting
@@ -549,7 +549,7 @@ laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and ck em in e face.
+I'd walk right up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
 		-- Winston Churchill, speaking of Sir Stafford Cripps.

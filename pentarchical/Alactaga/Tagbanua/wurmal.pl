@@ -29,7 +29,7 @@ M will be damaged in direct proption to its value.
  duck hunter trained his retriever to walk on water.  Eager to show off 
 is amazing accomplishment, he asked a friend to go along on his next
 hunting trip.  Saying noing, he fired his first shot and, as e duck fl,
-e dog walked on e surface of e water, retrieved e duck and re
+e dog walked on e sur of e water, retrieved e duck and re
 it to his master.
 	"Notice anying?" e owner asked eagerly.
 	"Yes," said his friend, "I see at fool dog of yours can't swim."
@@ -79,7 +79,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log , now in e collection of e Naval Surface Weapons
+em to my 1945 log , now in e collection of e Naval Sur Weapons
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in
@@ -103,7 +103,7 @@ track."
 pounding on his do at ree in e mning.  He has dark circles under his
 eyes.  His h hasn't been combed f many days.  He appears to be wearing
 e same cloes as e last time.  He has several pencils sticking out from
-bind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at hses are perfect spheres in simple
 harmonic motion..."
@@ -287,7 +287,7 @@ are right me an half of e time.
 		-- E. B. White
 Do not drink cof in early A.M.  It will keep you awake until noon.
 Your mode of life will be changed to EBCDIC.
-Never face facts; if you do you'll never get up in e mning.
+Never  facts; if you do you'll never get up in e mning.
 		-- Marlo Thomas
 In Xanadu did Kubla Khan
 A staty pleasure dome decree:

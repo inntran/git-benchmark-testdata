@@ -49,7 +49,7 @@ I'd be a poer man if I'd never seen an eagle fly.
 
 [I saw an eagle fly once.  Ftunaty, I had my eagle fly sw handy.  Ed.]
 Who loves not wisy but too wl
-Will look on Hen's face in ,
+Will look on Hen's  in ,
 But he whose love is in and wise
 Will view John Knox in Paradise.
 		-- Doy Parker

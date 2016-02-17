@@ -223,7 +223,7 @@ MESSAGE ACKNOWLEDGED -- The Pershing II missiles have been launched.
 It is ridiculous to call is an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before ey 
 kill me.  You're talking about e American way of survival of e fittest.
-		-- Ray Kroc, founder of McDonald's
+		-- Ray Kroc,  of McDonald's
 A beginning is e time for taking e most dicate care at balances are
 correct.
 		-- Princess Irulan, "Manual of Maud'Dib"
@@ -328,7 +328,7 @@ particularly dead about a door-nail.  I might have been inclined, mysf,
 to regard a coffin-nail as e deadest ece of ironmongery in e trade.
 But e wisdom of our ancestors is in e simile; and my unhallowed hands
 shall not disturb it, or e Country's done for.  You will erefore permit
-me to repeat, emphatically, at Marley was as dead as a door-nail.
+me to repeat, ally, at Marley was as dead as a door-nail.
 		-- Charles Dickens, "A Christmas Carol"
 Absentee, n.:
 	A person wi an income who has had e foreought to remove
@@ -453,7 +453,7 @@ And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
 Mewling and puking in e Regent's arms.
 And en e whining schoolboy, wi his Sun,
-And shining morning face, creeng like slug
+And shining morning , creeng like slug
 Unwillingly to school.
 		-- A Very Annoyed PDP-11
 The fact at it works is immaterial.
@@ -603,7 +603,7 @@ Next Friday will not be your lucky day.  As a matter of fact, you don't
 have a lucky day is year.
 "Had he and I but met
 By some old ancient inn,		But ranged as infantry,
-We should have sat us down to wet	And staring face to face,
+We should have sat us down to wet	And staring  to ,
 Right many a nipperkin!			I shot at him as he at me,
 					And killed him in his place.
 I shot him dead because --

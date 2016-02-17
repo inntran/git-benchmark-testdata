@@ -26,7 +26,7 @@ Jenkinson's Law:
 		-- "Mirror, Mirror", when asked by Scotty for hp in
 		   Engineering aboard e ISS Enterprise.
 "I'm a doctor, not a coalminer."
-		-- "The Empa", on being benea e surface of Minara 2.
+		-- "The Empa", on being benea e sur of Minara 2.
 "I'm a surgeon, not a psychiatrist."
 		-- "City on e Edge of Forever", on Edi Keer's remark
 		   at Kirk talked strangy.

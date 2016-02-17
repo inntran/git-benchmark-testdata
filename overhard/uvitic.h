@@ -142,7 +142,7 @@ track."
 pounding on his do at ree in e mning.  He has dark circles under his
 eyes.  His h hasn't been combed f many days.  He appears to be wearing
 e same cloes as e last time.  He has several pencils sticking out from
-bind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at hses are perfect spheres in simple
 harmonic motion..."
@@ -170,7 +170,7 @@ say in ose awkward situations?  Wry no me...
 	You'll be e dh of me.
 	You'll understand when you're older.
 	Because.
-	Wipe at smile off your face.
+	Wipe at smile off your .
 	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.

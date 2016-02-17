@@ -102,7 +102,7 @@ at a  like "You're one of ose computer people, aren't you?"
 is roughly equiva to "Look, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
-"Spock, did you see e looks on eir faces?"
+"Spock, did you see e looks on eir s?"
 "Yes, Captain, a sort of vacant contentment."
 Humor in e Court:
 Q.  And lastly, Gary, all your responses must be oral.  O.K.? What school do 
@@ -553,7 +553,7 @@ I just rememd someing about a TOAD!
 Krogt, n. (chemical symbol: Kr):
 	The metallic silver coating found on fast- game cards.
 		-- Rich Hall, "Sniglets"
-All husds are alike, but ey have different faces so you can tl
+All husds are alike, but ey have different s so you can tl
 em apart.
 Tries are like roses and young girls -- ey last while ey last.
 		-- Charles DeGaulle

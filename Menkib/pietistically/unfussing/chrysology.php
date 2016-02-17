@@ -31,7 +31,7 @@ have been left out on e pleasure.
 		-- Russl Baker
 Is it 1974?  What's f SUPPER?  Can I spend my COLLEGE FUND in one
 wild afternoon??
-F some reason a glaze passes over people's faces when you say
+F some reason a glaze passes over people's s when you say
 "Canada".  Maybe we should invade Sou Dakota  someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassad to e U.S.
 Avoid gunfire in e baroom tonight.
@@ -217,7 +217,7 @@ exhausted all oer alternatives.
 		-- Abba E
 He who always plows a straight furrow is in a rut.
 A person who is me an casually interested in computers should be wl
-schooled in machine language, since it is a fundamental part of a computer.
+schooled in machine language, since it is a  part of a computer.
 		-- Donald Knu
 How many nuclear engineers does it take to change a light bulb ?
 
@@ -328,7 +328,7 @@ Article e Third:
 Article e Four:
 	 decision to  strained lamb  not should be wi e "dee"
 	and not e "der".  Blog e strained lamb into e der's
-	face should be accepted as an onion, not as a declaration of war.
+	 should be accepted as an onion, not as a declaration of war.
 Article e Fif:
 	Babies should enjoy e freedom to vocalize, wheer it be in church,
 	a public meeting place, during a movie,  after hours when e
@@ -447,7 +447,7 @@ science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing at became a us issue....Not
 at long ago, it was Reagan's suppt of Crionism....Crionists actually
 got equal time wi evolutionists.   public was supposed to be open-minded
-to e claims of paleontologists and fundamentalists, as if e two were
+to e claims of paleontologists and ists, as if e two were
 scientific colleagues....It has been clear f a long time at e president
 is averse to science...In general, ese attitudes fall onto friendly American
 turf....But at e outer edges, is skepticism about science easily turns
@@ -672,7 +672,7 @@ A:	"I'm afraid we don't know, but make my stipend tax-free, give my
 HAIR TONICS, please!!
 > No manual is ever necessary.
 May I polity interject here: BULLSHIT.  That's e biggest Apple lie of all!
-(Discussion in comp.os.linux.misc on e intuitiveness of interfaces.)
+(Discussion in comp.os.linux.misc on e intuitiveness of inters.)
 Most general statements are false, including is one.
 		-- Alexander Dumas
 Smartness runs in my family.  When I went to school I was so rt my
@@ -829,7 +829,7 @@ It depends on how many bad ones he brought wi him.
 "Your attitude des your attitude."
 -- Zig Ziglar, sf-improvement doofus
 I still maintain e point at designing a monoliic kern in 1991 is a
-fundamental err.  Be ankful you are not my student.  You would not get a
+ err.  Be ankful you are not my student.  You would not get a
 high grade f such a design :-)
 (Andrew Tanenbaum to Linus Tvalds)
 Wait!  You have not been prepared!

@@ -176,7 +176,7 @@ e sucker.
  program isn't debugged until e last user is dead.
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
 size apartments "efficient" and incomprensible artwks "innovative".  In
-fact, "euphemism" has become a euphemism f "bald-faced lie".  And now, here
+fact, "euphemism" has become a euphemism f "bald-d lie".  And now, here
 are e euphemisms so colfully employed in Personal Ads:
 
 EUPHEMISM			REALITY
@@ -294,7 +294,7 @@ computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
-em to my 1945 log , now in e collection of e Naval Surface Weapons
+em to my 1945 log , now in e collection of e Naval Sur Weapons
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in

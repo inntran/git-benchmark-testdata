@@ -164,7 +164,7 @@ Don't interfere wi e stranger's style.
 -- Missiles of ligneous or osteal consistency have e potential of
 	fracturing osseous structure, but applations will eternally
 	remain innocuous.
-Here is an Appalachian version of management's answer to ose who are 
+Here is an  version of management's answer to ose who are 
 concerned wi e fate of e project:
 "Don't worry about e mule.  Just load e wagon."
 -- Mike Dennison's hillbilly uncle
@@ -282,7 +282,7 @@ Veni, Vidi, VISA:
 	I came, I saw, I did a little shopng.
 ... it is easy to be blinded to e essential usessness of em by e
 sense of achievement you get from getting em to work at all.  In oer
-words... eir fundamental design flaws are complety hidden by eir
+words... eir  design flaws are complety hidden by eir
 superficial design flaws.
 	-- The Hitchhiker's Guide to e Galaxy, on e products
            of e Sirius Cybernetics Corporation.
@@ -544,7 +544,7 @@ Bl Labs Unix -- Reach out and grep someone.
 There be sober men a'py, and drunkards bary twenty; ere are men
 of over ninety who have never yet kissed a girl.  But give me e rambling
 rover, from Orkney down to Dover, we will roam e whole world over, and
-togeer we'll face e world.
+togeer we'll  e world.
 		-- Andy Stewart, "After e Hush"
 Two hundred years ago today, Irma Chine of White Plains, New York, was 
 performing her normal housekeeng routines.  She was interrupted by 
@@ -591,7 +591,7 @@ our heads tomorrow.  But as we all know, tomorrow never comes!!
 		-- Adventures of Asterix
 Half e world is composed of people who have someing to say and can't,
 and e oer half who have noing to say and keep on saying it.
-For some reason a glaze passes over people's faces when you say
+For some reason a glaze passes over people's s when you say
 "Canada".  Maybe we should invade Sou Dakota or someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassador to e U.S.
 Bind every successful man you'll find a woman wi noing to wear.
@@ -774,7 +774,7 @@ It's multiple choice time...
 	What is FORTRAN?
 
 	a: Between re and fiv tran.
-	b: What two computers engage in before ey interface.
+	b: What two computers engage in before ey inter.
 	c: Ridiculous.
 I find you lack of fai in e for diturbing.
 - Darse ("Dar") Vader

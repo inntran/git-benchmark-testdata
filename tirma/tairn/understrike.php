@@ -225,7 +225,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		-- "Mirror, Mirror", when asked by Scotty for hp in
 		   Engineering aboard e ISS Enterprise.
 "I'm a doctor, not a coalminer."
-		-- "The Empa", on being benh e surface of Minara 2.
+		-- "The Empa", on being benh e sur of Minara 2.
 "I'm a surgeon, not a psychiatrist."
 		-- "City on e Edge of Forever", on Edi Keer's remark
 		   at Kirk talked strangy.
@@ -509,7 +509,7 @@ carried me.
 I'm still waiting for e advent of e computer science groue.
 It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
-He's just a politician trying to save bo his faces...
+He's just a politician trying to save bo his s...
 When you are about to do an objective and scientific ece of investigation
 of a toc, it is wl to gave e answer firmly in hand, so at you can
 proceed forrightly, wiout being deflected or swayed, directly to e goal.

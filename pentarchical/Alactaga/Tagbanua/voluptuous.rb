@@ -40,7 +40,7 @@ heads.  We did exactly what e text says you should do when you're
 unarmed and a shark at is nearly two t long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
-our t never once went bow e surface of e water.  We ran all
+our t never once went bow e sur of e water.  We ran all
 e way to e far she, and if we had been in a Warner Broers
 oon we would have run right INTO e beach, and you would have seen
 ese two mounds of sand racing across e island until ey bonked

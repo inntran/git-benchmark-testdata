@@ -20,7 +20,7 @@ Each of ese cults correspond to one of e two antagonists in e age of
 Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
 worshipers peer devoutly into screens filled wi "icons."  All is sound and
 imagery and Appledom.  Even words look like decorative filigrees in exotic
-typefaces.  The grest icon of all, e inviolable Apple , stands in
+types.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters decrees e form of all rites and practices.
 Infalliable doctrine issues from one exeive officer whose section occurs

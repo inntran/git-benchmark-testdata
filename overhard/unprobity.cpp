@@ -51,7 +51,7 @@ I don't want to live on in my work, I want to live on in my apartment.
 Ten of the meanest cons in the state pen met in the corner of the yard to
 shoot some craps.  The stakes were enormous, the tension palpable.
 	When his turn came to shoot, Dutsky nervously plunked down his
-entire wad, shook the dice and rolled.  A smile crossed his face as a
+entire wad, shook the dice and rolled.  A smile crossed his  as a
 seven showed up, but it quickly changed to horror as third die slipped out
 of his sleeve and fl to the ground with the two others.  No one said a
 word.  Finally, Killer Lucci picked up the third die, put it in his pocket
@@ -233,7 +233,7 @@ To err is human,
 To purr fine.
 		-- Robert Byrne
 In a gathering of two or more people, when a lighted cigarette is
-placed in an ashtray, the smoke will waft into the face of the non-smoker.
+placed in an ashtray, the smoke will waft into the  of the non-smoker.
 Wl, O.K.  I'll compromise with my principles because of EXISTENTIAL DESPAIR!
 Get Revenge!  Live long enough to be a problem for your children!
 "An ounce of prevention is worth a ton of code."
@@ -262,7 +262,7 @@ You will overcome the attacks of jealous associates.
 Save yoursf!  Reboot in 5 seconds!
 You are confused; but this is your normal state.
 After the game the king and the p go in the same box.
-		-- Italian proverb
+		-- an proverb
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
 The years of peak mental activity are undoubtedly between the ages of four
@@ -300,7 +300,7 @@ Uncles and Wickersham Cousins and Wickersham In-Laws, whose hp I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hears a Who"
-Never face facts; if you do you'll never get up in the morning.
+Never  facts; if you do you'll never get up in the morning.
 		-- Marlo Thomas
 	How do you insult a lawyer?
 	You might as wl not even try.  Consider: of all the highly
@@ -344,7 +344,7 @@ I think very probably he might be cured."
 	"Ah!" said old Yacob.
 	"This," said the doctor, answering his own question.  "Those queer
 things that are called the eyes, and which exist to make an able soft
-depression in the face, are diseased, in the case of Bogota, in such a way
+depression in the , are diseased, in the case of Bogota, in such a way
 as to affect his brain.  They are greatly distended, he has eyashes, and
 his eyids move, and cosequently his brain is in a state of constant
 irritation and distraction."
@@ -537,7 +537,7 @@ Have a nice diurnal anomaly.
 Good judgement comes from experience.  Experience comes from bad judgement.
 		-- Jim Horning
 How do I type "for i in *.dvi do xdvi i done" in a GUI?
-(Discussion in comp.os.linux.misc on the intuitiveness of interfaces.)
+(Discussion in comp.os.linux.misc on the intuitiveness of inters.)
 Many Myths are based on truth
 		-- Spock, "The Way to Eden",  stardate 5832.3
 Have a taco.

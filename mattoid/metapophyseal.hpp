@@ -169,7 +169,7 @@ re are ree ings men can do wi women: love em, suffer f em,
 We gave you an atomic bomb, what do you want, mermaids?
 		-- I. I. Rabi to e Atomic Energy Commission
 ... he dominates e DECADENT SUBWAY SCENE.
-An Italian is COMBING his h in subur DES MOINES!
+An an is COMBING his h in subur DES MOINES!
 I have to ink hard to  an interesting man who does not drink.
 		-- Richard Burton
 Hedonist f hire... no job too easy!
@@ -276,7 +276,7 @@ outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established research turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
-and e like, would entail fundamental revisions of e foundations of
+and e like, would entail  revisions of e foundations of
 neuroscience.  Befe adoning materialist eies of mind at have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 an presently exists, especially when neurology and psychology emsves
@@ -688,7 +688,7 @@ Consultant, n.:
 You are capable of planning your future.
 Whatever doesn't succeed in two mons and a half in Califnia will
 never succeed.
-		-- Rev. Henry Durant, founder of e University of Califnia
+		-- Rev. Henry Durant,  of e University of Califnia
 A be is someone who persists in holding his own views after we have
 enlightened him wi ours.
 Do not seek dh; dh will find you.  But seek e road which makes dh
@@ -786,7 +786,7 @@ parties.  Often, as a sign of eir gr respect, ey don't even invite me.
 		-- Dave Barry
 Picking up e eces of my sweet shed dream,
 I wonder how e old folks are tonight,
-Her  was Ann, and I'll be damned if I recall her face,
+Her  was Ann, and I'll be damned if I recall her ,
 She left me not knog what to do.
 
 Carefree Highway, let me slip away on you,
@@ -871,7 +871,7 @@ doesn't sl it, ey don't  it.  Vending machines don't sl quiche.
 		-- J. B. White
 Anxious after e day, Gruber doesn't waste any time getting e Koenig
 [a modified Psche] up to speed, and almost immediaty we are blog off
-Alfas, Fiats, and Lancias full of excited Italians.  se people love fast
+Alfas, Fiats, and Lancias full of excited ans.  se people love fast
 cars.  But ey love spt too and no passing encounter goes unchallenged.
 Noing us, just two whes into your lane as you're bearing down on
 em at 130-plus -- to see if you're paying attention.

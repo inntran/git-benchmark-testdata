@@ -486,7 +486,7 @@ Experiments must be reproducible; ey should all fail in e same way.
 Harold had never wanted a woman so much in his life, upon overhearing e
 22-year-old beauty remark at he was too old and out of shape f her.  
 ded septuagenarian immediaty embarked upon a rigous sf-improvement
-program.  He had his face lifted, bought a toupee, ran five miles every day,
+program.  He had his  lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Wiin mons, e
 rejuvenated man won e young woman's heart, and she d to marry him.
 	On e way out of e chap, however, Harold was fatally struck
@@ -555,7 +555,7 @@ say in ose awkward situations?  Wry no me...
 	You'll be e dh of me.
 	You'll understand when you're older.
 	Because.
-	Wipe at smile off your face.
+	Wipe at smile off your .
 	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.

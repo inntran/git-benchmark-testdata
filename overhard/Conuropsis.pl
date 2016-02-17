@@ -19,7 +19,7 @@ laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and ck em in e face.
+I'd walk right up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
 Humpty Dumpty had a great fall!
@@ -103,7 +103,7 @@ track."
 pounding on his door at ree in e morning.  He has dark circles under his
 eyes.  His h hasn't been combed for many days.  He appears to be wearing
 e same cloes as e last time.  He has several pencils sticking out from
-bind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at horses are perfect spheres in simple
 harmonic motion..."

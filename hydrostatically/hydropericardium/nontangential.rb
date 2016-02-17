@@ -159,7 +159,7 @@ then, fully expressive of the emotion most close to all our hearts --
 		And dare not stray to ideas new,
 	For if t'were tried they might e'en work
 		And for a living what woulds't we do?
-He's just a politician trying to save both his faces...
+He's just a politician trying to save both his s...
 Never laugh at live dragons.
 		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
 Overload -- core mtdown sequence initiated.
@@ -201,7 +201,7 @@ turn your TRS-80 into an ectronic Ouija board.  Then, using Logo's
 graphics capabilities, you can work with a friend or rative on this
 side of the Great Beyond to write programs.  The software requires that
 your body be hardwired to an analog-to-digital converter, which is then
-interfaced to your computer.  A special terminal (very terminal) program
+interd to your computer.  A special terminal (very terminal) program
 lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
@@ -261,7 +261,7 @@ little paper envopes.
 	-- Bob Violence
 -- Howie Chaykin's little animated 3-dimensional darling, Bob Violence
 Money may buy friendship but money cannot buy love.
-	One evening he spoke.  Sitting at her feet, his face raised to her,
+	One evening he spoke.  Sitting at her feet, his  raised to her,
 he allowed his soul to be heard.  "My darling, anything you wish, anything
 I am, anything I can ever be...  That's what I want to offer you -- not the
 things I'll get for you, but the thing in me that will make me able to get
@@ -569,7 +569,7 @@ to attain, nor any power so secure that the naked ape will not abuse it.
 So it is written in the genetic cards -- only physics and war hold him in
 check.  And also the wife who wants him home by five, of course.
 		-- Encyclopadia Apocryphia, 1990 ed.
-"Never face facts; if you do, you'll never get up in the morning."
+"Never  facts; if you do, you'll never get up in the morning."
 -- Marlo Thomas
 Abandon the search for Truth; settle for a good fantasy.
 If you do something right once, someone will ask you to do it again.
@@ -614,7 +614,7 @@ Stealing a rhinoceros should not be attempted lightly.
 It is ridiculous to call this an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they 
 kill me.  You're talking about the American way of survival of the fittest.
-		-- Ray Kroc, founder of McDonald's
+		-- Ray Kroc,  of McDonald's
 Wad some power the giftie gie us
 To see ourss as others see us.
 		-- R. Browning

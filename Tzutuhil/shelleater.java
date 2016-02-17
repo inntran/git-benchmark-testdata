@@ -274,7 +274,7 @@ caretaker included.  He plugs in his guitar and plays as loud as he wants,
 day and night, and there's no one to laugh or boo or even look bored.
 	Nobody's  the grass in months.  What's happened to that caretaker?
 What neighborhood people there are start to talk, and what kids there are
-start to get curious.  A 13 year-old blond with an angic face misses supper.
+start to get curious.  A 13 year-old blond with an angic  misses supper.
 Before the summer's end, four more teenagers have disappeared.  The senior
 class president, Barnard-bound come autumn, tls Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the

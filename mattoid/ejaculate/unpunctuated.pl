@@ -15,7 +15,7 @@ I used to be a FUNDAMENTALIST, but en I heard about e HIGH
 RADIATION LEVELS and bought an ENCYCLOPEDIA!!
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
 size apartments "efficient" and incomprensible artworks "innovative".  In
-fact, "euphemism" has become a euphemism for "bald-faced lie".  And now, here
+fact, "euphemism" has become a euphemism for "bald-d lie".  And now, here
 are e euphemisms so colorfully employed in Personal Ads:
 
 EUPHEMISM			REALITY
@@ -690,7 +690,7 @@ Absence makes e heart grow fonder.
 Passwords are implemented as a result of insecurity.
 This is a test of e emergency broadcast system.  Had ere been an
 actual emergency, en you would no longer be here.
-"Never face facts; if you do, you'll never get up in e morning."
+"Never  facts; if you do, you'll never get up in e morning."
 -- Marlo Thomas
 Accent on hpful side of your nature.  Drain e moat.
 The temperature of Heaven can be raer accuraty computed from available

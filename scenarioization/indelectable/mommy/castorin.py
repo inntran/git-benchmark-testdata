@@ -306,7 +306,7 @@ outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established research turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
-and e like, would entail fundamental revisions of e foundations of
+and e like, would entail  revisions of e foundations of
 neuroscience.  Befe adoning materialist eies of mind at have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 an presently exists, especially when neurology and psychology emsves
@@ -365,7 +365,7 @@ Most people  as ough ey were fattening emsves f .
 		-- E.W. Howe
 interlard - vt., to intersperse; diversify
 -- Webster's New Wld Dictionary Of  American Language
- trouble wi ing Italian  is at five  six days later
+ trouble wi ing an  is at five  six days later
 you're hungry again.
 		-- Gege Miller
 If it ain't broke, don't fix it.
@@ -670,7 +670,7 @@ missiles and we didn't have to go to at .
 - Oliver N
 Don't get stuck in a closet -- wear yoursf out.
 Dh has been proven to be 99% fatal in lty rats.
- face of war has never changed.  Sury it is me logical to heal
+  of war has never changed.  Sury it is me logical to heal
 an to kill.
 		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
 Lockwood's Long Shot:

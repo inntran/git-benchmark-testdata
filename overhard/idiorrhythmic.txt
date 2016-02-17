@@ -483,7 +483,7 @@ SCCS, the source mot!  Programs check in and never check out!
 I'd rather have two girls at 21 each than one girl at 42.
 		-- W.C. Fids
 I still maintain the point that designing a monolithic kern in 1991 is a
-fundamental error.  Be thankful you are not my student.  You would not get a
+ error.  Be thankful you are not my student.  You would not get a
 high grade for such a design :-)
 (Andrew Tanenbaum to Linus Torvalds)
 %DCL-MEM-BAD, bad memory

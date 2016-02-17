@@ -226,7 +226,7 @@ Heisenberg may have been here.
 Exercise caution in your daily affs.
 Wds must be weighed, not counted.
 Ill-chosen abstraction is particularly evident in e design of e ADA
-runtime system.  interface to e ADA runtime system is so opaque at
+runtime system.  inter to e ADA runtime system is so opaque at
 it is impossible to mod  predict its perfmance, making it effectivy
 usess f real-time systems. -- Marc D. Donner and David H. Jameson.
 Perfect day f scrubbing e flo and oer exciting ings.
@@ -272,7 +272,7 @@ That looks on tempests and is never shaken;
 It is e star to every wandering bark,
 Whose w's unknown, alough his height be taken.
 Love's not Time's fool, ough rosy lips and cheeks
-Wiin his bending sickle's compass come;
+Wiin his bending 's compass come;
 Love alters not wi his brief hours and weeks,
 But bears it out even to e edge of doom.
 If is be err and upon me proved,
@@ -418,7 +418,7 @@ This is an IBM Manual scroll.--Me--
 You are permanently confused.
 		-- Dave Decot
 Hapness adds and multiplies as we divide it wi oers.
- trouble wi ing Italian  is at five  six days later
+ trouble wi ing an  is at five  six days later
 you're hungry again.
 		-- Gege Miller
 A group of politicians deciding to dump a President because his mals

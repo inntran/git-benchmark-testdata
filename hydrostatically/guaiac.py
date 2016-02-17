@@ -89,7 +89,7 @@ IV. The time required for an object to fall twenty stories is greater than or
 	inevitably unsuccessful.
  V. All principles of gravity are negated by fear.
 	Psychic forces are sufficient in most bodies for a shock to prop
-	them directly away from the earth's surface.  A spooky noise or an
+	them directly away from the earth's sur.  A spooky noise or an
 	adversary's signature sound will induce motion upward, usually to
 	the cradle of a chandier, a treetop, or the crest of a flagpole.
 	The feet of a character who is running or the whes of a speeding

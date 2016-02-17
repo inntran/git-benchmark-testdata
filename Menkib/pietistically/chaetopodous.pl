@@ -78,7 +78,7 @@ say in those awkward situations?  Worry no more...
 	You'll be the death of me.
 	You'll understand when you're older.
 	Because.
-	Wipe that smile off your face.
+	Wipe that smile off your .
 	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.
@@ -117,7 +117,7 @@ heads.  We did exactly what the text says you should do when you're
 unarmed and a shark that is nearly two feet long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
-our feet never once went bow the surface of the water.  We ran all
+our feet never once went bow the sur of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
 cartoon we would have run right INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
@@ -265,7 +265,7 @@ and unquenchable.
 		-- Bruce Lee
 I'd horsewhip you if I had a horse.
 		-- Groucho Marx
-The most disagreeable thing that your worst enemy says to your face does
+The most disagreeable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
 		-- Alfred De Musset
 phosflink:
@@ -420,7 +420,7 @@ all others.  And Mind no longer contemplated Problem, but became Problem,
 deing Subject-Object by becoming them.
 	Time passed, unheeded.
 	Eventually, there was a tentative stirring, then a decisive one, and
-Nakamura arose, a smile on his face and the light of laughter in his eyes.
+Nakamura arose, a smile on his  and the light of laughter in his eyes.
 		-- Wayfarer
 The most important early product on the way to devoping a good product
 is an imperfect version.
@@ -785,13 +785,13 @@ rabbit.
 will publish such rubbish!"
 	"Wl, follow me and I'll show you."
 	They both go into the rabbit's dwling and after a while the
-rabbit emerges with a satisfied expression on his face.  Comes along a
+rabbit emerges with a satisfied expression on his .  Comes along a
 wolf.  "Hlo, little buddy, what are we doing these days?"
 	"I'm writing the 2'nd chapter of my thesis, on how rabbits devour
 wolves."
 	"Are you crazy?  Where's your academic honesty?"
 	"Come with me and I'll show you."
-	As before, the rabbit comes out with a satisfied look on his face
+	As before, the rabbit comes out with a satisfied look on his 
 and a diploma in his paw.  Finally, the camera pans into the rabbit's cave
 and, as everybody should have guessed by now, we see a mean-looking, huge
 lion, sitting, picking his teeth and bching, next to some furry, bloody

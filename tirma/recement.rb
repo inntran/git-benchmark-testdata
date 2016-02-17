@@ -30,7 +30,7 @@ arm and spoke with a quiet and peace I will never forget.
 ble's for thee."
 	The next morning our youth was a memory, and our happiness was a lie.
 Life is like a bad margarita with good tequila, I thought as I poured whiskey
-onto my granola and faced a new day.
+onto my granola and d a new day.
 		-- Peter Applebome, International Imitation Hemingway
 		   Competition
 "You can't expect a mother to be with a ll child all the time," Margaret
@@ -38,7 +38,7 @@ Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
-The most disable thing that your worst enemy says to your face does
+The most disable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
 		-- Alfred De Musset
 Passionate hatred can give meaning and purpose to an empty life.
@@ -129,7 +129,7 @@ with our frail and feeble mind.
 Do not seek death; death will find you.  But seek the road which makes death
 a fulfillment.
 		-- Dag Hammarskjold
-It took a while to surface, but it appears that a long-distance credit card
+It took a while to sur, but it appears that a long-distance credit card
 may have saved a U.S. Army unit from heavy casualties during the Grenada
 military rescue/invasion. Major General David Nichols, Air Force ... said
 the Army unit was in a house surrounded by Cuban forces.  One soldier found
@@ -317,7 +317,7 @@ After watching my newly-retired dad spend two weeks learning how to make a new
 folder, it became obvious that "intuitive" mostly means "what the writer or
 speaker of intuitive likes".
 (Bruce Ediger, bediger@teal.csn.org, in comp.os.linux.misc, on X the
-intuitiveness of a Mac interface.)
+intuitiveness of a Mac inter.)
 In the midst of one of the wildest parties he'd ever been to, the young man 
 noticed a very prim and pretty girl sitting quietly apart from the rest of
 the revers.  Approaching her, he introduced himsf and, after some quiet

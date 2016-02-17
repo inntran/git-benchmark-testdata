@@ -306,7 +306,7 @@ and you'll be mine...
 You like to ink at you're immune to e stuff
 (Oh Yeah!)
 It's closer to e tru to say you can't get enough;
-You know you're gonna have to face it,
+You know you're gonna have to  it,
 You're addicted to love!"
 		-- Robert Palmer
 Eureka!

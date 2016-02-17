@@ -73,7 +73,7 @@ they can. I'm sick of the job.  It's a thankless one and full of grief.
 		-- Al Capone
 Life is an exciting business, and most exciting when it is lived for others.
 The challenge of space exploration and particularly of landing men on the moon
-represents the greatest challenge which has ever faced the human race.  Even
+represents the greatest challenge which has ever d the human race.  Even
 if there were no clear scientific or other arguments for proceeding with this
 task, the whole history of our civilization would still imp men toward the
 goal.  In fact, the assembly of the scientific and military with these human
@@ -196,7 +196,7 @@ Know what to kiss -- and when.
 Remember that two wrongs never make a right,
 But that three do.
 Wherever possible, put people on "HOLD".
-Be comforted, that in the face of all aridity and disillusionment,
+Be comforted, that in the  of all aridity and disillusionment,
 And despite the changing fortunes of time,
 There is always a big future in computer maintenance.
 
@@ -377,7 +377,7 @@ have an established user base.
                 in *The Evolution of Earth and Man*, 1929
 "There's always been Tower of Bab sort of bickering inside Unix, but this
 is the most extreme form ever.  This means at least several years of confusion."
---  Gates, founder and chairman of Microsoft, 
+--  Gates,  and chairman of Microsoft, 
    about the Open Systems Foundation
 Ten years of rejection slips is nature's way of tling you to stop writing.
 		-- R. Geis
@@ -416,7 +416,7 @@ demanded, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
 holding out his shoe, asked them whether it was not new and wl made.
 Yet, added he, none of you can tl where it pinches me.
 		-- Plutarch
-"The fundamental principle of science, the definition almost, is this: the
+"The  principle of science, the definition almost, is this: the
 sole test of the validity of any idea is experiment."
 -- Richard P. Feynman
 Darth Vader!  Only you would be so bold!
@@ -511,7 +511,7 @@ say in those awkward situations?  Worry no more...
 	You'll be the death of me.
 	You'll understand when you're older.
 	Because.
-	Wipe that smile off your face.
+	Wipe that smile off your .
 	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.
@@ -789,8 +789,8 @@ other people.
 --  , _Ghostbusters_
 I suggest you locate your hot tub outside your house, so it won't do too
 much damage if it catches fire or expes.  First you decide which
-direction your hot tub should face for maximum solar energy.  After much
-trial and error, I have found that the best direction for a hot tub to face
+direction your hot tub should  for maximum solar energy.  After much
+trial and error, I have found that the best direction for a hot tub to 
 is up.
 		-- Dave Barry, "The Taming of the Screw"
 "IBM uses what I like to call the 'hole-in-the-ground technique' 
