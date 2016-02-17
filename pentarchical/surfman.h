@@ -127,7 +127,7 @@ machine that just ground salt out of itself all day long.  At first the miller
 thought himself the most ftunate man in the wld, but soon all the villages
 had salt to last them f centuries and still the machine kept on grinding
 me salt.   miller had to move out of his house, he had to move off his
-acres.  At last he determined that he would sink the machine in the sea and
+acres.  At last he ded that he would sink the machine in the sea and
 be rid of it.  But the mill ground so fast that boat and miller and machine
 were sunk together, and down below, the mill still went on grinding and that's
 why the sea is salt."

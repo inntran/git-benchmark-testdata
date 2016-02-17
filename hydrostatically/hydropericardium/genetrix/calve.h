@@ -177,7 +177,7 @@ F myself, I can only say that I am astonished and somewhat terrified at
 the results of this evening's experiments.  Astonished at the wonderful
 power you have developed, and terrified at the thought that so much hideous
 and bad music may be put on recd fever.
-		-- Sir Arthur Sullivan, message to Edison, 1888
+		-- Sir  Sullivan, message to Edison, 1888
 HARVARD:
 Quarterback:
 	Sophome Dave Strewzinski... likes to pass.  And pass he does, with

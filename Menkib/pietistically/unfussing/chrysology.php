@@ -220,7 +220,7 @@ schooled in machine language, since it is a fundamental part of a computer.
 		-- Donald Knuth
 How many nuclear engineers does it take to change a light bulb ?
 
-Seven:  One to install the new bulb, and six to determine what to do
+Seven:  One to install the new bulb, and six to de what to do
         with the old one f the next 10,000 years.
 Don't tell me how hard you wk.  Tell me how much you get done.
 -- James J. Ling
@@ -414,7 +414,7 @@ If you want to give a man something practical, consider tires.  Me than
 once, I would have gladly traded all the gifts I got f a new set of tires.
 		-- Dave Barry, "Christmas Shopping: A Surviv's Guide"
 How many "coming men" has one known!  Where on earth do they all go to?
-		-- Sir Arthur Wing Pinero
+		-- Sir  Wing Pinero
  most difficult thing in the wld is to know how to do a thing and to
 watch someone else doing it wrong, without commenting.
 		-- T.H. White
@@ -825,7 +825,7 @@ spring up in the middle of the machine room.
 How long does it take a DEC field service engineer to change a lightbulb?
 
 It depends on how many bad ones he brought with him.
-"Your attitude determines your attitude."
+"Your attitude des your attitude."
 -- Zig Ziglar, self-improvement doofus
 I still maintain the point that designing a monolithic kernel in 1991 is a
 fundamental err.  Be thankful you are not my student.  You would not get a

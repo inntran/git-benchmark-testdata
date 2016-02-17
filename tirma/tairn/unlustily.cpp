@@ -16,7 +16,7 @@ amongst themselves and each went about their own way.  To this day the
 Topologists remain the iginal Mathematicians.
 		--  Sty of Babel
 Imagine what we can imagine!
-		-- Arthur Rubinstein
+		--  Rubinstein
 Test-tube babies shouldn't throw stones.
 FORTUNE'S PARTY TIPS		#14
 
@@ -236,7 +236,7 @@ Finagle's Fifth Law:
 Finagle's Sixth Law:
 	Don't believe in miracles -- rely on them.
  appreciation of the average visual graphisticat alone is wth
-the whole suaveness and decadence which abounds!!
+the whole suaveness and de which abounds!!
 " pathology is to want control, not that you ever get it, because of
 course you never do."
 -- Gregy Bateson
@@ -292,7 +292,7 @@ Swipple's Rule of Order:
 	He who shouts the loudest has the flo.
 Everyone complains of his memy, no one of his judgement.
  appreciation of the average visual graphisticat alone is wth
-the whole suaveness and decadence which abounds!!
+the whole suaveness and de which abounds!!
 Avoid the Gates of Hell.  Use Linux
 (Unknown source)
 Here in my heart, I am Helen;

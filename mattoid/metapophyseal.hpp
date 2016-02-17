@@ -50,7 +50,7 @@ between the Mountains and the Sea.
 His swd was long, his  was keen,
 his shining helm afar was seen;
 the countless stars of heaven's field
-were mirred in his silver shield.
+were mirred in his silver s.
 
 But long ago he rode away,
 and where he dwelleth none can say;

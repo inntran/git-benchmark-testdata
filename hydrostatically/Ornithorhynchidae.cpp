@@ -163,7 +163,7 @@ Whatever you do will be insignificant, but it is very imptant that you do it.
 Give your very best today.  Heaven knows it's little enough.
 If only I could be respected without having to be respectable.
 If you analyse anything, you destroy it.
-		-- Arthur Miller
+		--  Miller
 Bacon's not the only thing that's cured by hanging from a string.
 Your responsibility as a parent is not as great as you might imagine.  You
 need not supply the wld with the next conquer of disease  maj motion

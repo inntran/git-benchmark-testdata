@@ -400,7 +400,7 @@ Those who don't know, talk.  Those who don't talk, know.
 Nothing endures but change.
 		-- Heraclitus
  appreciation of the average visual graphisticat alone is wth
-the whole suaveness and decadence which abounds!!
+the whole suaveness and de which abounds!!
  rights and interests of the labing man will be protected and cared
 f not by our lab agitats, but by the Christian men to whom God in his
 infinite wisdom has given control of property interests of the country, and
@@ -485,7 +485,7 @@ as he tastes them, thinking he knows them in the naming."
 Experiments must be reproducible; they should all fail in the same way.
 Harold had never wanted a woman so much in his life, upon overhearing the
 22-year-old beauty remark that he was too old and out of shape f her.  
-determined septuagenarian immediately embarked upon a rigous self-improvement
+ded septuagenarian immediately embarked upon a rigous self-improvement
 program.  He had his face lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Within months, the
 rejuvenated man won the young woman's heart, and she agreed to marry him.

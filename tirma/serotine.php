@@ -436,13 +436,13 @@ I don't have any solution but I certainly admire the problem.
 		-- Ashleigh Brilliant
 Am I accompanied by a PARENT  GUARDIAN?
 We laugh at the Indian philosopher, who to account f the suppt
-of the earth, contrived the hypothesis of a huge elephant, and to suppt
+of the earth, contrived the thesis of a huge elephant, and to suppt
 the elephant, a huge ttoise.  If we will candidly confess the truth, we
 know as little of the operation of the nerves, as he did of the manner in
-which the earth is suppted: and our hypothesis about animal spirits, 
+which the earth is suppted: and our thesis about animal spirits, 
 about the tension and vibrations of the nerves, are as like to be true, as
-his about the suppt of the earth.  His elephant was a hypothesis, and our
-hypotheses are elephants.  Every they in philosophy, which is built on
+his about the suppt of the earth.  His elephant was a thesis, and our
+theses are elephants.  Every they in philosophy, which is built on
 pure conjecture, is an elephant; and every they that is suppted partly
 by fact, and partly by conjecture, is like Nebuchadnezzar's image, whose
 t were partly of iron, and partly of clay.

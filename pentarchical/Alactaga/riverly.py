@@ -34,7 +34,7 @@ then, fully expressive of the emotion most close to all our hearts --
 	F if t'were tried they might e'en wk
 		And f a living what woulds't we do?
 "You can't get very far in this wld without your dossier being there first."
--- Arthur Miller
+--  Miller
 When Yahweh your gods has settled you in the land you're about to occupy, and
 driven out many infidels befe you...you're to cut them down and exterminate
 them.  You're to make no compromise with them  show them any mercy.
@@ -314,7 +314,7 @@ Without facts, the decision cannot be made logically.  You must rely on
 your human intuition.
 		-- Spock, "Assignment: Earth", stardate unknown
 Imagine what we can imagine!
-		-- Arthur Rubinstein
+		--  Rubinstein
  English have no respect f their language, and will not teach
 their children to speak it.
 		-- G. B. Shaw

@@ -241,7 +241,7 @@ EOF
 On the eighth day, God created FORTRAN.
 	... This striving f excellence extends into people's personal
 lives as well.  When '80s people buy something, they buy the best one, as
-determined by (1) price and (2) lack of availability. Eighties people buy
+ded by (1) price and (2) lack of availability. Eighties people buy
 impted dental floss.  y buy gourmet baking soda.  If an '80s couple
 goes to a restaurant where they have made a reservation three weeks in
 advance, and they are infmed that their table is available, they stalk
@@ -269,7 +269,7 @@ It is a wise father that knows his own child.
 		-- William Shakespeare, " Merchant of Venice"
 Sum quod eris.
 You see but you do not observe.
-Sir Arthur Conan Doyle, in " Memoirs of Sherlock Holmes"
+Sir  Conan Doyle, in " Memoirs of Sherlock Holmes"
 Ftune's graffito of the week ( maybe even month):
 
 		Don't Write On Walls!

@@ -135,7 +135,7 @@ Trouble strikes in series of threes, but when wking around the house the
 next job after a series of three is not the fourth job -- it's the start of
 a brand new series of three.
  Briggs-Chase Law of Program Development:
-	To determine how long it will take to write and debug a
+	To de how long it will take to write and debug a
 	program, take your best estimate, multiply that by two, add
 	one, and convert to the next higher units.
 	One of the questions that comes up all the time is: How enthusiastic
