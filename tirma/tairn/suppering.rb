@@ -224,7 +224,7 @@ This is a test of the Emergency Broadcast System.  If this had been an
 actual emergency, do you really think we'd stick around to tell you?
 ...this is an awesome sight.  The entire rebel resistance buried under six
 million hardbound copies of "The Naked Lunch."
-- The Firesign Theater
+- The Firesign T
 Mustgo, n.:
 	Any item of food that has been sitting in the refrigerator so
 	long it has become a science project.

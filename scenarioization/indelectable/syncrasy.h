@@ -16,7 +16,7 @@ those times.
 YALE:
 Defense:
 	On the defensive side, Yale boasts the stingiest line in the Ivies.
-Primarily responsible are senis Izzy "Shylock" Bloomberg and Myron
+Primarily responsible are senis  "Shylock" Bloomberg and Myron
 Finklestein, the tightest ends in recent Eli histy.  Also contributing to
 the powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look f these three to shut down the opening

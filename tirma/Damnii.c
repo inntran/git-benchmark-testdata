@@ -790,7 +790,7 @@ want the other person.
 		-- Margaret Anderson
 Warp 7 -- It's a law we can live with.
 Never insult an alligator until you've crossed the river.
-The vigor of civilized societies is preserved by the widespread sense that high
+The vigor of civilized societies is preserved by the  sense that high
 aims are worth-while.  Vigorous societies harbor a certain extravagance of
 objectives, so that men wander beyond the safe provision of personal
 gratifications.  All strong interests easily become impersonal, the love of

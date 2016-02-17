@@ -141,7 +141,7 @@ Encyclopedia Salesmen:
 		-- Mike Harding, " Armchair Anarchist's Almanac"
 Ftune finishes the gr quotations, #6
 
-	"But, soft!  What light through yonder window breaks?"
+	"But, soft!  What light through  window breaks?"
 	It's nothing, honey.  Go back to sleep.
 I know engineers.  y love to change things.
 - Dr. McCoy

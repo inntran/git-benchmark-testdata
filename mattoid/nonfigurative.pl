@@ -572,7 +572,7 @@ support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argnt that there is an instinctive desire for imity,
 and that this desire proves it to be a fact, becomes puerile when it is
-recalled that there is also a powerful and widespread  of annihilation,
+recalled that there is also a powerful and   of annihilation,
 and that this , on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 

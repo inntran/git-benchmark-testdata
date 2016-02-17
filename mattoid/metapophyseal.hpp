@@ -122,7 +122,7 @@ technological nation has taking a bit of a bing lately.  Sadly, such
 happenings cannot be dismissed as passing fancies.  y are manifestations
 of a well-established "anti-science"  in the U.S. which, ultimately,
 could thren the country's position as a technological power. . . .  
-manifest widespread desire to reject rationality and substitute a series
+manifest  desire to reject rationality and substitute a series
 of quasirandom beliefs in der to understand the  does not augur
 well f a nation deeply concerned about its ability to compete with its
 industrial equals.  To the degree that it reflects the thinking of a 

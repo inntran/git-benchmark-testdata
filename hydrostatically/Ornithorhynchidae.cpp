@@ -40,7 +40,7 @@ A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
 6. SUBMIT TO NOVEL EXPERIMANTAL TREATMENT READILY.
 	Though the surgery may not benefit you directly, the resulting
-	research paper will surely be of widespread interest.
+	research paper will surely be of  interest.
 Listen, there is no courage  any extra courage that I know of to find out
 the right thing to do.  Now, it is not only necessary to do the right thing,
 but to do it in the right way and the only problem you have is what is the

@@ -6,7 +6,7 @@ Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Ananthanarayanan
 I played lead guitar in a d called  Federal Duck, which is the kind
 of  that was popular in the '60s as a result of controlled substances
-being in widespread use.  Back then, there were no ions, in terms
+being in  use.  Back then, there were no ions, in terms
 of talent, on who could make an album, so we made one, and it sounds like
 a group of people who have been given powerful but unfamiliar instrnts
 as a therapy f a degenerative nerve disease.
