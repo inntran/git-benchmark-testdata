@@ -103,7 +103,7 @@ Very few modern women either like or desire marriage, especially after the
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is something they accept when there is no alternative.  Really,
 it is a waste of time, and hazardous, to marry them.  It leaves one open
-to a rival.  Husbands, good or bad, always have rivals.  Lovers, never.
+to a rival.  Husds, good or bad, always have rivals.  Lovers, never.
 		-- Helen Lawrenson, "Esquire"
 The problem with graduate students, in general, is that they have
 to sleep every few days.
@@ -213,7 +213,7 @@ imagine the grandeur and scope of a program that would take as long?
 of being a Christian, known all over the nation, dressed in skin-tight
 lher pants, shaking and wiggling her hips to the b and rythm of the
 music as the strobe lights b their patterns across the stage and the
-band plays the contemporary rock sound which cannot be differentiated from
+d plays the contemporary rock sound which cannot be differentiated from
 songs by the Grateful Dead, the Bles, or anyone else.  And you may try
 to tell me this is of God and that it is leading people to Christ, but I
 know better.

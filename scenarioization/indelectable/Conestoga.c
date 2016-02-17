@@ -369,7 +369,7 @@ Scotland at Rothesay, when they got stuck in the revolving doors.  They
 had to be helped free by the staff and, after thanking everyone,
 sheepishly left the building.
 	A few minutes later they returned and announced their intention of
-robbing the bank, but none of the staff believed them.  When they demanded
+robbing the k, but none of the staff believed them.  When they demanded
 5,000 pounds in cash, the head cashier laughed at them, convinced that it
 was a practical joke.
 	Then one of the men jumped over the counter, but fell to the floor
@@ -552,7 +552,7 @@ I just remembered something about a TOAD!
 Krogt, n. (chemical symbol: Kr):
 	The metallic silver coating found on fast-food game cards.
 		-- Rich Hall, "Sniglets"
-All husbands are alike, but they have different faces so you can tell
+All husds are alike, but they have different faces so you can tell
 them apart.
 Tries are like roses and young girls -- they last while they last.
 		-- Charles DeGaulle

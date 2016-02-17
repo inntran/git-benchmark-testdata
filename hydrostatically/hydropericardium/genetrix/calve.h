@@ -93,10 +93,10 @@ How unusual!
 Hse sense is the thing a hse has which keeps it from betting on people.
 		-- W. C. Fields
 So from the depths of its enchantment, Terra was able to calculate a course
-of action.  Here at last was an opptunity to const with Dirbanu on a
-friendly basis -- gr Durbanu which, since it had fce fields which Earth
+of action.  Here at last was an opptunity to const with Diru on a
+friendly basis -- gr Duru which, since it had fce fields which Earth
 could not duplicate, must of necessity have many other things Earth could
-use; mighty Durbanu befe whom we would kneel in supplication (with purely-
+use; mighty Duru befe whom we would kneel in supplication (with purely-
 f-defense bombs hidden in our pockets) with lowered heads (making invisible
 the knife in our teeth) and ask f crumbs from their table (in der to
 extrapolate the location of their kitchens).

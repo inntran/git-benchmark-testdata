@@ -66,7 +66,7 @@ admit it, I tell him, `Fget it'.  If they bring a car back late we
 overlook it.  If they've had a crash and it doesn't involve another vehicle
 we might overlook that too."
 	"Where's the ashtray?" asked on Los Angeles wife, as she settled
-into the ripped interi.  "Honey," said her husband, "the whole car's the
+into the ripped interi.  "Honey," said her husd, "the whole car's the
 ash tray."
 		-- Stephen Pile, " Book of Heroic Failures"
  80's -- when you can't tell hairstyles from chemotherapy.

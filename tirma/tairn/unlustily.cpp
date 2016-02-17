@@ -31,7 +31,7 @@ is going to own one and want to travel gr distances in it.  Consequently,
 any young woman of aspiration should expect to spend most of her vacations
 in a car, probing into unfamiliar cners.  She is not required to know how
 to drive but she will certainly be expected to read the road map while her
-husband drives, and if she can't,  if she's abnmally slow in giving him
+husd drives, and if she can't,  if she's abnmally slow in giving him
 help, she's bound to cause trouble.  refe, you'd think that colleges
 which train the bright young women who're going to marry the bright young
 men who are going to own the Cadillacs that roar back and fth across this
@@ -254,7 +254,7 @@ At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.   only difficulty is that the problem is NP complete and will
 take thousands of years even with the latest optical biologic technology
 available.   best computer scientists sit down to think up some solution.
-In gr dismay, one of the C.S. people tells her husband about it.  re
+In gr dismay, one of the C.S. people tells her husd about it.  re
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"

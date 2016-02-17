@@ -1,7 +1,7 @@
 My weight is perfect for my height -- which varies.
 Promising costs nothing, it's the delivering that kills you.
 A rolling stone gathers momentum.
-Genuine happiness is when a wife sees a double chin on her husband's
+Genuine happiness is when a wife sees a double chin on her husd's
 old girl friend.
 If you waste your time cooking, you'll miss the next meal.
 "An ounce of prevention is worth a ton of code."

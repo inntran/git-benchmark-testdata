@@ -259,7 +259,7 @@ Of course, you UNDERSTAND about the PLAIDS in the SPIN CYCLE --
 Take my word for it, the silliest woman can manage a clever man, but it
 needs a very clever woman to manage a fool.
 		-- Kipling
-If science were explained to the average person in a way that is accessible
+If science were explained to the average person in a way that is 
 and exciting, there would be no room for pseudoscience.  But there is a kind
 of Gresham's Law by which in popular culture the bad science drives out the
 good.  And for this I think we have to blame, first, the scientific community

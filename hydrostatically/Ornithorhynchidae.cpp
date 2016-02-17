@@ -92,7 +92,7 @@ a message with a line like that.  Don't use a subject like "My sex is female
 but I demand to be addressed as male." because such articles are read in depth
 by all USEnauts.
 		-- Emily Postnews Answers Your Questions on Netiquette
-Rubber bands have snappy endings!
+Rubber ds have snappy endings!
 All your people must learn befe you can reach f the stars.
 		-- Kirk, " Gamesters of Triskelion", stardate 3259.2
 It's easier to fight f one's principles than to live up to them.
@@ -125,7 +125,7 @@ What is research but a blind date with knowledge?
 		-- Will Harvey
 Beware of Bigfoot!
  best man f the job is  a woman.
-A husband is what is left of the lover after the nerve has been extracted.
+A husd is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 Never kick a man, unless he's down.
 Please stand f the National Anthem:
@@ -193,7 +193,7 @@ I can hire one half of the wking class to kill the other half.
 colses on three maj grounds: the crionists' need to invoke
 miracles in der to compress the events of the earth's histy into
 the biblical span of a few thousand years; their unwillingness to 
-abandon claims clearly disproved, including the assertion that all
+adon claims clearly disproved, including the assertion that all
 fossils are products of Noah's flood; and their reliance upon disttion,
 misquote, half-quote, and citation out of context to characterize the
 ideas of their opponents."
@@ -336,7 +336,7 @@ when moving between an mskip and dinary skip, the conversion fact
 1mu=1pt is always used.   meaning of '\mskip\skip12' and
 '\baselineskip=\the\thickmskip' should be clear.
 		-- Donald Knuth, TeX 82 -- Comparison with TeX80
-Plato, by the way, wanted to banish all poets from his proposed Uto
+Plato, by the way, wanted to ish all poets from his proposed Uto
 because they were liars.   truth was that Plato knew philosophers
 couldn't compete successfully with poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on the Half Shell"

@@ -178,7 +178,7 @@ stolid but sy Killebrew.  Listening to Cole Pter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
 Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
-butter on lefse.  Here is a town where the maj urban problem is dutch elm
+butter on lefse.  Here is a town where the maj ur problem is dutch elm
 disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
@@ -231,7 +231,7 @@ wiser.  But an intelligent man needs only two thousand five hundred.
 		--  Mahabharata
 Think honk if you're a telepath.
 Brillineggiava, ed i tovoli slati
-	girlavano ghimbanti nella vaba;
+	girlavano ghimti nella vaba;
 i bogovi eran tutti mimanti
 	e la moma radeva fuigraba.
 
@@ -307,7 +307,7 @@ they prevailed with irrefutable data.  Me , egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisions of the foundations of
-neuroscience.  Befe abandoning materialist theies of mind that have paid
+neuroscience.  Befe adoning materialist theies of mind that have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer me plausible alternatives.
@@ -347,7 +347,7 @@ Anything is good if it's made of chocolate.
  difference between genius and stupidity is that genius has its limits.
 Ours is a wld of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
-Kliban's First Law of Dining:
+Kli's First Law of Dining:
 	Never  anything bigger than your head.
 You can't start wrying about what's going to happen.  You get spastic
 enough wrying about what's happening now.
@@ -583,7 +583,7 @@ evidence at all and, when there was no reply, dismissed him.
 jur revealed that he s not a wd of English.  A fluent French
 speaker, he exhibited gr surprised when told, after two days, that he
 was hearing a murder trial.
-	 trial was abandoned when a third jur said that he suffered
+	 trial was adoned when a third jur said that he suffered
 from both conditions, being simultaneously unversed in the English language
 and nearly as deaf as the first jur.
 	 judge dered a retrial.

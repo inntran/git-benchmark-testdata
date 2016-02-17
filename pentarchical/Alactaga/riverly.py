@@ -118,7 +118,7 @@ I'd LOVE to, but...
 	-- I'm having all my plants neutered.
 	-- I changed the lock on my do and now I can't get out.
 	-- My yucca plant is ling yucky.
-	-- I'm touring China with a wok band.
+	-- I'm touring China with a wok d.
 	-- My chocolate-appreciation class meets that night.
 	-- I'm running off to Yugoslavia with a feign-exchange student
 		d Basil Metabolism.

@@ -1,4 +1,4 @@
-Q:	Why did Menachem Begin invade Lebanon?
+Q:	Why did Menachem Begin invade Leon?
 A:	To impress Jodie Foster.
 This is a country where people are free to practice their religion,
 regardless of race, creed, color, obesity, or number of dangling keys...
@@ -425,7 +425,7 @@ sooner or later the product will speak for itself.
 - Hajime Karatsu
 He's been like a father to me,
 He's the only DJ you can get after three,
-I'm an all-night musician in a rock and roll band,
+I'm an all-night musician in a rock and roll d,
 And why he don't like me I don't understand.
 		-- The Byrds
 "Luke, I'm yer father, eh.  Come over to the dark side, you hoser."
@@ -528,7 +528,7 @@ And everybody knows that you live forever when you've done a line or two.
 Everybody knows the deal is rotten: Old Black Joe's still pickin' cotton
 for you ribbons and bows.  And everybody knows.
 	-- Leonard Cohen, "Everybody Knows"
-Some husbands are living proof that a woman can take a joke.
+Some husds are living proof that a woman can take a joke.
 You will be surrounded by luxury.
 While you don't grly need the outside world, it's still very
 reassuring to know that it's still there.
@@ -681,7 +681,7 @@ something -- the mortality of the optimist."
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Back in the early 60's, touch tone phones only had 10 buttons.  Some
 military versions had 16, while the 12 button jobs were used only by people
-who had "diva" (digital inquiry, voice answerback) systems -- mainly banks.
+who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
 Since in those days, only Western Electric  made "data sets" (modems) the
 problems of terminology were all Bell System.  We used to struggle with
 written descriptions of dial pads that were unfamiliar to most people

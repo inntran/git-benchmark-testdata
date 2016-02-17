@@ -115,7 +115,7 @@ This is the claim of prominent physicians in this country.
 		-- Quote from a 1910 periodical
 Oh, Aunty Em, it's so good to be home!
 With the news that Nancy Reagan has referred to an astrologer when planning
-her husband's schedule, and repts of Califnians evacuating Los Angeles
+her husd's schedule, and repts of Califnians evacuating Los Angeles
 on the strength of a prediction from a sixteenth-century physician and
 astrologer Michel de Notredame, the image of the U.S. as a scientific and
 technological nation has taking a bit of a bing lately.  Sadly, such
@@ -152,7 +152,7 @@ is concerned."
 -- Baseball pitcher Bo Belinsky
 Just because you like my stuff doesn't mean I owe you anything.
 		-- Bob Dylan
-No woman can endure a gambling husband, unless he is a sy winner.
+No woman can endure a gambling husd, unless he is a sy winner.
 		-- Ld Thomas Dewar
 Mate, this parrot wouldn't VOOM if you put four million volts through it!
 		-- Monty Python
@@ -169,7 +169,7 @@ re are three things men can do with women: love them, suffer f them,
 We gave you an atomic bomb, what do you want, mermaids?
 		-- I. I. Rabi to the Atomic Energy Commission
 ... he dominates the DECADENT SUBWAY SCENE.
-An Italian is COMBING his hair in suburban DES MOINES!
+An Italian is COMBING his hair in subur DES MOINES!
 I have to think hard to  an interesting man who does not drink.
 		-- Richard Burton
 Hedonist f hire... no job too easy!
@@ -277,7 +277,7 @@ they prevailed with irrefutable data.  Me , egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisions of the foundations of
-neuroscience.  Befe abandoning materialist theies of mind that have paid
+neuroscience.  Befe adoning materialist theies of mind that have paid
 handsome dividends, we should insist on better evidence f psi phenomena
 than presently exists, especially when neurology and psychology themselves
 offer me plausible alternatives.
@@ -490,10 +490,10 @@ in chartered accountancy beckons.
 		-- Advice from the lecturer in the middle of the Stochastic
 		   Systems course.
 , Toto, I don't think we're in Kansas anyme.
-Is a person who blows up banks an econoclast?
+Is a person who blows up ks an econoclast?
 Go out and tell a lie that will make the whole family proud of you.
 		-- Cadmus, to Pentheus, in " Bacchae" by Euripides
- bank sent our statement this mning,
+ k sent our statement this mning,
  red ink was a sight of gr awe!
 ir figures and mine might have bad,
 But my wife was too quick on the draw.

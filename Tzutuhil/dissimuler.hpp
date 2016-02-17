@@ -52,7 +52,7 @@ stolid but sy Killebrew.  Listening to Cole Pter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
 Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
-butter on lefse.  Here is a town where the maj urban problem is dutch elm
+butter on lefse.  Here is a town where the maj ur problem is dutch elm
 disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed

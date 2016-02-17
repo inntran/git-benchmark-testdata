@@ -57,7 +57,7 @@ I'm not the person your mother warned you about... her imagination isn't
 that good.
 		-- Amy Gorin
 Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+A:	The Titanic had a d.
 There is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
@@ -377,12 +377,12 @@ Amoebit:
 	Amoeba/rabbit cross; it can multiply and divide at the same time.
 I used to be an agnostic, but now I'm not so sure.
 A man arrived home early to find his wife in the arms of his best friend,
-who swore how much they were in love.  To quiet the enraged husband, the
+who swore how much they were in love.  To quiet the enraged husd, the
 lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I win,
 you get a divorce so I can marry her.  If you win, I promise never to see
 her again.  Okay?"
 
-"Alright," agreed the husband.  "But how about a quarter a point
+"Alright," agreed the husd.  "But how about a quarter a point
 on the side to make it interesting?"
 Linux!  Guerrilla UNIX Development     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
@@ -787,7 +787,7 @@ Very few modern women either like or desire marriage, especially after the
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is something they accept when there is no alternative.  Really,
 it is a waste of time, and hazardous, to marry them.  It leaves one open
-to a rival.  Husbands, good or bad, always have rivals.  Lovers, never.
+to a rival.  Husds, good or bad, always have rivals.  Lovers, never.
 		-- Helen Lawrenson, "Esquire"
 Be braver -- you can't cross a chasm in two small jumps.
 I was part of that strange race of people aptly described as spending
@@ -866,7 +866,7 @@ If the work upon which I have bestowed so much time and thought were a mere
 triumph over mechanical difficulties, or  curious, or if the execution
 of such engines were of doubtful practicability or utility, some justification
 might be found for the course which has been taken; but I venture to assert
-that no mathematician who has a reputation to lose will ever publicly express
+that no mathematician who has a reputation to lose will ever publi express
 an opinion that such a machine would be useless if made, and that no man
 distinguished as a civil engineer will venture to declare the construction of
 such machinery impracticable...

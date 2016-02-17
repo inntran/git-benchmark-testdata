@@ -23,7 +23,7 @@ For every credibility gap, there is a gullibility fill.
 		-- R. Clopton
 Have a taco.
 		-- P.S. Beagle
-Yow!  It's a hole all the way to downtown Burbank!
+Yow!  It's a hole all the way to downtown Burk!
 I think your opinions are reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University

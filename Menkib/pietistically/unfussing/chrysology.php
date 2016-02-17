@@ -112,7 +112,7 @@ Very few modern women either like  desire marriage, especially after the
 ceremony has been perfmed.  Primarily women wish attention and affection.
 Matrimony is something they accept when there is no alternative.  Really,
 it is a waste of time, and hazardous, to marry them.  It leaves one open
-to a rival.  Husbands, good  bad, always have rivals.  Lovers, never.
+to a rival.  Husds, good  bad, always have rivals.  Lovers, never.
 		-- Helen Lawrenson, "Esquire"
 Wk Rule: Leave of Absence (f an Operation):
 	We are no longer allowing this practice.  We wish to discourage any
@@ -213,7 +213,7 @@ As f the size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 -- Dennis Ritchie, 1989
 Histy teaches us that men and nations behave wisely once they have
 exhausted all other alternatives.
-		-- Abba Eban
+		-- Abba E
 He who always plows a straight furrow is in a rut.
 A person who is me than casually interested in computers should be well
 schooled in machine language, since it is a fundamental part of a computer.
@@ -236,7 +236,7 @@ so resolutely pursuing it.
 Littering is dumb.
 		-- Ronald Macdonald
 Her locks an ancient lady gave
-Her loving husband's life to save;
+Her loving husd's life to save;
 And men -- they honed so the dame --
 Upon some stars bestowed her .
 
@@ -335,7 +335,7 @@ Article the Fifth:
 	to last a lifetime and must be conserved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
 ...when fits of crivity run strong, me than one programmer  writer has
-been known to abandon the desktop f the me spacious flo.
+been known to adon the desktop f the me spacious flo.
 - Fred Brooks, Jr.
 It looks like it's up to me to save our skins.  Get into that garbage chute,
 flyboy!
@@ -776,7 +776,7 @@ Optimism, n.:
 	bad, and everything right that is wrong.  It is held with grest
 	tenacity by those aced to falling into adversity, and most
 	acceptably expounded with the grin that apes a smile.  Being a blind
-	faith, it is inaccessible to the light of disproof -- an intellectual
+	faith, it is in to the light of disproof -- an intellectual
 	disder, yielding to no trment but dh.  It is hereditary, but
 	not contagious.
 re was a writer in 'Life' magazine ... who claimed that rabbits have

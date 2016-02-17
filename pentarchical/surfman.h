@@ -1,7 +1,7 @@
 That's where the money was.
-		-- Willie Sutton, on being asked why he robbed a bank
+		-- Willie Sutton, on being asked why he robbed a k
 
-It's a rather pleasant experience to be alone in a bank at night.
+It's a rather pleasant experience to be alone in a k at night.
 		-- Willie Sutton
 I used to be an agnostic, but now I'm not so sure.
 incentive program, n.:
@@ -215,7 +215,7 @@ I am NOT a nut....
 	(a) beneficial.
 	(b) not harmful.
 	(c) toxic.
-	(d) a punk band.
+	(d) a punk d.
 
  crect answer is (b).  meddling Washington eco-freak communist
 bureaucrats who say otherwise are liars.  (Message to those who answered (d).
@@ -249,7 +249,7 @@ Largest Number of Driving Test Failures
 times.  In the eight preceding years she had received two hundred and
 twelve driving lessons at a cost of L300.  She set the new recd while
 driving triumphantly through a set of red traffic lights in Wakefield,
-Ykshire.  Disappointingly, she passed at the ftieth attempt (3 August
+Ykshire.  ppointingly, she passed at the ftieth attempt (3 August
 1970) but eight years later she showed some of her old magic when she was
 repted as saying that she still didn't like doing right-hand turns.
 		-- Stephen Pile, " Book of Heroic Failures"

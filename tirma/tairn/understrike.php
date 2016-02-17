@@ -94,7 +94,7 @@ the bar, the giant thundered, "Gimme a drink!"
 	The terrified man handed over a bottle of whiskey, which the man
 guzzled in one gulp and then smashed on the bar.  He then stood aghast as
 the man stuffed the broken bottle in his mouth, munched broken glass and
-smacked his lips with relish.
+smacked his lips with .
 	"Can I, ah, uh, get you another, sir?" the drifter stammered.
 	"Naw, I gotta git outa here, boy," the man g.  "Big Mike's
 a-comin'."
@@ -133,7 +133,7 @@ water."
 There is no sincerer love than the love of food.
 		-- George Bernard Shaw
 If only God would give me some clear sign!  Like making a large deposit
-in my name at a Swiss bank.
+in my name at a Swiss k.
 		-- Woody Allen, "Without Fhers"
 ... but as records of courts and justice are admissible, it can easily be
 proved that powerful and malevolent magicians once existed and were a scourge
@@ -327,7 +327,7 @@ Inglish Spocken Hier: some mangled translations
 		dressed as a man.
 
 	Above the enterance to a Cairo bar:
-		Unaccompanied ladies not admitted unless with husband
+		Unaccompanied ladies not admitted unless with husd
 		or similar.
 
 	On a Bucharest elevator:
@@ -557,7 +557,7 @@ Whip it, whip it good!
 Necessity is the plea for every infringement of human freedom.
 It is the argnt of tyrants; it is the creed of slaves.
 		-- William Pitt, 1783
-Q:	Why did Menachem Begin invade Lebanon?
+Q:	Why did Menachem Begin invade Leon?
 A:	To impress Jodie Foster.
 Ummm, well, OK.  The network's the network, the computer's the computer.
 Sorry for the confusion.

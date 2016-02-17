@@ -224,7 +224,7 @@ Riffle West Virginia is so small that the Boy Scout had to double as the
 town drunk.
 Bridge ahead.  Pay troll.
  Kean War must have been fun.
-A husband is what is left of the lover after the nerve has been extracted.
+A husd is what is left of the lover after the nerve has been extracted.
 		-- Helen Rowland
 If in doubt, mumble.
 I didn't know he was dead; I thought he was British.
@@ -388,7 +388,7 @@ I've already got a female to wry about.  Her  is the Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0
 Giving up on assembly language was the apple in our Garden of Eden:  Languages
 whose use squanders machine cycles are sinful.   LISP machine now permits
-LISP programmers to abandon bra and fig-leaf.
+LISP programmers to adon bra and fig-leaf.
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 Confucius say too much.
 		-- Recent Chinese Proverb
@@ -415,7 +415,7 @@ Think sideways!
 	"se are GREAT TIMES to put your money on BAD GUY to kick the CRAP
 out of MEGATON MAN!"
 If men acted after marriage as they do during courtship, there would
-be fewer divces -- and me bankruptcies.
+be fewer divces -- and me kruptcies.
 		-- Frances Rodman
 Ya'll hear about the geometer who went to the beach to catch some
 rays and became a tangent ?

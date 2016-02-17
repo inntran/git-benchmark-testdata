@@ -3,7 +3,7 @@
 Iron Law of Distribution:
 	Them that has, gets.
 Christmas time is here, by Golly;	Kill the turkeys, ducks and chickens;
-Disapproval would be folly;		Mix the punch, drag out the Dickens;
+pproval would be folly;		Mix the punch, drag out the Dickens;
 Deck the halls with hunks of holly;	Even though the prospect sickens,
 Fill the cup and don't say when...	Brother, here we go again.
 
@@ -63,10 +63,10 @@ these words on discovering that his listeners dissolved into spontaneous
 laughter the instant they were read out.
 	No such reluctance afflicted Adam Lindsay Gordon (1833-70) who was
 inspired by the subject of war.
-	"Flash! flash! bang! bang! and we blazed away,
+	"Flash! flash! g! g! and we blazed away,
 	And the grey roof reddened and rang;
 	Flash! flash! and I felt his bullet flay
-	The tip of my ear.  Flash! bang!"
+	The tip of my ear.  Flash! g!"
 By contrast, Cheshire cheese provoked John Armstrong (1709-79):
 	"... that which Cestria sends, tenacious paste of solid milk..."
 While John Bidlake was guided by a compassion for vegetables:

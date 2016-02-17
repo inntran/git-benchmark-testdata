@@ -536,7 +536,7 @@ We Klingons believe as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 Oh, well, I guess this is just going to be one of those lifetimes.
-You will be imprisoned f contributing your time and skill to a bank robbery.
+You will be imprisoned f contributing your time and skill to a k robbery.
 Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
 grandmother used to say, " black cat is always the last one off the fence."

@@ -4,7 +4,7 @@ Life is a grand adventure --  it is nothing.
 		-- Helen Keller
 Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Ananthanarayanan
-I played lead guitar in a band called  Federal Duck, which is the kind
+I played lead guitar in a d called  Federal Duck, which is the kind
 of  that was popular in the '60s as a result of controlled substances
 being in widespread use.  Back then, there were no ions, in terms
 of talent, on who could make an album, so we made one, and it sounds like
@@ -109,7 +109,7 @@ spirit who reveals himself in the slight details we are able to perceive
 with our frail and ble mind.
 		-- Albert Einstein
 Good evening, gentlemen.  I am a HAL 9000 computer.  I became operational
-at the HAL plant in Urbana, Illinois, on January 11th, nineteen hundred
+at the HAL plant in Ura, Illinois, on January 11th, nineteen hundred
 ninety-five.  My supervis was Mr. Langley, and he taught me to sing a
 song.  If you would like, I could sing it f you.
 Keep the number of passes in a compiler to a minimum.
@@ -358,7 +358,7 @@ logical blocks.  From a perfmance viewpoint, however, it is me
 appropriate to view the host area as a four dimensional hyper-cube, the
 four dimensions being cylinder, group, track, and sect.
 . . .
-Referring to our hyper-cube analogy, the set of potentially accessible
+Referring to our hyper-cube analogy, the set of potentially 
 blocks fm a line parallel to the track axis.  This line moves
 parallel to the sect axis, wrapping around when it reaches the edge
 of the hyper-cube.

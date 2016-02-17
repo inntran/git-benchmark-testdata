@@ -170,7 +170,7 @@ walking in a trance toward a pregnant
 		-- Richard Brautigan
 We will have solar energy as soon as the utility companies solve one technical
 problem -- how to run a sunbeam through a meter.
-When God endowed human beings with brains, He did not intend to guarantee them.
+When God ed human beings with brains, He did not intend to guarantee them.
 What is the sound of one hand cping?
 Believe everything you hear about the wld; nothing is too impossibly bad.
 		-- Hon'e de Balzac
@@ -212,7 +212,7 @@ Will:  I wouldn't put it in the newspaper.  I think it's transparent rubbish.
 Sam Donaldson:  This isn't something new.  Govern Ronald Reagan was swn
   in just after midnight in his first term in Sacramento because the stars
   said it was a propitious time.
-Will:  y [hoscopes] are utter crashing banalities.  y could apply to
+Will:  y [hoscopes] are utter crashing alities.  y could apply to
   anyone and anything.
 Brinkley:  When is the exact moment [of birth]?  I don't think the nurse is
   standing there with a stopwatch and a notepad.
