@@ -366,7 +366,7 @@ of the hyper-cube.
 is that one of them be good at taking ders.
 		-- Linda Festa
 egrep pns are full r expressions; it uses a fast deterministic
-algithm that sometimes needs exponential space.
+alm that sometimes needs exponential space.
 -- unix manuals
 A wise man can see me from a mountain top than a fool can from the bottom
 of a well.

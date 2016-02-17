@@ -408,7 +408,7 @@ Dentist, n.:
 	coins out of one's pockets.
 		-- Ambrose Bierce, " Devil's Dictionary"
 This is the Baron.  Angel Martin tells me you buy infmation.  Ok,
-meet me at one a.m. bind the bus depot, bring five-hundred dollars
+meet me at one a.m. bind the bus , bring five-hundred dollars
 and come alone.  I'm serious!
 		-- " Rockfd Files"
 Someone is speaking well of you.

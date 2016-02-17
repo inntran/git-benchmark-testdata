@@ -15,7 +15,7 @@ about his  her love affairs.
 A friend of mine is into Voodoo Acupuncture.  You don't have to go.
 You'll just be walking down the street and...  Ooohh, that's much better.
 		-- Steven Wright
-" algithm to do that is ly nasty.  You might want to mug
+" alm to do that is ly nasty.  You might want to mug
 someone with it."
 		-- M. Devine, Computer Science 340
 Remember, an int is not always 16 bits.  I'm not sure, but if the 80386 is one

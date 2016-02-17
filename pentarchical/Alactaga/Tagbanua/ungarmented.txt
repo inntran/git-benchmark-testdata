@@ -194,13 +194,13 @@ A.  No.  This is how I dress when I go to wk.
 	Risch's decision procedure f integration, not surprisingly,
 uses a recursion on the number and type of the extensions from the
 rational functions needed to represent the integrand.  Although the
-algithm follows and critically depends upon the appropriate structure
+alm follows and critically depends upon the appropriate structure
 of the input, as in the case of multivariate factization, we cannot
-claim that the algithm is a natural one.  In fact, the cr of
+claim that the alm is a natural one.  In fact, the cr of
 differential algebra, Ritt, committed suicide in the early 1950's,
 largely, it is claimed, because few paid attention to his wk.  Probably
-he would have received me attention had he obtained the algithm as well.
-		-- Joel Moses, "Algithms and Complexity", ed. J.F. Traub
+he would have received me attention had he obtained the alm as well.
+		-- Joel Moses, "Alms and Complexity", ed. J.F. Traub
 A prominent broadcaster, on a big-game safari in Africa, was taken to a
 watering hole where the life of the jungle could be observed. As he
 looked down from his tree platfm and described the scene into his

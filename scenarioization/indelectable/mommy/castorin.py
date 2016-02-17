@@ -452,7 +452,7 @@ that a belch is me satisfying.
 	"A ing problem.   Model 9000 isn't going anywhere.  We're
 way sht of our sales goals f fiscal 2010."
 	"That can't be, Dave.   HAL Model 9000 is the wld's most
-advanced Heuristically programmed ALgithmic computer."
+advanced Heuristically programmed ALmic computer."
 	"I know, HAL. I wrote the data sheet, remember?  But the fact is,
 they're not selling."
 	"Please explain, Dave.  Why aren't HALs selling?"
