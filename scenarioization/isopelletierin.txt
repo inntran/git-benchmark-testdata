@@ -1,0 +1,187 @@
+Common sense is the collection of prejudices acquired by age eighteen.
+		-- Albert Einstein
+You will be traveling and coming into a fortune.
+Blessed is he who expects no gratitude, for he shall not be disappointed.
+		-- W.C. Bennett
+Let's all show human CONCERN for REVERAND MOON's legal difficulties!!
+modesty, n.:
+	Being comfortable that others will discover your greatness.
+When we jumped into Sicily, the units became separated, and I couldn't find
+anyone.  Eventually I stumbled across two colonels, a major, three captains,
+two lieutenants, and one rifleman, and we secured the bridge.  Never in the
+history of war have so few been led by so many.
+- General James Gavin
+Beware the one behind you.
+The one L lama, he's a priest
+The two L llama, he's a beast
+And I will bet my silk pyjama
+There isn't any three L lllama.
+		-- O. Nash, to which a fire chief replied that occasionally
+		his department responded to something like a "three L lllama."
+I really look with commiseration over the great body of my fellow citizens
+who, reading newspapers, live and die in the belief that they have known
+something of what has been passing in their time.
+		-- H. Truman
+If you took all the students that felt asleep in class and laid them end to
+end, they'd be a lot more comfortable.
+		-- "Graffiti in the Big Ten"
+You're using a keyboard!  How quaint!
+i'm living so far beyond my income that we may almost be said to be
+living apart.
+		-- e. e. cummings
+I have great faith in fools -- self confidence my friends call it.
+		-- Edgar Allan Poe
+		Hard Copies and Chmod
+
+And everyone thinks computers are impersonal
+cold diskdrives hardware monitors
+user-hostile software 
+
+of course they're only bits and bytes 
+and characters and strings 
+and files
+
+just some old textfiles from my old boyfriend
+telling me he loves me and
+he'll take care of me
+
+simply a discarded printout of a friend's directory
+deep intimate secrets and
+how he doesn't trust me
+
+couldn't hurt me more if they were scented in lavender or mould
+on personal stationery
+		-- terri@csd4.milw.wisc.edu
+"What man has done, man can aspire to do."
+-- Jerry Pournelle, about space flight
+Everything that can be invented has been invented.
+		-- Charles Duell, Director of U.S. Patent Office, 1899
+A free society is one where it is safe to be unpopular.
+		-- Adlai Stevenson
+Profanity is the one language all programmers know best.
+Banacek's Eighteenth Polish Proverb:
+	The hippo has no sting, but the wise man would rather be sat upon
+	by the bee.
+Brain damage is all in your head.
+-- Karl Lehenbauer
+Day of inquiry.  You will be subpoenaed.
+Research is what I'm doing when I don't know what I'm doing.
+		-- Wernher von Braun
+There are three things I have always loved and never understood --
+art, music, and women.
+If God had not given us sticky tape, it would have been necessary to invent it.
+It is impossible to experience one's death objectively and still carry a tune.
+		-- Woody Allen
+QOTD:
+	"The elder gods went to Suggoth and all I got was this lousy T-shirt."
+The best way to accelerate a Macintoy is at 9.8 meters per second per second.
+Giving money and power to governments is like giving whiskey and
+car keys to teenage boys.
+	-- P.J. O'Rourke
+The Worst Musical Trio
+	There are few bad musicians who have a chance to give a recital at
+a famous concert hall while still learning the rudiments of their
+instrument.  This happened about thirty years ago to the son of a Rumanian
+gentleman who was owed a personal favour by Georges Enesco, the celebrated
+violinist.  Enesco agreed to give lessons to the son who was quite
+unhampered by great musical talent.
+	Three years later the boy's father insisted that he give a public
+concert.  "His aunt said that nobody plays the violin better than he does.
+A cousin heard him the other day and screamed with enthusiasm."  Although
+Enesco feared the consequences, he arranged a recital at the Salle Gaveau
+in Paris.  However, nobody bought a ticket since the soloist was unknown.
+	"Then you must accompany him on the piano," said the boy's father,
+"and it will be a sell out."
+	Reluctantly, Enesco agreed and it was.  On the night an excited
+audience gathered.  Before the concert began Enesco became nervous and
+asked for someone to turn his pages.
+	In the audience was Alfred Cortot, the brilliant pianist, who
+volunteered and made his way to the stage.
+	The soloist was of uniformly low standard and next morning the
+music critic of Le Figaro wrote: "There was a strange concert at the Salle
+Gaveau last night.  The man whom we adore when he plays the violin played
+the piano.  Another whom we adore when he plays the piano turned the pages.
+But the man who should have turned the pages played the violin."
+		-- Stephen Pile, "The Book of Heroic Failures"
+Never appeal to a man's "better nature."  He may not have one.
+Invoking his self-interest gives you more leverage.
+		-- Lazarus Long
+The Commandments of the EE:
+
+ (9)	Trifle thee not with radioactive tubes and substances lest thou
+	commence to glow in the dark like a lightning bug, and thy wife be
+	frustrated and have not further use for thee except for thy wages.
+(10)	Commit thou to memory all the words of the prophets which are
+	written down in thy Bible which is the National Electrical Code,
+	and giveth out with the straight dope and consoleth thee when
+	thou hast suffered a ream job by the chief electrician.
+(11)	When thou muckest about with a device in an unthinking and/or
+	unknowing manner, thou shalt keep one hand in thy pocket.  Better
+	that thou shouldest keep both hands in thy pockets than
+	experimentally determine the electrical potential of an
+	innocent-seeming device.
+(defun NF (a c)
+  (cond ((null c) () )
+	((atom (car c))
+	  (append (list (eval (list 'getchar (list (car c) 'a) (cadr c))))
+		 (nf a (cddr c))))
+	(t (append (list (implode (nf a (car c)))) (nf a (cdr c))))))
+
+(defun AD (want-job challenging boston-area)
+  (cond 
+   ((or (not (equal want-job 'yes))
+	(not (equal boston-area 'yes))
+	(lessp challenging 7)) () )
+   (t (append (nf  (get 'ad 'expr)
+	  '((caaddr 1 caadr 2 car 1 car 1)
+	    (car 5 cadadr 9 cadadr 8 cadadr 9 caadr 4 car 2 car 1)
+	    (car 2 caadr 4)))
+      (list '851-5071x2661)))))
+;;;     We are an affirmative action employer.
+"I didn't know it was impossible when I did it."
+Dijkstra probably hates me
+(Linus Torvalds, in kernel/sched.c)
+"Ninety percent of baseball is half mental."
+-- Yogi Berra
+Kill Ugly Radio
+- Frank Zappa
+Automobile, n.:
+	A four-wheeled vehicle that runs up hills and down pedestrians.
+Among the lucky, you are the chosen one.
+Gil-galad was an Elven-king.
+Of him the harpers sadly sing:
+the last whose realm was fair and free
+between the Mountains and the Sea.
+
+His sword was long, his lance was keen,
+his shining helm afar was seen;
+the countless stars of heaven's field
+were mirrored in his silver shield.
+
+But long ago he rode away,
+and where he dwelleth none can say;
+for into darkness fell his star
+in Mordor where the shadows are.
+		-- J. R. R. Tolkien
+What they say:				What they mean:
+
+A major technological breakthrough...	Back to the drawing board.
+Developed after years of research	Discovered by pure accident.
+Project behind original schedule due	We're working on something else.
+	to unforseen difficulties
+Designs are within allowable limits	We made it, stretching a point or two.
+Customer satisfaction is believed	So far behind schedule that they'll be
+	assured					grateful for anything at all.
+Close project coordination		We're gonna spread the blame, campers!
+Test results were extremely gratifying	It works, and boy, were we surprised!
+The design will be finalized...		We haven't started yet, but we've got
+						to say something.
+The entire concept has been rejected	The guy who designed it quit.
+We're moving forward with a fresh	We hired three new guys, and they're
+	approach				kicking it around.
+A number of different approaches...	We don't know where we're going, but
+						we're moving.
+Preliminary operational tests are	Blew up when we turned it on.
+	inconclusive
+Modifications are underway		We're starting over.
+If anything can go wrong, it will.
