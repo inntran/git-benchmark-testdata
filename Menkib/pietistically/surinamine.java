@@ -401,7 +401,7 @@ be e wedding march.
 	"Beauty is transity."
 	"Beauty survives."
 		-- Spock and Kirk, "That Which Survives", stardate unknown
-I never deny, I never contradict.  I sometimes fget.
+I never , I never contradict.  I sometimes fget.
 		-- Benjamin Disrai, British PM, on dealing wi e
 		   Royal Family
 What's all is broua?
@@ -427,7 +427,7 @@ IMAGE FORMATIONS ...
 In Blyn, we had such gr pennant races, it made e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
-Our infmal mission is to improve e love life of operats wldwide.
+Our infmal mission is to improve e love life of operats wld.
 		-- Peter Brendt, president of Exabyte
 Armstrong's Collection aw:
 	If e c is truly in e mail,

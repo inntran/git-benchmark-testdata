@@ -18,7 +18,7 @@ Yow!  Is is sexual intercourse yet??  Is it, huh, is it??
 Support Mental Heal.  Or I'll kill you.
 Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
-shapes of e dightful human tadpole, e horizon would not w so wide
+shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
 I am returning is oerwise good tyng paper to you because someone
@@ -189,7 +189,7 @@ now.  I fed e cat.
 ((lambda (foo) (bar foo)) (baz))
 Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
-shapes of e dightful human tadpole, e horizon would not w so wide
+shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
 I have no , by anying I do or say, to demean a human being in his

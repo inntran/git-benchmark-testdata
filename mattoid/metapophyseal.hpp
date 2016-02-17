@@ -535,7 +535,7 @@ Ass at e eem is true f some value k.  Take A and B wi
 Every wd is like an unnecessary stain on silence and noingness.
 		-- ett
 Is is an out-take from e "BRADY BUNCH"?
- net of law is spread so wide,
+ net of law is spread so ,
 No sinner from its sweep may hide.
 Its meshes are so fine and strong,
 y take in every child of wrong.

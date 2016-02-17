@@ -50,7 +50,7 @@ support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argument that there is an instinctive desire for immortality,
 and that this desire proves it to be a fact, becomes puerile when it is
-recalled that there is also a powerful and widespread f of annihilation,
+recalled that there is also a powerful and spread f of annihilation,
 and that this f, on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 
@@ -392,7 +392,7 @@ Sometimes the best medicine is to stop taking something.
 Isn't it interesting that the same people who laugh at science fiction
 listen to weather forecasts and economists?
 		-- Kvin Throop III
-It is easy when we are in prosperity to give advice to the afflicted.
+It is easy when we are in pro to give advice to the afflicted.
 		-- Aeschylus
 It's been a business doing pleasure with you.
 "Trust me":
@@ -485,7 +485,7 @@ What is now proved was once only imagin'd.
 		-- William Blake
 Wake now my merry lads!  Wake and h me calling!
 Warm now be ht and limb!  The cold stone is fallen;
-Dark door is standing wide; dead hand is broken.
+Dark door is standing ; dead hand is broken.
 Night under Night is flown, and the Gate is open!
 		-- J. R. R. Tolkien
 Malek's aw:

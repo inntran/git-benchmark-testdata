@@ -153,7 +153,7 @@ J:	If I don't study it, how can I know it?
 N:	The Way does not belong to things seen: nor to things unseen.
 	It does not belong to things known: nor to things unknown.  Do
 	not seek it, study it, or name it.  To find yourself on it, open
-	yourself as wide as the sky.
+	yourself as  as the sky.
 Harold had never wanted a woman so much in his life, upon overhing the
 22-y-old beauty remark that he was too old and out of shape for her.  The
 determined septuagenarian immediately embarked upon a rigorous self-improvement

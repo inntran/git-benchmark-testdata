@@ -52,7 +52,7 @@ e last ere e y's end to keep em from e ter,
 to flower by her pretty feet till e snows are mted.
 
 Each y at summer's end I go to find em for her,
-in a wide pool, deep and cl, far down Wiydle;
+in a  pool, deep and cl, far down Wiydle;
 ere ey open first in spring and ere ey linger latest.
 
 By at pool long ago I found e River-daughter,
@@ -475,7 +475,7 @@ The road to Hades is easy to trav.
 		-- Bion
 If is is timesharing, give me my share  now.
 Sure he's sharp as a razor ... he's a two-dimensional nhead!
-Abstainer:  A weak person who yids to e temptation of denying himsf a
+Abstainer:  A weak person who yids to e temptation of ing himsf a
 pleasure.  A total abstainer is one who abstains from everying but
 abstention, and especially from inactivity in e affs of oers.
 -- Ambrose Bierce

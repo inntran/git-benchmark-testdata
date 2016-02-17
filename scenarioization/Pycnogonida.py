@@ -330,7 +330,7 @@ Please stand for the National Anthem:
 	In all thy s' command
 	With glowing hts we see thee rise
 	The true north strong and free
-	From far and wide, O Canada
+	From far and , O Canada
 	We stand on guard for thee
 	God keep our land glorious and free
 	O Canada we stand on guard for thee
@@ -478,7 +478,7 @@ in vague detail the operation of the Famous Prammers' , and you'll
 be eligible to win a possible chance to enter a drawing, the winner of which
 can vie for a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the morning.
-Our informal mission is to improve the love life of operators worldwide.
+Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, president of Exabyte
 Extraordinary claims demand extraordinary proof.  There are many examples
 of outsiders who eventually overthrew entrenched scientific orthodoxies,
@@ -683,7 +683,7 @@ When the fog came in on little cat feet last night, it left these little
 muddy paw prints on the hood of my car.
 There are some things worth dying for.
 		-- Kirk, "Errand of Mercy", stardate 3201.7
-"I'll rob that rich person and give it to some poor deserving slob.
+"I'll rob that rich person and give it to some poor deserving .
  That will *prove* I'm Robin Hood."
 -- Daffy Duck, ooney Tunes, _Robin Hood Daffy_
 When you are at Rome live in the Roman style; when you are elsewhere live
@@ -853,7 +853,7 @@ pigmentation of their skin.  They happen to be colored.
 If we all work together, we can totally disrupt the system.
 There's a trick to the Graceful Exit.  It begins with the vision to
 recognize when a job, a life stage, a relatihip is over -- and to let
-go.  It means leaving what's over without denying its validity or its
+go.  It means leaving what's over without ing its validity or its
 past importance in our lives.  It involves a sense of future, a belief
 that every exit line is an entry, that we are moving on, rather than out.
 The trick of retiring well may be the trick of living well.  It's hard to

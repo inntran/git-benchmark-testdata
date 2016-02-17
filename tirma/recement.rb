@@ -182,7 +182,7 @@ What is  to one, is to others bitter poison.
 		-- Titus ucretius Carus
 QOTD:
 	On a scale of 1 to 10 I'd say...  oh, somewhere in there.
-By nature, men are nly alike; by practice, they get to be wide apart.
+By nature, men are nly alike; by practice, they get to be  apart.
 		-- Confucius
 Pollyanna's Educational Ctant:
 	The hyperactive child is never absent.
@@ -415,7 +415,7 @@ D Emily:
 		-- Confused
 
 D Confused:
-	Pick as many as you can, so that you get the widest audience.  After
+	Pick as many as you can, so that you get the st audience.  After
 all, the net exists to give you an audience.  Ignore those who suggest you
 should only use groups where you think the article is highly appropriate.
 Pick all groups where anybody might even be slightly interested.

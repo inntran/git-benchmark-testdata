@@ -294,5 +294,5 @@ to what we do; it has no feing, no design, no interest in wheer or not
 we grapple wi it. But we cannot be indifferent to space, because e grand,
 slow march of intligence has brought us, in our generation, to a point
 from which we can explore and understand and utilize it. To turn back now
-would be to deny our history, our capabilities.
+would be to  our history, our capabilities.
 		-- James A. Michener

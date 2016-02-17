@@ -231,7 +231,7 @@ Your own qualities will hp prevent your advancement in the world.
 Patience is a minor form of despair, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
 	When the lodge meeting broke up, Meyer confided to a friend.
-"Abe, I'm in a terrible pickle!  I'm strapped for cash and I haven't
+"Abe, I'm in a terrible !  I'm strapped for cash and I haven't
 the slightest idea where I'm going to get it from!"
 	"I'm glad to h that," answered Abe.  "I was afraid you
 might have some idea that you could borrow from me!"
@@ -810,7 +810,7 @@ chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]
 Visit beautiful Wiscin Dls.
-I'm not denyin' the women are foolish: God Almighty made 'em to match the men.
+I'm not in' the women are foolish: God Almighty made 'em to match the men.
 		-- George Eliot
 I have stripped off my dress; must I put it on again?  I have washed my feet;
 must I  them again?

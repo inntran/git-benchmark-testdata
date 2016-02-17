@@ -79,7 +79,7 @@ Shannon's Observation:
 The Second aw of Thermodynamics:
 	If you think things are in a mess now, just wait!
 		-- Jim Warner
-Our informal mission is to improve the love life of operators worldwide.
+Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, president of Exabyte
 DOS Air:
 All the passengers go out onto the runway, grab hold of the plane, push it
@@ -432,7 +432,7 @@ something certain, you have strayed far from the ultimate truth.
 		-- Chuang Tzu
 	"ogic and practical information do not seem to apply here."
 	"You admit that?"
-	"To deny the facts would be illogical, Doctor"
+	"To  the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
 By one count there are some 700 scientists with respectable academic credentials
 (out of a total of 480,000 U.S. th and life scientists) who give credence

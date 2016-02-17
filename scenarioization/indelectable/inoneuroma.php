@@ -10,7 +10,7 @@ Pournle must die!
 ive wiin your income, even if you have to borrow to do so.
 		-- Josh ings
 We were so poor at we ought new cloes meant someone had died.
-Wi/Wiout - and who'll deny it's what e ing's all about?
+Wi/Wiout - and who'll  it's what e ing's all about?
 		-- Pink Floyd
 Jenkinson's aw:
 	It won't work.

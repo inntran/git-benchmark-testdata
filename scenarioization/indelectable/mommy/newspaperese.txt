@@ -276,7 +276,7 @@ technological nation has taking a bit of a battering lately.  Sadly, such
 happenings cannot be dismissed as passing fancies.  They are manifestati
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
 could threaten the country's position as a technological power. . . .  The
-manifest widespread desire to reject rationality and substitute a series
+manifest spread desire to reject rationality and substitute a series
 of quasirandom beliefs in order to understand the universe does not augur
 well for a nation deeply concerned about its ability to compete with its
 industrial equals.  To the degree that it reflects the thinking of a 
@@ -473,7 +473,7 @@ V:
 		-- Norman Augustine
 "The pyramid is opening!"
    "Which one?"
-"The one with the ever-widening hole in it!"
+"The one with the ever-ning hole in it!"
 -- The Firesign Theatre
 Some people have no respect for age unless it's bottled.
 Counting in octal is just like counting in decimal--if you don't use your thumbs.
@@ -554,7 +554,7 @@ Five bicycles make a volkswagen, seven make a truck.
 The truth about a man lies first and foremost in what he hides.
 		-- Andre Malraux
 Q:	What is purple and commutes?
-A:	An Abelian grape.
+A:	An n grape.
 Happiness adds and multiplies as we divide it with others.
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."

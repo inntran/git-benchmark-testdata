@@ -195,7 +195,7 @@ Swary				Swy even when cold  standing still
 Spontaneous/Eclectic		Scbrained
 Flexible			Desperate
 Aging child			Sf-centered adult
-Youful			Over 40 and trying to deny it
+Youful			Over 40 and trying to  it
 Good sense of hum		Watches a lot of tevision
 Wilner's Observation:
 	All conversati wi a potato should be con in private.

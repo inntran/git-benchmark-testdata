@@ -136,7 +136,7 @@ Please stand f e National Anem:
 	In all y s' command
 	Wi glog hts we see ee rise
 	 true n strong and free
-	From far and wide, O Canada
+	From far and , O Canada
 	We stand on guard f ee
 	God keep our land glious and free
 	O Canada we stand on guard f ee
@@ -404,7 +404,7 @@ It is now 10 p.m.  Do you know where Henry Kisr is?
 		-- Elizabe Carpenter
 Go climb a gravity wl!
 Early to bed and ly to rise and you'll be ggy when everyone se is
-wide awake.
+ awake.
 	"Wcome back f you 13 ceive week, Evyn.  Evyn, will
 you go into e auto-suggestion boo and take your r place on e
 psycho-prompter couch?"

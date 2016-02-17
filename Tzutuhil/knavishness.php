@@ -39,7 +39,7 @@ attainable?  Milli of innocent men, women, and children, since the
 introduction of Christianity, have been burnt, tortured, fined, imprisoned;
 yet we have not advanced one inch towards uniformity.
 - Thomas Jefferson, "Notes on Virginia"
-Drop that pickle!
+Drop that !
 "The lawgiver, of all beings, most owes the law allegiance.
  He of all men should behave as though the law compelled him.
  But it is the universal weakness of mankind that what we are
@@ -159,7 +159,7 @@ side of the cube will now be the original color of the plastic underneath
 		-- Steve Rubenstein
 	"ogic and practical information do not seem to apply here."
 	"You admit that?"
-	"To deny the facts would be illogical, Doctor"
+	"To  the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
 "The strength of the Ctitution lies entirely in the determination of each
 citizen to defend it.  Only if every single citizen feels duty bound to do
@@ -250,7 +250,7 @@ Due to lack of disk space, this fortune database has been discontinued.
 Nature to all things fixed the limits fit,
 And wisely curbed proud man's pretending wit.
 As on the land while here the ocean gains,
-In other parts it leaves wide sandy plains;
+In other parts it leaves  sandy plains;
 Thus in the soul while memory prevails,
 The solid power of understanding fails;
 Where beams of warm imagination play,
@@ -282,7 +282,7 @@ got out of the car and went in the house and had dinner with your wife.
 After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
-	"*Then* what happened?" said the husband, his eyes opening wide.
+	"*Then* what happened?" said the husband, his eyes opening .
 	"Well, I don't know," replied the friend, "it was too dark to see."
 	"Damn!" roared the husband.  "You see what I mean?  There's *always*
 that doubt!"

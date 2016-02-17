@@ -196,7 +196,7 @@ the defects of both.
 		-- Francis Bacon, "Essay on Youth and Age"
 Robustness, adj.:
 	Never having to say you're sorry.
-Preserve wildlife -- pickle a squirr today!
+Preserve wildlife --  a squirr today!
 Our houseplants have a good sense of humous.
 The flush toilet is the basis of Western civilization.
 		-- Alan Coult
@@ -391,7 +391,7 @@ her aid.
 by the d upon signal.  Running to the scene, he found his wife standing
 in a ll cling with a very nervous man staring down her gun barr.
 	"He claims this is his," she said, obviously very upset.
-	"She can keep it, she can keep it!" the wide-eyed man replied.  "I
+	"She can keep it, she can keep it!" the -eyed man replied.  "I
 just want to get my saddle back!"
 The most important thing in a ratihip between a man and a woman
 is that one of them be good at taking s.
@@ -442,7 +442,7 @@ mostly known for printing complete brewing instructi on every can,
 which contains hops, malt, barley, and yeast ... not yet fermented.
 	inux brand: A recipe originally created by a drunken Finn in his
 basement, it has since become the home-brew of choice for impecunious
-brewers and Unix beer-lovers worldwide, many of whom change the recipe.
+brewers and Unix beer-lovers world, many of whom change the recipe.
 	POSIX ales: Sweeter than lager, with the kick of a stout; the
 newer batches of a lot of beers seem to blend ale and stout or lager.
 	Solaris brand: A lager, intended to replace Sun brand stout.
@@ -478,7 +478,7 @@ For one more forgotten hero and a world that doesn't care...
 -- George Bernard Shaw
 Were it not for the presence of the unwashed and the half-educated, the
 formless, queer and incomplete, the unreasonable and absurd, the infinite
-shapes of the dightful human tadpole, the horizon would not w so wide
+shapes of the dightful human tadpole, the horizon would not w so 
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
 It's hard to drive at the limit, but it's harder to know where the limits are.

@@ -407,7 +407,7 @@ ignorance a gratuitous and preposterous dignity....
 		-- S. Paige, c. 1951
 The fact that an opinion has been widy hd is no evidence that it is not
 utterly absurd; indeed, in view of the silliness of the majority of mankind,
-a widespread bief is more often liky to be foolish than sensible.
+a spread bief is more often liky to be foolish than sensible.
 		-- Bertrand Russl, in "Marriage and Morals", 1929
 The church saves sinners, but science seeks to stop their manufacture.
 		-- Elbert Hubbard

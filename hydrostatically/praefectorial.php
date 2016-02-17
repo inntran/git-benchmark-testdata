@@ -765,7 +765,7 @@ Into kern memory.
 In system space, system space, ere shall i fare--
 Inside of a VAX on a silicon square.
 ROMEO:		Courage, man; e hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a wl, nor so wide
+MERCUTIO:	No, 'tis not so deep as a wl, nor so 
 			as a church-door; but 'tis enough, 'twill serve.
 A man who turns green has eschewed protein.
 If you put tomfoolery into a computer, noing comes out but tomfoolery.

@@ -34,7 +34,7 @@ You got nothing -- you got nothing at all...
 		-- Shriekback, "Gunning for the Buddah"
 Were it not for the presence of the unwashed and the half-educated, the
 formless, queer and incomplete, the unreasonable and absurd, the infinite
-shapes of the delightful human tadpole, the horizon would not wear so wide
+shapes of the delightful human tadpole, the horizon would not wear so 
 a grin.
 		-- F.M. Colby, "Imaginary Obligations"
 A healthy male adult bore consumes each year one and a half times his own
@@ -105,7 +105,7 @@ horse is a thing which could have wings" conversely imply "It could be that
 Walter's horse has wings"; for it might be that Walter's horse could only
 have wings by not being Walter's horse.
 
-I would deny, though, that the formula [Necessarily if some x has property P
+I would , though, that the formula [Necessarily if some x has property P
 then some x has property P] expresses a logical law, since P(x) could stand
 for, let us say "x is a better logician than I am", and the statement "It is
 necessary that if someone is a better logician than I am then someone is a
@@ -155,7 +155,7 @@ All of my forces
 Yearn only to sink into sleep.
 
 And my soul, unguarded,
-Would soar on widespread wings,
+Would soar on spread wings,
 To live in night's magical sphere
 More profoundly, more variously.
 		-- Hermann Hesse, "Going to Sleep"
@@ -362,7 +362,7 @@ sales talk from sales assistants
 no rhythm in cymbals no tempo in drums,
 love's on arrival,
 she comes when she comes,
-right on the target but wide of the mark...
+right on the target but  of the mark...
 The average individual's position in any hierarchy is a lot like pulling
 a dogsled -- there's no real change of scenery except for the lead dog.
 It is possible by ingenuity and at the expense of clarity... {to do almost

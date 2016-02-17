@@ -14,7 +14,7 @@ sales talk from sales assistants
 no rhythm in cymbals no tempo in drums,
 love's on arrival,
 she comes when she comes,
-right on the target but wide of the mark...
+right on the target but  of the mark...
 In olden times sacrifices were made at the altar -- a practice which is
 still continued.
 		-- Helen Rowland
@@ -58,7 +58,7 @@ got out of the car and went in the house and had dinner with your wife.
 After dinner they went upstairs and I saw your wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
-	"*Then* what happened?" said the husband, his eyes opening wide.
+	"*Then* what happened?" said the husband, his eyes opening .
 	"Well, I don't know," replied the friend, "it was too dark to see."
 	"Damn!" roared the husband.  "You see what I mean?  There's *always*
 that doubt!"

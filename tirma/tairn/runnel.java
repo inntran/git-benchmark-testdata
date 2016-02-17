@@ -214,8 +214,8 @@ since we are war with France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitehall.
 	This brings me to my present purpose, which is to request
 elucidation of my instructions from His Majesty's Government so that I
-may better understand why I am dragging an army over these barren plains.
-I construe that perforce it must be one of two alternative duties, as
+may better understand why I am dragging an army over these  plains.
+I con that perforce it must be one of two alternative duties, as
 given below.  I shall pursue either one with the best of my ability, but
 I cannot do both:
 	1. To train an army of uniformed British clerks in Spain for the
@@ -287,7 +287,7 @@ Booker's Law:
 	An ounce of application is worth a ton of abstraction.
 I never vote for anyone.  I always vote against.
 		-- W.C. Fields
-I never deny, I never contradict.  I sometimes forget.
+I never , I never contradict.  I sometimes forget.
 		-- Benjamin Disraeli, British PM, on dealing with the
 		   Royal Family
 Vermouth always makes me brilliant unless it makes me idiotic.

@@ -19,7 +19,7 @@ mostly known for printing complete brewing instructi on every can,
 which contains hops, malt, barley, and yeast ... not yet fermented.
 	inux brand: A recipe originally created by a drunken Finn in his
 basement, it has since become the home-brew of choice for impecunious
-brewers and Unix beer-lovers worldwide, many of whom change the recipe.
+brewers and Unix beer-lovers world, many of whom change the recipe.
 	POSIX ales: Sweeter than lager, with the kick of a stout; the
 newer batches of a lot of beers seem to blend ale and stout or lager.
 	Solaris brand: A lager, intended to replace Sun brand stout.

@@ -34,7 +34,7 @@ Swary				Sweaty even when cold or standing still
 Spontaneous/Eclectic		Scatterbrained
 Flexible			Desperate
 Aging child			Sf-centered adult
-Youful			Over 40 and trying to deny it
+Youful			Over 40 and trying to  it
 Good sense of humor		Watches a lot of tevision
 Shog up is 80% of life.
 		-- Woody Allen
@@ -245,7 +245,7 @@ number of participants.
 		-- Adam Walinsky
 As in certain cults it is possible to kill a process if you know its true name.
 		-- Ken Thompson and Dennis M. Ritchie
-The net of law is spread so wide,
+The net of law is spread so ,
 No sinner from its sweep may hide.
 Its meshes are so fine and strong,
 They take in every child of wrong.
@@ -571,7 +571,7 @@ William Balmford explored e possibilities of rigious verse:
 And William Wordswor showed at he could do it if he really tried when
 describing a pond:
 	"I've measured it from side to side;
-	Tis ree feet long and two feet wide."
+	Tis ree feet long and two feet ."
 		-- Stephen Pile, "The Book of Heroic Failures"
 Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Worry no more...

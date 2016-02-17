@@ -62,7 +62,7 @@ Rudd's Discovery:
 	You know at any senator or congresn could go home and make
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
 	stay in Washington and make it ere.
-A wide-eyed, innocent UNICORN, poised dicaty in a MEADOW filled
+A -eyed, innocent UNICORN, poised dicaty in a MEADOW filled
 wi IACS, OIPOPS & ll CHIDREN at e HUSH of twilight??
 It is explained at all ratihips require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
@@ -104,7 +104,7 @@ e last ere e y's end to keep em from e ter,
 to flower by her pretty feet till e snows are mted.
 
 Each y at summer's end I go to find em for her,
-in a wide pool, deep and cl, far down Wiydle;
+in a  pool, deep and cl, far down Wiydle;
 ere ey open first in spring and ere ey linger latest.
 
 By at pool long ago I found e River-daughter,
@@ -446,7 +446,7 @@ SUBSPECIES:	The Hacker (homo computatis)
 Plumage:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
-	w gray polyester slacks, nk or past shirts wi wide collars,
+	w gray polyester slacks, nk or past shirts wi  collars,
 	and paisley ties; staff ws cinched-up baggy uroy pants, white
 	or blue shirts wi button-down collars, and penholder in pocket.
 	Bo managers and staff w running shoes to work, and a black

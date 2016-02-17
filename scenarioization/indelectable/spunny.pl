@@ -521,7 +521,7 @@ in the same way as us.
 		-- Johann Wolfgang von Goethe
 paak, n:	A stadium or inclosed playing field. To put or leave (a
 			a vehicle) for a time in a certain location.
-patato, n:	The starchy, edible tuber of a widely cultivated plant.
+patato, n:	The starchy, edible tuber of a ly cultivated plant.
 Septemba, n:	The 9th month of the y.
 shua, n:	Having no doubt; certain.
 sista, n:	A female having the same mother and father as the speaker.

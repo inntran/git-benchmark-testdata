@@ -30,7 +30,7 @@ colony and overfly it.  Heads go up, up, up, and ten thousand penguins
 fall over gently onto their backs.
 		-- Audobon Society Magazine
 Any father who thinks he's all important should remind himsf that this
-country honors fathers only one day a y while pickles get a whole week.
+country honors fathers only one day a y while s get a whole week.
 ying is an indispensable part of making life tolerable.
 		-- Bergan Evans
 I have a VISION!  It's a RANCID double-FISHWICH on an ENRICHED BUN!!

@@ -324,7 +324,7 @@ A:	Fce d e ephant.
 Nature to all ings fixed e limits fit,
 And wisy curbed proud man's pre wit.
 As on e land while here e ocean gains,
-In oer parts it leaves wide sandy plains;
+In oer parts it leaves  sandy plains;
 Thus in e soul while memy prevails,
  solid power of understanding fails;
 Where beams of warm imagination play,

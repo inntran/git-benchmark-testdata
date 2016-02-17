@@ -326,7 +326,7 @@ A.  Wl, a gal down e road had had several of her children by Dr. Cherney,
 Confmity is e refuge of e unimaginative.
 A failure will not app until a unit has passed final inspection.
 Early to bed and ly to rise and you'll be ggy when everyone se is
-wide awake.
+ awake.
 New England ife, of course.  Why do you ask?
 Conway's aw:
 	In any ganization ere will always be one person who knows

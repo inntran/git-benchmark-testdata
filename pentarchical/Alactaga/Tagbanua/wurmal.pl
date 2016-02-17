@@ -135,7 +135,7 @@ since we are war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
 	This brings me to my present purpose, which is to request
 ucidation of my instructi from His Majesty's Government so at I
-may better understand why I am dragging an army over ese barren plains.
+may better understand why I am dragging an army over ese  plains.
 I ctrue at perfce it must be one of two alternative duties, as
 given bow.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:

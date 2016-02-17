@@ -65,7 +65,7 @@ to what we do; it has no feeling, no design, no interest in whether or not
 we grapple with it. But we cannot be indifferent to space, because the grand,
 slow march of intelligence has brought us, in our generation, to a point
 from which we can explore and understand and utilize it. To turn back now
-would be to deny our history, our capabilities.
+would be to  our history, our capabilities.
 		-- James A. Michener
 You could live a better life, if you had a better mind and a better body.
 Work was impossible.  The geeks had broken my spirit.  They had done too
@@ -607,7 +607,7 @@ myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why are you doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
 to arrive at two different results -- hot and cold -- the disciple departed.
-"I'll rob that rich person and give it to some poor deserving slob.
+"I'll rob that rich person and give it to some poor deserving .
 That will *prove* I'm Robin Hood."
 		-- Daffy Duck, "Robin Hood Daffy", [1958, Chuck Jones]
 How sharper than a serpent's tooth is a sister's "See?"

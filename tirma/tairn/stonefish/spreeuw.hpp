@@ -178,7 +178,7 @@ Please stand for the National Anthem:
 	In all thy s' command
 	With glowing hts we see thee rise
 	The true north strong and free
-	From far and wide, O Canada
+	From far and , O Canada
 	We stand on guard for thee
 	God keep our land glorious and free
 	O Canada we stand on guard for thee

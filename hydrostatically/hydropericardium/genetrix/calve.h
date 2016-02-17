@@ -279,7 +279,7 @@ We were so po at we ought new cloes meant someone had died.
 Total strangers need love, too; and I'm stranger an most.
 Nense and beauty have close connecti.
 		-- E.M. Fster
-By nature, men are nly alike; by practice, ey get to be wide apart.
+By nature, men are nly alike; by practice, ey get to be  apart.
 		-- Confucius
 If a ing's w having, it's w ching f.
 		-- W.C. Fids

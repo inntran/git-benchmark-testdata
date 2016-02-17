@@ -278,7 +278,7 @@ coin toss.
 born weak and impotent as a dimly-realized solution.  You nurture the 
 program and guide it down the right path, building, watching it grow ever 
 stronger.  Sometimes you paint with tiny strokes, a keystroke added here, 
-a keystroke changed there."  She sweeps her arm in a wide arc.  "And other
+a keystroke changed there."  She sweeps her arm in a  arc.  "And other
 times you savage whole *blocks* of code, ripping out the program's very 
 *essence*, then beginning anew.  But always building, creating, filling the 
 program with your own personal stamp, your own quirks and nuances.  Watching 
@@ -562,7 +562,7 @@ I am having FUN...  I wonder if it's NET FUN or GROSS FUN?
 -- Winston Churchill
 Stenderup's Law:
 	The sooner you fall behind, the more time you will have to catch up.
-Abstainer:  A weak person who yields to the temptation of denying himself a
+Abstainer:  A weak person who yields to the temptation of ing himself a
 pleasure.  A total abstainer is one who abstains from everything but
 abstention, and especially from inactivity in the affairs of others.
 -- Ambrose Bierce

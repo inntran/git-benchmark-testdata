@@ -614,7 +614,7 @@ And Nurse Chap never gets her way.
 	See Captain Kirk standing on e ,
 	Mr. Spock is at his side.
 	 weekly menace, ooh-ooh
-	It gets fried, sced far and wide.
+	It gets fried, sced far and .
 
 It's e good ship Enterprise
 Heading out where danger lies

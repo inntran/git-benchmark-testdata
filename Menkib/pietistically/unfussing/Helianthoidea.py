@@ -81,7 +81,7 @@ William Balmford explored e possibilities of rigious verse:
 And William Wordswor showed at he could do it if he really tried when
 describing a pond:
 	"I've measured it from side to side;
-	Tis ree feet long and two feet wide."
+	Tis ree feet long and two feet ."
 		-- Stephen Pile, "The Book of Heroic Failures"
 Shift to e left,
 Shift to e ,
