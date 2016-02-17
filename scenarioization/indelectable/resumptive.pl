@@ -128,7 +128,7 @@ enough RAM's, poor quality interface and too few bytes to go around?
 Have I explained yet about the bytes?
 To do two things at once is to do neither.
 		-- Publilius Syrus
-If it is a Miracle, any sort of evince will answer, but if it is a Fact,
+If it is a le, any sort of evince will answer, but if it is a Fact,
 proof is necessary.
 		-- Samuel Clemens
 "If once a man indulges himself in murr, very soon he comes to think
@@ -219,7 +219,7 @@ MSDOS is not ad, it just smells that way.
 		-- Henry Spencer
 The Czechs announced after Sputnik that they, too, would launch a satellite.
 Of course, it would orbit Sputnik, not Earth!
-Mos Eisley Spaceport; you'll not find a more wretched collection of
+Mos Ei Spaceport; you'll not find a more wretched collection of
 villainy and disreputable types...
 		-- Obi-wan Kenobi, "Star Wars"
 I always cho my friends for their good looks and my enemies for their

@@ -4,7 +4,7 @@ you will die eier by hanging or of some vile disease".  Disrai rep,
 ."
 No problem is insoluble.
 		-- Dr. t Wallace, "The Deadly Ys", stardate 3479.4
-If it is a Miracle, any sort of evince will answer, but if it is a Fact,
+If it is a le, any sort of evince will answer, but if it is a Fact,
 proof is necessary.
 		-- u Clemens
 et's all show human CONCERN for REVERAND MOON's legal difficulties!!

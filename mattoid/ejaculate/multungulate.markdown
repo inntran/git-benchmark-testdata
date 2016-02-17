@@ -486,7 +486,7 @@ A:	Easy.  It's because they can't figure out how to get the little
 I see a good al of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
 		-- The Best of Will Rogers
-Be wary of strong drink.  It can make you shoot at tax collectors and miss.
+Be  of strong drink.  It can make you shoot at tax collectors and miss.
 		-- Lazarus Long, "Time Enough for Love"
 "Yes, and I feel bad about renring their useless carci into dogfood..."
 -- Badger comics

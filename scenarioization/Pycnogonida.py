@@ -547,7 +547,7 @@ Up against the net, redneck mother,
 Mother who has raised your son so well;
 He's seventeen and hackin' on a Macintosh,
 Flaming spelling errors and raisin' hell...
-The use of anthropomorphic terminology when aling with computing systems
+The use of  terminology when aling with computing systems
 is a symptom of professional immaturity.
 		-- Edsger Dijkstra
 Hoaars-Faisse Gallery presents:

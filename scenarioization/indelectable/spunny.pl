@@ -377,7 +377,7 @@ The Commandments of the EE:
 
 (1)	Bew of lightning that lurketh in an uncharged connser
 	lest it cause thee to bounce upon thy buttocks in a most
-	embarrassing manner.
+	embarrassing .
 (2)	Cause thou the switch that supplieth large quantities of juice to
 	be opened and thusly tagged, that thy days may be long in this
 	thly vale of ts.

@@ -205,7 +205,7 @@ systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
   way to  e cost of living is to take your income and
 add ten percent.
-... we must be wary of granting too much power to natural section
+... we must be  of granting too much power to natural section
 by vieg all basic capacities of our brain as direct adaptati.
 I do not doubt at natural section acted in building our oversized
 brains -- and I am equally confint at our brains became large as

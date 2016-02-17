@@ -82,7 +82,7 @@ From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
 Computer, n.:
 	An ectronic entity which performs sequences of useful steps in a
-	totally unrstandable, rigorously logical manner.  If you bieve
+	totally unrstandable, rigorously logical .  If you bieve
 	this, see me about a bridge I have for  in Manhattan.
 ay off the muses, it's a very tough dollar.
 		-- S.J. Perman
@@ -753,7 +753,7 @@ OVER the unrpass!  UNDER the overpass!  Around the FUTURE and BEYOND REPAIR!!
 A robin redbreast in a cage
 Puts all Heaven in a rage.
 		-- Blake
-There is no substie for good manners, except, perhaps, fast reflexes.
+There is no substie for good s, except, perhaps, fast reflexes.
 	Chapter VIII
 
 Due to the convergence of forces beyond his comprehension, Salvatore

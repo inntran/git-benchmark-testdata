@@ -106,7 +106,7 @@ fair to warn you that of the 300 guys who switched to them in 1966,
 only two went back to women.
 		-- Mort Sahl
 Eat drink and be merry, for tomorrow they may make it illegal.
-The difference between a Miracle and a Fact is exactly the difference
+The difference between a le and a Fact is exactly the difference
 between a mermaid and a seal.
 		-- Mark Twain
 "It's not just a computer -- it's your ass."
@@ -624,7 +624,7 @@ feet, we'll have 6 more weeks of Pro football."
 -- Chuck Newcombe
 Please come home with me ... I have Tylenol!!
 Chemistry is app theology.
-		-- Augustus Stanley Owsley III
+		-- Augustus Stanley Ow III
 Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
 are not the person involved.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"

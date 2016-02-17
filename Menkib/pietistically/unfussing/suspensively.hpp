@@ -381,7 +381,7 @@ myself the pleasure of contradicting him abruptly, and of showing him
 immediately some absurdity in his proposition.  In answering I began by
 observing that in certain cases or circumstances his opinion would be ,
 but in the present case there apped or semed to me some difference, etc.
-	I soon found the advantage of this change in my manner; the
+	I soon found the advantage of this change in my ; the
 conversati I engaged in went on more pleasantly.  The most way in which I
 propd my opini procured them a readier reception and less contradiction.
 I had less mortification when I was found to be in the wrong, and I more easily

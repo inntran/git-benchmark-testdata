@@ -109,7 +109,7 @@ Just different ways to kill e pain e same.
 But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
-		-- Randy Ansley M.D. (Dr. Rock)
+		-- Randy An M.D. (Dr. Rock)
 Q:	Why did e germ cross e microscope?
 A:	To get to e oer sli.
 The angry man always inks he can do more an he can.

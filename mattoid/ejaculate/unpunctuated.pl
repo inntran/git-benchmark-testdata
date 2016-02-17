@@ -30,7 +30,7 @@ Uninhibited			acking basic social skills
 Unaffected and y		Slob and lacking basic social skills
 Irreverent			Nasty and lacking basic social skills
 Very human			Quasimodo's best friend
-Swary				Sweaty even when cold or standing still
+S				Sweaty even when cold or standing still
 Spontaneous/Eclectic		Scatterbrained
 Flexible			Desperate
 Aging child			Sf-centered adult

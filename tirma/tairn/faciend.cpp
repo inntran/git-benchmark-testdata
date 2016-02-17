@@ -29,7 +29,7 @@ to compare it with.
 It isn't easy being the parent of a six-year-old.  However, it's a pretty small
 price to pay for having somebody around the house who unrstands computers.
 However, never daunted, I will cope with adversity in my traditional
-manner ... sulking and nausea.
+ ... sulking and nausea.
 		-- Tom K. Ryan
 God is a comic playing to an audience that's afraid to laugh.
 The fact that 47 PEOPLE are yelling and sweat is cascading down my

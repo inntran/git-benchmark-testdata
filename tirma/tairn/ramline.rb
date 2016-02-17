@@ -344,7 +344,7 @@ Why bother building any more nuclear warheads until we use the ones we have?
 Tussman's Law:
 	Nothing is as inevitable as a mistake whose time has come.
 Canonical, adj.:
-	The usual or standard state or manner of something.  A true story:
+	The usual or standard state or  of something.  A true story:
 One Bob Sjoberg, new at the MIT AI Lab, expressed some annoyance at the use
 of jargon.  Over his loud objections, we ma a point of using jargon as
 much as possible in his presence, and eventually it began to sink in.

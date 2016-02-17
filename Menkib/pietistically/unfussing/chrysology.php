@@ -342,7 +342,7 @@ It looks like it's up to me to save our skins.  Get into at garbage chute,
 flyboy!
 		-- Princess eia Organa
 Why can't you be a non-confmist like everyone se?
-It may be bad manners to talk wi your mou full, but it isn't too
+It may be bad s to talk wi your mou full, but it isn't too
 good eier if you s when your head is empty.
 1 ion dollars of t ficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat ps	= Avocado's number

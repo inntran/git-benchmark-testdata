@@ -131,7 +131,7 @@ A lot of people I know believe in positive thinking, and so do I.
 I believe everything positively stinks.
 -- Lew Col
 It's not the fall that kills you, it's the landing.
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Your temporary financial embarrassment will be relieved in a surprising .
 No guts, no glory.
 Envy is a pain of mind that successful men cause their neighbors.
 		-- Onasanr

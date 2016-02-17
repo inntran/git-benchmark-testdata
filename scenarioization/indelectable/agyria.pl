@@ -328,7 +328,7 @@ true distaste.
 		   Correct Behavior"
 Command, n.:
 	Statement presented by a human and accepted by a computer in
-	such a manner as to make the human feel as if he is in control.
+	such a  as to make the human feel as if he is in control.
 I used to be a FUNDAMENTALIST, but then I heard about the HIGH
 RADIATION LEVELS and bought an ENCYCLOPEDIA!!
 You must know that a man can have only one invulnerable loyalty, loyalty

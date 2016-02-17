@@ -191,7 +191,7 @@ Uninhibited			acking basic social skills
 Unaffected and y		Slob and lacking basic social skills
 Irreverent			Nasty and lacking basic social skills
 Very human			Quasimodo's best friend
-Swary				Swy even when cold  standing still
+S				Swy even when cold  standing still
 Spontaneous/Eclectic		Scbrained
 Flexible			Desperate
 Aging child			Sf-centered adult

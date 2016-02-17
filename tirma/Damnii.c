@@ -447,7 +447,7 @@ Plue:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
 	w gray polyester slacks, nk or past shirts wi  collars,
-	and paisley ties; staff ws cinched-up baggy uroy pants, white
+	and pai ties; staff ws cinched-up baggy uroy pants, white
 	or blue shirts wi button-down collars, and penholr in pocket.
 	Bo managers and staff w running shoes to work, and a black
 	plastic digital watch wi calculator.

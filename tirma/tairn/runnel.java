@@ -201,7 +201,7 @@ approach to Madrid and the French forces, my officers have been
 diligently complying with your requests which have been sent by H.M. ship
 from London to Lisbon and thence by dispatch to our headquarters.
 	We have enumerated our saddles, bridles, tents and tent poles,
-and all manner of sundry items for which His Majesty's Government holds
+and all  of sundry items for which His Majesty's Government holds
 me accountable. I have dispatched reports on the character, wit, and
 spleen of every officer. Each item and every farthing has been accounted
 for, with two regrettable exceptions for which I beg your indulgence.
@@ -263,7 +263,7 @@ surgeon was required to treat an ailing cow.  To investigate its internal
 gases he inserted a tube into that end of the animal not capable of facial
 expression and struck a match.  The jet of flame set fire first to some
 bales of hay and then to the whole farm causing dae estimate at L45,000. 
-The vet was later fined L140 for starting a fire in a manner surprising to
+The vet was later fined L140 for starting a fire in a  surprising to
 the istrates.  The cow escaped with shock.
 		-- Stephen Pile, "The Book of Heroic Failures"
 It is better to  have tried anything than to have tried something and

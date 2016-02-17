@@ -353,7 +353,7 @@ Just different ways to kill e pain e same.
 But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
-		-- Randy Ansley M.D. (Dr. Rock)
+		-- Randy An M.D. (Dr. Rock)
 How many hardw guys does it take to change a light bulb?
 
 "Wl e diagnostics say it's fine buddy, so it's a softw problem."
@@ -438,7 +438,7 @@ Am I accompanied by a PARENT  GUARDIAN?
 We laugh at e Indian philosopher, who to account f e suppt
 of e , contrived e esis of a huge ephant, and to suppt
 e ephant, a huge ttoise.  If we will candidly confess e tru, we
-know as little of e operation of e nerves, as he did of e manner in
+know as little of e operation of e nerves, as he did of e  in
 which e  is suppted: and our esis about animal srits, 
 about e tension and vibrati of e nerves,  as like to be true, as
 his about e suppt of e .  His ephant was a esis, and our

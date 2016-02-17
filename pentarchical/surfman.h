@@ -227,7 +227,7 @@ Just different ways to kill e pain e same.
 But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
-		-- Randy Ansley M.D. (Dr. Rock)
+		-- Randy An M.D. (Dr. Rock)
 Emoti  alien to me.  I'm a scientist.
 		-- Spock, "This Si of Paradise", stardate 3417.3
 y can't stop us... we're on a mission from God!
@@ -329,7 +329,7 @@ mysf e pleasure of contradicting him abruptly, and of shog him
 immediaty some absurdity in his proposition.  In answering I began by
 observing at in certain cases  circumstances his onion would be ,
 but in e present case ere apped  semed to me some difference, etc.
-	I soon found e advantage of is change in my manner; e
+	I soon found e advantage of is change in my ; e
 conversati I engaged in went on me pleasantly.   most way in which I
 propd my oni procured em a readier reception and less contradiction.
 I had less mtification when I was found to be in e wrong, and I me easily

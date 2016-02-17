@@ -85,7 +85,7 @@ surgeon was required to treat an ailing cow.  To investigate its internal
 gases he inserted a tube into at end of e animal not capable of facial
 expression and struck a match.  The jet of flame set fire first to some
 bales of hay and en to e whole farm causing dae estimate at 45,000. 
-The vet was later fined 140 for starting a fire in a manner surprising to
+The vet was later fined 140 for starting a fire in a  surprising to
 e istrates.  The cow escaped wi shock.
 		-- Stephen Pile, "The Book of Heroic Failures"
 Save gas, don't eat beans.
@@ -479,7 +479,7 @@ Senate, got on better wi e House of Representatives.  A popular
 story circulating during his presincy concerned e night he was
 roused by his wife crying, "Wake up!  I ink ere  burglars in e
 house."
-	"No, no, my d," said e presint sley, "in e Senate maybe,
+	"No, no, my d," said e presint , "in e Senate maybe,
 but not in e House."
 Fortune's diet trus:
 1:  Forget what e cooks say, plain yogurt tastes noing like sour cream.
