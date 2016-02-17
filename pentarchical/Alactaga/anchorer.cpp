@@ -23,7 +23,7 @@ and just befe you realize what is wrong with it.
 1893  ideal brain tonic
 1900 Drink Coca-Cola -- delicious and refreshing -- 5 cents at all
 	soda fountains
-1905 Is the favite drink f LADIES when thirsty -- weary -- despondent
+1905 Is the favite drink f LADIES when thirsty -- weary -- ent
 1905 Refreshes the weary, brightens the intellect and clears the brain
 1906  drink of QUALITY
 1907 Good to the last drop
@@ -416,7 +416,7 @@ Love sometimes expresses itself in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 I enjoy the time that we spend together.
  instrnts of science do not in themselves discover truth.  And there are
-searchings that are not concluded by the coincidence of a pointer and a mark.
+searchings that are not concluded by the co of a pointer and a mark.
 		-- Fred Saberhagen, " Berserker Wars"
 	" combination of a number of things to make existence wthwhile."
 	"Yes, the philosophy of 'none,' meaning 'all.'"

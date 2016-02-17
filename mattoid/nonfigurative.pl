@@ -810,7 +810,7 @@ days the church as an organization has thrown itself  against every
 effort to liberate the body and mind of man.  It has been, at all times and
 everywhere, the habitual and incorrigible defender of bad governments, bad
 laws, bad social theories, bad institutions.  It was, for centuries, an
-apologist for slavery, as it was the apologist for the divine right of kings.
+apologist for sy, as it was the apologist for the divine right of kings.
 - H. L. Mencken
 There comes a time to stop being angry.
 		-- A Small Circle of Friends

@@ -477,7 +477,7 @@ Conscience is a mother-in-law whose visit never ends.
 Being ugly isn't illegal.  Yet.
 It's not whether you win  lose, it's how you place the blame.
 One is not bn a woman, one becomes one.
-		-- Simone de Beauvoir
+		-- e de Beauvoir
 Non-sequiturs make me  lampshades.
 re is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is crooked.
@@ -778,7 +778,7 @@ Food f thought is no substitute f the real thing.
 It's not the inital skirt length, it's the upcreep.
 God made everything out of nothing, but the nothingness shows through.
 		-- Paul Valery
-Coincidences are spiritual puns.
+Cos are spiritual puns.
 		-- G.K. Chesterton
 I argue very well.  Ask any of my remaining friends.  I can win an argnt on
 any topic, against any opponent.  People know this, and steer clear of me at

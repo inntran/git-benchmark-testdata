@@ -377,15 +377,15 @@ clutching his ankle.  The other two tried to make their getaway, but got
 trapped in the revolving doors again.
 This life is yours.  Some of it was given to you; the rest, you made yourself.
 Abstract:
-	This study examined the incidence of neckwear tightness  a group
+	This study examined the  of  tightness  a group
 of 94 white-collar working men and the effect of a tight business-shirt collar
 and tie on the visual performance of 22 male subjects.  Of the white-collar
-men measured, 67% were found to be wearing neckwear that was tighter than
+men measured, 67% were found to be wearing  that was tighter than
 their neck circumference.  The visual discrimination of the 22 subjects was
 evaluated using a critical flicker frequency (CFF) test.  Results of the CFF
-test indicated that tight neckwear significantly decreased the visual
+test indicated that tight  significantly decreased the visual
 performance of the subjects and that visual performance did not improve
-immediately when tight neckwear was removed.
+immediately when tight  was removed.
 		-- Langan, L.M. and Watkins, S.M. "Pressure of Menswear on the
 		   Neck in Relation to Visual Performance."  Human Fs 29,
 		   #1 (Feb. 1987), pp. 67-71.

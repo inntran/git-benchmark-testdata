@@ -85,7 +85,7 @@ Brook's Law:
 Westheimer's Discovery:
 	A couple of months in the laboratory can frequently save a
 	couple of hours in the library.
-Work without a vision is slavery, Vision without work is a pipe dream,
+Work without a vision is sy, Vision without work is a pipe dream,
 But vision with work is the hope of the world.
 Regression analysis:
 	Mathematical techniques for trying to understand why things are
@@ -326,7 +326,7 @@ art.
 pixel, n.:
 	A mischievous, magical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
-	Witness the sprites in computer graphics, the demons in artificial
+	Witness the es in computer graphics, the demons in artificial
 	intelligence, and the trolls in the ing department.
 Main's Law:
 	For every action there is an equal and opposite government program.
@@ -642,7 +642,7 @@ requires reasoning while those other subjects merely require scholarship.
 	the potable concoction produced by steeping certain coupestibles.
 -- The person presenting the ultimate cachinnation possesses thereby the
 	optimal cachinnation.
--- Eleemosynary deeds have their initial incidence intramurally.
+-- Eleemosynary deeds have their initial  intramurally.
 	There was once a programmer who was attached to the court of the
 warlord of Wu.  The warlord asked the programmer: "Which is easier to design:
 an accounting package or an operating system?"

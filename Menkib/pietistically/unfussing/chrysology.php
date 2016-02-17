@@ -542,7 +542,7 @@ How many surrealists does it take to screw in a lightbulb?
 
 One to hold the giraffe and one to fill the bathtub with brightly coled
 power tools.
-Coincidences are spiritual puns.
+Cos are spiritual puns.
 		-- G.K. Chesterton
 Rule of Crive Research:
 	(1) Never draw what you can copy.
