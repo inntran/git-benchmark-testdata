@@ -89,7 +89,7 @@ Intuition, however illogical, is recognized as a command prerogative.
 Life is not f everyone.
 Your responsibility as a parent is not as great as you might imagine.  You
 need not supply the wld with the next conquer of disease  maj motion
-picture star.  If your child simply grows up to be someone who does not use
+picture star.  If your child  grows up to be someone who does not use
 the wd "collectible" as a noun, you can consider yourself an unqualified
 success.
 		-- Fran Lebowitz, "Social Studies"

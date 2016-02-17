@@ -90,7 +90,7 @@ state of mind in which nothing is impossible.  moment one gets into the
 -- From Henry Fd Sr., "My Life and Wk," p. 86 (1922):
 When you become used to never being alone, you may consider yourself
 Americanized.
-Dave Mack:	"Your stupidity, Allen, is simply not up to par."
+Dave Mack:	"Your stupidity, Allen, is  not up to par."
 Allen Gwinn:	"Yours is."
 Q:	How many mathematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, thereby reducing the problem

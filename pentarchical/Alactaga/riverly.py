@@ -371,7 +371,7 @@ You can't fall off the flo.
 Yevtushenko has... an ego that can crack crystal at a distance of twenty t.
 		-- John Cheever
 "Dump the condiments.  If we are to be eaten, we don't need to taste good."
--- "Visionaries" cartoon
+-- "Visionaries" oon
 He is considered a most graceful speaker who can say nothing in the most wds.
 Today is the first day of the rest of your lossage.
 Thrashing is just virtual crashing.

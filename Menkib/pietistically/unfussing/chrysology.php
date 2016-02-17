@@ -77,7 +77,7 @@ Well, don't wry about it...  It's nothing.
 "If the King's English was good enough f Jesus, it's good enough f me!"
 		-- "Ma" Ferguson, Govern of Texas (circa 1920)
 A famous Lisp Hacker noticed an Undergraduate sitting in front of a Xerox
-1108, trying to edit a complex Klone netwk via a browser. Wanting to
+1108, trying to edit a complex Klone netwk via a r. Wanting to
 help, the Hacker clicked one of the nodes in the netwk with the mouse,
 and asked "what do you see?" Very earnestly, the Undergraduate replied "I
 see a curs."  Hacker then quickly pressed the boot toggle at the back

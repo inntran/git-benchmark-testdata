@@ -148,7 +148,7 @@ Don't speak about Time, until you have spoken to him.
 Machines that have broken down will work perfectly when the repairman arrives.
 Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
-"I don't think so," said Ren'e Descartes.  Just then, he vanished.
+"I don't think so," said Ren'e Deses.  Just then, he vanished.
 Is that really YOU that is reading this?
 The older I grow, the more I distrust the familiar doctrine that age
 brings wisdom.
@@ -173,7 +173,7 @@ Couldn't be any worse than some of the relationships I've had.
 sets for under $4?" An excellent question.
 	Go to one of those really cheap discount stores where they sell
 plastic furniture in colors visible from the planet Neptune and where they
-have a food section specializing in cardboard cartons full of Raisinets and
+have a food section specializing in cardboard ons full of Raisinets and
 malted milk balls manufactured during the Nixon administration.  In either
 the hardware or housewares department, you'll find an item imported from an
 obscure Oriental country and described as "Nine Tools in One", consisting of
@@ -208,7 +208,7 @@ see her little dog Pritzi again.
 
 It could have been an organically based disturbance of the brain -- perhaps a
 tumor or a metabolic deficiency -- but after a thorough neurological exam it
-was determined that Byron was simply a jerk.
+was determined that Byron was  a jerk.
 		-- Jeff Jahnke, runner-up
 
 Winners in the 7th Annual Bulwer-Lytton Bad Writing Contest.  The contest is
@@ -426,7 +426,7 @@ by the efforts of its originator but, indeed, independently of him as well.
 An expert is one who knows more and more about less and less until he knows
 absolutely everything about nothing.
 Lactomangulation, n.:
-	Manhandling the "open here" spout on a milk carton so badly
+	Manhandling the "open here" spout on a milk on so badly
 	that one has to resort to using the "illegal" side.
 		-- Rich Hall, "Sniglets"
 Why would anyone want to be called "Later"?
@@ -619,7 +619,7 @@ but true", while the powers of 2 are all extremely odd numbers.
 If only God would give me some clear sign!  Like making a large deposit
 in my name at a Swiss Bank.
 - Woody Allen
-The first Rotarian was the first man to call John the Baptist "Jack."
+The first R was the first man to call John the Baptist "Jack."
 		-- H.L. Mencken
 It is not for me to attempt to fathom the inscrutable workings of Providence.
 		-- The Earl of Birkenhead

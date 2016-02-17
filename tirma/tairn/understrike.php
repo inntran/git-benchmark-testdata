@@ -96,7 +96,7 @@ guzzled in one gulp and then smashed on the bar.  He then stood aghast as
 the man stuffed the broken bottle in his mouth, munched broken glass and
 smacked his lips with relish.
 	"Can I, ah, uh, get you another, sir?" the drifter stammered.
-	"Naw, I gotta git outa here, boy," the man grunted.  "Big Mike's
+	"Naw, I gotta git outa here, boy," the man g.  "Big Mike's
 a-comin'."
 User n.:
 	A programmer who will believe anything you tell him.
@@ -400,7 +400,7 @@ and and And, and And and and, and and and And, and And and and, and and and
 Chips, as well as after Chips?
 It's not against any religion to want to dispose of a pigeon.
 		-- Tom Lehrer, "Poisoning Pigeons in the Park"
-Love at first sight is one of the greatest labor-saving devices the
+Love at first sight is one of the greatest labor-g devices the
 world has ever seen.
 I've noticed several design suggestions in your code.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:

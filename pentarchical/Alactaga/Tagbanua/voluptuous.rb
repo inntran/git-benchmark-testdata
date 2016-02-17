@@ -42,7 +42,7 @@ up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
 our t never once went below the surface of the water.  We ran all
 the way to the far she, and if we had been in a Warner Brothers
-cartoon we would have run right INTO the beach, and you would have seen
+oon we would have run right INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
 into trees and coconuts fell onto their heads.
 		-- Dave Barry, " Wonders of Sharks on TV"

@@ -80,7 +80,7 @@ it.  Vital papers will demonstrate their vitality by spontaneously moving
 from where you left them to where you can't find them.
 Fats Loves Madelyn.
 Tomrow will be cancelled due to lack of interest.
-"I don't think so," said Ren'e Descartes.  Just then, he vanished.
+"I don't think so," said Ren'e Deses.  Just then, he vanished.
 My EARS are GONE!!
 I try not to break the rules but merely to test their elasticity.
 		-- Bill Veeck

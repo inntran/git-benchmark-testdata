@@ -145,7 +145,7 @@ benefit of the accountants and copy-boys in London  perchance:
 		-- Duke of Wellington, to the British Feign Office,
 		   London, 1812
 Life is a game of bridge -- and you've just been finessed.
-Relations are simply a tedious pack of people, who haven't the remotest
+Relations are  a tedious pack of people, who haven't the remotest
 knowledge of how to live, n the smallest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
 Lost interest?  It's so bad I've lost apathy.

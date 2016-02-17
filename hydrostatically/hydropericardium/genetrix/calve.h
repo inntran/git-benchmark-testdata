@@ -458,7 +458,7 @@ necessary, family, hobbies, and friends -- if you had any of these left
 (and you might not, if you had signed up too many times befe).
 		-- Tracy Kidder, " Soul of a New Machine"
 "Dump the condiments.  If we are to be eaten, we don't need to taste good."
--- "Visionaries" cartoon
+-- "Visionaries" oon
 Life Sucks.  Cynical, misanthropic male, 34, looking f soul mate but
 certain not to find her.  Drop me a note.  I'll call you, we'll talk and
 I'll ask you out to dinner where I'll probably spend me than I can

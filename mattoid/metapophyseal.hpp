@@ -81,7 +81,7 @@ Would it help to ease the pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
 After all, what is your hosts' purpose in having a party?  Surely not f
-you to enjoy yourself; if that were their sole purpose, they'd have simply
+you to enjoy yourself; if that were their sole purpose, they'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 Put a rogue in the limelight and he will act like an honest man.
@@ -316,7 +316,7 @@ Groceries:
 and buys these things.  A man waits 'til the only items left in his fridge
 are half a lime and a Blue Ribbon.  n he goes grocery shopping.  He buys
 everything that looks good.  By the time a man reaches the checkout counter,
-his cart is packed tighter that the Clampett's car on Beverly Hillbillies.
+his  is packed tighter that the Clampett's car on Beverly Hillbillies.
 Of course, this will not stop him from entering the 10-items--less lane.
 Love is the triumph of imagination over intelligence.
 		-- H. L. Mencken

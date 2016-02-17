@@ -76,7 +76,7 @@ Oh, so there you are!
 People (a group that in my opinion has always attracted an undue amount of
 attention) have often been likened to snowflakes.  This analogy is meant to
 suggest that each is unique -- no two alike.  This is quite patently not the
-case.  People ... are simply a dime a dozen.  And, I hasten to add, their
+case.  People ... are  a dime a dozen.  And, I hasten to add, their
 only similarity to snowflakes resides in their invariable and lamentable
 tendency to turn, after a few warm days, to slush.
 		-- Fran Lebowitz, "Social Studies"
@@ -141,7 +141,7 @@ victuals being spent and especially our beer."
 I see a good deal of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can affd to pay 'em.
 		--  Best of Will Rogers
-Paranoia is simply an optimistic outlook on life.
+Paranoia is  an optimistic outlook on life.
 Finding out what goes on in the C.I.A. is like perfming acupuncture
 on a rock.
 		-- New Yk Times, Jan. 20, 1981
@@ -358,7 +358,7 @@ Whip it, baby.
 Whip it all night!
 Cruickshank's Law of Committees:
 	If a committee is allowed to discuss a bad idea long enough, it
-	will inevitably decide to implement the idea simply because so
+	will inevitably decide to implement the idea  because so
 	much wk has already been done on it.
 Life would be so much easier if we could just look at the source code.
 	-- Dave Olson

@@ -1,7 +1,7 @@
 Civilization, as we know it, will end sometime this evening.
 See SYSNOTE tomrow f me infmation.
 After all, what is your hosts' purpose in having a party?  Surely not f
-you to enjoy yourself; if that were their sole purpose, they'd have simply
+you to enjoy yourself; if that were their sole purpose, they'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 On account of being a democracy and run by the people, we are the only
@@ -97,7 +97,7 @@ you can always change the channel.
 news: gotcha
 "sic transit discus mundi"
 (From the System Administrat's Guide, by Lars Wirzenius)
-Lawrence Radiation Labaty keeps all its data in an old gray trunk.
+Lawrence R Labaty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
 " wages of sin are death; but after they're done taking out taxes,

@@ -555,7 +555,7 @@ entering, the British blatantly violated every conceivable convention,
 and, though they went through the house virtually bit by bit, their
 search was fruitless.  They had to return empty handed.  Word of the
 incident propagated rapidly through the region.  This historic event
-became the first documented use of core storage for the saving of registers.
+became the first documented use of core storage for the g of registers.
 Many people resent being treated like the person they really are.
 Ducks?  What ducks??
 May those that love us love us; and those that don't love us, may
@@ -863,7 +863,7 @@ of those honors or rewards which are allowed to fall within the reach of men
 who devote themselves to purely scientific investigations...  
 
 If the work upon which I have bestowed so much time and thought were a mere
-triumph over mechanical difficulties, or simply curious, or if the execution
+triumph over mechanical difficulties, or  curious, or if the execution
 of such engines were of doubtful practicability or utility, some justification
 might be found for the course which has been taken; but I venture to assert
 that no mathematician who has a reputation to lose will ever publicly express
