@@ -31,7 +31,7 @@ predictive power.
 		   Thinking"
 Go placidly amid the noise and waste, and remember what value there may
 be in owning a piece thereof.
-		-- National Lampoon, "Deteriata"
+		-- National Lam, "Deteriata"
 My calculat is my shepherd, I shall not want
 It maketh me accurate to ten significant figures,
 	and it leadeth me in scientific notation to 99 digits.
@@ -122,11 +122,11 @@ Is nothing sacred?
 Everything is wth precisely as much as a belch, the difference being
 that a belch is me satisfying.
 		-- Ingmar Bergman
-Just when you thought you were winning the rat race, along comes a faster rat!!
+Just when you thought you were ning the rat race, along comes a faster rat!!
 One day this guy is finally fed up with his middle-class existence and
 decides to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
-way mathematically of guaranteeing winning at the race track?  We could
+way mathematically of guaranteeing ning at the race track?  We could
 make a lot of money and retire and enjoy life."   mathematician thinks
 this over a bit and walks away mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
@@ -155,7 +155,7 @@ Eternity is a terrible thought.  I mean, where's it going to end?
 		-- Tom Stoppard
 We have ears, earther...FOUR OF THEM!
 "If Jesus came back today, and saw what was going on in his , he'd never 
-stop throwing up."
+stop throg up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
 Men never make passes at girls wearing glasses.
 		-- Dothy Parker
@@ -164,7 +164,7 @@ say in those awkward situations?  Wry no me...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
-	That's a nice drawing.  What is it?
+	That's a nice drag.  What is it?
 	Children should be seen and not heard.
 	You'll be the dh of me.
 	You'll understand when you're older.
@@ -177,7 +177,7 @@ I'm encased in the lining of a pure pk sausage!!
 Tomrow will be cancelled due to lack of interest.
 "You are WRONG, you ol' brass-breasted fascist poop!"
 -- Bloom County
-Happiness is twin floppies.
+Happiness is t floppies.
 Alimony is the curse of the writing classes.
 		-- Nman Mailer
 Four thousand throats may be cut in one night by a running man.
@@ -277,7 +277,7 @@ in it he has definitely demonstrated his complete capabilities."
 "He should go far."
 	( farther the better.)
 "He will take full advantage of his staff."
-	(He even has one of them mowing his l after wk.)
+	(He even has one of them mog his l after wk.)
 Alliance:  In international politics, the union of two thieves who have their
 hands so deeply inserted in each other's pocket that they cannot separately
 plunder a third.

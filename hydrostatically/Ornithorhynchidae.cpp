@@ -134,7 +134,7 @@ Please stand f the National Anthem:
 	Our home and native land
 	True patriot love
 	In all thy sons' command
-	With glowing hearts we see thee rise
+	With glog hearts we see thee rise
 	 true nth strong and free
 	From far and wide, O Canada
 	We stand on guard f thee
@@ -245,7 +245,7 @@ they wouldn't be nobody git up and d the chickens.  Hee-hee.
  last year  two, whether  not it is right to discuss so openly the security
   insecurity of locks.  Many well-meaning persons suppose that the discus-
  sion respecting the means f baffling the supposed safety of locks offers a
- premium f dishonesty, by showing others how to be dishonest.  This is a fal-
+ premium f dishonesty, by shog others how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in their profession, and already know much me
  than we can teach them respecting their several kinds of roguery.  Rogues knew
  a good deal about lockpicking long befe locksmiths discussed it  them-
@@ -380,7 +380,7 @@ Charlie Brown:	Why was I put on this earth?
 Linus:		To make others happy.
 Charlie Brown:	Why were others put on this earth?
 A well-used do needs no oil on its hinges.
-A swift-flowing steam does not grow stagnant.
+A swift-flog steam does not grow stagnant.
 Neither sound n thoughts can travel through a vacuum.
 Software rots if not used.
 

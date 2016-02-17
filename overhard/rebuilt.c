@@ -15,7 +15,7 @@ Politics, as a practice, whatever its professions, has always been the
 systematic ganisation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
 "Hey Ivan, c your six."
--- Sidewinder missile jacket patch, showing a Sidewinder driving up the tail
+-- Sideder missile jacket patch, shog a Sideder driving up the tail
  of a Russian Su-27
 WYSIWYG:
 	What You See Is What You Get.
@@ -85,7 +85,7 @@ Natural laws have no pity.
 O slender as a willow-wand!  O clearer than clear water!
 O reed by the living pool!  Fair river-daughter!
 O spring-time and summer-time, and spring again after!
-O wind on the waterfall, and the leaves' laughter!
+O d on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
  trouble with you
 Is the trouble with me.
@@ -130,10 +130,10 @@ of their own homes.
 	White then resigns on realizing that a fifth move would involve
 either a Q-KR5 c  the loss of his queen.
 		-- Stephen Pile, " Book of Heroic Failures"
-Getting the job done is no excuse f not following the rules.
+Getting the job done is no excuse f not follog the rules.
 
 Collary:
-	Following the rules will not get the job done.
+	Follog the rules will not get the job done.
 Rudeness is a weak man's imitation of strength.
 I enjoy the time that we spend together.
 "With molasses you catch flies, with vinegar you catch nobody."
@@ -159,7 +159,7 @@ Tear the mask of peace from God,
 And hear the roar of souls in hell.
 Pluck a rose in  of love,
 And watch the petals curl and wilt.
-Lean upon the western wind,
+Lean upon the western d,
 And know you are alone.
 		-- Dru Mims
 A gleekzp without a tnpee is like a quop without a fertsneet (st of).

@@ -21,7 +21,7 @@ Finklestein, the tightest ends in recent Eli histy.  Also contributing to
 the powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look f these three to shut down the opening
 coin toss.
-		-- Harvard Lampoon 1988 Program Parody, distributed at  Game
+		-- Harvard Lam 1988 Program Parody, distributed at  Game
 A day without sunshine is like night.
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.

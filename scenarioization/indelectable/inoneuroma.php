@@ -88,7 +88,7 @@ have come to be built to stave off Hunger, Thirst and Weariness.
 	That's all right, said the priest.  I wanted to know
 what Freight was too.
 		-- Klog Albran, "The Profit"
-It's not whether you win or lose, it's how you place the blame.
+It's not whether you  or lose, it's how you place the blame.
 QOTD:
 	"I used to go to UCLA, but then my Dad got a job."
 A princess should not be afraid -- not with a brave knight to protect her.
@@ -129,9 +129,9 @@ WARNING:
 	children under eight years of age.
 The price one pays for pursuing any profession, or calling, is an intimate
 knowledge of its ugly side.
-		-- James Baldwin
+		-- James Bald
 Every time you manage to close the door on Reality, it comes in through the
-window.
+dow.
 Nature makes boys and girls lovely to look upon so they can be
 tolerated until they acquire some sense.
 		-- William Phelps
@@ -201,7 +201,7 @@ Give all orders verbally.  Never write anything down that might go into a
 Fortune Docnts the Great Legal Decisions:
 
 We can  no reason why, with ordinary care, human toes could not be
-left out of chewing tobacco, and if toes are found in chewing tobacco, it
+left out of cheg tobacco, and if toes are found in cheg tobacco, it
 seems to us that someone has been very careless.
 		-- 78 So. 365.
 They are relatively good but absolutely terrible.
@@ -229,7 +229,7 @@ Who messed with my anti-paranoia shot?
 -- Dave Mack (mack@inco.UUCP)
 
 "Yours is."
--- Allen Gwinn (allen@sulaco.sigma.com), in alt.flame
+-- Allen Gn (allen@sulaco.sigma.com), in alt.flame
 The Road goes ever on and on
 Down from the door where it began.
 Now far ahead the Road has gone,
@@ -240,7 +240,7 @@ Where many paths and errands meet.
 And whither then?  I cannot say.
 		-- J. R. R. Tolkien
 well-adjusted, adj.:
-	The ability to play bridge or golf as if they were games.
+	The ability to play  or golf as if they were games.
 It is better to give than to lend, and it costs about the same.
 The algorithm for finding the longest path in a graph is NP-complete.
 For you systems people, that means it's *real slow*.
@@ -397,11 +397,11 @@ This fortune is dedicated to your mother, without whose invaluable assistance
 last night would never have been possible.
 History shows that the human mind, fed by constant accessions of knowledge,
 periodically grows too large for its theoretical coverings, and bursts
-them asunder to appear in new habiliments, as the feeding and growing
+them asunder to appear in new habiliments, as the feeding and grog
 grub, at intervals, casts its too narrow skin and asss another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
-- Charles Darwin, from "Origin of the Species"
+- Charles Dar, from "Origin of the Species"
 Rebellion lay in his way, and he found it.
 		-- William Shakespeare, "Henry IV"
 You will have a long and boring life.

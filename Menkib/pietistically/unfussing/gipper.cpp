@@ -3,12 +3,12 @@ Yeah, Ah  up this mnin' an' I had myself a beer
  future's uncertain and the end is always near.
 		-- Jim Mrison, "Roadhouse Blues"
 Wth seeing?  Yes, but not wth going to see.
-Godwin's Law (prov.  [Usenet]):
+God's Law (prov.  [Usenet]):
 	As a Usenet discussion grows longer, the probability of a
 	comparison involving Nazis  Hitler approaches one." re is a
 	tradition in many groups that, once this occurs, that thread is
 	over, and whoever mentioned the Nazis has automatically lost
-	whatever argnt was in progress.  Godwin's Law thus guarantees
+	whatever argnt was in progress.  God's Law thus guarantees
 	the existence of an upper bound on thread length in those groups.
 Life is a hospital in which every patient is possessed by the desire to
 change his bed.
@@ -84,7 +84,7 @@ make the simple next step of suppting multitasking."
 -- Gege McFry
 All generalizations are false, including this one.
 		-- Mark Twain
-Delta: We're Amtrak with wings.    -- David Letterman
+Delta: We're Amtrak with gs.    -- David Letterman
 It's always darkest just befe it gets pitch black.
 We've sent a man to the moon, and that's 29,000 miles away.   center
 of the Earth is only 4,000 miles away.  You could drive that in a week,

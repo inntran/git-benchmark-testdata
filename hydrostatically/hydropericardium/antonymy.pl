@@ -29,7 +29,7 @@ It takes all kinds to fill the freeways.
 		-- Crazy Charlie
 Adding sound to movies would be like putting lipstick on the Venus de Milo.
 		-- actress Mary Pickford, 1925
-Trailing Edge Technologies is pleased to announce the following
+Trailing Edge Technologies is pleased to announce the follog
 TETflame programme:
 
 1) For a negotiated price (no quatloos accepted) one of our flaming
@@ -102,7 +102,7 @@ Amid the world of  trees!
 
 O stars that in the Sunless Year
 With shining hand by her were sown,
-In windy fields now bright and clear
+In dy fields now bright and clear
 We see you silver blossom blown!
 
 	O Elth!  Gilthoniel!
@@ -299,5 +299,5 @@ proof by semantic shift:
 	for the statement of the result.
 
 proof by appeal to intuition:
-	Cloud-shaped drawings frequently help here.
+	Cloud-shaped drags frequently help here.
 To program is to be.

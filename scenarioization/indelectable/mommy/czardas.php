@@ -12,7 +12,7 @@ Stay together, drag each other down.
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
 		-- Ambrose Bierce, " Devil's Dictionary"
-X windows:
+X dows:
 	 ultimate bottleneck.
 	Flawed beyond belief.
 	 only thing you have to .
@@ -22,7 +22,7 @@ X windows:
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
 	Belongs me to the problem set than the solution set.
-	To err is X windows.
+	To err is X dows.
 	Ignance is our most imptant resource.
 	Complex nonsolutions to simple nonproblems.
 	Built to fall apart.
@@ -32,7 +32,7 @@ X windows:
 	 defacto substandard.
 
 Elevating brain damage to an art fm.
-	X windows.
+	X dows.
 After 35 years, I have finished a comprensive study of European
 comparative law.  In Germany, under the law, everything is prohibited,
 except that which is permitted.  In France, under the law, everything
@@ -137,7 +137,7 @@ fest, hunting bear.  y'd rented a cabin, and, when they got there, took
 their backpacks off and put them .  At which point the salesman turned
 to his friend, and said, "You unpack while I go and find us a bear."
 	Puzzled, the analyst finished unpacking and then went and sat down
-on the pch.  Soon he could hear rustling noises in the fest.   noises
+on the pch.  Soon he could hear  noises in the fest.   noises
 got nearer -- and louder -- and suddenly there was the salesman, running like
 hell across the clearing toward the cabin, pursued by one of the largest and
 most ferocious grizzly bears the analyst had ever seen.

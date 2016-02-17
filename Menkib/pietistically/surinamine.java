@@ -48,7 +48,7 @@ have a map to the next joint?
 You know you've landed gear-up when it takes full power to taxi.
 Speak softly and carry a +6 two-handed swd.
 I have a TINY BOWL in my HEAD
-"Virtual" means never knowing where your next byte is coming from.
+"Virtual" means never knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
 I don't have any solution but I certainly admire the problem.
 		-- Ashleigh Brilliant
@@ -206,7 +206,7 @@ systematic ganisation of hatreds.
   way to figure the cost of living is to take your income and
 add ten percent.
 ... we must be wary of granting too much power to natural selection
-by viewing all basic capacities of our brain as direct adaptations.
+by vieg all basic capacities of our brain as direct adaptations.
 I do not doubt that natural selection acted in building our oversized
 brains -- and I am equally confident that our brains became large as
 an adaptation f definite roles (probably a complex set of interacting
@@ -228,7 +228,7 @@ other hand, I respect and envy the people who get inspiration from their
 religions.
 		-- Benjamin Spock
 Hum in the Court:
-Q: (Showing man picture.) That's you?
+Q: (Shog man picture.) That's you?
 A: Yes, sir.
 Q: And you were present when the picture was taken, right?
 On Thanksgiving Day all over America, families sit down to dinner at the
@@ -274,7 +274,7 @@ Shtest distance between two jokes		= A straight line
 1 Mole						= 007 Secret Agents
 1 Mole						= 25 Cagey Bees
 1 Dog Pound					= 16 oz. of Alpo
-1000 beers served at a Twins game		= 1 Killibrew
+1000 beers served at a Ts game		= 1 Killibrew
 2.4 ste miles of surgical tubing at Yale U. = 1 I.V.League
 2000 pounds of chinese soup			= 1 Won Ton
 10 to the minus 6th power mouthwashes		= 1 Microscope
@@ -322,7 +322,7 @@ lawyers and 700 accountants.  This suggests that "the U.S. proption of
 pie-bakers and pie-dividers is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
-Who goeth a-browing goeth a-srowing.
+Who goeth a-brog goeth a-srog.
 		-- Thomas Tusser
 Your analyst has you mixed up with another patient.  Don't believe a
 thing he tells you.
@@ -330,7 +330,7 @@ thing he tells you.
 (2) Nothing is always.
 (3) Everything is sometimes.
 Everybody is given the same amount of hmones, at birth, and
-if you want to use yours f growing hair, that's fine with me.
+if you want to use yours f grog hair, that's fine with me.
 People's Action Rules:
 	(1) Some people who can, shouldn't.
 	(2) Some people who should, won't.
@@ -346,11 +346,11 @@ A.  Four times.
 If the presence of electricity can be made visible in any part of a circuit, I
 see no reason why intelligence may not be transmitted instantaneously by
 electricity.  -- Samuel F. B. Mse
-Getting the job done is no excuse f not following the rules.
+Getting the job done is no excuse f not follog the rules.
 
 Collary:
-	Following the rules will not get the job done.
- following quote is from page 4-27 of the MSCP Basic Disk Functions
+	Follog the rules will not get the job done.
+ follog quote is from page 4-27 of the MSCP Basic Disk Functions
 Manual which is part of the UDA50 Programmers Doc Kit manuals:
 
 As stated above, the host area of a disk is structured as a vect of
@@ -408,7 +408,7 @@ What's all this brouhaha?
 Rhode's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, empirically, 
-	circuitously proven, derived, implied, inferred, induced, de,
+	circuitously proven, derived, implied, inferred, d, de,
 	estimated,  scily guessed, it will always f the purpose
 	of convenience, expediency, political advantage, material gain, 
 	personal comft,  any combination of the above,  none of the

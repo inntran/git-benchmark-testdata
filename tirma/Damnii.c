@@ -34,11 +34,11 @@ Your wig steers the gig.
 Correction notice in the Miami Herald: "Last Sunday, The Herald erroneously
 reported that original Dolphin Johnny Holmes had been an insurance salesman
 in Raleigh, North Carolina, that he had won the New York lottery in 1982 and
-lost the money in a land swindle, that he had been charged with vicular
+lost the money in a land sdle, that he had been charged with vicular
 homicide, but acquitted because his mother said she drove the car, and that
 he stated that the funniest thing he ever saw was Flipper spouting water on
 George Wilson.  Each of these items was erroneous material published
-inadvertently.  He was not an insurance salesman in Raleigh, did not win the
+inadvertently.  He was not an insurance salesman in Raleigh, did not  the
 lottery, neither he nor his mother was charged or involved in any way with
 vicular homicide, and he made no comment about Flipper or George Wilson.
 The Herald regrets the errors."
@@ -100,11 +100,11 @@ these only gave life, those the art of living well.
 		-- Aristotle
 I had an errand there: gathering water-lilies,
 green leaves and lilies white to please my pretty lady,
-the last ere the year's end to keep them from the winter,
+the last ere the year's end to keep them from the ter,
 to flower by her pretty feet till the snows are melted.
 
 Each year at summer's end I go to find them for her,
-in a wide pool, deep and clear, far down Withywindle;
+in a wide pool, deep and clear, far down Withydle;
 there they open first in spring and there they linger latest.
 
 By that pool long ago I found the River-daughter,
@@ -239,7 +239,7 @@ keep all our old mistakes.
 		-- Dennie van Tassel
 Ho! Ho! Ho! to the bottle I go
 To heal my heart and drown my woe.
-Rain may fall and wind may blow,
+Rain may fall and d may blow,
 And many miles be still to go,
 But under a tall tree I will lie,
 And let the clouds go sailing by.
@@ -252,7 +252,7 @@ When does later become never?
 Lincoln would be doing if he were alive today?
 	1) Writing his irs of the Civil War.
 	2) Advising the President.
-	3) Desperately clawing at the  of his
+	3) Desperately clag at the  of his
 	   coffin."
 -- David Letterman
 Don't everyone thank me at once!
@@ -419,7 +419,7 @@ Those William's would be better unread --
 But the gr reputation I found that I'd won,
 	Made it pointless to think any more."
 A language that doesn't affect the way you think about programming is
-not worth knowing.
+not worth knog.
 Even if you can deceive people about a product through misleading statements,
 sooner or later the product will speak for itself.
 - Hajime Karatsu
@@ -491,7 +491,7 @@ A:	So they can dress like pimps.
 O slender as a willow-wand!  O clearer than clear water!
 O reed by the living pool!  Fair river-daughter!
 O spring-time and summer-time, and spring again after!
-O wind on the waterfall, and the leaves' laughter!
+O d on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
 Has everyone noticed that all the letters of the word "datse" are
 typed with the left hand?  Now the layout of the QWERTYUIOP typewriter
@@ -536,9 +536,9 @@ I've looked at the listing, and it's right!
 		-- Joel Halpern
 A beer delayed is a beer denied.
 He who hoots with owls by night cannot soar with eagles by day.
-... TheysaidDoyouseethebiggreenglowinthedarkhouseuponthill?andIsaidYesIsee
-thebiggreenglowinthedarkhouseuponthillTheresabigdarkforestbetweenmeandthe
-biggreenglowinthedarkhouseuponthillandalittleoldladyridingonaHoovervacuum
+... TheysaidDoyouseethebiggreenglothedarkhouseuponthill?andIsaidYesIsee
+thebiggreenglothedarkhouseuponthillTheresabigdarkforestbetweenmeandthe
+biggreenglothedarkhouseuponthillandalittleoldladyridingonaHoovervacuum
 cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 
 	I don't even *HAVE* a dog Toto...
@@ -606,7 +606,7 @@ Your job is being a professor and researcher: That's one hell of a good excuse
 for some of the brain-damages of minix.
 (Linus Torvalds to Andrew Tanenbaum)
 Glogg (a traditional Scandinavian holiday drink):
-	fifth of dry red wine
+	fifth of dry red e
 	fifth of Aquavit
 	1 and 1/2 inch piece of cinnamon
 	10 cardamom seeds
@@ -616,7 +616,7 @@ Glogg (a traditional Scandinavian holiday drink):
 	a few pieces of dried orange peel
 	5 cloves
 	1/2 lb. sugar cubes
-	H up the wine and hard stuff (which may be substituted with wine
+	H up the e and hard stuff (which may be substituted with e
 for the faint of heart) in a big pot after adding all the other stuff EXCEPT
 the sugar cubes.  Just when it reaches boiling, put the sugar in a wire
 strainer, moisten it in the hot brew, lift it out and ignite it with a match.
@@ -642,7 +642,7 @@ my wife's brother.
 		-- Artemus Ward
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
-two lieutenants, and one rifleman, and we secured the bridge.  Never in the
+two lieutenants, and one rifleman, and we secured the .  Never in the
 history of war have so few been led by so many.
 		-- General James Gavin
 A journey of a thousand miles must begin with a single step.

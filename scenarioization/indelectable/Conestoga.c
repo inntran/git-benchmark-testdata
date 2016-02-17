@@ -37,7 +37,7 @@ exceed all expectations.
 Money is the root of all wealth.
 Revenge is a meal best served cold.
 Romeo was restless, he was ready to kill,
-He jumped out the window 'cause he couldn't sit still,
+He jumped out the dow 'cause he couldn't sit still,
 Juliet was waiting with a safety net,
 Said "don't bury me 'cause I ain't dead yet".
 		-- Elvis Costello
@@ -48,11 +48,11 @@ and all of the people some of the time,
 but you can never fool your Mom.
 I had an errand there: gathering water-lilies,
 green leaves and lilies white to please my pretty lady,
-the last ere the year's end to keep them from the winter,
+the last ere the year's end to keep them from the ter,
 to flower by her pretty feet till the snows are melted.
 
 Each year at summer's end I go to find them for her,
-in a wide pool, deep and clear, far down Withywindle;
+in a wide pool, deep and clear, far down Withydle;
 there they open first in spring and there they linger latest.
 
 By that pool long ago I found the River-daughter,
@@ -185,7 +185,7 @@ so-called quality tools sets: The handle will actually break right off if
 you accidentally hit yourself or anything else, or expose it to direct
 sunlight.
 		-- Dave Barry, "The Taming of the Screw"
-For fast-acting relief, try slowing down.
+For fast-acting relief, try slog down.
 I suppose that in a few hours I will sober up. That's such a sad
 thought. I think I'll have a few more drinks to prepare myself.
 Gr Moments in History: #3
@@ -200,7 +200,7 @@ bright caps, and her lips as dewy as the beads of fresh rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
 right road: a man like Alf Romeo.
-		-- Rachel Sheeley, winner
+		-- Rachel Sheeley, ner
 
 The hair ball blocking the drain of the shower reminded Laura she would never
 see her little dog Pritzi again.
@@ -239,7 +239,7 @@ It is so stupid of modern civilisation to have given up believing in the
 devil when he is the only explanation of it.
 		-- Ronald Knox, "Let Dons Delight"
 Notes for a ballet, "The Spell": ... Suddenly Sigmund hears the flutter of
-wings, and a group of wild swans flies across the moon ... Sigmund is
+gs, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
 un, divided lengthwise.  She enchants Sigmund, who is careful
 not to make any poultry jokes.
@@ -260,9 +260,9 @@ Conference, n.:
 	he's already decided to do.
 Nature abhors a virgin -- a frozen asset.
 		-- Clare Booth Luce
-X windows:
+X dows:
 	Something you can be ashamed of.
-	30% more entropy than the leading window system.
+	30% more entropy than the leading dow system.
 	The first fully modular software disaster.
 	Rome was destroyed in a day.
 	Warn your friends about it.
@@ -281,7 +281,7 @@ X windows:
 	More than just a generation bind.
 
 Hindenburg.  Titanic.  Edsel.
-	X windows.
+	X dows.
 What's this script do?
     unzip ; touch ; finger ; mount ; gasp ; yes ; umount ; sleep
 Hint for the answer: not everything is computer-oriented. Sometimes you're
@@ -485,7 +485,7 @@ And where does it go after it leaves the toaster?
 Machines certainly can solve problems, store information, correlate,
 and play games -- but not with pleasure.
 		-- Leo Rosten
-Every time I look at you I am more convinced of Darwin's theory.
+Every time I look at you I am more convinced of Dar's theory.
 Fortune finishes the gr quotations, #15
 
 	"Give me your tired, your poor, your huddled masses."
@@ -582,7 +582,7 @@ complete text:
 
 The IRS wants you to use this form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want the long form.
-		-- Dave Barry, "Swing Out Taxes"
+		-- Dave Barry, "Sg Out Taxes"
 All programmers are playwrights and all computers are lousy s.
 quark:
 	The sound made by a well bred duck.
@@ -642,7 +642,7 @@ Intolerance is the last defense of the insecure.
 -- Jeff Johnson
 To think contrary to one's era is heroism.  But to speak against it is madness.
 		-- Eugene Ionesco
-Life is knowing how far to go without crossing the line.
+Life is knog how far to go without crossing the line.
 Nirvana?  That's the place where the powers that be and their friends hang out.
 		-- Zonker Harris
 You'll wish that you had done some of the hard things when they were easier

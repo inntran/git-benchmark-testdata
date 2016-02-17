@@ -1,4 +1,4 @@
-Computer Science is the only discipline in which we view adding a new wing
+Computer Science is the only discipline in which we view adding a new g
 to a building as being maintenance
 		-- Jim Hning
 Warp 7 -- It's a law we can live with.
@@ -16,7 +16,7 @@ all appearing on a quiz program, were asked to complete this sentence:
 	"Easy," said the Iowan. "E-I-E-I-O."
 Money is the root of all wealth.
 	If you do your best the rest of the way, that takes care of
-everything. When we get to October 2, we'll add up the wins, and then
+everything. When we get to October 2, we'll add up the s, and then
 we'll either all go into the playoffs,  we'll all go home and play golf.
 	Both those things sound pretty good to me.
 		-- Sparky Anderson
@@ -56,11 +56,11 @@ butter on lefse.  Here is a town where the maj ur problem is dutch elm
 disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
-the winters are fierce.  But then comes the marvel of the Minneapple summer.
+the ters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
 Here's to the Minneapple.  And to its people.  Our  f style is bad
-by a healthy respect f wind chill facts.
+by a healthy respect f d chill facts.
 	And we always, always  our vegetables.
 	This is the Minneapple.
 I'm not under the alkafluence of inkahol
@@ -95,7 +95,7 @@ the firelight, afraid of the night.
     "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
     News, May 8, 1988
 Even a blind pig stumbles upon a few acns.
- ideal voice f radio may be defined as showing no substance, no sex,
+ ideal voice f radio may be defined as shog no substance, no sex,
 no owner, and a message of imptance f every housewife.
 		-- Harry V. Wade
 War spares not the brave, but the cowardly.
@@ -257,7 +257,7 @@ it.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
-Is it some kind of wine you have with breakfast?
+Is it some kind of e you have with breakfast?
  way to fight a woman is with your hat.  Grab it and run.
 	Repters like Bill Greider from the Washington Post and Him
 Naughton of the New Yk Times, f instance, had to file long, detailed,

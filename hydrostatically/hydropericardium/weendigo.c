@@ -229,7 +229,7 @@ million hardbound copies of " Naked Lunch."
 This Ftune Examined By INSPECTOR NO. 2-14
 He that composes himself is wiser than he that composes a book.
 		-- B. Franklin
-X windows:
+X dows:
 	 ultimate bottleneck.
 	Flawed beyond belief.
 	 only thing you have to .
@@ -239,7 +239,7 @@ X windows:
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
 	Belongs me to the problem set than the solution set.
-	To err is X windows.
+	To err is X dows.
 	Ignance is our most imptant resource.
 	Complex nonsolutions to simple nonproblems.
 	Built to fall apart.
@@ -249,7 +249,7 @@ X windows:
 	 defacto substandard.
 
 Elevating brain damage to an art fm.
-	X windows.
+	X dows.
 As in certain cults it is possible to kill a process if you know its true .
 		-- Ken Thompson and Dennis M. Ritchie
 Dear Emily:
@@ -269,7 +269,7 @@ Life's too sht to dance with ugly women.
 re are three reasons f becoming a writer: the first is that you need
 the money; the second that you have something to say that you think the
 wld should know; the third is that you can't think what to do with the
-long winter evenings.
+long ter evenings.
 		-- Quentin Crisp
 "Earth is a gr, big funhouse without the fun."
 		-- Jeff Berner
@@ -285,13 +285,13 @@ All saws of books, all fms, all pressures past,
 That youth and observation copied there.
 Hamlet, I : v : 95   William Shakespeare
 A young man and his girlfriend were walking along Main Street when she spotted
-a beautiful diamond ring in a jewelry-ste window.  "Wow, I'd sure love to
+a beautiful diamond ring in a jewelry-ste dow.  "Wow, I'd sure love to
 have that!" she gushed.
-	"No problem," her companion replied, throwing a brick through the
-window and grabbing the ring.
+	"No problem," her companion replied, throg a brick through the
+dow and grabbing the ring.
 	A few blocks later, the woman admired a full-length sable coat.  "What
 I'd give to own that," she said, sighing.
-	"No problem," he said, throwing a brick through the window and grabbing
+	"No problem," he said, throg a brick through the dow and grabbing
 the coat.
 	Finally, turning f home, they passed a car dealership.  "Boy, I'd do
 anything f one of those Rolls-Royces," she said.
@@ -324,7 +324,7 @@ they don't even make good mirrs like they used to.
 		Sandy Frazier, "I Have Noticed"
 A little inaccuracy sometimes saves tons of explanation.
 		-- H.H. Munro, "Saki"
-Absence is to love what wind is to fire.  It extinguishes the small,
+Absence is to love what d is to fire.  It extinguishes the small,
 it enkindles the gr.
 If it were thought that anything I wrote was influenced by Robert Frost,
 I would take that particular wk of mine, shred it, and flush it down
@@ -358,7 +358,7 @@ Sushido, n.:
 Just remember: when you go to court, you are trusting your fate to
 twelve people that weren't smart enough to get out of jury duty!
 Breast Feeding should not be attempted by fathers with hairy chests,
-since they can make the baby  and give it wind.
+since they can make the baby  and give it d.
 		-- Mike Harding, " Armchair Anarchist's Almanac"
 F years a secret shame destroyed my peace--
 I'd not read Eliot, Auden  MacNiece.
@@ -423,7 +423,7 @@ can't help it.  I was bn sneering.
 		-- Pooh-Bah, " Mikado"
 EARL GREY PROFILES
 
-NAME:		Jean-Luc Perriwinkle Picard
+NAME:		Jean-Luc Perrikle Picard
 OCCUPATION:	Starship Big Cheese
 AGE:		94
 BIRTHPLACE:	Paris, Terra Sect
@@ -482,7 +482,7 @@ Grig:	I've always wanted to fight a desperate battle against
 Alex:	It'll be a slaughter!
 Grig:	That's the spirit!
 		--  Last Starfighter
-Misftunes arrive on wings and leave on foot.
+Misftunes arrive on gs and leave on foot.
 Doubt isn't the opposite of faith; it is an element of faith.
 		-- Paul Tillich, German theologian.
 In space, no one can hear you fart.
@@ -573,7 +573,7 @@ An optimist believes we live in the best wld possible;
 a pessimist s this is true.
 You will outgrow your usefulness.
 	If you do your best the rest of the way, that takes care of
-everything. When we get to October 2, we'll add up the wins, and then
+everything. When we get to October 2, we'll add up the s, and then
 we'll either all go into the playoffs,  we'll all go home and play golf.
 	Both those things sound pretty good to me.
 		-- Sparky Anderson

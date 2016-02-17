@@ -277,7 +277,7 @@ I hear the sound that the machines make, and l my heart break, just
 f a moment.
 Most people want either less cruption  me of a chance to
 participate in it.
-"Give me enough medals, and I'll win any war."
+"Give me enough medals, and I'll  any war."
 		-- Napoleon
 God gave man two ears and one tongue so that we listen twice as much as
 we speak.
@@ -388,7 +388,7 @@ IBM Pollyanna Principle:
 667:
 	 neighb of the beast.
 Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
+	and putting gs on an elephant is?
 A:	Who knows?   elephant *might* fly, h, h...
 If little green men land in your back yard, hide any little green women
 you've got in the house.
@@ -447,7 +447,7 @@ Ah, yes.  I remember my first beer.
 		-- Steve Martin to a ler
 
 When your IQ rises to 28, sell.
-		-- Profess Irwin Cey to a ler
+		-- Profess Ir Cey to a ler
 I smell like a wet reducing clinic on Columbus Day!
 You can't fall off the flo.
 Tact is the ability to tell a man he has an open mind when he has a
@@ -469,7 +469,7 @@ to do is get up every mning and say, "How's the President?"
  vice-presidency ain't wth a pitcher of warm spit.
 		-- Vice President John Nance Garner
 Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+A:	Cheg gum.
 You're not drunk if you can lie on the flo without holding on.
 		-- Dean Martin
 Sometimes, too long is too long.
@@ -509,7 +509,7 @@ to crave knowledge.
 		-- Gege Will
 Ho! Ho! Ho! to the bottle I go
 To heal my heart and drown my woe.
-Rain may fall and wind may blow,
+Rain may fall and d may blow,
 And many miles be still to go,
 But under a tall tree I will lie,
 And let the clouds go sailing by.
@@ -550,7 +550,7 @@ say in those awkward situations?  Wry no me...
 
 	Go away.  You bother me.
 	Why?   Because life is unfair.
-	That's a nice drawing.  What is it?
+	That's a nice drag.  What is it?
 	Children should be seen and not heard.
 	You'll be the dh of me.
 	You'll understand when you're older.
@@ -588,7 +588,7 @@ In the Spring, I have counted 136 different kinds of wher  of
 		-- Mark Twain, on New England wher
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
-Is it some kind of wine you have with breakfast?
+Is it some kind of e you have with breakfast?
 Old programmers never die, they just branch to a new address.
 Nick the Greek's Law of Life:
 	All things considered, life is 9 to 5 against.
@@ -611,7 +611,7 @@ re's excitement anywhere it flies
 Where Tribbles play
 And Nurse Chapel never gets her way.
 
-	See Captain Kirk standing on the bridge,
+	See Captain Kirk standing on the ,
 	Mr. Spock is at his side.
 	 weekly menace, ooh-ooh
 	It gets fried, sced far and wide.

@@ -36,7 +36,7 @@ Flexible			Desperate
 Aging child			Self-centered adult
 Youthful			Over 40 and trying to deny it
 Good sense of humor		Watches a lot of television
-Showing up is 80% of life.
+Shog up is 80% of life.
 		-- Woody Allen
 Am I accompanied by a PARENT or GUARDIAN?
 Plus ,ca change, plus c'est la m^eme chose.
@@ -66,7 +66,7 @@ them, aren't braced against them.
 		--  Zimmer Bradley, "The Forbidden Tower"
 Your digestive system is your body's Fun House, whereby food goes on a long,
 dark, scary ride, taking all kinds of unexpected twists and turns, being
-attacked by vicious secretions along the way, and not knowing until the last
+attacked by vicious secretions along the way, and not knog until the last
 minute whether it will be turned into a useful body part or ejected into the
 Dark Hole by Mister Sphincter.  We Americans live in a nation where the
 medical-care system is second to none in the world, unless you count maybe
@@ -144,7 +144,7 @@ In practice, failures in system development, like unemployment in Russia,
 happens a lot despite official propaganda to the contrary.
 		-- Paul Licker
 Drew's Law of Highway Biology:
-	The first bug to hit a clean windshield lands directly in front
+	The first bug to hit a clean dshield lands directly in front
 	of your eyes.
 Into love and out again,
 	Thus I went and thus I go.
@@ -157,7 +157,7 @@ Could it be, when I was young,
 		-- Dorothy Parker, "Theory"
 Atlanta:
 	An entire city surrounded by an airport.
-A woman, especially if she have the misfortune of knowing anything,
+A woman, especially if she have the misfortune of knog anything,
 should conceal it as well as she can.
 		-- Jane Austen
 court, n.:
@@ -173,7 +173,7 @@ them together again, there must be a reason.  By all means, do not use a hammer.
 		-- IBM maintenance manual, 1925
 Why bother building any more nuclear warheads until we use the ones we have?
 If the vendors started doing everything right, we would be out of a job.
-Let's hear it for OSI and X!  With those babies in the wings, we can count
+Let's hear it for OSI and X!  With those babies in the gs, we can count
 on being employed until we drop, or get smart and switch to gardening,
 paper folding, or something.
 		-- C. Philip Wood
@@ -274,7 +274,7 @@ The clearest way into the Universe is through a forest wilderness.
 		-- John Muir
 They also serve who only stand and wait.
 		-- John Milton
-Like winter snow on summer lawn, time past is time gone.
+Like ter snow on summer lawn, time past is time gone.
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
 of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
 belief system is a subject long ago ridiculed and reviled.  We're dealing with
@@ -455,7 +455,7 @@ Charlie was a chemist,
 But Charlie is no more.
 For what he thought was H2O,
 Was H2SO4.
-I argue very well.  Ask any of my remaining friends.  I can win an argument on
+I argue very well.  Ask any of my remaining friends.  I can  an argument on
 any topic, against any opponent.  People know this, and steer clear of me at
 parties.  Often, as a sign of their great respect, they don't even invite me.
 		-- Dave Barry
@@ -491,7 +491,7 @@ Secrecy is the beginning of tyranny.
 The problem with graduate students, in general, is that they have
 to sleep every few days.
 I've got a bad feeling about this.
-The trouble with the rat-race is that even if you win, you're still a rat.
+The trouble with the rat-race is that even if you , you're still a rat.
 		-- Lily Tomlin
 At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.  The only difficulty is that the problem is NP complete and will
@@ -501,7 +501,7 @@ In great dismay, one of the C.S. people tells her husband about it.  There
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"
-	"Remember the twin paradox?"
+	"Remember the t paradox?"
 	After a few minutes, she says, "I could put the computer on a very
 fast machine and the computer would have just a few minutes to calculate but
 that is the exact opposite of what we want... Of course!  Leave the
@@ -539,7 +539,7 @@ text of even trace amounts of subconscious racism, sexism and classism.
 	Moreover, a faculty panel of deconstructionists have reconfigured
 the rhetorical components within a post-structuralist framework, so as to
 expunge any offensive elements of western rationalism and linear logic.
-	Finally, all references flowing from a white, male, eurocentric
+	Finally, all references flog from a white, male, eurocentric
 perspective have been eliminated, as have any other ruminations deemed
 denigrating to the political consensus of the moment.
 

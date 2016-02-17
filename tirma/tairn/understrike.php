@@ -89,7 +89,7 @@ into the saloon.  As he made his way through the crowd to the bar, a man
 galloped through town screaming, "Big Mike's comin'!  Run fer yer lives!"
 	Suddenly, the saloon doors burst open.  An enormous man, standing over
 eight feet tall and weighing an easy 400 pounds, rode in on a bull, using a
-rattlesnake for a whip.  Grabbing the drifter by the arm and throwing him over
+rattlesnake for a whip.  Grabbing the drifter by the arm and throg him over
 the bar, the giant thundered, "Gimme a drink!"
 	The terrified man handed over a bottle of whiskey, which the man
 guzzled in one gulp and then smashed on the bar.  He then stood aghast as
@@ -121,10 +121,10 @@ The Golden Rule is of no use to you whatever unless you realize it
 is your move.
 		-- Frank Crane
 You are a taxi driver.  Your cab is yellow and black, and has been in
-use for only seven years.  One of its windshield wipers is broken, and
+use for only seven years.  One of its dshield wipers is broken, and
 the carburetor needs adjusting.  The tank holds 20 gallons, but at the
 moment is only three-quarters full.  How old is the taxi driver?"
-No bird soars too high if he soars with his own wings.
+No bird soars too high if he soars with his own gs.
 		-- William Blake
 "What you end up with, after running an operating system concept through
 these many ing coffee filters, is something not unlike plain hot
@@ -148,7 +148,7 @@ of value.
 If you're carrying a torch, put it down.  The Olympics are over.
 Never volunteer for anything.
 		-- Lackland
-If the designers of X-window built cars, there would be no fewer than five
+If the designers of X-dow built cars, there would be no fewer than five
 steering wheels hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
 fure, that.
@@ -234,7 +234,7 @@ If I'm over the hill, why is it I don't recall ever being on top?
 "What am I, a doctor or a moonshuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer the alert.
-Why on earth do people buy old bottles of wine when they can get a
+Why on earth do people buy old bottles of e when they can get a
 fresh one for a quarter of the price?
 Imity consists largely of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
@@ -368,8 +368,8 @@ We don't care how they do it in New York.
 	So wrapped up in red tape that the situation is almost hopeless.
 Some of my readers ask me what a "Serial Port" is.
 The answer is: I don't know.
-Is it some kind of wine you have with breakfast?
-Showing up is 80% of life.
+Is it some kind of e you have with breakfast?
+Shog up is 80% of life.
 		-- Woody Allen
 There are two kinds of solar-h systems: "passive" systems collect the
 sunlight that hits your home, and "active" systems collect the sunlight that
@@ -486,7 +486,7 @@ RULES OF EATING -- THE BRONX DIETER'S CREED
 	(8)  Never  between snacks, unless it's a meal.
 	(9)  Don't feel you must finish everything on your plate.  You
 	     can always  it later.
-	(10) Avoid any wine with a childproof cap.
+	(10) Avoid any e with a childproof cap.
 	(11) Avoid blue food.
 		-- Richard Smith, "The Bronx Diet"
 Life is the urge to ecstasy.
@@ -527,7 +527,7 @@ Don't guess -- c your security regulations.
 [War] is instinctive.  But the instinct can be fought.  We're human
 beings with the blood of a million savage years on our hands!  But we
 can stop it.  We can admit that we're killers ... but we're not going
-to kill today.  That's all it takes!  Knowing that we're not going to
+to kill today.  That's all it takes!  Knog that we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 After years of research, scientists recently reported that there is,

@@ -165,7 +165,7 @@ toothbrush, washcloth, flask, gnat spray, space suit, etc., etc.  Furthermore,
 the non-hitchhiker will then happily lend the hitchhiker any of these or
 a dozen other items that he may have "lost".  After all, any man who can
 hitch the length and breadth of the Galaxy, struggle against terrible odds,
-win through and still know where his towel is, is clearly a man to be
+ through and still know where his towel is, is clearly a man to be
 reckoned with.
 		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
 You will be run over by a bus.
@@ -216,7 +216,7 @@ crudeness.
 We are what we pretend to be.
 		-- Kurt Vonnegut, Jr.
 Everything takes longer, costs more, and is less useful.
-		-- Erwin Tomash
+		-- Er Tomash
 A priest advised Voltaire on his death bed to renounce the devil. 
 Replied Voltaire, "This is no time to make new enemies."
 No man can have a reasonable opinion of women until he has long lost
@@ -245,7 +245,7 @@ Meets Tough Quality Standards	It compiles without errors.
 Satisfaction Guaranteed		We'll send you another pack if it fails.
 Stock Item			We shipped it before and can do it again.
 If the vendors started doing everything right, we would be out of a job.
-Let's hear it for OSI and X!  With those babies in the wings, we can count
+Let's hear it for OSI and X!  With those babies in the gs, we can count
 on being employed until we drop, or get smart and switch to gardening,
 paper folding, or something.
 		-- C. Philip Wood
@@ -382,7 +382,7 @@ text of even trace amounts of subconscious racism, sexism and classism.
 	Moreover, a faculty panel of deconstructionists have reconfigured
 the rhetorical components within a post-structuralist framework, so as to
 expunge any offensive elements of western rationalism and linear logic.
-	Finally, all references flowing from a white, male, eurocentric
+	Finally, all references flog from a white, male, eurocentric
 perspective have been eliminated, as have any other ruminations deemed
 denigrating to the political consensus of the moment.
 

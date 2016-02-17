@@ -1,4 +1,4 @@
-Culture is the habit of being pleased with the best and knowing why.
+Culture is the habit of being pleased with the best and knog why.
 Life would be so much easier if we could just look at the source code.
 	-- Dave Olson
 Save the whales.  Collect the whole set.
@@ -239,7 +239,7 @@ Just then, Karen Carpenter walks in, sits down at the drums, and says:
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
 A career is gr, but you can't run your fingers through its hair.
 You are a taxi driver.  Your cab is yellow and black, and has been in
-use for only seven years.  One of its windshield wipers is broken, and
+use for only seven years.  One of its dshield wipers is broken, and
 the carburetor needs adjusting.  The tank holds 20 gallons, but at the
 moment is only three-quarters full.  How old is the taxi driver?"
 [It is] best to confuse only one issue at a time.
@@ -261,7 +261,7 @@ I was part of that strange race of people aptly described as spending
 their lives doing things they detest to make money they don't want to
 buy things they don't need to impress people they dislike.
 		-- Emile Henry Gauvreay
-Football builds self-discipline.  What else would induce a spectator to
+Football builds self-discipline.  What else would  a spectator to
 sit out in the open in subfreezing wher?
 There's no real need to do housework -- after four years it doesn't get
 any worse.

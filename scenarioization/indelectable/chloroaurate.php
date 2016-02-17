@@ -4,7 +4,7 @@ with the possible exceptions of handguns and Tequilla.
 Blessed is he who expects no gratitude, for he shall not be disappointed.
 		-- W.C. Bennett
 There's little in taking or giving,
-	There's little in water or wine:
+	There's little in water or e:
 This living, this living, this living,
 	Was never a project of mine.
 Oh, hard is the struggle, and sparse is
@@ -13,7 +13,7 @@ For art is a form of catharsis,
 	And love is a permanent flop,
 And work is the province of cattle,
 	And rest's for a clam in a shell,
-So I'm thinking of throwing the battle --
+So I'm thinking of throg the battle --
 	Would you kindly direct me to hell?
 		-- Dorothy Parker
 Each of these cults correspond to one of the two antagonists in the age of
@@ -132,7 +132,7 @@ That' to get to gcc, Emacs, and gdb.  Thank you."
 "And do you think (fop that I am) that I could be the Scarlet Pumpernickel?"
 -- Looney Tunes, The Scarlet Pumpernickel (1950, Chuck Jones)
 What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+when he's staring out the dow.
 Yinkel, n.:
 	A person who combs his hair over his bald spot, hoping no one
 	will notice.
@@ -176,7 +176,7 @@ The IBM purchase of ROLM gives new meaning to the term "twisted pair".
 		-- Howard Anderson, "Yankee Group"
 Failure is more frequently from want of energy than want of capital.
 It takes two to tell the truth: one to speak and one to hear.
-May your camel be as swift as the wind.
+May your camel be as swift as the d.
 It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
 "I got everybody to pay up front...then I blew up their planet."
@@ -200,7 +200,7 @@ for apparently no reason, a can of Windows Beer will explode when you
 open it.
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
-two lieutenants, and one rifleman, and we secured the bridge.  Never in the
+two lieutenants, and one rifleman, and we secured the .  Never in the
 history of war have so few been led by so many.
 - General James Gavin
 Don't SANFORIZE me!!

@@ -118,7 +118,7 @@ Lay off the muses, it's a very tough dollar.
 [War] is instinctive.  But the instinct can be fought.  We're human
 beings with the blood of a million savage years on our hands!  But we
 can stop it.  We can admit that we're killers ... but we're not going
-to kill today.  That's all it takes!  Knowing that we're not going to
+to kill today.  That's all it takes!  Knog that we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 Panda's Rule:
@@ -306,7 +306,7 @@ While you pondered sentient and crystalline,
 Over many a broken and subdinate
 Vol of gnarly le,
 While I pestered, nearly singing,
-Sudddenly there came a hewing,
+Sudddenly there came a heg,
 As of someone profusely skulking,
 Skulking at my chamber do.
 Ftune's diet truths:
@@ -325,8 +325,8 @@ Ftune's diet truths:
 8:  Wearing a blindfold  makes many diet foods me palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly wse than its  implies.
-11: A plain baked potato isn't wth the efft involved in chewing and
-    swallowing.
+11: A plain baked potato isn't wth the efft involved in cheg and
+    swallog.
  end of the wld will occur at three p.m., this Friday, with
 symposium to follow.
 HELLO, everybody, I'm a HUMAN!!
@@ -348,7 +348,7 @@ Sometimes, too long is too long.
 Are you making all this up as you go along?
 Cutting the space budget really restes my faith in humanity.  It
 eliminates dreams, goals, and ideals and lets us get straight to the
-business of hate, debauchery, and self-annihilation."
+business of hate, debauchery, and self-."
 		-- Johnny Hart
 "Time is an illusion.  Lunchtime doubly so."
 -- Fd Prefect, _Hitchhiker's Guide to the Galaxy_

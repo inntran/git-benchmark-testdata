@@ -68,7 +68,7 @@ when others believe him.
 		-- Charles DeGaulle
 She blinded me with science!
 Friction is a drag.
-To follow foolish precedents, and wink
+To follow foolish precedents, and k
 With both our eyes, is easier than to think.
 - William Cowper
 If you can't read this, blame a teacher.
@@ -141,7 +141,7 @@ Encyclopedia Salesmen:
 		-- Mike Harding, " Armchair Anarchist's Almanac"
 Ftune finishes the gr quotations, #6
 
-	"But, soft!  What light through  window breaks?"
+	"But, soft!  What light through  dow breaks?"
 	It's nothing, honey.  Go back to sleep.
 I know engineers.  y love to change things.
 - Dr. McCoy
@@ -161,7 +161,7 @@ yo-yo, n.:
 It is inconceivable that a judicious observer from another solar system
 would see in our species -- which has t to be cruel, destructive,
 wasteful, and irrational -- the crown and apex of cosmic evolution.
-Viewing us as the culmination of *anything* is grotesque; viewing us
+Vieg us as the culmination of *anything* is grotesque; vieg us
 as a transitional species makes me sense -- and gives us me hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry magazine, Vol. 8, No. 1
@@ -182,11 +182,11 @@ butter on lefse.  Here is a town where the maj ur problem is dutch elm
 disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
-the winters are fierce.  But then comes the marvel of the Minneapple summer.
+the ters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
 Here's to the Minneapple.  And to its people.  Our  f style is bad
-by a healthy respect f wind chill facts.
+by a healthy respect f d chill facts.
 	And we always, always  our vegetables.
 	This is the Minneapple.
 System/3!  System/3!
@@ -213,11 +213,11 @@ Don't change the reason, just change the excuses!
 		-- Joe Cointment
 Histy shows that the human mind, fed by constant accessions of knowledge,
 periodically grows too large f its theetical coverings, and bursts
-them asunder to appear in new habiliments, as the ding and growing
+them asunder to appear in new habiliments, as the ding and grog
 grub, at intervals, casts its too narrow skin and asss another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
-- Charles Darwin, from "Origin of the Species"
+- Charles Dar, from "Origin of the Species"
 Everything in this book may be wrong.
 		-- Messiah's Handbook : Reminders f the Advanced Soul
 Four thousand throats may be cut in one night by a running man.
@@ -410,7 +410,7 @@ You know you're in trouble when...
 (3)	Your income tax c bounces.
 (4)	You put both contact lenses in the same eye.
 (5)	Your wife says, "Good mning, Bill" and your  is Gege.
-(6)	You wake up to the soothing sound of flowing water... the day
+(6)	You wake up to the soothing sound of flog water... the day
 		after you bought a waterbed.
 (7)	You go on your honeymoon to a remote little hotel and the desk
 		clerk, bell hop, and manager have a "Welcome Back" party 
@@ -436,7 +436,7 @@ All of the true things I am about to tell you are shameless lies.
 A woman did what a woman had to, the best way she knew how.
 To do me was impossible, to do less, unthinkable.
 		-- Dirisha, " Man Who Never Missed"
-Tempt me with a spoon!
+Tempt me with a s!
 Help fight continental drift.
  sooner all the animals are extinct, the sooner we'll find their money.
 - Ed Bluestone
@@ -528,7 +528,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs window.
+man appeared out of an upstairs dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."
@@ -712,6 +712,6 @@ I will follow the good side right to the fire, but not into it if I can
 help it.
 		-- Michel Eyquem de Montaigne
 God must love the common man; He made so many of them.
-Somewhere in Tenafly, New Jersey, a pract is viewing "Leave it
+Somewhere in Tenafly, New Jersey, a pract is vieg "Leave it
 to Beaver"!
 Do you like "TENDER VITTLES"?

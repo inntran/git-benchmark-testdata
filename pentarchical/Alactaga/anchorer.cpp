@@ -115,7 +115,7 @@ recurrence of your party that they immediately start planning parties of their
 own, a year in advance, just to prevent you from having another one ...
 	If your party is successful, the police will knock on your do,
 unless your party is very successful in which case they will lob tear gas
-through your living room window.  As host, your job is to make sure that
+through your living room dow.  As host, your job is to make sure that
 they don't arrest anybody.  Or if they're dead set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
@@ -236,7 +236,7 @@ Don't Cut Any Me Wood, Baby, 'Cause I'll Be Comin' Home With A Load
 I Loved Her Face, But I Left Her Bind F You
 "Humpf!" Humpfed a voice! "F almost two days you've run wild and insisted on
 chatting with persons who've never existed.  Such carryings-on in our peaceable
-jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
+jungle!  We've had quite enough of you bellog bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nonsensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
@@ -325,7 +325,7 @@ driver will be redirected to /dev/null, oh no, it's full...).
 	One saw mud--
 	 other saw stars.
 
-Now let me get this right: two prisoners are looking out the window.
+Now let me get this right: two prisoners are looking out the dow.
 While one of them was looking at all the mud -- the other one got hit
 in the head.
 Androphobia:
@@ -335,7 +335,7 @@ Chapter 2:  Newtonian Growth and Decay
 
 	 growth-decay fmulas were developed in the trivial fashion by
 Isaac Newton's famous brother Phigg.  His idea was to provide an equation
-that would describe a quantity that would dwindle and dwindle, but never
+that would describe a quantity that would ddle and ddle, but never
 quite reach zero.  Histically, he was merely trying to wk out his
 mtgage.  Another versatile equation also emerged, one which would define
 a function that would continue to grow, but never reach unity.  This equation
@@ -360,7 +360,7 @@ I'll show you something to make you change your mind...
 
 Have you seen the old man outside the sea-man's mission
 Memies fading like the metal ribbons that he wears.
-In our winter city the rain cries a little pity
+In our ter city the rain cries a little pity
 F one me fgotten hero and a wld that doesn't care...
 Be cautious in your daily affairs.
 To understand a program you must become both the machine and the program.
@@ -524,7 +524,7 @@ Q:	Why did the tachyon cross the road?
 A:	Because it was on the other side.
 To err is human.
 To blame someone else f your mistakes is even me human.
-He who has imagination without learning has wings but no t.
+He who has imagination without learning has gs but no t.
 It is possible that blondes also prefer gentlemen.
 		-- Maimie Van Den
 I would have you , then, that there exists in the mind of man a block

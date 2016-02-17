@@ -152,7 +152,7 @@ is concerned."
 -- Baseball pitcher Bo Belinsky
 Just because you like my stuff doesn't mean I owe you anything.
 		-- Bob Dylan
-No woman can endure a gambling husd, unless he is a sy winner.
+No woman can endure a gambling husd, unless he is a sy ner.
 		-- Ld Thomas Dewar
 Mate, this parrot wouldn't VOOM if you put four million volts through it!
 		-- Monty Python
@@ -261,7 +261,7 @@ Were there fewer fools, knaves would starve.
 - Anonymous
 Wk is the crab grass in the l of life.
 		-- Schulz
-Whoever dies with the most toys wins.
+Whoever dies with the most toys s.
  eyes of Texas are upon you,
 All the livelong day;
  eyes of Texas are upon you,
@@ -337,7 +337,7 @@ layers that are going to be agreed upon.
 Alcohol is the anesthesia by which we endure the operation of life.
 		-- Gege Bernard Shaw
 Wk Rule: Leave of Absence (f an Operation):
-	We are no longer allowing this practice.  We wish to discourage any
+	We are no longer allog this practice.  We wish to discourage any
 thoughts that you may not need all of whatever you have, and you should not
 consider having anything removed.  We hired you as you are, and to have
 anything removed would certainly make you less than we bargained f.
@@ -462,7 +462,7 @@ bug free and run crectly. You should gain at least 150% efficiency in the
 new system.  (You should take no me than 10 minutes on this question.)
 
 MATHEMATICS
-	If X equals PI times R^2, construct a fmula showing how long
+	If X equals PI times R^2, construct a fmula shog how long
 it would take a fire ant to drill a hole through a dill , if the
 length-girth ratio of the ant to the  were 98.17:1.
 
@@ -475,7 +475,7 @@ I l like a wet parking meter on Darvon!
 Conscience is a mother-in-law whose visit never ends.
 		-- H. L. Mencken
 Being ugly isn't illegal.  Yet.
-It's not whether you win  lose, it's how you place the blame.
+It's not whether you   lose, it's how you place the blame.
 One is not bn a woman, one becomes one.
 		-- e de Beauvoir
 Non-sequiturs make me  lampshades.
@@ -549,7 +549,7 @@ reign  the dead.
 		-- Achilles, " Odessey", XI, 489-91
 Everyone hates me because I'm paranoid.
 Breast Feeding should not be attempted by fathers with hairy chests,
-since they can make the baby  and give it wind.
+since they can make the baby  and give it d.
 		-- Mike Harding, " Armchair Anarchist's Almanac"
 Drinking is not a spectat spt.
 		-- Jim Brosnan
@@ -780,14 +780,14 @@ God made everything out of nothing, but the nothingness shows through.
 		-- Paul Valery
 Cos are spiritual puns.
 		-- G.K. Chesterton
-I argue very well.  Ask any of my remaining friends.  I can win an argnt on
+I argue very well.  Ask any of my remaining friends.  I can  an argnt on
 any topic, against any opponent.  People know this, and steer clear of me at
 parties.  Often, as a sign of their gr respect, they don't even invite me.
 		-- Dave Barry
 Picking up the pieces of my sweet shed dream,
 I wonder how the old folks are tonight,
 Her  was Ann, and I'll be damned if I recall her face,
-She left me not knowing what to do.
+She left me not knog what to do.
 
 Carefree Highway, let me slip away on you,
 Carefree Highway, you seen better days,
@@ -797,7 +797,7 @@ Carefree Highway, let me slip away, slip away, on you...
 Turning back the pages to the times I love best,
 I wonder if she'll ever do the same,
 Now the thing that I call livin' is just bein' satisfied,
-With knowing I got noone left to blame.
+With knog I got noone left to blame.
 Carefree Highway, I got to see you, my old flame...
 
 Searching through the fragments of my dream shed sleep,
@@ -854,7 +854,7 @@ noted exceptions: being struck by lightning,  wse, your *computer*
 being struck by lightning."
 (By Matt Welsh)
 Notes f a ballet, " Spell": ... Suddenly Sigmund hears the flutter of
-wings, and a group of wild swans flies across the moon ... Sigmund is
+gs, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
 unftunately, divided lengthwise.  She enchants Sigmund, who is careful
 not to make any poultry jokes.
@@ -870,7 +870,7 @@ doesn't sell it, they don't  it.  Vending machines don't sell quiche.
 ... at least I thought I was dancing, 'til somebody stepped on my hand.
 		-- J. B. White
 Anxious after the delay, Gruber doesn't waste any time getting the Koenig
-[a modified Psche] up to speed, and almost immediately we are blowing off
+[a modified Psche] up to speed, and almost immediately we are blog off
 Alfas, Fiats, and Lancias full of excited Italians.  se people love fast
 cars.  But they love spt too and no passing encounter goes unchallenged.
 Nothing serious, just two wheels into your lane as you're bearing down on
@@ -903,4 +903,4 @@ I respect the institution of marriage.  I have always thought that every
 woman should marry -- and no man.
 		-- Benjamin Disraeli, "Lothair"
 A certain amount of opposition is a help, not a hindrance. Kites rise
-against the wind, not with it.
+against the d, not with it.

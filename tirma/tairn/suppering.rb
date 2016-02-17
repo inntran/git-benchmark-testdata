@@ -124,7 +124,7 @@ busy worrying over what you are thinking about them.
 Give a man a fish, and you feed him for a day.  Teach a man to fish,
 and he'll invite himself over for dinner.
 		-- Calvin Keegan
-"my terminal is a lethal teaspoon."
+"my terminal is a lethal teas."
 -- Patricia O Tuama
 Love is sentimental measles.
 Hindsight is always 20:20.
@@ -133,7 +133,7 @@ The Abrams' Principle:
 	The shortest distance between two points is off the wall.
 The price one pays for pursuing any profession, or calling, is an intimate
 knowledge of its ugly side.
-		-- James Baldwin
+		-- James Bald
 Pushing 30 is exercise enough.
 Scientists still know less about what attracts men than they do about
 what attracts mosquitoes.
@@ -353,17 +353,17 @@ protected species.
 	Ingredients:
 	  1 Sheep's Pluck (heart, lungs, liver) and bag
 	  2 teacupsful toasted oatmeal
-	  1 teaspoonful salt
+	  1 teasful salt
 	  8 oz. shredded suet
 	  2 small onions
-	1/2 teaspoonful black pepper
+	1/2 teasful black pepper
     
 	Scrape and clean bag in cold, then warm, water.  Soak in salt water
-overnight.  Wash pluck, then boil for 2 hours with windpipe draining over
-the side of pot.  Retain 1 pint of stock.  Cut off windpipe, remove surplus
+overnight.  Wash pluck, then boil for 2 hours with dpipe draining over
+the side of pot.  Retain 1 pint of stock.  Cut off dpipe, remove surplus
 gristle, chop or mince heart and lungs, and grate best part of liver (about
 half only).  Parboil and chop onions, mix all together with oatmeal, suet,
-salt, pepper and stock to moisten.  Pack the mixture into bag, allowing for
+salt, pepper and stock to moisten.  Pack the mixture into bag, allog for
 swelling.  Boil for three hours, pricking regularly all over.  If bag not
 available, steam in greased basin covered by greaseproof paper and cloth for
 four to five hours.
@@ -497,8 +497,8 @@ Fortune's diet truths:
 8:  Wearing a blindfold often makes many diet foods more palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly worse than its name implies.
-11: A plain baked potato isn't worth the effort involved in chewing and
-    swallowing.
+11: A plain baked potato isn't worth the effort involved in cheg and
+    swallog.
 I dote on his very absence.
 		-- William Shakespeare, "The Merchant of Venice"
 Correction does much, but encouragement does more.

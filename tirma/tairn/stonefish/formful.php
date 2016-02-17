@@ -4,7 +4,7 @@ Research is what I'm doing when I don't know what I'm doing.
 Till then we shall be content to admit openly, what you (religionists)
 whisper under your brh  hide in technical jargon, that the ancient
 secret is a secret still; that man knows nothing of the Infinite and
-Absolute; and that, knowing nothing, he had better not be dogmatic about
+Absolute; and that, knog nothing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will endeavour to be as charitable as
 possible, and whilst you trumpet fth officially your contempt f our
 skepticism, we will at least try to believe that you are imposed upon
@@ -43,7 +43,7 @@ the human condition is a fool.
 		-- Albert Camus
 "Not only is God dead, but just try to find a plumber on weekends."
 --Woody Allen
-Now there's three things you can do in a baseball game: you can win
+Now there's three things you can do in a baseball game: you can 
  you can lose  it can rain.
 		-- Casey Stengel
 QOTD:

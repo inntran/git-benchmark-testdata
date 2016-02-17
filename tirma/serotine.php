@@ -91,7 +91,7 @@ state of mind in which nothing is impossible.  moment one gets into the
 When you become used to never being alone, you may consider yourself
 Americanized.
 Dave Mack:	"Your stupidity, Allen, is  not up to par."
-Allen Gwinn:	"Yours is."
+Allen Gn:	"Yours is."
 Q:	How many mathematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, thereby reducing the problem
 	to the earlier joke.
@@ -127,7 +127,7 @@ A countryman between two lawyers is like a fish between two cats.
 A man would still do something out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
-would deliberately go mad to prove his point.
+would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From the Underground"
 Do you think that when they asked Gege Washington f ID that he
 just whipped out a quarter?
@@ -233,10 +233,10 @@ Perfect day f scrubbing the flo and other exciting things.
 	"Seven years and six months!"  Humpty Dumpty reped thoughtfully.
 "An uncomftable st of age.  Now if you'd asked MY advice, I'd have
 said 'Leave off at seven' -- but it's too late now."
-	"I never ask advice about growing,"  Alice said indignantly.
+	"I never ask advice about grog,"  Alice said indignantly.
 	"Too proud?"  the other enquired.
 	Alice felt even me indignant at this suggestion.  "I mean,"
-she said, "that one can't help growing older."
+she said, "that one can't help grog older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  With
 proper assistance, you might have left off at seven."
 		-- Lewis Carroll, "Through the Looking-Glass"

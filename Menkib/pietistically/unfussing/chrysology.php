@@ -54,7 +54,7 @@ complete text:
 
  IRS wants you to use this fm because it gets to keep most of your
 money.  So unless you have pond silt f brains, you want the long fm.
-		-- Dave Barry, "Swing Out Taxes"
+		-- Dave Barry, "Sg Out Taxes"
 Is it 1974?  What's f SUPPER?  Can I spend my COLLEGE FUND in one
 wild afternoon??
 Ftune's graffito of the week ( maybe even month):
@@ -115,7 +115,7 @@ it is a waste of time, and hazardous, to marry them.  It leaves one open
 to a rival.  Husds, good  bad, always have rivals.  Lovers, never.
 		-- Helen Lawrenson, "Esquire"
 Wk Rule: Leave of Absence (f an Operation):
-	We are no longer allowing this practice.  We wish to discourage any
+	We are no longer allog this practice.  We wish to discourage any
 thoughts that you may not need all of whatever you have, and you should not
 consider having anything removed.  We hired you as you are, and to have
 anything removed would certainly make you less than we bargained f.
@@ -139,7 +139,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs window.
+man appeared out of an upstairs dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."
@@ -150,7 +150,7 @@ If you always postpone pleasure you will never have it.  Quit wk and play
 f once!
 " only way I can lose this election is if I'm caught in bed with a dead 
 girl  a live boy."
--- Louisiana govern Edwin Edwards
+-- Louisiana govern Ed Edwards
 Life is a biochemical reaction to the stimulus of the surrounding
  in a stable ecosphere, while a bowl of cherries is a
 round container filled with little red fruits on sticks.
@@ -273,7 +273,7 @@ about sex at all... they become lawyers.
 "I believe that Ronald Reagan will someday make this
  country what it once was... an arctic wilderness."
 -- Steve Martin
-Why are these athletic shoe salesmen following me??
+Why are these athletic shoe salesmen follog me??
 It's faster hses,
 Younger women,
 Older whiskey and
@@ -326,7 +326,7 @@ Article the Third:
 	guided tours of the afementioned are not necessary.
 Article the Fourth:
 	 decision to  strained lamb  not should be with the "dee"
-	and not the "der".  Blowing the strained lamb into the der's
+	and not the "der".  Blog the strained lamb into the der's
 	face should be accepted as an opinion, not as a declaration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
@@ -353,7 +353,7 @@ Shtest distance between two jokes		= A straight line
 1 Mole						= 007 Secret Agents
 1 Mole						= 25 Cagey Bees
 1 Dog Pound					= 16 oz. of Alpo
-1000 beers served at a Twins game		= 1 Killibrew
+1000 beers served at a Ts game		= 1 Killibrew
 2.4 ste miles of surgical tubing at Yale U. = 1 I.V.League
 2000 pounds of chinese soup			= 1 Won Ton
 10 to the minus 6th power mouthwashes		= 1 Microscope
@@ -381,7 +381,7 @@ Year, n.:
 		-- Ambrose Bierce, " Devil's Dictionary"
 Ho! Ho! Ho! to the bottle I go
 To heal my heart and drown my woe.
-Rain may fall and wind may blow,
+Rain may fall and d may blow,
 And many miles be still to go,
 But under a tall tree I will lie,
 And let the clouds go sailing by.
@@ -532,11 +532,11 @@ Life.  Don't talk to me about life.
 			 (vvv(vvvv)(vvvv)vvv)______|/
 This is clearly another case of too many mad scientists, and not enough
 hunchbacks.
-Zippy's brain cells are straining to bridge synapses ...
+Zippy's brain cells are straining to  synapses ...
 No one so thoughly appreciates the value of constructive criticism as the
 one who's giving it.
 		-- Hal Chadwick
-"my terminal is a lethal teaspoon."
+"my terminal is a lethal teas."
 -- Patricia O Tuama
 How many surrealists does it take to screw in a lightbulb?
 
@@ -607,7 +607,7 @@ centa, n:	A point around which something revolves; axis.  (Or
 chouda, n:	A thick seafood soup,  in a milk base.
 dada, n:	Infmation, esp. infmation ganized f analysis 
 			computation.
-		-- Massachewsetts Unabridged Dictionary
+		-- Massachewsetts Unad Dictionary
 Too  people have come to me and said, "If I had just one wish f
 anything in all the wld, I would wish f me user-defined equations
 in the HP-51820A Wavefm Generat Software."
@@ -690,7 +690,7 @@ interest is easy.
 A man would still do something out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
-would deliberately go mad to prove his point.
+would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From the Underground"
 All of the animals except man know that the principal business of life is
 to enjoy it.
@@ -734,7 +734,7 @@ described in the fmal spec.  Wking late would l like using an
 undocnted external procedure.
 Some people manage by the book, even though they don't know who wrote the
 book  even what book.
-And it should be the law: If you use the wd `paradigm' without knowing
+And it should be the law: If you use the wd `paradigm' without knog
 what the dictionary says it means, you go to jail.  No exceptions.
 		-- David Jones
 Prejudice:

@@ -29,7 +29,7 @@ I ask nothing but sincerity.  If they come out of habit, they become tiresome.
 Johnny Carson's Definition:
 	 smallest interval of time known to man is that which occurs
 	in Manhattan between the traffic signal turning green and the
-	taxi driver bind you blowing his hn.
+	taxi driver bind you blog his hn.
 Ship it.
 re is nothing which cannot be answered by means of my doctrine," said
 a monk, coming into a teahouse where Nasrudin sat.
@@ -63,7 +63,7 @@ Say the devil touched my tongue --
 But say my verses do not scan,
 	And I get me another man!
 		-- Dothy Parker, "Fighting Wds"
-It ms not whether you win  lose; what ms is whether II win  lose.
+It ms not whether you   lose; what ms is whether II   lose.
 		-- Darrin Weinberg
 Pardon me while I laugh.
 We all declare f liberty, but in using the same wd we do not all mean
@@ -81,7 +81,7 @@ will be temparily canceled.
 Go away, I'm all right.
 		-- H.G. Wells' last wds.
 If you are what you , does that mean Euell Gibbons really was a nut?
- surest way to remain a winner is to win once, and then not play any me.
+ surest way to remain a ner is to  once, and then not play any me.
 Go ahead, capitalize the T on technology, deify it if it will make you l
 less responsible -- but it puts you in with the neutered, brother, in with
 the eunuchs keeping the harem of our stolen Earth f the numb and joyless
@@ -95,7 +95,7 @@ Welcome to the Zoo!
 attempts to expose sham paranmal studies; and (2) it is very well and
 plausibly written and so rather harder to dismiss  refute by simple
 jeering.
-- Harry Eagar, reviewing "Beyond the Quantum" by Michael Talbot,
+- Harry Eagar, revieg "Beyond the Quantum" by Michael Talbot,
     Skeptical Inquirer, Vol. XII No. 2, ppg. 200-201
  me data I punch in this card, the lighter it becomes, and the
 lower the mailing cost.
@@ -159,7 +159,7 @@ satisfying as an income tax refund.
 If you refuse to accept anything but the best you very  get it.
 4.2 BSD UNIX #57: Sun Jun 1 23:02:07 EDT 1986
 
-You swing at the Sun.  You miss.   Sun swings.  He hits you with a
+You sg at the Sun.  You miss.   Sun sgs.  He hits you with a
 575MB disk!  You read the 575MB disk.  It is written in an alien
 tongue and cannot be read by your tired Sun-2 eyes.  You throw the
 575MB disk at the Sun.  You hit!   Sun must repair your eyes.  
@@ -325,7 +325,7 @@ as "certainly", "undoubtedly", etc.   I adopted ins of them "I conceive",
 "I apprend",  "I " a thing to be so  so;  "so it appears to me
 at present".
 	When another asserted something that I thought an err, I denied
-myself the pleasure of contradicting him abruptly, and of showing him
+myself the pleasure of contradicting him abruptly, and of shog him
 immediately some absurdity in his proposition.  In answering I began by
 observing that in certain cases  circumstances his opinion would be right,
 but in the present case there appeared  semed to me some difference, etc.
@@ -443,7 +443,7 @@ Fuch's Warning:
 Marriage is a three ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
 F u cn rd ths u cnt spl wrth a dm!
-	Stop!  Whoever crosseth the bridge of Dh, must answer first
+	Stop!  Whoever crosseth the  of Dh, must answer first
 these questions three, ere the other side he see!
 
 	"What is your ?"

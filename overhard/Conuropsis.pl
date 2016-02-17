@@ -50,7 +50,7 @@ Giovanni" from your record club, and they invoice you $24.95 for MOZ DONG.
 The witless mapping of the sublime onto the ridiculous!  Equally puzzling is
 the curtation that produces the same eight characters, THE BEST, whether you
 order "The Best of Wagner", "The Best of Scert", or "The Best of the Turds".
-Similarly, wine lovers buying from computerized wineries twirl their glasses,
+Similarly, e lovers buying from computerized eries twirl their glasses,
 check their delivery notes, and inform their friends, "A rather innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
 columns has yielded such rable obscenities as COX OR PIP.  The examples
@@ -88,7 +88,7 @@ Surely, Linus is talking about the kind of idiocy that others aspire to :-).
 One day this guy is finally fed up with his middle-class existence and
 decides to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
-way mathematically of guaranteeing winning at the race track?  We could
+way mathematically of guaranteeing ning at the race track?  We could
 make a lot of money and retire and enjoy life."  The mathematician thinks
 this over a bit and walks away mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
@@ -153,7 +153,7 @@ is thinking that they're conspiring.
 Lincoln would be doing if he were alive today?
 	1) Writing his irs of the Civil War.
 	2) Advising the President.
-	3) Desperately clawing at the inside of his
+	3) Desperately clag at the inside of his
 	   coffin."
 -- David Letterman
 	"Fantasies are free."
@@ -173,7 +173,7 @@ days will be devoted to discussion of the ramifications of whodo.  Two
 seconds have been allotted for a complete rundown of all the user-
 friendly features of Unix.  Seminars include "Everything You Know is
 Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
-"cc C?  Si!  Si!" led by Kerwin Bernighan, and "Docnt Unix, Are You
+"cc C?  Si!  Si!" led by Ker Bernighan, and "Docnt Unix, Are You
 Kidding?" led by Jan Yeats.  No Reader Service No. is necessary because
 all GUGUs (Gurus of Unix Group of Users) already know everything we
 could tell them.
@@ -202,7 +202,7 @@ during games in Chicago in January, only more intelligent.
 		-- Dave Barry, "Sex and the Single Amoeba: What Every
 		   Teen Should Know"
 Humor in the Court:
-Q: (Showing man picture.) That's you?
+Q: (Shog man picture.) That's you?
 A: Yes, sir.
 Q: And you were present when the picture was taken, right?
 		William Safire's Rules for Writers:
@@ -243,7 +243,7 @@ important to him than his table or his white robe.
 		-- Stefan Zweigs, Biography of Balzac
 Do not meddle in the affairs of troff, for it is subtle and quick to anger.
 The Tao doesn't take sides;
-it gives birth to both wins and losses.
+it gives birth to both s and losses.
 The Guru doesn't take sides;
 she welcomes both hackers and lusers.
 
@@ -316,7 +316,7 @@ To know Edina is to reject it.
 		-- Dudley Riggs, "The Year the Grinch Stole the Election"
 It's gonna be alright,
 It's almost midnight,
-And I've got two more bottles of wine.
+And I've got two more bottles of e.
 If you tell the truth you don't have to remember anything.
 		-- Mark Twain
 The difference between us is not very far,
@@ -455,7 +455,7 @@ How beautiful are thy feet with shoes, O prince's daughter! the joints of thy
 thighs are like jewels, the work of the hands of a cunning workman.  Thy navel
 is like a round goblet, which wanteth not liquor:  thy belly is like an heap
 of wheat set about with lillies.
-Thy two breasts are like two young roses that are twins.
+Thy two breasts are like two young roses that are ts.
 [Song of Solomon 7:1-3 (KJV)]
 "Here's something to think about:  How come you never see a headline like
 `Psychic Wins Lottery'?"

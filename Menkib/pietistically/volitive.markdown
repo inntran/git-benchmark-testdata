@@ -116,7 +116,7 @@ The angry man always thinks he can do more than he can.
 		-- Albertano of Brescia
 Cutting the space budget really restores my faith in humanity.  It
 eliminates dreams, goals, and ideals and lets us get straight to the
-business of hate, debauchery, and self-annihilation."
+business of hate, debauchery, and self-."
 		-- Johnny Hart
 Conceptual integrity in turn dictates that the design must proceed
 from one mind, or from a very small number of agreeing resonant minds.
@@ -287,7 +287,7 @@ are another's.
 This will be a rable month -- no matter how hard you try to forget it.
 As the trials of life continue to take their toll, remember that there
 is always a future in Computer Maintenance.
-		-- National Lampoon, "Deteriorata"
+		-- National Lam, "Deteriorata"
 God isn't dead, he just couldn't find a parking place.
 "Just out of curiosity does this actually mean something or have some
 of the few remaining bits of your brain just evaporated?"

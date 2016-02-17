@@ -65,7 +65,7 @@ finally it crashed through the flo to the basement.''  Luckily,
 repairs were swift and the computer was wking again the same evening.
 ``Thank God we were able to buy enough needles and thread and patch it
 together without maj problems.''   site has also installed a new
-throttle on the netwk pipe, allowing at most four clients at the same
+throttle on the netwk pipe, allog at most four clients at the same
 time, thus making a new crash less likely.  `` book is now in our
 Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
 		-- Lars Wirzenius <wirzeniu@cs.helsinki.fi>
@@ -102,7 +102,7 @@ and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
 to the skin.  Desperately he pounded on the do.  At last the head of a
-man appeared out of an upstairs window.
+man appeared out of an upstairs dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
 would let me stay here f the night."
@@ -184,8 +184,8 @@ PVLC	Punch Variable Length Card
 RASC	Read And Shred Card
 RPM	Read Programmers Mind
 RSSC	reduce speed, step carefully  (f improved accuracy)
-RTAB	Rewind tape and break
-RWDSK	rewind disk
+RTAB	Red tape and break
+RWDSK	red disk
 RWOC	Read Writing On Card
 SCRBL	scribble to disk  - faster than a write
 SLC	Search f Lost Chd
@@ -231,7 +231,7 @@ maim  kill innocent little children."
 in a ptable package the size of a briefcase.   guy on the left has an
 Uzi submachine gun concealed in his attache case.  Also in the case are four
 fully loaded, 32-round clips of 125-grain 9mm ammunition.   owner of the
-Uzi is going to get me tactical firepower delivered -- and delivered on
+Uzi is going to get me tactical firepower de -- and de on
 target -- in less time, and with less efft.  All f $795. It's inevitable.
 If you're going up against some guy with an Osbne 1 --  any personal 
 computer -- he's the one who's in trouble.  One round from an Uzi can zip
@@ -243,7 +243,7 @@ into Ethernet  other local-area netwks.  What about the new 16-bit
 computers, like the Lisa and Ftune?  Even with the Winchester backup, 
 they're no match f the Uzi.  One quick burst and they'll find out what 
 Unix means.  Make your commanding officer proud.  Get an Uzi -- and come home
-a winner in the fight f office automatic weapons.
+a ner in the fight f office automatic weapons.
 		-- "InfoWld", June, 1984
 Anyone who s that all fruits ripen at the same time
 as the strawberries, knows nothing about grapes.
@@ -341,7 +341,7 @@ crunch he was all courage.  Those novels would make you retch.
 	One day a student came to Moon and said, "I understand how to make
 a better garbage collect.  We must keep a reference count of the pointers
 to each cons."
-	Moon patiently told the student the following sty -- "One day a
+	Moon patiently told the student the follog sty -- "One day a
 student came to Moon and said, "I understand how to make a better garbage
 collect..."
 Go on, EMOTE!  I was RAISED on thought balloons!!

@@ -27,7 +27,7 @@ Q:  What's the difference between a car salesman and a computer
 A:   car salesman can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
-What a strange game.   only winning move is not to play.
+What a strange game.   only ning move is not to play.
 		-- WOP, "War Games"
 Auths (and perhaps columnists) eventually rise to the top of whatever
 depths they were once able to plumb.

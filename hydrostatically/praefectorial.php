@@ -49,11 +49,11 @@ JCL support as alternative to system menu.
 In our continuing effort to support languages other than LISP on the CADDR,
 we have developed an OS/360-compatible JCL.  This can be used as an
 alternative to the standard system menu.  Type System J to get to a JCL
-interactive read-execute-diagnose loop window.  [Note that for 360
+interactive read-execute-diagnose loop dow.  [Note that for 360
 compatibility, all input lines are truncated to 80 characters.]  This
-window also maintains a mouse-sensitive display of critical job parameters
+dow also maintains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channels, etc.  When a JCL
-syntax error is detected or your job ABENDs, the window-oriented JCL
+syntax error is detected or your job ABENDs, the dow-oriented JCL
 debugger is entered.  The JCL debugger displays appropriate OS/360 error
 messages (such as IEC703, "disk error") and allows you to dequeue your job.
 "Stupidity, like virtue, is its own reward"
@@ -138,7 +138,7 @@ The major sin is the sin of being born.
 		-- Samuel Beckett
 Certainly the game is rigged.
 
-Don't let that stop you; if you don't bet, you can't win.
+Don't let that stop you; if you don't bet, you can't .
 		-- Robert Heinlein, "Time Enough For Love"
 A pretty foot is one of the greatest gifts of nature... please send me your
 last pair of shoes, already worn out in dancing... so I can have something
@@ -479,7 +479,7 @@ Things past redress and now with me past care.
 A man would still do something out of sheer perversity - he would 
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
-would deliberately go mad to prove his point.
+would ly go mad to prove his point.
 		-- Feodor Dostoevsky, "Notes From the Underground"
 A fool-proof method for sculpting an elephant: first, get a huge block of
 marble; then you chip away everything that doesn't look like an elephant.
@@ -561,7 +561,7 @@ I'll learn to play the Saxophone,
 I play just what I feel.
 Drink Scotch whisky all night long,
 And die bind the wheel.
-They got a name for the winners in the world,
+They got a name for the ners in the world,
 I want a name when I lose.
 They call Alma the Crimson Tide,
 Call me Deacon Blues.
@@ -689,7 +689,7 @@ While you pondered sentient and crystalline,
 Over many a broken and subordinate
 Volume of gnarly lore,
 While I pestered, nearly singing,
-Sudddenly there came a hewing,
+Sudddenly there came a heg,
 As of someone profusely skulking,
 Skulking at my chamber door.
 If mathematically you end up with the wrong answer, try multiplying by
@@ -732,7 +732,7 @@ $3,000,000.
 There are three reasons for becoming a writer: the first is that you need
 the money; the second that you have something to say that you think the
 world should know; the third is that you can't think what to do with the
-long winter evenings.
+long ter evenings.
 		-- Quentin Crisp
 WYSIWYG:
 	What You See Is What You Get.
@@ -740,7 +740,7 @@ WYSIWYG:
 -- Dave Mack (mack@inco.UUCP)
 
 "Yours is."
--- Allen Gwinn (allen@sulaco.sigma.com), in alt.flame
+-- Allen Gn (allen@sulaco.sigma.com), in alt.flame
 The system was down for backups from 5am to 10am last Saturday.
 Q:  What's the difference between a car salesman and a computer
     salesman?
@@ -804,12 +804,12 @@ To put you under cardiac arrest.
 And as they drag you through the door
 They tell you that you've failed the test.
 		-- Buggles, "Living in the Plastic Age"
-	If you rap your knuckles against a window jamb or door, if you
+	If you rap your knuckles against a dow jamb or door, if you
 brush your leg against a bed or desk, if you catch your foot in a curled-
 up corner of a rug, or strike a toe against a desk or chair, go back and
 repeat the sequence. 
 	You will find yourself surprised how far off course you were to
-hit that window jamb, that door, that chair.  Get back on course and do it
+hit that dow jamb, that door, that chair.  Get back on course and do it
 again.  How can you pilot a spacecraft if you can't find your way around
 your own apartment?
 		-- William S. Burroughs

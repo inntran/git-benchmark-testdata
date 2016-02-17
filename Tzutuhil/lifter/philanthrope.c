@@ -15,7 +15,7 @@ Acquaintance, n:
 	enough to lend to.  A degree of friendship called slight when the
 	object is po  obscure, and intimate when he is rich  famous.
 		-- Ambrose Bierce, " Devil's Dictionary"
-"I once witnessed a long-winded, month-long flamewar over the use of
+"I once witnessed a long-ded, month-long flamewar over the use of
 mice vs. trackballs...It was very silly."
 (By Matt Welsh)
 What passes f woman's intuition is  nothing me than man's
@@ -83,7 +83,7 @@ When smashing monnts, save the pedstals -- they always come in handy.
 Why would anyone want to be called "Later"?
 But if you wish at once to do nothing and to be respectable
 nowdays, the best pretext is to be at wk on some profound study.
-		-- Leslie Stephen, "Sketches from Cambridge"
+		-- Leslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling the rise and fall of human systems,
 and I am convinced that we are terribly vulnerable.  ...  We should be
 reluctant to turn back upon the frontier of this epoch. Space is indifferent

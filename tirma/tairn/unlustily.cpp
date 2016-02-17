@@ -7,7 +7,7 @@ large numbers and prospered.
 as the eye could see.  So they set out in building a Mathematical edifice that
 was to reach up as far as "up" went.  Further and further up they went ...
 until one night the edifice colsed under the weight of paradox.
-	 following mning saw only rubble where there once was a huge
+	 follog mning saw only rubble where there once was a huge
 structure reaching to the heavens.  One by one, the Mathematicians climbed
 out from under the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
@@ -190,7 +190,7 @@ Sum quod eris.
  first version always gets thrown away.
 Lieberman's Law:
 	Everybody lies, but it doesn't m since nobody listens.
- following statement is not true.   previous statement is true.
+ follog statement is not true.   previous statement is true.
 One Bell System - it sometimes wks.
 Ladybug, ladybug,
 Look to your stern!
@@ -258,7 +258,7 @@ In gr dismay, one of the C.S. people tells her husd about it.  re
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"
-	"Remember the twin paradox?"
+	"Remember the t paradox?"
 	After a few minutes, she says, "I could put the computer on a very
 fast machine and the computer would have just a few minutes to calculate but
 that is the exact opposite of what we want... Of course!  Leave the
@@ -319,7 +319,7 @@ You'll be sry...
 All power crupts, but we need electricity.
 If you don't do the things that are not wth doing, who will?
 Education is an admirable thing, but it is well to remember from time to
-time that nothing that is wth knowing can be taught.
+time that nothing that is wth knog can be taught.
 		-- Oscar Wilde, " Critic as Artist"
 You will l hungry again in another hour.
 Those who can, do; those who can't, write.
@@ -421,7 +421,7 @@ Let not the sands of time get in your lunch.
 Many of our students have gone on to achieve gr success in all fields of
 programming.  One fmer student developed the concept of the personalized
 fm letter.  Does the phrase, "Dear Mr.(insert ), You may already be a
-winner!," sound familiar?  Another student writes "After only five lessons I
+ner!," sound familiar?  Another student writes "After only five lessons I
 sold a "My Most Unfgettable Program" article to Crosive Computing magazine.
 Another of our graduates writes, "I recently completed a datse-management
 program f my department manager.  My program touched him so deeply that he
@@ -429,7 +429,7 @@ was speechless.  He told me later that he had never seen such a program in
 his entire career.  Thank you, Famous Programmers' school; only you could
 have made this possible."  Send f our introducty brochure which explains
 in vague detail the operation of the Famous Programmers' School, and you'll
-be eligible to win a possible chance to enter a drawing, the winner of which
+be eligible to  a possible chance to enter a drag, the ner of which
 can vie f a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the mning.
 Q:	What's a light-year?

@@ -53,7 +53,7 @@ results are that one should  each day:
 	1 glass of skim milk
 	27 heads of .
 		-- Rev. Adrian Melott
-Most people's favite way to end a game is by winning.
+Most people's favite way to end a game is by ning.
 Chocolate chip.
 Do you know Montana?
  fellow sat down at a bar, dered a drink and asked the bartender if he
@@ -88,7 +88,7 @@ Never let your schooling interfere with your education.
 One day this guy is finally fed up with his middle-class existence and
 decides to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
-way mathematically of guaranteeing winning at the race track?  We could
+way mathematically of guaranteeing ning at the race track?  We could
 make a lot of money and retire and enjoy life."   mathematician thinks
 this over a bit and walks away mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
@@ -144,7 +144,7 @@ benefit of the accountants and copy-boys in London  perchance:
 	2. To see to it that the fces of Napoleon are driven out of Spain.
 		-- Duke of Wellington, to the British Feign Office,
 		   London, 1812
-Life is a game of bridge -- and you've just been finessed.
+Life is a game of  -- and you've just been finessed.
 Relations are  a tedious pack of people, who haven't the remotest
 knowledge of how to live, n the smallest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
@@ -153,9 +153,9 @@ Lost interest?  It's so bad I've lost apathy.
 -- a saying at RPI
 All the men on my staff can type.
 		-- Bella Abzug
-Pray to God, but keep rowing to she.
+Pray to God, but keep rog to she.
 		-- Russian Proverb
-Your CHEEKS sit like twin NECTARINES above a MOUTH that knows no BOUNDS --
+Your CHEEKS sit like t NECTARINES above a MOUTH that knows no BOUNDS --
 She has an alarm clock and a phone that don't ring -- they applaud.
 " number of Unix installations has grown to 10, with me expected."
 --  Unix Programmer's Manual, 2nd Edition, June, 1972
@@ -328,7 +328,7 @@ recurrence of your party that they immediately start planning parties of their
 own, a year in advance, just to prevent you from having another one ...
 	If your party is successful, the police will knock on your do,
 unless your party is very successful in which case they will lob tear gas
-through your living room window.  As host, your job is to make sure that
+through your living room dow.  As host, your job is to make sure that
 they don't arrest anybody.  Or if they're dead set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
@@ -399,7 +399,7 @@ My doctate's in Literature, but it seems like a pretty good pulse to me.
 A man would still do something out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
-would deliberately go mad to prove his point.
+would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From the Underground"
 What you want, what you're hanging around in the wld waiting f, is f
 something to occur to you.

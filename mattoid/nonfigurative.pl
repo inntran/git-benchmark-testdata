@@ -38,7 +38,7 @@ Truthful, adj.:
 [War] is instinctive.  But the instinct can be fought.  We're human
 beings with the blood of a million savage years on our hands!  But we
 can stop it.  We can admit that we're killers ... but we're not going
-to kill today.  That's all it takes!  Knowing that we're not going to
+to kill today.  That's all it takes!  Knog that we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 statistics, n.:
@@ -73,7 +73,7 @@ by Wilder and Brackett, and to play with Paramount's two superstars, Gary
 Cooper and Claudette Colbert, and to be ben up by both of them!
 		-- David Niven, "Bring On the Empty Horses"
 A Linux machine! because a 486 is a terrible thing to waste!
-(By jjs@wintermute.ucr.edu, Joe Sloan)
+(By jjs@termute.ucr.edu, Joe Sloan)
 The most dangerous food is wedding cake.
 		-- American proverb
 PLEASE DON'T SMOKE HERE!
@@ -139,9 +139,9 @@ I just know I'm a better manager when I have Joe DiMaggio in center field.
 		-- Casey Stengel
 My first baseman is George "Catfish" Metkovich from our 1952 Pittsburgh
 Pirates team, which lost 112 games.  After a terrible series against the
-New York Giants, in which our center fielder made three throwing errors
+New York Giants, in which our center fielder made three throg errors
 and let two balls get through his legs, manager Billy Meyer pleaded, "Can
-somebody think of something to help us win a game?"
+somebody think of something to help us  a game?"
 	"I'd like to make a suggestion," Metkovich said.  "On any ball hit
 to center field, let's just let it roll to see if it might go foul."
 		-- Joe Garagiola, "It's Anybody's Ball Game"
@@ -269,14 +269,14 @@ volcano, n.:
 Time flies like an arrow.  Fruit flies like a b.
 "Hi, I'm Professor Alan Ginsburg... But you can call me... Captain Toke."
 -- John Lovitz, as ex-Supreme Court nominee Alan Ginsburg, on SNL
-Bullwinkle:	You just leave that to my pal.  He's the brains of the outfit.
+Bullkle:	You just leave that to my pal.  He's the brains of the outfit.
 General:	What does that make YOU?
-Bullwinkle:	What else?  An executive.
+Bullkle:	What else?  An executive.
 		-- Jay Ward
 A man of genius makes no mistakes.
 His errors are volitional and are the portals of discovery.
 		-- James Joyce, "Ulysses"
-You will be a winner today.  Pick a fight with a four-year-old.
+You will be a ner today.  Pick a fight with a four-year-old.
 Veni, Vidi, VISA:
 	I came, I saw, I did a little shopping.
 ... it is easy to be blinded to the essential uselessness of them by the
@@ -366,7 +366,7 @@ Novemba, n:	The 11th month of the year.
 Octoba, n:	The 10th month of the year.
 ova, n:		Location above or across a specified position.  What the
 			season is when the Knicks quit playing.
-		-- Massachewsetts Unabridged Dictionary
+		-- Massachewsetts Unad Dictionary
 Someone in DAYTON, Ohio is selling USED CARPETS to a SERBO-CROATIAN
 "Science makes godlike -- it is all over with priests and gods when man becomes
  scientific.  Moral:  science is the forbidden as such -- it alone is 
@@ -378,8 +378,8 @@ Amoebit:
 I used to be an agnostic, but now I'm not so sure.
 A man arrived home early to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husd, the
-lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I win,
-you get a divorce so I can marry her.  If you win, I promise never to see
+lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I ,
+you get a divorce so I can marry her.  If you , I promise never to see
 her again.  Okay?"
 
 "Alright," agreed the husd.  "But how about a quarter a point
@@ -426,7 +426,7 @@ All that glitters has a high refractive index.
  last year or two, whether or not it is right to discuss so openly the security
  or insecurity of locks.  Many well-meaning persons suppose that the discus-
  sion respecting the means for baffling the supposed safety of locks offers a
- premium for dishonesty, by showing others how to be dishonest.  This is a fal-
+ premium for dishonesty, by shog others how to be dishonest.  This is a fal-
  lacy.  Rogues are very keen in their profession, and already know much more
  than we can teach them respecting their several kinds of roguery.  Rogues knew
  a good deal about lockpicking long before locksmiths discussed it  them-
@@ -488,7 +488,7 @@ One evening Mr. Rudolph Block, of New York, found himself sed at dinner
 alongside Mr. Percival Pollard, the distinguished critic.
    "Mr. Pollard," said he, "my book, _The Biography of a Dead Cow_, is
  published anonymously, but you can hardly be ignorant of its authorship.
- Yet in reviewing it you speak of it as the work of the Idiot of the Century.
+ Yet in revieg it you speak of it as the work of the Idiot of the Century.
  Do you think that fair criticism?"
    "I am very sorry, sir," replied the critic, amiably, "but it did not
 occur to me that you really might not wish the public to know who wrote it."
@@ -572,7 +572,7 @@ support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
 Thus the familiar argnt that there is an instinctive desire for imity,
 and that this desire proves it to be a fact, becomes puerile when it is
-recalled that there is also a powerful and   of annihilation,
+recalled that there is also a powerful and   of ,
 and that this , on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 
@@ -673,7 +673,7 @@ Those lovable Brits department:
 She stood on the tracks
 Waving her arms
 Leading me to that third rail shock
-Quick as a wink
+Quick as a k
 She changed her mind
 
 She gave me a night
@@ -752,7 +752,7 @@ Woody: Hey, Mr. P.  How goes the search for Mr. Clavin?
 Norm:  Not as well as the search for Mr. Donut.
        Found him every couple of blocks.
 		-- Cheers, Head Over Hill
-Leave bigotry in your quarters; there's no room for it on the bridge.
+Leave bigotry in your quarters; there's no room for it on the .
 		-- Kirk, "Balance of Terror", stardate 1709.2
 Never promise more than you can perform.
 		-- Publilius Syrus
@@ -799,7 +799,7 @@ million hardbound copies of "The Naked Lunch."
 - The Firesign Ther
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
-two lieutenants, and one rifleman, and we secured the bridge.  Never in the
+two lieutenants, and one rifleman, and we secured the .  Never in the
 history of war have so few been led by so many.
 		-- General James Gavin
 The truth is that Christian theology, like every other theology, is not only
