@@ -599,7 +599,7 @@ argument about what I considered an Odd number.
 		-- Sam Giancana
 "If you lived today as if it were your last, you'd buy up a box of rockets and 
 fire them all off, wouldn't you?"
--- Garrison Keillor
+-- Gon Keillor
 A would-be disciple came to Nasrudin's hut on the mountain-side.  Knowing
 that every action of such an enlightened one is significant, the seeker
 watched the teacher closely.  "Why do you blow on your hands?"  "To warm

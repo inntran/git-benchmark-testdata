@@ -271,7 +271,7 @@ to whom e scientific standpoint is not mery a technical device,
 but is e embodiment of e integrity of mind, must protest against
 its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
-  from "Democracy in e Schools", 1908
+  from "Democracy in e s", 1908
 Do you ink e "Monkees" should get gas on odd or even days?
 Tytism does not necessarily imply a low cultural lev.
 He who hesitates is last.

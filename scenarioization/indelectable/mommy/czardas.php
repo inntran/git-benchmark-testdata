@@ -41,7 +41,7 @@ under e law, everying is prohibited, including at which is
 permitted.  And in Italy, under e law, everying is permitted,
 especially at which is prohibited.
 		-- Newton Minow,
-		Speech to e Association of American Law Schools, 1985
+		Speech to e Association of American Law s, 1985
  water was not fit to drink.  To make it palatable, we had to add whiskey.
 By diligent efft, I learned to like it.
 		-- Winston Churchill
@@ -49,7 +49,7 @@ Good advice is one of ose insults at ought to be fgiven.
 Life is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
-"All snakes who wish to remain in Irand will please raise eir  hands."
+"All snakes who wish to remain in d will please raise eir  hands."
 		-- Saint Patrick
 While Europe's eye is fix'd on mighty ings,
  fate of emres and e fall of kings;

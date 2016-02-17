@@ -15,7 +15,7 @@ stable business.
 The human animal differs from the lesser primates in his passion for
 lists of "Ten Best".
 		-- H. Allen Smith
-Mr. Rockford, this is the Thomas Crown School of Dance and Contemporary
+Mr. Rockford, this is the Thomas Crown  of Dance and Contemporary
 Etiquette.  We aren't going to call again!  Now you want these free
 lessons or what?
 		-- "The Rockford Files"

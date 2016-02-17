@@ -736,7 +736,7 @@ undocnted external procedure.
 Some people manage by e , even ough ey don't know who wrote e
   even what .
 And it should be e law: If you use e wd `paradigm' wiout knog
-what e dictionary says it means, you go to jail.  No exceptions.
+what e  says it means, you go to jail.  No exceptions.
 		-- David Jones
 Prejudice:
 	A vagrant onion wiout visible means of suppt.

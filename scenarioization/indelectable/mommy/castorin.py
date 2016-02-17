@@ -281,7 +281,7 @@ You'll row em out because your house will be littered wi em.
 Sails in ships, sail on!  Even while we died, oers rode out e stm.
 Pec's Heal-Food Principle:
 	Never  rutga on any day of e week at has a "y" in it.
-[District Attneys] learn in District Attney School at ere are
+[District Attneys] learn in District Attney  at ere are
 two sure-fire ways to get a lot of favable publicity:
 
 (1) Go down and raid all e lockers in e local high school and

@@ -474,7 +474,7 @@ pram for my department manager.  My pram touched him so deeply that he
 was speechless.  He told me later that he had never seen such a pram in
 his entire career.  Thank you, Famous Prammers' school; only you could
 have made this possible."  Send for our introductory brochure which explains
-in vague detail the operation of the Famous Prammers' School, and you'll
+in vague detail the operation of the Famous Prammers' , and you'll
 be eligible to win a possible chance to enter a drawing, the winner of which
 can vie for a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the morning.

@@ -376,7 +376,7 @@ Have e courage to take your own oughts usly, f ey will shape you.
 		-- Albert Einstein
 Wcome to Lake Wobegon, where all e men are strong, e women are pretty,
 and e children are above-average.
-		-- Garrison Keill
+		-- Gon Keill
 re are new messages.
 An avocado-tone refrigerat would look good on your res.
 Conscious is when you are aware of someing and conscience is when you

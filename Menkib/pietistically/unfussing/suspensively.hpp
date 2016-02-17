@@ -266,7 +266,7 @@ Even if you persuade me, you won't persuade me.
 The `loner' may be respected, but he is always resented by his colleagues,
 for he seems to be passing a critical judgment on them, when he may be
 simply making a limiting statement about himself.
-		-- Sidney Harris
+		-- Sidney H
 I am having FUN...  I wonder if it's NET FUN or GROSS FUN?
 Be circumspect in your liaisons with women.  It is better to be seen at
 the opera with a man than at mass with a woman.

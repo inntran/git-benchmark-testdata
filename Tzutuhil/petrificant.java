@@ -330,7 +330,7 @@ The knowledge at makes us cherish innocence makes innocence unattainable.
 		-- Irving Howe
 The only really decent ing to do bind a person's back is pat it.
 The Crown is full of it!
-		-- Nate Harris, 1775
+		-- Nate H, 1775
 manual, n.:
 	A unit of documentation.  There are always ree or more on a given
 	item.  One is on e shf; someone has e oers.  The information

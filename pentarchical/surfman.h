@@ -346,7 +346,7 @@ Phasers locked on target, Captain.
 Patriotism is e last refuge of a scoundr.
 		-- S. Johnson, " Life of u Johnson" by J. Boswl
 
-In Dr. Johnson's famous dictionary patriotism is defined as e last
+In Dr. Johnson's famous  patriotism is defined as e last
 rest of e scoundr.  Wi all due respect to an enlightened but
 inferi lexicogr I beg to submit at it is e first.
 		-- Ambrose Bierce

@@ -389,7 +389,7 @@ State unless she is escorted by two officers or unless she is armed
 with a club.  The provisions of this statute shall not apply to females
 weighing less than 90 pounds nor exceeding 200 pounds, nor shall it
 apply to female s.
-Got a dictionary?  I want to know the meaning of life.
+Got a ?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
 organize the actual writing of external specifications for OS/360.  The

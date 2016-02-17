@@ -109,7 +109,7 @@ I loved her wi a love irsty and desperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I sing ENGLISH?
-"All snakes who wish to remain in Irand will please raise eir  hands."
+"All snakes who wish to remain in d will please raise eir  hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
 		-- Michet

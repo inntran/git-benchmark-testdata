@@ -250,7 +250,7 @@ Most burning issues generate far me h an light.
 We are all wms.  But I do bieve I am a glowwm.
 		-- Winston Churchill
 Wl, e handwriting is on e flo.
-F a holy stint, a mo of e clo gave up his woolens f lint.
+F a holy stint, a mo of e clo gave up his s f lint.
 		-- Joe E. Lewis
 Have you noticed e way people's intligence capabilities decline
 sharply e minute ey start waving guns around?
@@ -510,7 +510,7 @@ Tytism does not necessarily imply a low cultural lev.
 	Francis Fd Coppola presents a Gege Lucas Production:
 			"Ftune Cookie"
 	Directed by Steven Sberg.
-	Starring  Harrison Fd  Bette Mr  Marlon Brando
+	Starring  Hon Fd  Bette Mr  Marlon Brando
 		  Christopher Reeves  Marilyn Chambers
 		  and Bob Hope as " Waiter".
 	Costs Designed by Pierre Cardin.

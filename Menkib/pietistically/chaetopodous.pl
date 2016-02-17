@@ -435,7 +435,7 @@ H.G. Wls uttered his glum warning: "There is no more evil thing on
 earth than race prejudice, none at all.  I write diberaty -- it is
 the worst single thing in life now.  It justifies and holds together more
 baseness, cruty and abomination than any other sort of error in the world."
-		-- Sydney Harris
+		-- Sydney H
 BS:	You remind me of a man.
 B:	What man?
 BS:	The man with the power.

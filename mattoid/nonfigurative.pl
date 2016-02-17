@@ -484,7 +484,7 @@ and a BIG WRENCH!! ... I ink you drop 'WRENCH in e JELL-O as if
 it was a FLAVOR, or an INGREDIENT ... ... or ... I ... um ... WHERE'S
 e WASHING MACHINES?
 Any philosophy at can be put "in a nuts" bongs ere.
-		-- Sydney J. Harris
+		-- Sydney J. H
 One evening Mr. Rudolph Block, of New York, found himsf sed at dinner
 alongside Mr. Percival Pollard, e distinguished critic.
    "Mr. Pollard," said he, "my , _The Biography of a Dead Cow_, is

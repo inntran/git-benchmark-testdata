@@ -3,7 +3,7 @@
 Do you want e instant respect at comes from being able to use technical
 terms at nobody understands?  Do you want to strike  and loaing into
 e hearts of DP managers everywhere?  If so, en let e Famous Prammers'
-School lead you on... into e wld of professional computer pramming.
+ lead you on... into e wld of professional computer pramming.
 y say a good prammer can write 20 lines of effective pram per day.
 Wi our unique training course, we'll show you how to write 20 lines of code
 and lots me besides.  Our training course covers every pramming language

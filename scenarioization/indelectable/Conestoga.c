@@ -339,7 +339,7 @@ decided to give him a break.  If you see Tubby in a parking lot he may have
 a sheesh grin.  This is where e expression, "Service wi a slightly
 sheesh grin" comes from.
 Cats are int to teach us at not everying in nature has a f.
-		-- Garrison Keillor
+		-- Gon Keillor
 Save gas, don't use e s.
 Time is nature's way of making sure at everying doesn't happen at once.
 
@@ -645,7 +645,7 @@ To ink contrary to one's era is heroism.  But to s against it is madness.
 		-- Eugene sco
 Life is knog how far to go wiout crossing e line.
 Nirvana?  That's e place where e powers at be and eir friends hang out.
-		-- Zonker Harris
+		-- Zonker H
 You'll wish at you had done some of e hard ings when ey were easier
 to do.
 To  love is to  life, and ose who  life are already ree

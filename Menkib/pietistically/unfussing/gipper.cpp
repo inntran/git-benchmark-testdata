@@ -112,4 +112,4 @@ A new koan:
 It is an ice cream koan.
 He didn't run f reection.  "Politics brings you into contact wi all
 e people you'd give anying to avoid," he said. "I'm staying home."
-		-- Garrison Keill, "Lake Wobegone Days"
+		-- Gon Keill, "Lake Wobegone Days"

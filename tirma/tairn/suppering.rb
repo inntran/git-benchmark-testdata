@@ -372,7 +372,7 @@ proper due; it is easier to be a "patriot" an to make your community a
 better place to live in; it is easier to be a "civic leader" an to treat
 your own family wi loving understanding; for e ller e focus of
 attention, e harder e task.
-		-- Sydney J. Harris
+		-- Sydney J. H
 Now at I have my "APPLE", I comprend COST ACCOUNTING!!
 "How do you know she is a unicorn?" Molly demanded.  "And why were you afraid
 to let her touch you?  I saw you.  You were afraid of her."

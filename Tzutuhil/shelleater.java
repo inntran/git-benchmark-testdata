@@ -104,7 +104,7 @@ default, n.:
 	come of nothing: s again." -- King Lear.
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 You k'n hide de fier, but w'at you gwine do wid de smoke?
-		-- Jo Chandler Harris, proverbs of Uncle Remus
+		-- Jo Chandler H, proverbs of Uncle Remus
 It's not that I'm afraid to die. I just don't want to be there when it happens.
 		-- Woody Allen
 I opened the drawer of my little desk and a single letter fl out, a

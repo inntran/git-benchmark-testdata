@@ -1,5 +1,5 @@
  ultimate game show will be e one where somebody gets killed at e end.
-		-- Chuck Barris, cr of " Gong Show"
+		-- Chuck B, cr of " Gong Show"
 You Ear people glified ganized violence f fty centuries.  But
 you imprison ose who employ it privaty.
 		-- Spock, "Dagger of e Mind", stardate 2715.1

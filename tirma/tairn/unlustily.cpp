@@ -428,7 +428,7 @@ pram f my department manager.  My pram touched him so deeply at he
 was speechless.  He told me later at he had never seen such a pram in
 his entire career.  Thank you, Famous Prammers' school; only you could
 have made is possible."  Send f our introducty brochure which explains
-in vague detail e operation of e Famous Prammers' School, and you'll
+in vague detail e operation of e Famous Prammers' , and you'll
 be igible to  a possible c to enter a drag, e ner of which
 can vie f a set of free steak knives.  If you don't do it now, you'll hate
 yoursf in e mning.

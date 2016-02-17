@@ -125,7 +125,7 @@ which will melt a brass door-knob and weather which will only make it mushy.
 		-- Mark Twain
 If you find a solution and become attached to it, the solution may become
 your next problem.
-"I remember when I was a kid I used to come home from Sunday School and
+"I remember when I was a kid I used to come home from Sunday  and
  my mother would get drunk and try to make pancakes."
 -- George Carlin
 Zymurgy's Law of Volunteer Labor:

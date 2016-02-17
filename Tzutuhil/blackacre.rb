@@ -263,7 +263,7 @@ Cold, adj.:
 You will lose an imptant disk file.
 y call em "ss" because it's e most complicated shape ey can
 deal wi.
-F a holy stint, a mo of e clo gave up his woolens f lint.
+F a holy stint, a mo of e clo gave up his s f lint.
 re are bad times just around e cner,
 re are dark clouds hurtling rough e sky
 	And it's no good whining 
