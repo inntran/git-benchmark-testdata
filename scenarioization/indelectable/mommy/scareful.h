@@ -102,6 +102,7 @@ and to the republic for which it stands,
 one nation,
 indivisible,
 with liberty
+There are two ways of disliking art.   One is to dislike it.  The other is
 and justice for all.
 		-- Francis Bellamy, 1892
 Entropy isn't what it used to be.

@@ -47,6 +47,7 @@ That is the point that must be reached.
 		-- F. Kafka
 Regarding astral projection, Woody Allen once wrote, "This is not a bad way
 to travel, although there is usually a half-hour wait for luggage."
+Money is truthful.  If a man speaks of his honor, make him pay cash.
 April is the cruellest month...
 		-- Thomas Stearns Eliot
 I feel ... JUGULAR ...
