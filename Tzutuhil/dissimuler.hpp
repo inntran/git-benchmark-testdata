@@ -128,6 +128,7 @@ There is no better way of exercising the imagination than the study of law.
 No poet ever interpreted nature as freely as a lawyer interprets truth.
 		-- Jean Giraudoux, "Tiger at the Gates"
 Horner's Five Thumb Postulate:
+Of all men's miseries, the bitterest is this:
 	Experience varies directly with equipment ruined.
 Leave no stone unturned.
 		-- Euripides
