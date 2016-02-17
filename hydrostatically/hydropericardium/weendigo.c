@@ -142,7 +142,7 @@ Straw?  No, too stud a fad.  I put soot on warts.
  man she had was kind and clean
 And wl enough f every day,
 But oh, d friends, you should have seen
- one at got away.
+ one at got .
 		-- Doy Parker, " Fisherwoman"
 Th of you who ink you know everying  annoying  of us who do.
 A copy of e  is not what is required of art; one of e damned
@@ -204,7 +204,7 @@ It is possible at blons also prefer gentlemen.
 		-- Maimie Van Den
 What is country needs is a good five cent microcomputer.
 "F at m, comp your pocket computer wi e massive jobs of
-a ousand ys ago.  Why not, en, e last step of doing away wi
+a ousand ys ago.  Why not, en, e last step of doing  wi
 computers altogeer?"
 		-- Jan Shuman
 Alough it is still a truism in industry at "no one was ever fired f
@@ -281,7 +281,7 @@ Remember ee
 Ay, ou po ghost while memy holds a s
 In is distracted globe.  Remember ee!
 Yea, from e table of my memy
-I'll wipe away all trivial fond recds,
+I'll wipe  all trivial fond recds,
 All saws of s, all fms, all pressures past,
 That you and observation coed ere.
 Hamlet, I : v : 95   William Shakespe
@@ -304,7 +304,7 @@ shtcomings.
 I see a good al of talk from Washington about lowering taxes.  I hope
 ey do get 'em lowered down enough so people can affd to pay 'em.
 		--  Best of Will Rogers
-	Evering is fr away an it used to be.  It is even twice as
+	Evering is fr  an it used to be.  It is even twice as
 far to e cner and ey have add a hill.  I have given up running f
 e bus; it leaves lier an it used to.
 	It seems to me ey  making e sts steeper an in e old
@@ -489,7 +489,7 @@ Doubt isn't e opposite of fai; it is an ement of fai.
 In space, no one can h you fart.
 Q:	What do you say to a Puerto Rican in a ree-ece suit?
 A:	Will e fendant please rise?
-If you keep anying long enough, you can row it away.
+If you keep anying long enough, you can row it .
 I have found little at is good about human beings.  In my experience
 most of em  trash.
 		-- Sigmund Freud

@@ -129,7 +129,7 @@ cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
-is over a bit and walks away mumbling to himsf.
+is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bly-eyed, replies, "Wl, yes,
 actually I do have an ia, and I'm reasonably sure at it will wk, but
@@ -163,7 +163,7 @@ Men  make passes at girls wing glasses.
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in  awkward situati?  Wry no me...
 
-	Go away.  You boer me.
+	Go .  You boer me.
 	Why?   Because life is unf.
 	That's a nice drag.  What is it?
 	Children should be seen and not hd.
@@ -270,7 +270,7 @@ re is no oer employee wi whom I can aquaty comp him.
 	(Wl, our rats n't really emplo...)
 "Success will  spoil him."
 	(Wl, at least not MUCH me.)
-"One usually comes away from him wi a good ling."
+"One usually comes  from him wi a good ling."
 	(And such a sigh of rief.)
 "His dissertation is e st of wk you don't expect to see ese days;
 in it he has finity mtrated his complete capabilities."

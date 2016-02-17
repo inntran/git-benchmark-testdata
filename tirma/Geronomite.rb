@@ -180,7 +180,7 @@ unrlying Plato's theory of government, Kant's metaphysics, Nietzsche's theory
 of value, and Husserl's phenomenology.  In this seminar, we will scribe 
 IMMANUEL's achievements and internal architecture.  We will also briefly 
 discuss our recent efforts to apply wisdom engineering to oil exploration.
-Parts that positively cannot be assembled in improper orr will be.
+s that positively cannot be assembled in improper orr will be.
 I never cheated an honest man, only rascals.  They wanted something for
 nothing.  I gave them nothing for something.
 		-- Joseph "Yellow Kid" Weil
@@ -207,7 +207,7 @@ When up through the ground come a bubblin' cru -- oil, that is;
 	black gold; 'Texas tea' ...
 
 Well the next thing ya know, old Jed's a millionaire.
-The kinfolk said, 'Jed, move away from there!'
+The kinfolk said, 'Jed, move  from there!'
 They said, 'Californy is the place ya oughta be',
 So they load up the truck and they moved to Beverly -- Hills, that is;
 	swimmin' pools; movie stars.
@@ -265,7 +265,7 @@ authority that data processing is a fad and won't last out the year.
 		   publishers, responding to Karl V. Karlstrom (a junior 
 		   editor who had recommend a manuscript on the new 
 		   science of data processing), c. 1957
-Lady Luck brings add income today.  Lady friend takes it away tonight.
+Lady Luck brings add income today.  Lady friend takes it  tonight.
 The greatest dangers to liberty lurk in insidious encroachment by men
 of zeal, well-meaning but without unrstanding.
 		-- Justice Louis D. Branis

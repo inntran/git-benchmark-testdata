@@ -442,7 +442,7 @@ batch of illegal psilocybin chop suey!!
 Don't interfere with the stranger's style.
 Your business will assume vast proportions.
 I used to think I was incisive, but now I'm not so sure.
-"Waving away a cloud of smoke, I look up, and am blind by a bright, white
+"Waving  a cloud of smoke, I look up, and am blind by a bright, white
 light. It's God. No, not Richard Stallman, or Linus Torvalds, but God. In
 a booming voice, He says: "THIS IS A SIGN. USE LINUX, THE FREE UNIX SYSTEM
 FOR THE 386."
@@ -478,7 +478,7 @@ whose lips became frozen to his lock in 1979 while blowing warm air on it.
 	"I got down on my knees to breathe into the lock.  Somehow my lips
 got stuck fast."
 	While he was in the posture, an old lady passed an inquired if he
-was all right.  "Alra?  Igmmlptk", he rep at which point she ran away.
+was all right.  "Alra?  Igmmlptk", he rep at which point she ran .
 	"I tried to tell her what had happened, but it came out sort of...
 muffled," explained Mr. Rowlands, a pottery signer.
 	He was trapped for twenty minutes ("I felt a bit foolish") until

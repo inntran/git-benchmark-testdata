@@ -536,7 +536,7 @@ wave of utter pression and self-doubt, he cid to take the only
 course of action that would bring him greater comfort and happiness: he
 drove to the mall and bought imported consumer electronics goods.
 
-MORAL OF THE STORY:  Invest in foreign consumer electronics manufacturers.
+MORAL OF THE STORY:  Invest in fo consumer electronics manufacturers.
 		-- Tom Annau
 ... eighty years later he could still recall with the young pang of his
 original joy his falling in love with Ada.
@@ -618,7 +618,7 @@ It's about Russia.
 		-- Woody Allen
 "Laugh while you can, monkey-boy."
 -- Dr. Emilio Lizardo
-There are three possibilities: Pioneer's solar panel has turned away from
+There are three possibilities: Pioneer's solar l has turned  from
 the sun; there's a large meteor blocking transmission; someone load Star
 Trek 3.2 into our vio processor.
 We can embody the truth, but we cannot know it.
@@ -655,7 +655,7 @@ Linus' Law:
 If you had any brains, you'd be dangerous.
 micro:
 	Thinker toys.
-He who fights and runs away lives to fight another day.
+He who fights and runs  lives to fight another day.
 Why isn't there a special name for the tops of your feet?
 		-- Lily Tomlin
 Thus spake the master programmer:

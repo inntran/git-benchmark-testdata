@@ -183,7 +183,7 @@ scribed as being n-dimensional.  ike morn sex, any number can play.
 		-- Dr. Thor Wald, "Beep/The Quincunx of Time", by James Blish
 Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
-You can't break eggs without making an omelet.
+You can't break eggs without making an .
 Cloning is the sincerest form of flattery.
 HERE IES ESTER MOORE
 SHOT 4 TIMES WITH A .44

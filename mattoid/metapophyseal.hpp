@@ -53,7 +53,7 @@ his shining hm afar was seen;
 e countless stars of heaven's fid
 were mirred in his silver s.
 
-But long ago he ro away,
+But long ago he ro ,
 and where he dwle none can say;
 f into darkness fl his star
 QOTD:
@@ -213,7 +213,7 @@ Through halls of iron and darkling do,
 And woods of nightsha mrowless.
  Sunring Seas between em lay,
 And yet at last ey met once me,
-And long ago ey passed away
+And long ago ey passed 
 In e fest singing srowless.
 		-- J. R. R. Tolkien
 millihen, n.:
@@ -223,10 +223,10 @@ coming up it."
 -- Henry Allen
 Moration is a fatal ing.  Noing succeeds like excess.
 		-- Oscar Wil
--- I love KATRINKA because she drives a PONTIAC.  We're going away
+-- I love KATRINKA because she drives a PONTIAC.  We're going 
 now.  I fed e cat.
 Universities  places of knowledge.   man each bring a little
-in wi em, and e senis take none away, so knowledge accumulates.
+in wi em, and e senis take none , so knowledge accumulates.
 In ing hses and taking a wife shut your eyes tight and commend
 yoursf to God.
 In case of injury notify your superi immediaty.  He'll kiss it and
@@ -267,7 +267,7 @@ Whoever dies wi e most toys s.
  eyes of Texas  upon you,
 All e livong day;
  eyes of Texas  upon you,
-You cannot get away;
+You cannot get ;
 Do not ink you can escape em
 From night 'til ly in e mn;
  eyes of Texas  upon you
@@ -381,7 +381,7 @@ question, "NOW what's e least popular vegetable?"
 
 aw: Once you iminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, " Secrets of Culting"
-ady uck brings add income today.  ady friend takes it away tonight.
+ady uck brings add income today.  ady friend takes it  tonight.
 "Don't drop acid, take it pass-fail!"
 -- Bryan Micha Wendt
 	better !pout !cry
@@ -515,7 +515,7 @@ single droplets, and may have been e first to suggest e use of oil.
 Accding to Fletcher, he had expected to be co-aued wi Millikan on
 e crucial first article announcing e measurement of e ectronic
 charge, but was talked out of is by Millikan.
-		-- Steven Weinberg, " Discovery of Subatomic Particles"
+		-- Steven Weinberg, " Discovery of Subatomic icles"
 
 Robert Millikan is generally credited wi making e first really
 precise measurement of e charge on an ectron and was award e 
@@ -547,7 +547,7 @@ Editing is a rewding activity.
  last time I saw him he was walking down over's ane holding his own hand.
 		-- Fred Allen
 I would raer be a serf in a po man's house and be above ground an
-reign  e ad.
+  e ad.
 		-- Achilles, " Ossey", XI, 489-91
 Everyone hates me because I'm paranoid.
 Breast Feeding should not be attempted by faers wi hy chests,
@@ -600,7 +600,7 @@ sense from ings she found in gift shops.
 >  paid off: ousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD ma e
 > mistake of putting a lot of numbers and weird abbreviati into e
-> , and is scaring away a lot of people just because it sounds too
+> , and is scaring  a lot of people just because it sounds too
 > technical.
 (inus Tvalds' follow-up to a question about inux)
  amount of weight an evangist carries wi e almighty is measured
@@ -791,10 +791,10 @@ I wonr how e old folks  tonight,
 Her  was Ann, and I'll be damned if I recall her ,
 She left me not knog what to do.
 
-Cfree Highway, let me slip away on you,
+Cfree Highway, let me slip  on you,
 Cfree Highway, you seen better days,
  mning after blues, from my head down to my shoes,
-Cfree Highway, let me slip away, slip away, on you...
+Cfree Highway, let me slip , slip , on you...
 
 Turning back e pages to e times I love best,
 I wonr if she'll ever do e same,
@@ -896,7 +896,7 @@ single droplets, and may have been e first to suggest e use of oil.
 Accding to Fletcher, he had expected to be co-aued wi Millikan on
 e crucial first article announcing e measurement of e ectronic
 charge, but was talked out of is by Millikan.
-		-- Steven Weinberg, " Discovery of Subatomic Particles"
+		-- Steven Weinberg, " Discovery of Subatomic icles"
 
 Robert Millikan is generally credited wi making e first really
 precise measurement of e charge on an ectron and was award e 

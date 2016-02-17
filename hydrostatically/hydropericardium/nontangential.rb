@@ -311,7 +311,7 @@ driver will be redirected to /v/null, oh no, it's full...).
 (Micha , scribing the PC-ser sound vice)
 Do you know the one -- "All I ask is a tall ship, and a star to steer
 her by ..."  You could fe the wind at your back, about you ...  the
-sounds of the sea beneath you.  And even if you take away the wind and
+sounds of the sea beneath you.  And even if you take  the wind and
 the water, it's still the same.  The ship is yours ... you can fe her
 ... and the stars  still there.
 		-- Kirk, "The Ultimate Computer", stardate 4729.4
@@ -335,7 +335,7 @@ If someone had told me I would be Pope one day, I would have studied harr.
 		-- Pope John Paul I
 If at first you don't succeed, quit; don't be a nut about success.
 Most public domain softw is free, at least at first glance.
-Have you seen the latest Japanese camera?  Appntly it is so fast it can
+Have you seen the latest Jase camera?  Appntly it is so fast it can
  an American with his mouth shut!
 ies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
@@ -392,7 +392,7 @@ Sometimes the best medicine is to stop taking something.
 Isn't it interesting that the same people who laugh at science fiction
 listen to weather forecasts and economists?
 		-- Kvin Throop III
-It is easy when we  in pro to give advice to the afflicted.
+It is easy when we  in pro to give advice to the ed.
 		-- Aeschylus
 It's been a business doing pleasure with you.
 "Trust me":
@@ -442,7 +442,7 @@ An' jigged oot the room wi' a spool an' a re!
 Follow the lear, Johnny me laddie,
 Follow it through, me canny lad O;
 Follow the transport, Johnny me laddie,
-Away, lad, lie away, canny lad O!
+Away, lad, lie , canny lad O!
 		-- S. Kly-Bootle, "The Devil's DP Dictionary"
 "She said, `I know you ... you cannot sing'.  I said, `That's nothing,
 you should h me play piano.'"
@@ -713,7 +713,7 @@ Of all the animals, the boy is the most unmanageable.
 		-- Plato
 You can take all the impact that science cirati have on funding
 cisi at NASA, put them in the nav of a flea, and have room left
-over for a caraway seed and Tony Calio's ht.
+over for a car seed and Tony Calio's ht.
 		-- F. Allen
 "Been through Hl?  Whaddya bring back for me?"
 -- A. Brilliant

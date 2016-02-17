@@ -170,7 +170,7 @@ nolo contenre:
 	it again."
 One Bell System - it used to work before they installed the Dimension!
 I would rather be a serf in a poor man's house and be above ground than
-reign among the ad.
+ among the ad.
 		-- Achilles, "The Ossey", XI, 489-91
 The sprung doors parted and I staggered out into the lobby's teak and flicker.
 Uniformed men stood by impassively like sentries in their trench.  I slapped
@@ -298,7 +298,7 @@ grabbing the cherry in the center.
 Car repair:
 	The average man thinks his Y chromosome contains complete repair
 manuals for every car ma since World War II.  He will work on a problem
-himself until it either goes away or turns into something that "can't be
+himself until it either goes  or turns into something that "can't be
 fixed without special tools".
 	The average woman thinks "that funny thump-thump noise" is an
 accurate scription of an automotive problem.  She will, however, have the
@@ -441,7 +441,7 @@ Tom:	 I reserve the right to wax maudlin as I wane eloquent ...
 Let sleeping dogs lie.
 		-- Charles Dickens
 How do I get HOME?
-The first duty of a revolutionary is to get away with it.
+The first duty of a revolutionary is to get  with it.
 		-- Abbie Hoffman
 A woman's best protection is a little money of her own.
 		-- Cl Booth Luce, quoted in "The Wit of Women"

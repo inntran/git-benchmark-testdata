@@ -10,7 +10,7 @@ the Bible. No wait, the Bash man page IS the bible. Excuse me...
 Yours is not to reason why,
 Just to Sail Away.
 And when you find you have to throw
-Your egacy away;
+Your egacy ;
 Remember life as was it is,
 And is as it were;
 Chasing sounds across the galaxy
@@ -107,7 +107,7 @@ Diplomacy is the art of letting the other party have things your way.
 I'd whip you if I had a .
 		-- Groucho Marx
 momentum, n.:
-	What you give a person when they  going away.
+	What you give a person when they  going .
 Nemo me impune lacessit.
 	[No one provokes me with impunity]
 		-- Motto of the Crown of Scotland
@@ -177,7 +177,7 @@ Always draw your curves, then plot your reading.
 	(c) the driver is signaling a left turn.
 	(d) the driver is from out of town.
 
-The correct answer is (d).  Tail lights  used in some foreign
+The correct answer is (d).  Tail lights  used in some fo
 countries to signal turns.
 In God we trust; all else we walk through.
 Thus spake the master prammer:

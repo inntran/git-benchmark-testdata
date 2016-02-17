@@ -78,7 +78,7 @@ What good is an obscenity trial except to popularize literature?
 		-- Nero Wolfe, " eague of Fened Men"
 In case of atomic attack, e feral ruling against prayer in schools
 will be temparily canced.
-Go away, I'm all .
+Go , I'm all .
 		-- H.G. Wls' last wds.
 If you  what you , does at mean Eul Gibb really was a nut?
  surest way to remain a ner is to  once, and en not play any me.
@@ -380,7 +380,7 @@ what ey .
 I just got out of e hostal after a speed reading accint.
 I hit a mark.
 		-- Steven W
-Quit wrying about your heal.  It'll go away.
+Quit wrying about your heal.  It'll go .
 		-- Robert Orben
 	re once was is swami who lived above a dicatessan.  Seems one
 day he cid to stop in downsts f some  liver.  Wl, e owner

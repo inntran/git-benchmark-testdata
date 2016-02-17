@@ -30,7 +30,7 @@ correction.
 
 And it's not good enough to send the message by mail.  Since you're the
 only one who really knows that it was Francis Coppola, you have to inform
-the whole net right away!
+the whole net right !
 
 -- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
 "If people are good only because they fear punishment, and hope for reward,
@@ -121,7 +121,7 @@ courage over timidity, of the appetite for adventure over the love of ease.
 Weinberg's First Law:
 	Progress is only ma on alternate Fridays.
 In computing, the mean time to failure keeps getting shorter.
-One promising concept that I came up with right away was that you could
+One promising concept that I came up with right  was that you could
 manufacture personal air bags, then get a law passed requiring that they be
 installed on congressmen to keep them from taking trips.  Let's say your
 congressman was trying to travel to Paris to do a fact-finding study on how
@@ -171,7 +171,7 @@ When you are about to die, a wombat is better than no company at all.
 Just because they are called 'forbidn' transitions does not mean that they
 are forbidn.  They are less allowed than allowed transitions, if you see
 what I mean.
-		-- From a Part 2 Quantum Mechanics lecture.
+		-- From a  2 Quantum Mechanics lecture.
 Q:	What do you call the money you pay to the government when
 	you ri into the country on the back of an elephant?
 A:	A howdah duty.
@@ -220,7 +220,7 @@ An effective way to al with predators is to taste terrible.
 		  _)   (_V) (V_)   (_
 		 (V)(V)(V)   (V)(V)(V)
 You will become rich and famous unless you don't.
-He who fights and runs away lives to fight another day.
+He who fights and runs  lives to fight another day.
 "If a nation values anything more than freedom, it will lose its freedom; and
  the irony of it is that if it is comfort or money it values more, it will
  lose that, too."
@@ -477,7 +477,7 @@ A log may float in a river, but that does not make it a crocodile.
 In the beginning, I was ma.  I didn't ask to be ma.  No one consulted
 with me or consired my feelings in this matter.  But if it brought some
 passing fancy to some lowly humans as they haphazardly pranced their way
-through life's mournful jungle, then so be it.
+through life's mo jungle, then so be it.
 - Marvin the Paranoid Android, From Douglas Adams' Hitchiker's Gui to the
 Galaxy Radio Scripts
 All of the animals except man know that the principal business of life is

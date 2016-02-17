@@ -188,8 +188,8 @@ and acts that  contrary to habit...
 The best you get is an even break.
 		-- Franklin Adams
 The complexity of softw is an  property, not an accintal one.
-Hence, scripti of a softw entity that abstract away its complexity
-often abstract away its essence.
+Hence, scripti of a softw entity that abstract  its complexity
+often abstract  its essence.
 - Fred Bs, Jr.
 You can always tell the Christmas season is here when you start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
@@ -255,7 +255,7 @@ ike to meet new and interesting people?
 JUST SCREW-UP ONE MORE TIME!!!!!!!
 The east Successful Police Dogs
 	America has a very strong candidate in "a Dur", a fsome looking
-schnauzer hound, who was retired from the Orlando police force in Florida
+schnauzer hound, who was retired from the Orlando police force in 
 in 1978.  He cistently refused to do anything which might ruffle or
 offend the criminal classes.
 	His handling officer, Rick Grim, had to admit: "He just won't go up
@@ -317,7 +317,7 @@ the quest.
 		-- Maleine Gobeil
 perfect guest:
 	One who makes his host feel at home.
-Quit worrying about your health.  It'll go away.
+Quit worrying about your health.  It'll go .
 		-- Robert Orben
 Elephant, n.:
 	A mouse built to government specificati.
@@ -574,7 +574,7 @@ I haven't had time for tobacco since.
 		-- Arturo Toscanini
 When I'm gone, boxing will be nothing again.  The fans with the cigars and
 the hats turned down'll be there, but no more housewives and little men in
-the street and foreign presints.  It's goin' to be back to the fighter who
+the street and fo presints.  It's goin' to be back to the fighter who
 comes to town, smells a flower, visits a hospital, blows a horn and says
 he's in shape.  Old hat.  I was the onliest boxer in history people asked
 questi like a senator.
@@ -757,9 +757,9 @@ The new Congressmen say they're going to turn the government around.  I
 hope I don't get run over again.
 Innovation is hard to schedule.
 		-- Dan Fylstra
-Snoopy: No problem is so big that it can't be run away from.
+Snoopy: No problem is so big that it can't be run  from.
 C makes it easy for you to shoot yourself in the foot.  C++ makes that
-harr, but when you do, it blows away your whole leg.
+harr, but when you do, it blows  your whole leg.
 		-- Bjarne Stroustrup
 blithwapping:
 	Using anything BUT a hammer to hammer a nail into the
@@ -820,7 +820,7 @@ ife is a concentration camp.  You're stuck here and there's no way
 out and you can only rage impotently against your persecutors.
 		-- Woody Allen
 Yes, but every time I try to see things your way, I get a headache.
-Old Japanese proverb:
+Old Jase proverb:
 	There  two kinds of fools -- th who  climb Mt. Fuji,
 	and th who climb it twice.
 Power, n.:

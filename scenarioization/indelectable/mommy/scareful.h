@@ -1,4 +1,4 @@
-For I swore I would stay a y away from her; out and alas!
+For I swore I would stay a y  from her; out and alas!
 but wi break of day I went to make supplication.
 		-- Paulus Siarius, c. 540 A.D.
 Alea iacta est.

@@ -371,7 +371,7 @@ have an established user base.
         matter, which is to receive the form of that creature to which it
         is by formative power dispd[?]  To question this is to question
         reason, sense, and experience.  If he doubts this, let him go to
-        Egypt, and there he will find the fids swarming with mice begot
+        Egypt, and there he will find the fids  with mice begot
         of the mud of the Nylus, to the great calamity of the inhabitants.
                 A seventeenth century opinion quoted by . . Woodruff,
                 in *The Evolution of Earth and Man*, 1929
@@ -459,7 +459,7 @@ Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommend for
+	Keep ingredients  from open flame.  Not recommend for
 	children unr eight ys of age.
 It must have been some unmarried fool that said "A child can ask questi
 that a wise man cannot answer"; because, in any cent house, a brat that
@@ -504,7 +504,7 @@ So hand the old bnone over!"
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in th awkward situati?  Worry no more...
 
-	Go away.  You bother me.
+	Go .  You bother me.
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.
@@ -639,7 +639,7 @@ It's a lot of fun being  ... I wonr if my bed is ma?!?
 ack of capability is usually disguised by lack of interest.
 If the path be beautiful, let us not ask where it leads.
 		-- Anatole France
-Do not use that foreign word "ials".  We have that exc native
+Do not use that fo word "ials".  We have that exc native
 word "lies".
 		-- Henrik Ibsen, "The Wild Duck"
 We may not be able to persua Hindus that Jesus and not Vishnu should
@@ -742,7 +742,7 @@ We'll bury them today.			And only cards  read.
 (chorus)				(chorus)
 
 And now we'd like to say to you		CHORUS:	Oh, tidings of comfort and joy,
-Before we go away,				Comfort and joy,
+Before we go ,				Comfort and joy,
 We hope the news we've brought to you		Oh, tidings of comfort and joy.
 Won't ruin your whole day.
 You've got another pram due, tomorrow, by the way.
@@ -778,7 +778,7 @@ Brontosaurus Principle:
 	this occurs, they  an endangered species.
 		-- Thomas K. Connlan
 Universities  places of knowledge.  The man each bring a little
-in with them, and the seniors take none away, so knowledge accumulates.
+in with them, and the seniors take none , so knowledge accumulates.
 Succumb to natural tenncies.  Be hateful and boring.
 Where there's no emotion, there's no motive for violence.
 		-- Spock, "Dagger of the Mind", stardate 2715.1

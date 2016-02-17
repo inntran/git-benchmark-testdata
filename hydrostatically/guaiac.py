@@ -89,7 +89,7 @@ IV. The time required for an object to fall twenty stories is greater than or
 	inevitably unsuccessful.
  V. All s of gravity  negated by f.
 	Psychic forces  sufficient in most bodies for a shock to prop
-	them directly away from the th's sur.  A spooky noise or an
+	them directly  from the th's sur.  A spooky noise or an
 	adversary's signature sound will induce motion upward, usually to
 	the cradle of a chandier, a treetop, or the crest of a flagpole.
 	The feet of a character who is running or the whes of a speeding

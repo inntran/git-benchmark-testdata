@@ -78,7 +78,7 @@ cis to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
 way mathematically of guaranteeing winning at the race track?  We could
 make a lot of money and retire and enjoy life."  The mathematician thinks
-this over a bit and walks away mumbling to himself.
+this over a bit and walks  mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
 success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
 actually I do have an ia, and I'm reasonably sure that it will work, but
@@ -169,7 +169,7 @@ What should I do?
 		-- Forgetful
 
 Dear Forgetful:
-	Rush to your terminal right away and post an article that says,
+	Rush to your terminal right  and post an article that says,
 "Oops, I forgot to post my signature with that last article.  Here
 it is."
 	Since most people will have forgotten your earlier article,
@@ -521,7 +521,7 @@ Ours is a world of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
 You can write a small letter to Grandma in the filename.
 		-- Forbes Burkowski, CS, University of Washington
-Ticking away the moments that make up a dull day
+Ticking  the moments that make up a dull day
 Fritter and waste the hours in an offhand way
 Kicking around on a piece of ground in your hometown
 Waiting for someone or something to show you the way
@@ -566,7 +566,7 @@ Putt's Law:
 		Those who manage what they do not unrstand.
 It wasn't that she had a rose in her teeth, exactly.  It was more like
 the rose and the teeth were in the same glass.
-You can't run away forever,
+You can't run  forever,
 But there's nothing wrong with getting a good head start.
 		-- Jim Steinman, "Rock and Roll Dreams Come Through"
 Avert misunrstanding by calm, poise, and balance.
@@ -637,7 +637,7 @@ Growing old isn't bad when you consir the alternatives.
 		-- Maurice Chevalier
 "I am convinced that the manufacturers of carpet odor removing powr have 
  includ encapsulated time released cat urine in their products.  This 
- technology must be what prevented its distribution during my mom's reign.  My 
+ technology must be what prevented its distribution during my mom's .  My 
  carpet smells like piss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.conspiracy
 The cost of living has just gone up another dollar a quart.
@@ -824,11 +824,11 @@ Computers don't actually think.
 	You just think they think.
 		(We think.)
 The following statement is not true.  The previous statement is true.
-Throw away documentation and manuals,
+Throw  documentation and manuals,
 and users will be a hundred times happier.
-Throw away privileges and quotas,
+Throw  privileges and quotas,
 and users will do the Right Thing.
-Throw away proprietary and site licenses,
+Throw  proprietary and site licenses,
 and there won't be any pirating.
 
 If these three aren't enough,

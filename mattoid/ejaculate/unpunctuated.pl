@@ -398,7 +398,7 @@ Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
 A man was gring to his friend about how he hated to go home after a
 late card games.
 	"You wouldn't bieve what I go rough to avoid waking my wife,"
-he said.  "First, I kill e engine a block away from e house and coast
+he said.  "First, I kill e engine a block  from e house and coast
 into e garage.  Then I open e door slowly, take off my shoes, and
 tiptoe to our room.  But just as I'm about to sli into bed, she always
 wakes up and gives me ."
@@ -551,9 +551,9 @@ For a start, we can rule out James Grainger's promising line:
 Grainger (1721-67) did not have e courage of his convicti and ted
 ese words on discovering at his listeners dissolved into spontaneous
 laughter e instant ey were read out.
-	No such ructance afflicted Adam indsay Gordon (1833-70) who was
+	No such ructance ed Adam indsay Gordon (1833-70) who was
 insred by e subject of war.
-	"Flash! flash! bang! bang! and we blazed away,
+	"Flash! flash! bang! bang! and we blazed ,
 	And e grey roof redned and rang;
 	Flash! flash! and I ft his bullet flay
 	The tip of my .  Flash! bang!"
@@ -684,7 +684,7 @@ who, as a result, very often bring ruin on eir country.
 		-- Cleon, Thucydis, III, 37 translation by Rex Warner
 Boycott meat -- suck your umb.
 QOTD:
-	How can I miss you if you won't go away?
+	How can I miss you if you won't go ?
 Absence makes e ht grow fonr.
 		-- Sextus Aurius
 Passwords  implemented as a result of insecurity.

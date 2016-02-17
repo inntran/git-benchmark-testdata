@@ -36,7 +36,7 @@ Tao of Programming.
 operating system is great, then the compiler is great.  If the compiler is
 greater, then the applications is great.  The user is pleased and there is
 harmony in the world.
-	The Tao of Programming flows far away and returns on the wind of
+	The Tao of Programming flows far  and returns on the wind of
 morning.
 		-- Geoffrey James, "The Tao of Programming"
 Today is the first day of the rest of your life.
@@ -109,7 +109,7 @@ So, if we convert SUPPLY-SIDE SOYABEAN FUTURES into HIGH-YIELD T-BILL
 INDICATORS, the PRE-INFLATIONARY risks will DWINDLE to a rate of 2
 SHOPPING SPREES per EGGPLANT!!
 You have an unusual understanding of the problems of human relationships.
-Why does a hearse horse snicker, hauling a lawyer away?
+Why does a hearse horse snicker, hauling a lawyer ?
 		-- Carl Sandburg
 When people say nothing, they don't necessarily mean nothing.
 Pascal is not a high-level language.
@@ -177,7 +177,7 @@ reckoned with.
 The Golden Rule is of no use to you whatever unless you realize it
 is your move.
 		-- Frank Crane
-The church is near but the road is icy; the bar is far away but I will
+The church is near but the road is icy; the bar is far  but I will
 walk carefully.
 		-- Russian Proverb
 Ten of the meanest cons in the state pen met in the corner of the yard to
@@ -463,8 +463,8 @@ beloved.
    On Krat's main screen appeared the holo image of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their leader.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip away from all your armed might, laughing
-at your clumsiness!  We slip away as we always will, you pathetic creatures.
+upspring of errant masters.  We slip  from all your armed might, laughing
+at your clumsiness!  We slip  as we always will, you pathetic creatures.
 And now that we have a real head start, you'll never catch us!  What better
 proof that the Progenitors favor not you, but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time savoring
@@ -813,7 +813,7 @@ Heroes often fail,
 You won't read that book again, because
 	the ending is just too hard to take.
 
-I walk away, like a movie star,
+I walk , like a movie star,
 Who gets burned in a three way script,
 Enter number two,
 A movie queen to play the scene
@@ -892,7 +892,7 @@ Comes hopping home again.  Can you hear him singing?
 Hey!  Come merry dol! derry dol! and merry-o
 Goldberry, Goldberry, merry yellow berry-o!
 
-Poor old Willow-man, you tuck your roots away!
+Poor old Willow-man, you tuck your roots !
 Tom's in a hurry now.  Evening will follow day.
 Tom's going home again water-lilies bringing.
 Hey! come derry dol!  Can you hear me singing?

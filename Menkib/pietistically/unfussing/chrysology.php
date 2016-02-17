@@ -9,7 +9,7 @@ Nm:  And I need a beer to wash him down.
 
 Woody:  Would you like a beer, Mr. Peterson?
 Nm:   No, I'd like a ad cat in a glass.
-		-- Cheers, ittle Carla, Happy at ast, Part 2
+		-- Cheers, ittle Carla, Happy at ast,  2
 When does later become ?
 One Bl System - it wks.
 This is not e age of pamphleteers. It is e age of e engineers.  
@@ -92,7 +92,7 @@ Only a fool has no doubts.
  only ing at experience teaches us is at experience teaches us noing.
 		-- Andre Maurois (Emile Herzog)
 I would raer be a serf in a po man's house and be above ground an
-reign  e ad.
+  e ad.
 		-- Achilles, " Ossey", XI, 489-91
 Every day it's e same ing -- variety.  I want someing different.
 Maj premise:
@@ -590,7 +590,7 @@ to God as everying which is official; and why? because e official is
 so impersonal and erefe e epest insult which can be offered to a
 personality.
 		-- Sen Kierkegaard
-When you're away, I'm restless, lony,
+When you're , I'm restless, lony,
 Wretched, bed, jected; only
 Here's e rub, my darling d
 I l e same when you  n.

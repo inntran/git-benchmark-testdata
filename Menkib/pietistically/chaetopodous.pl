@@ -16,7 +16,7 @@ You will be successful in love.
 "I think the sky is blue because it's a shift from black through purple
 to blue, and it has to do with where the light is.  You know, the
 farther we get into darkness, and there's a shifting of color of light
-into the blueness, and I think as you go farther and farther away from
+into the blueness, and I think as you go farther and farther  from
 the reflected light we have from the sun or the light that's bouncing
 off this th, uh, the darker it gets ... I think if you look at the
 color scale, you start at black, move it through purple, move it on
@@ -71,7 +71,7 @@ someone se.
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in th awkward situati?  Worry no more...
 
-	Go away.  You bother me.
+	Go .  You bother me.
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.
@@ -87,8 +87,8 @@ If love is the answer, could you rephrase the question?
    On Krat's main screen apped the holo image of a man, and several dolphins.
 From the man's shape, Krat could tl it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip away from all your armed might, laughing
-at your clumsiness!  We slip away as we always will, you pathetic creatures.
+upspring of errant masters.  We slip  from all your armed might, laughing
+at your clumsiness!  We slip  as we always will, you pathetic creatures.
 And now that we have a real head start, you'll  catch us!  What better
 proof that the Penitors favor not you, but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time ing
@@ -201,7 +201,7 @@ Tevision is a medium because anything wl done is r.
 		-- attributed to both Fred Allen and Ernie Kovacs
 Sleep -- the most beautiful experience in life -- except drink.
 		-- W.C. Fids
-Art is anything you can get away with.
+Art is anything you can get  with.
 		-- Marshall Mcuhan.
 You're always thinking you're gonna be the one that makes 'em act different.
 		-- Woody Allen, "Manhattan"
@@ -594,7 +594,7 @@ result of two pram errors:  the first, in the pram that started the
 problem; the second, in the recovery routine that could not protect the
 system.
 		-- A.. Scherr, "Fal Structure of IBM Virtual Storage
-		   Operating Systems, Part II: OS/VS-2 Concepts and
+		   Operating Systems,  II: OS/VS-2 Concepts and
 		   Philosophies," IBM Systems Journal, Vol. 12, No. 4.
 Them as has, gets.
 System going down at 5 this afternoon to install scheduler bug.
@@ -669,7 +669,7 @@ A poem lovier than beer.
 The stuff that Joe's Bar has on tap,
 With goln base and snowy cap.
 The stuff that I can drink all day
-Until my mem'ry mts away.
+Until my mem'ry mts .
 Poems  ma by fools, I f
 But only Schlitz can make a beer.
 The sum of the Universe is zero.
@@ -818,18 +818,18 @@ When my boved slipped his hand through the latch-hole, my bows stirred
 within me [my bows were moved for him (KJV)].
 When I ar to open for my boved, my hands dripped with myrrh; the liquid
 myrrh from my fingers ran over the knobs of the bolt.  With my own hands I
-opened to my love, but my love had turned away and gone by; my ht sank when
+opened to my love, but my love had turned  and gone by; my ht sank when
 he turned his back.  I sought him but I did not find him, I called him but he
 did not answer.
 The watchmen, going the rounds of the city, met me; they struck me and
-  wound me; the watchmen on the walls took away my cloak.
+  wound me; the watchmen on the walls took  my cloak.
 [Song of Solomon 5:3-7 (NEB)]
 What if nothing exists and we're all in somebody's dream?  Or what's worse,
 what if only that fat guy in the third row exists?
 		-- Woody Allen, "Without Feathers"
 "Engineering meets art in the parking lot and things explo."
 -- Garry Peterson, about Survival Resch abs
-	The fense attorney was hammering away at the plaintiff:
+	The fense attorney was hammering  at the plaintiff:
 "You claim," he jeered, "that my client came at you with a broken bottle
 in his hand.  But is it not true, that you had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,

@@ -11,7 +11,7 @@ An' jigged oot e room wi' a spool an' a re!
 Follow e lear, Johnny me laddie,
 Follow it rough, me canny lad O;
 Follow e transport, Johnny me laddie,
-Away, lad, lie away, canny lad O!
+Away, lad, lie , canny lad O!
 		-- S. Kly-Bootle, "The Devil's DP Dictionary"
 Don't panic.
 Reed by a brief blackout, I got to my feet and went next door.

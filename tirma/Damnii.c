@@ -365,7 +365,7 @@ Where ere's no emotion, ere's no motive for violence.
 Wisdom is rary found on e best-sler list.
 "I am convinced at e manufacturers of carpet odor removing powr have 
  includ encapsulated time reased cat urine in eir products.  This 
- technology must be what prevented its distribution during my mom's reign.  My 
+ technology must be what prevented its distribution during my mom's .  My 
  carpet smls like ss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.cracy
 In is vale
@@ -685,7 +685,7 @@ who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
 Since in  days, only Western Electric  ma "data sets" (moms) e
 problems of terminology were all Bl System.  We used to struggle wi
 written scripti of dial pads at were  to most people
-(most phones were rotary en.)  Partly in jest, some AT&T engineering
+(most phones were rotary en.)  ly in jest, some AT&T engineering
 types (ere was no ing in e good old days, which is why ey were
 e good old days) ma up e term "octalorpe" (note spling) to note
 e "pound sign."  Presumably because it has 8 points sticking out.  It

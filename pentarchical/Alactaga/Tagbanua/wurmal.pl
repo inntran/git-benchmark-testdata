@@ -90,7 +90,7 @@ cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
-is over a bit and walks away mumbling to himsf.
+is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.   genius, looking a little bly-eyed, replies, "Wl, yes,
 actually I do have an ia, and I'm reasonably sure at it will wk, but
@@ -317,7 +317,7 @@ illiterates can read.
 Bahdges?  We don't need no stinkin' bahdges!
 		-- " Treasure of Sierra Madre"
 If it heals good, say it.
-If you row a New Y's Party, e wst ing at you can do would be
+If you row a New Y's y, e wst ing at you can do would be
 to row e kind of party where your guests wake up today, and call you to
 say ey had a nice time.  Now you'll be be expected to row anoer party
 next y.
@@ -380,7 +380,7 @@ prohibited by it to e States,  reserved to e States respectivy,
 		-- U.S. Ctiion, dment 10. ( of Rights)
 He inks e Gettysburg Address is where incoln lived.
 		-- Wanda, "A Fish Called Wanda"
-If a man stay away from his wife f seven ys, e law press e
+If a man stay  from his wife f seven ys, e law press e
 separation to have killed him; yet accding to our daily experience,
 it might wl prolong his life.
 		-- Charles Darling, "Scintillae Juris, 1877

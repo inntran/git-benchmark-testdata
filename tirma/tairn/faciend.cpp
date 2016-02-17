@@ -342,7 +342,7 @@ TAPPING?  You POLITICIANS!  Don't you realize that the END of the "Wash
 Cycle" is a TREASURED MOMENT for most people?!
 When God endowed human beings with brains, He did not intend to guarantee them.
 QOTD:
-	How can I miss you if you won't go away?
+	How can I miss you if you won't go ?
 I am eply CONCERNED and I want something GOOD for BREAKFAST!
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic Empire, life was wild, rich and largely tax free.
@@ -459,8 +459,8 @@ him than he serves.
    On Krat's main screen appeared the holo image of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip away from all your armed might, laughing
-at your clumsiness!  We slip away as we always will, you pathetic creatures.
+upspring of errant masters.  We slip  from all your armed might, laughing
+at your clumsiness!  We slip  as we always will, you pathetic creatures.
 And now that we have a real head start, you'll never catch us!  What better
 proof that the Progenitors favor not you, but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time savoring
@@ -490,7 +490,7 @@ throne of any country in Western Europe and Laurie Anrson.  "Be
 practical", was the choral reply from the dinner table.  Well, Laurie
 Anrson is already Laurie Anrson, but I read an article in Harpers
 that said there were eleven countries, in the world this is I think,
-that have queens as sovereign rulers.  That's probably my best shot.
+that have queens as sove rulers.  That's probably my best shot.
 neutron bomb, n.:
 	An explosive vice of limited military value because, as
 	it only stroys people without stroying property, it
@@ -526,7 +526,7 @@ You should have heard me just around midnight.
 		-- Rolling Stones, "Brown Sugar"
 "I am convinced that the manufacturers of carpet odor removing powr have 
  includ encapsulated time released cat urine in their products.  This 
- technology must be what prevented its distribution during my mom's reign.  My 
+ technology must be what prevented its distribution during my mom's .  My 
  carpet smells like piss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.conspiracy
 If you can't read this, blame a teacher.

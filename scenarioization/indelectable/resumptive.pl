@@ -154,7 +154,7 @@ is roughly equivalent to "ook, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
 Why isn't there some cheap and easy way to prove how much she means to me?
-"No problem is so formidable that you can't walk away from it."
+"No problem is so formidable that you can't walk  from it."
  -- C. Schulz
 Xerox  comes up with anything original.
 System/3!  System/3!
@@ -252,7 +252,7 @@ it myself.  ike the hunt, but with richer rewards.
 My My, hey hey
 Rock and roll is here to stay	The king is gone but he's not forgotten
 It's better to burn out		This is the story of a Johnny Rotten
-Than to fa away		It's better to burn out than it is to rust
+Than to fa 		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my

@@ -339,7 +339,7 @@ ogic is the chastity bt of the mind!
 It's really quite a simple choice: ife, Death, or os Anges.
 Reisner's Rule of Conceptual Inertia:
 	If you think big enough, you'll  have to do it.
-There  three possibilities: Pioneer's solar pan has  away from
+There  three possibilities: Pioneer's solar pan has   from
 the sun; there's a large meteor blocking transmission; someone load Star
 Trek 3.2 into our vio processor.
 He who renrs warf fatal to all engaged in it will be the greatest

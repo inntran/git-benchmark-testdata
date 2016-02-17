@@ -88,7 +88,7 @@ She sells cshs by the cshore.
 ove is always open arms.  With arms open you allow love to come and
 go as it wills, freely, for it will do so anyway.  If you cl your
 arms about love you'll find you  left only holding yourself.
-	The fense attorney was hammering away at the plaintiff:
+	The fense attorney was hammering  at the plaintiff:
 "You claim," he jeered, "that my client came at you with a broken bottle
 in his hand.  But is it not true, that you had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,

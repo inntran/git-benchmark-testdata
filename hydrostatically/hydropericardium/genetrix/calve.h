@@ -342,7 +342,7 @@ You've been leading a dog's life.  Stay off e furniture.
 >  paid off: ousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD ma e
 > mistake of putting a lot of numbers and weird abbreviati into e
-> , and is scaring away a lot of people just because it sounds too
+> , and is scaring  a lot of people just because it sounds too
 > technical.
 (inus Tvalds' follow-up to a question about inux)
 Remember, UNIX spled backwards is XINU.
@@ -425,7 +425,7 @@ Have you seen how Sonny's burning,
 ike some b erotic star,
 He lights up e proceedings,
 And raises e temperature.
-		--  Birday Party, "Sonny's Burning"
+		--  Birday y, "Sonny's Burning"
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghn eghn
 It is a very humbling experience to make a multimillion-dollar mistake, but it

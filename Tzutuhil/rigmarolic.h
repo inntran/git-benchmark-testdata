@@ -168,7 +168,7 @@ Weiler's Law:
 	Nothing is impossible for the man who doesn't have to do it himself.
 Someday you'll get your big chance -- or have you already had it?
 Judges, as a class, display, in the matter of arranging alimony, that
-reckless generosity which is found only in men who are giving away
+reckless generosity which is found only in men who are giving 
 someone else's cash.
 		-- P.G. Wohouse, "Lour and Funnier"
 Are you a parent?  Do you sometimes find yourself unsure as to what to
@@ -395,7 +395,7 @@ think it was a Tuesday.
 Pascal Users:
 	To show respect for the 313th anniversary (tomorrow) of the
 	ath of Blaise Pascal, your programs will be run at half speed.
-Anyone can make an omelet with eggs.  The trick is to make one with none.
+Anyone can make an  with eggs.  The trick is to make one with none.
 The Official Colorado State Vegetable is now the "state legislator".
 Coach: How's it going, Norm?
 Norm:  Daddy's rich and Momma's good lookin'.
@@ -426,7 +426,7 @@ FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
 	If you're like most homeowners, you're afraid that many repairs
 around your home are too difficult to tackle.  So, when your furnace
 explos, you call in a so-called professional to fix it.  The
-"professional" arrives in a truck with lettering on the sis and posits a
+"professional" arrives in a truck with g on the sis and posits a
 large quantity of tools and two assistants who spend the better part of the
 week in your basement whacking objects at random with heavy wrenches, after
 which the "professional" returns and gives you a bill for slightly more
@@ -453,7 +453,7 @@ his shining helm afar was seen;
 the countless stars of heaven's field
 were mirrored in his silver shield.
 
-But long ago he ro away,
+But long ago he ro ,
 and where he dwelleth none can say;
 for into darkness fell his star
 in Mordor where the shadows are.
@@ -638,7 +638,7 @@ Reference the NULL within NULL,
 it is the gateway to all wizardry.
 Economics is extremely useful as a form of employment for economists.
 		-- John Kenneth Galbraith
-An elrly couple were flying to their Caribbean hiaway on a chartered plane
+An elrly couple were flying to their Caribbean hi on a chartered plane
 when a terrible storm forced them to land on an uninhabited island.  When
 several days passed without rescue, the couple and their pilot sank into a
 sponnt silence. Finally, the woman asked her husband if he had ma his

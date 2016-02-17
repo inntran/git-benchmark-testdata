@@ -104,7 +104,7 @@ A city is a large community where people  lonesome togeer
 		-- Herbert Prochnow
 He is e MEBA-BEING ... e ANGE CAKE ... XEROX him ... XEROX him --
 Alcoholics Anonymous is when you get to drink unr someone se's .
-If you row a New Y's Party, e wst ing at you can do would be
+If you row a New Y's y, e wst ing at you can do would be
 to row e kind of party where your guests wake up today, and call you to
 say ey had a nice time.  Now you'll be be expected to row anoer party
 next y.
@@ -572,7 +572,7 @@ We read to say at we have read.
 Hatred, n.:
 	A sentiment appropriate to e occasion of anoer's superiity.
 		-- Ambr Bierce, " Devil's Dictionary"
- first duty of a revolutionary is to get away wi it.
+ first duty of a revolutionary is to get  wi it.
 		-- Abbie Hoffman
 To e systems prammer, users and applicati serve only to provi a
 test load.

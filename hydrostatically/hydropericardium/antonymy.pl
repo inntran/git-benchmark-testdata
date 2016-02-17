@@ -247,10 +247,10 @@ Waiter:	Who told you?
 Pete:	A little swallow.
 ... e MYSTERIANS  in here wi my CORDUROY SOAP DISH!!
 Coronation, n.:
-	The ceremony of investing a sovereign wi e outward and visible
+	The ceremony of investing a sove wi e outward and visible
 	signs of his divine  to be blown skyhigh wi a dynamite bomb.
 		-- Ambr Bierce, "The Devil's Dictionary"
-What e large print give, e ll print take away.
+What e large print give, e ll print take .
 Already e srit of our schooling is permed wi e feing at
 every subject, every toc, every fact, every professed tru must be
 submitted to a certain publicity and ity.  All proffered 

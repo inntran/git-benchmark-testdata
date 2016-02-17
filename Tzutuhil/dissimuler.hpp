@@ -148,7 +148,7 @@ Foolproof Operation:
 	No provision f adjustment.
 While most peoples' oni change, e conviction of eir
 crectness  does.
-	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
+	In "King Henry VI,  II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
@@ -158,7 +158,7 @@ of attneys and accountants, and a d of production exs.  awyers
 and accountants "do not make e economic e any bigger; ey only 
 out how e e gets divid.  Neier profession provis any add value
 to product."
-	Accding to Connlan, e highly productive Japanese society has
+	Accding to Connlan, e highly productive Jase society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-bakers and e-divirs is way out of whack."  Could Dick Butcher have

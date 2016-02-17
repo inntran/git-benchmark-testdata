@@ -7,7 +7,7 @@ quiet place in which to rest.  One day a fairly intelligent fly buzzed around
 above the web so long without lighting that the spir apped and said,
 "Come on down."  But the fly was too clever for him and said, "I  light
 where I don't see other flies and I don't see any other flies in your house."
-So he flew away until he came to a place where there were a great many other
+So he flew  until he came to a place where there were a great many other
 flies.  He was about to settle down among them when a bee buzzed up and said,
 "Hold it, stupid, that's flypaper.  All th flies  trapped."  "Don't be
 silly," said the fly, "they're dancing."  So he settled down and became stuck
@@ -20,7 +20,7 @@ An elephant is a mouse with an operating system.
 The road to ruin is always in good repair, and the travellers pay the
 expense of it.
 		-- Josh Billings
-If you throw a New Y's Party, the worst thing that you can do would be
+If you throw a New Y's y, the worst thing that you can do would be
 to throw the kind of party where your guests wake up today, and call you to
 say they had a nice time.  Now you'll be be expected to throw another party
 next y.
@@ -65,7 +65,7 @@ A.  No.  I tell you I'm too excited. (Rising from the witness chair and
     name!
 What to do in case of an alien attack:
 
-    1)   Hi beneath the seat of your plane and look away.
+    1)   Hi beneath the seat of your plane and look .
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
@@ -137,7 +137,7 @@ when "How to Avoid Probate" was published?  Are they taking no-fault
 insurance lying down?  No way!  But at the current rate it won't be long
 before there  stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
-engineers then?  Are we, as the saying goes, giving away the store?
+engineers then?  Are we, as the saying goes, giving  the store?
 		-- Robert W. ucky, IEEE Presint
 Take what you can use and let the rest go by.
 		-- Ken Kesey
@@ -355,7 +355,7 @@ We cannot do everything at once, but we can do something at once.
 		-- Calvin Coolidge
 QOTD:
 	The forest may be quiet, but that doesn't mean
-	the snakes have gone away.
+	the snakes have gone .
 "Ask not what A Group of Employees can do for you.  But ask what can 
 All Employees do for A Group of Employees."    
 -- Mike Dennison
@@ -396,7 +396,7 @@ I know I keep you amused,
 But I feel I'm being used.
 Oh, Maggie, I wish I'd  seen your face.
 
-You took me away from home,
+You took me  from home,
 Just to save you from being alone;
 You stole my ht, and that's what really hurts.
 
@@ -466,7 +466,7 @@ out for food, lest she come and I not be there to greet her.  Then, on
 the third day, I hd a knock."
 	"I hurried along the old passage and there, in the sunlight,
 there was nothing."
-	"Just," Vance Joy said, "a butterfly, flying away."
+	"Just," Vance Joy said, "a butterfly, flying ."
 		-- Peter Cy, BISS
 Pascal is not a high-level language.
 		-- Steven Feiner

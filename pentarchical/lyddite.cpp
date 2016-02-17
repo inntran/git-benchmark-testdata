@@ -46,7 +46,7 @@ throne of any country in Western Europe and aurie Anrson.  "Be
 practical", was the choral reply from the dinner table.  Well, aurie
 Anrson is already aurie Anrson, but I read an article in Harpers
 that said there were eleven countries, in the world this is I think,
-that have queens as sovereign rulers.  That's probably my best shot.
+that have queens as sove rulers.  That's probably my best shot.
 Indomitable in retreat; invincible in advance; insufferable in victory.
 		-- Winston Churchill, on General Montgomery
 Pretend to spank me -- I'm a pseudo-masochist!
@@ -84,7 +84,7 @@ l your job.  These economic downturns  very difficult to predict,
 but sophisticated econometric moling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten remaining blocks of uke's home
-directory, uke and PDP-1 sped away from /u/lars, across the surface of the
+directory, uke and PDP-1 sped  from /u/lars, across the surface of the
 Winchester riding uke's flying read/write head.  PDP-1 had uke stop at the
 edge of the cylinr overlooking /usr/spool/uucp.
 	"Unix-to-Unix Copy Program;" said PDP-1.  "You will  find a more
@@ -145,16 +145,16 @@ acquiring the aning effect of a habit.
 		-- W. Somerset Maugham
 Woody: What's happening, Mr. Peterson?
 Norm:  The question is, Woody, why is it happening to me?
-		-- Cheers, Strange Bedfellows, Part 1
+		-- Cheers, Strange Bedfellows,  1
 
 Woody: What's going down, Mr. Peterson?
 Norm:  My cheeks on this barstool.
-		-- Cheers, Strange Bedfellows, Part 2
+		-- Cheers, Strange Bedfellows,  2
 
 Woody: Hey, Mr. Peterson, can I pour you a beer?
 Norm:  Well, okay, Woody, but be sure to stop me at one. ...
        Eh, make that one-thirty.
-		-- Cheers, Strange Bedfellows, Part 2
+		-- Cheers, Strange Bedfellows,  2
 You will engage in a profitable business activity.
 The assertion that "all men  created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
@@ -377,7 +377,7 @@ A baby is God's opinion that the world should go on.
 Are you a pnt?  Do you sometimes find yourself unsure as to what to
 say in th awkward situati?  Worry no more...
 
-	Go away.  You bother me.
+	Go .  You bother me.
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.

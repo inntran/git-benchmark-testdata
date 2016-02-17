@@ -289,7 +289,7 @@ Been Transferred ately?
 I  met a man I didn't want to fight.
 		-- yle Alzado, professional football lineman
 ife is like an egg stain on your chin -- you can lick it, but it still
-won't go away.
+won't go .
 I accept chaos.  I am not sure whether it accepts me.  I know some people
  terrified of the bomb.  But then some people  terrified to be seen
 carrying a morn screen magazine.  Experience teaches us that silence
@@ -480,7 +480,7 @@ his shining helm afar was seen;
 the countless stars of heaven's field
 were mirrored in his silver shield.
 
-But long ago he ro away,
+But long ago he ro ,
 and where he dwelleth none can say;
 for into darkness fell his star
 in Mordor where the shadows .

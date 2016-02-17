@@ -193,7 +193,7 @@ mundane to bother with.  "I'm flame proof" might (and has) become
 "I'm ...a... p...oof" but that's REAY stretching it.
 
 	Two.  If I  words off the beginning or end of a quote, I don't
-put lipses, but neither do I capitalize something that wasn't capitalized
+put lipses, but neither do I  something that wasn't d
 before the . "I don't think that the Church of Ubizmo is a wonrful
 place" would turn into "the Church of Ubizmo is a wonrful place".  Imagine
 the posting as a tape-reing of the poster's thoughts.  If I can set
@@ -257,7 +257,7 @@ cheese dip.
 God is a comic playing to an audience that's afraid to laugh.
 13. ...  r-q1
 If an average person on the subway turns to you, like an ancient mariner,
-and starts tling you her tale, you turn away or nod and hope she stops,
+and starts tling you her tale, you turn  or nod and hope she stops,
 not just because you f she might be crazy.  If she tls her tale on
 camera, you might listen.  Watching strangers on tevision , even
 responding to them from a studio audience, we're disengaged -- voyeurs

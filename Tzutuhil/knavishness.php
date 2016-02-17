@@ -91,7 +91,7 @@ muddy paw prints on the hood of my car.
 The adjective is the banana peel of the parts of speech.
 		-- Clifton Fadiman
 You could live a better life, if you had a better mind and a better body.
-What the large print giveth, the small print taketh away.
+What the large print giveth, the small print taketh .
 Here is a test to find whether your mission on th is finished:
 if you're alive, it isn't.
 T-shirt:
@@ -108,7 +108,7 @@ David etterman's "Things we can be proud of as Americans":
 	* Many newspapers feature "JUMBE"
 	* Hourly motel rates
 	* Vast majority of Elvis movies ma here
-	* Didn't just give up right away during World War II
+	* Didn't just give up right  during World War II
 		like some countries we could mention
 	* Goatees & Van Dykes thought to be worn only by weenies
 	* Our well-behaved golf professionals
@@ -181,7 +181,7 @@ want to own one.
 		-- W.C. Fields
 Patch griefs with proverbs.
 		-- William Shakespe, "Much Ado About Nothing"
-A real friend isn't someone you use once and then throw away.
+A real friend isn't someone you use once and then throw .
 A real friend is someone you can use over and over again.
 And then there was the lawyer that stepped in cow manure and thought
 he was melting...
@@ -254,7 +254,7 @@ In other parts it leaves  sandy plains;
 Thus in the soul while memory prevails,
 The solid power of unrstanding fails;
 Where beams of warm imagination play,
-The memory's soft figures melt away.
+The memory's soft figures melt .
 		-- Alexanr Pope (on runtime bounds checking?)
 Why, every one as they like; as the good woman said when she kissed her cow.
 		-- Rabelais
@@ -288,7 +288,7 @@ out."
 that doubt!"
 Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
-	Everthing is farther away than it used to be.  It is even twice as
+	Everthing is farther  than it used to be.  It is even twice as
 far to the corner and they have add a hill.  I have given up running for
 the bus; it leaves lier than it used to.
 	It seems to me they  making the stairs steeper than in the old
@@ -356,7 +356,7 @@ a crime has been committed and in no circumstances have ever seen anything
 or even hd a shot.  The second category  the neighbors of anyone who
 happens to be accused of the crime.  These have always looked out of their
 windows when the shot was fired, and have noticed the accused person standing
-peacefully on his balcony a few yards away.
+peacefully on his balcony a few yards .
 		-- Sicilian police officer
 There  two kinds of pestrians... the quick and the ad.
 		-- ord Thomas Rober Dewar
@@ -408,7 +408,7 @@ Now let me get this right: two prisoners  looking out the window.
 While one of them was looking at all the mud -- the other one got hit
 in the head.
 ife is like an egg stain on your chin -- you can lick it, but it still
-won't go away.
+won't go .
 Nonterminism means  having to say you  wrong.
 Before Xerox, five carb were the maximum extension of anybody's ego.
 Burn's Hog Weighing Method:
@@ -531,7 +531,7 @@ have come to be built to stave off Hunger, Thirst and Winess.
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
 QOTD:
-	"Just how much can I get away with and still go to heaven?"
+	"Just how much can I get  with and still go to heaven?"
 The notion that science does not concern itself with first causes -- that it
 leaves the field to theology or metaphysics, and confines itself to mere 
 effects -- this notion has no support in the plain facts.  If it could,
@@ -567,7 +567,7 @@ already hd.  After some observati and rough calculati the
 engineer realizes the situation and starts laughing.  A few minutes later
 the physicist unrstands too and chuckles to himself happily as he now
 has enough experimental evince to publish a paper.  This leaves the
-mathematician somewhat perplexed, as he had observed right away that he
+mathematician somewhat perplexed, as he had observed right  that he
 was the subject of an anecdote, and duced quite rapidly the presence of
 humour from similar anecdotes, but cirs this anecdote to be too
 trivial a corollary to be significant, let alone funny.

@@ -183,7 +183,7 @@ This system will sf-struct in five minutes.
 >  paid off: thousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool name".  386BSD ma the
 > mistake of putting a lot of numbers and weird abbreviati into the
-> name, and is scaring away a lot of people just because it sounds too
+> name, and is scaring  a lot of people just because it sounds too
 > technical.
 (inus Torvalds' follow-up to a question about inux)
 The Following Subsume All Physical and Human aws:
@@ -297,7 +297,7 @@ together for ys, virtually inseparable.  Unfortunaty, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can fe a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"
-	"It's me -- Bob," replies a faraway voice.
+	"It's me -- Bob," replies a far voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is that you?  Where 
 you?"
 	"Wl," says the voice, "I'm in heaven now."
@@ -312,7 +312,7 @@ and bad news.  The good news is that these guys  in top form.  I mean
 I have ** hd them sound better.  They  *wailing* up here."
 	"The bad news is that God has this girlfriend that sings..."
 A government that is big enough to give you all you want is big enough
-to take it all away.
+to take it all .
 		-- Barry Goldwater
 "Unibus timeout fatal trap pram lost sorry"
 - An error message printed by DEC's RSTS operating system for the PDP-11
@@ -508,7 +508,7 @@ That, and another piece of coffee cake, should do the trick.
 "Oh d, I think you'll find reality's on the blink again."
 -- Marvin The Paranoid Android
 Nothing happens.
-Please go away.
+Please go .
 A man of genius makes no mistakes.
 His errors  volitional and  the portals of discovery.
 		-- James Joyce, "Ulysses"

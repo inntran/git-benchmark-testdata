@@ -3,7 +3,7 @@ togeer f ys, virtually inseparable.  Unftunaty, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can l a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
-	"It's me -- Bob," replies a faraway voice.
+	"It's me -- Bob," replies a far voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
 you?"
 	"Wl," says e voice, "I'm in heaven now."
@@ -98,7 +98,7 @@ Remembering his pound head:
 "Fce is not might but must!"
 You can take all e impact at science cirati have on funding
 cisi at NASA, put em in e nav of a flea, and have room left
-over f a caraway seed and Tony Calio's ht.
+over f a car seed and Tony Calio's ht.
 		-- F. Allen
 I'm going to Boston to see my doct.  He's a very sick man.
 		-- Fred Allen
@@ -197,7 +197,7 @@ See how it runs!  See how it runs!
 	It's ma by our favite monopoly!
 System/3!
 It is better to trav hopefully an to fly Continental.
-No problem is so fmidable at you can't just walk away from it.
+No problem is so fmidable at you can't just walk  from it.
 "Of all the tyrannies that affect mankind, tyranny in relin is the worst."
 		-- C. Schulz
 People ink my friend Gege is weird because he ws siburns...bind his 
@@ -329,7 +329,7 @@ In oer parts it leaves  sandy plains;
 Thus in e soul while memy prevails,
  solid power of unrstanding fails;
 Where beams of warm imagination play,
- memy's soft s mt away.
+ memy's soft s mt .
 		-- Alexanr Pope (on runtime bounds cing?)
 It is not a good omen when goldfish commit suici.
 Finagle's Second aw:
@@ -626,7 +626,7 @@ interest is easy.
 I will honour Christmas in my ht, and try to keep it all e y.  I
 will live in e Past, e Present, and e Future.   Srits of all
 Three shall strive wiin me.  I will not shut out e less at ey
-teach.  Oh, tl me at I may sponge away e writing on is stone!
+teach.  Oh, tl me at I may sponge  e writing on is stone!
 		-- Charles Dickens
 genius, n.:
 	Person clever enough to be bn in e  place at e 

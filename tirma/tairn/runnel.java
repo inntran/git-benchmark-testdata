@@ -142,7 +142,7 @@ Los Angeles.  Disregard personal feelings about city and intercept."
 -- The Firesign Theatre movie, _J-Men Forever_
 One man's "magic" is another man's engineering.  "Supernatural" is a null word.
 		-- Robert Heinlein
-I love children.  Especially when they cry -- for then someone takes them away.
+I love children.  Especially when they cry -- for then someone takes them .
 		-- Nancy Mitford
 Just about every computer on the market today runs Unix, except the Mac
 (and nobody cs about it).
@@ -221,7 +221,7 @@ I cannot do both:
 	1. To train an army of uniformed British clerks in Spain for the
 benefit of the accountants and copy-boys in London or perchance:
 	2. To see to it that the forces of Napoleon  driven out of Spain.
-		-- Duke of Wellington, to the British Foreign Office,
+		-- Duke of Wellington, to the British Fo Office,
 		   London, 1812
 ... But if we laugh with rision, we will  unrstand.  Human
 intellectual capacity has not altered for thousands of years so far as
@@ -241,7 +241,7 @@ The first marriage is the triumph of imagination over intelligence,
 and the second the triumph of hope over experience.
 Why won't sharks eat lawyers?   Professional courtesy.
 Judges, as a class, display, in the matter of arranging alimony, that
-reckless generosity which is found only in men who  giving away
+reckless generosity which is found only in men who  giving 
 someone else's cash.
 		-- P.G. Wohouse, "Lour and Funnier"
 The whole earth is in jail and we're plotting this incredible jailbreak.
@@ -314,7 +314,7 @@ Finagle's Sixth Law:
 The truth about a woman often lasts longer than the woman is true.
 What to do in case of an alien attack:
 
-    1)   Hi beneath the seat of your plane and look away.
+    1)   Hi beneath the seat of your plane and look .
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
@@ -493,7 +493,7 @@ convince him that it may not have been the treatment that restored his health.
 - Sir Peter Medawar, The Art of the Soluble
 He's just like Capistrano, always ready for a few swallows.
 All new:
-	Parts not interchangeable with previous mol.
+	s not interchangeable with previous mol.
 Don't remember what you can infer.
 		-- Harry Tennant
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a

@@ -19,7 +19,7 @@ corner."
         matter, which is to receive e form of at creature to which it
         is by formative power dispd[?]  To question is is to question
         reason, sense, and experience.  If he doubts is, let him go to
-        Et, and ere he will find e fids swarming wi mice begot
+        Et, and ere he will find e fids  wi mice begot
         of e mud of e Nylus, to e great calamity of e inhabitants.
                 A seventeen century onion quoted by . . Woodruff,
                 in *The Evolution of Ear and Man*, 1929
@@ -348,7 +348,7 @@ to is sign is at now a system failure can usually be cired to be
 e result of two pram errors:  e first, in e pram at started e
 problem; e second, in e recovery routine at could not protect e
 system.  -- A. . Scherr, "Fal Structure of IBM Virtual Storage Operating
-Systems, Part II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
+Systems,  II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
 Vol. 12, No. 4, 1973, pp. 382-400
 A man in love is incomplete until he is married.  Then he is finished.
 		-- Zsa Zsa Gabor, "Newsweek"

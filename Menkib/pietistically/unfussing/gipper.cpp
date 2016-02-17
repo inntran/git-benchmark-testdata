@@ -86,8 +86,8 @@ All generalizati  false, including is one.
 		-- Mark Twain
 Dta: We're Amtrak wi gs.    -- David etterman
 It's always darkest just befe it gets tch black.
-We've sent a man to e moon, and at's 29,000 miles away.   center
-of e Ear is only 4,000 miles away.  You could drive at in a week,
+We've sent a man to e moon, and at's 29,000 miles .   center
+of e Ear is only 4,000 miles .  You could drive at in a week,
 but f some reason nobody's ever done it.
 		-- Andy Rooney
 No m what happens, ere is always someone who knew it would.
@@ -108,7 +108,7 @@ rough my spread sheet one me time."
 hushed voice, "How much do you want it to be?"
 A new koan:
 	If you have some ice cream, I will give it to you.
-	If you have no ice cream, I will take it away from you.
+	If you have no ice cream, I will take it  from you.
 It is an ice cream koan.
 He didn't run f reection.  "Politics brings you into contact wi all
 e people you'd give anying to avoid," he said. "I'm staying home."

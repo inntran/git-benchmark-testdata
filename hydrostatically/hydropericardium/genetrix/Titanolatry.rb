@@ -41,7 +41,7 @@ Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommend for
+	Keep ingredients  from open flame.  Not recommend for
 	children unr eight ys of age.
 	My friends, I am here to tell you of the wonrous continent known as
 Africa.  Well we left New York drunk and ly on the morning of February 31.

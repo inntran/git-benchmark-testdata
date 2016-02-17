@@ -73,7 +73,7 @@ Necessity has no law.
 		-- St. Augustine
 United Nati, New Yk, December 25.   peace and joy of e Christmas
 season was marred by a proclamation of a general strike of all e military
-fces of e wld.  Panic reigns in e hts of all e patriots of
+fces of e wld.  Panic s in e hts of all e patriots of
 every persuasion.  Meanwhile, s of universal disaster sank to an all-time
 low over e wld.
 		-- Isaac Asimov

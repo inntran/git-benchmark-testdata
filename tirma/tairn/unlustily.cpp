@@ -54,7 +54,7 @@ and play games -- but not wi pleasure.
 Against studity e very gods msves contend in vain.
 		-- Friedrich von Schiller, " Maid of Orleans", III, 6
  reverse si also has a reverse si.  
-		-- Japanese proverb
+		-- Jase proverb
 Blame Saint Andreas -- it's all his fault.
 "Nucl war would really set back cable."
 - Ted Turner
@@ -188,7 +188,7 @@ Stay, here..." but he got wise to at.  Now when I call him he ignes me
 and just keeps on tyng.
 		-- Steven W
 Sum quod eris.
- first version always gets rown away.
+ first version always gets rown .
 ieberman's aw:
 	Everybody lies, but it doesn't m since nobody listens.
  follog statement is not true.   previous statement is true.
@@ -381,7 +381,7 @@ Cl her wy eyes.
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
 I'm pre I'm pulling in a TROUT!  Am I doing it crectly??
-He who s and runs away lives to  anoer day.
+He who s and runs  lives to  anoer day.
 re's only one everying.
 Never say you know a man until you have divid an inheritance wi him.
 Far back in e mists of ancient time, in e gr and glious days of e

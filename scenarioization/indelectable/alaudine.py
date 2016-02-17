@@ -347,7 +347,7 @@ Tao of Pramming.
 operating system is great, then the compiler is great.  If the compiler is
 greater, then the applicati is great.  The user is pleased and there is
 harmony in the world.
-	The Tao of Pramming flows far away and returns on the wind of
+	The Tao of Pramming flows far  and returns on the wind of
 morning.
 		-- Geoffrey James, "The Tao of Pramming"
 For a light ht lives long.
@@ -395,7 +395,7 @@ nature and all of creation.
 When you don't know what you  doing, do it neatly.
 QOTD:
 	The forest may be quiet, but that doesn't mean
-	the snakes have gone away.
+	the snakes have gone .
 I'm REIGIOUS!!  I love a man with a HAIRPIECE!!  Equip me with MISSIES!!
 Be circumspect in your liais with women.  It is better to be seen at
 the opera with a man than at mass with a woman.

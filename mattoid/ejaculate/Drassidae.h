@@ -217,7 +217,7 @@ a spl over me and  me into a f."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
 hp you break such a spl."
 	"Wl," rep e f, "e only way at is spl can be
-taken away is f some lovy young woman to take me home and let me spend
+taken  is f some lovy young woman to take me home and let me spend
 e night unr her llow."
 	 young girl took e ugly f home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
@@ -339,7 +339,7 @@ Newton's aw of Gravitation:
 td. of Markham, Ont., red some parts from a new supplier in Japan.  
 company noted in its r at acceptable quality allowed f 1.5 per cent
 fects (a fly high standard in N America at e time).
-	 Japanese sent e r, wi a few parts packaged separaty in
+	 Jase sent e r, wi a few parts packaged separaty in
 plastic.  accompanying letter said: "We don't know why you want 1.5 per
 cent fective parts, but f your convenience, we've packed em separaty."
 		-- Excerpted from an article in  (Tonto) Globe and Mail

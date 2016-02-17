@@ -124,7 +124,7 @@ As of next Thursday, UNIX will be flushed in favor of TOPS-10.
 Please update your programs.
 No bird soars too high if he soars with his own wings.
 		-- William Blake
-Call on God, but row away from the rocks.
+Call on God, but row  from the rocks.
 		-- Indian proverb
 It would be illogical to assume that all conditions remain stable.
 		-- Spock, "The Enterprise" Incint", stardate 5027.3
@@ -140,7 +140,7 @@ Ryan's Law:
 -- Bill Peterson, former Houston Oiler football coach
 You can take all the impact that science consirations have on funding
 cisions at NASA, put them in the navel of a flea, and have room left
-over for a caraway seed and Tony Calio's heart.
+over for a car seed and Tony Calio's heart.
 		-- F. Allen
 Authors  easy to get on with -- if you're fond of children.
 		-- Michael Jph, "Observer"
@@ -279,7 +279,7 @@ backups: always in season,  out of style.
 Time will end all my troubles, but I don't always approve of Time's methods.
 Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
-An elrly couple were flying to their Caribbean hiaway on a chartered plane
+An elrly couple were flying to their Caribbean hi on a chartered plane
 when a terrible storm forced them to land on an uninhabited island.  When
 several days passed without rescue, the couple and their pilot sank into a
 sponnt silence. Finally, the woman asked her husband if he had ma his

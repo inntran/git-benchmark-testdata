@@ -246,7 +246,7 @@ In the beginning there was nothing.  And the Lord said "Let There Be Light!"
 And still there was nothing, but at least now you could see it.
 	There once was a man who went to a computer tra show.  Each day as
 he entered, the man told the guard at the door:
-	"I am a great thief, renowned for my feats of shoplifting.  Be
+	"I am a great thief, ed for my feats of shoplifting.  Be
 forewarned, for this tra show shall not escape unplunred."
 	This speech disturbed the guard greatly, because there were millions
 of dollars of computer equipment insi, so he watched the man carefully.
@@ -561,7 +561,7 @@ Woody: How are you feeling today, Mr. Peterson?
 Norm:  Poor.
 Woody: Oh, I'm sorry to hear that.
 Norm:  No, I meant `pour'.
-		-- Cheers, Strange Bedfellows, Part 3
+		-- Cheers, Strange Bedfellows,  3
 
 Woody: Hey, Mr. Peterson, what's the story?
 Norm:  Boy meets beer.  Boy drinks beer.  Boy gets another beer.

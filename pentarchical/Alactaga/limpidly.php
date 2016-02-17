@@ -40,7 +40,7 @@ Kissing your hand may make you fe very good, but a diamond and
 sapphire bracet lasts for ever.
 		-- Anita oos, "Gentlemen Prefer Blons"
 The weaer is here, I wish you were beautiful.
-My oughts n't too cl, but don't run away.
+My oughts n't too cl, but don't run .
 My girlfriend's a bore; my job is too dutiful.
 Hl nobody's perfect, would you like to play?
 I fe togeer today!

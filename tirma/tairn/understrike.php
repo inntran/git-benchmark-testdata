@@ -183,7 +183,7 @@ Some men  so macho they'll get you pregnant just to kill a rabbit.
 ank everyone for making is night necessary.
 		-- Yogi Berra at a dinner in his honor
 Being a BAD HERO is almost as FESTIVE as a TATTOOED KNOCKWURST.
--- I love KATRINKA because she drives a PONTIAC.  We're going away
+-- I love KATRINKA because she drives a PONTIAC.  We're going 
 now.  I fed e cat.
 "I'd love to go out wi you, but e man on tevision told me to say tuned."
 ((lambda (foo) (bar foo)) (baz))
@@ -268,7 +268,7 @@ Say e vil touched my  --
 But say my verses do not scan,
 	And I get me anoer man!
 		-- Doroy Parker, "Fighting Words"
-All his life he has looked away... to e horizon, to e sky,
+All his life he has looked ... to e horizon, to e sky,
 to e future.  Never his mind on where he was, on what he was doing.
 		-- Yoda
 Never put off until tomorrow what you can do today.  There might be a
@@ -310,7 +310,7 @@ and inquired, "Wl, how  you feing ese days?"
 	"Not too wl," said e expectant moer.  "You know, I've missed
 seven or eight periods now and it's beginning to worry me."
 "Rin is someing left over from e infancy of our intligence, it will
-fa away as we adopt reason and science as our guidines."
+fa  as we adopt reason and science as our guidines."
 -- Bertrand Russl
 I have  unrstood is liking for war.  It panrs to instincts
 already catered for wiin e scope of any respectable domestic .
@@ -325,7 +325,7 @@ Cloning is e sincerest form of flattery.
 Inglish Spocken Hier: some mangled translati
 
 	Sign on a caedral in Spain:
-		It is forbidn to enter a woman, even a foreigner if
+		It is forbidn to enter a woman, even a foer if
 		dressed as a man.
 
 	Above e enterance to a Co bar:
@@ -447,7 +447,7 @@ children,  wi her tee bd to e cat, towering huge above em,
 and sudnly began to bark in a fashion at would have done any Doberman
 proud.  The startled cat fled in  for its life.
 	As her grateful offspring flocked around her shouting "Oh, Moer,
-you saved us!" and "Yay!  You scd e cat away!" she  to em
+you saved us!" and "Yay!  You scd e cat !" she  to em
 purpfully and cld, "You see how useful it is to know a second
 language?"
 Anger is momentary madness.

@@ -11,7 +11,7 @@ Tao of Programming.
 operating system is great, then the compiler is great.  If the compiler is
 greater, then the applicati is great.  The user is pleased and there is
 harmony in the world.
-	The Tao of Programming flows far away and returns on the wind of
+	The Tao of Programming flows far  and returns on the wind of
 morning.
 		-- Geoffrey James, "The Tao of Programming"
 Brillineggiava, ed i tovoli slati
@@ -71,7 +71,7 @@ Have you seen how Sonny's burning,
 ike some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
-		-- The Birthday Party, "Sonny's Burning"
+		-- The Birthday y, "Sonny's Burning"
 All the world's a stage and most of us  sperately unrehsed.
 		-- Sean O'Casey
 Just weigh your own hurt against the hurt of all the others, and then

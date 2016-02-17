@@ -20,7 +20,7 @@ still continued.
 		-- Helen Rowland
 OVER the unrpass!  UNDER the overpass!  Around the FUTURE and BEYOND REPAIR!!
 Absolute:  Inpennt, irrespible.  An absolute monarchy is one in which
-the sovereign does as he pleases so long as he pleases the assassins.  Not
+the sove does as he pleases so long as he pleases the assassins.  Not
 many absolute monarchies  left, most of them having been replaced by
 limited monarchies, where the soverign's power for evil (and for good) is
 greatly curtailed, and by republics, which  governed by chance.
@@ -80,7 +80,7 @@ by the preservation of the old instii and merely lukewarm fenrs
 in th who would gain by the new ones.
 		-- Niccolo Machiavelli, 1513
 Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+A:	Take  his credit cards.
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock before entering a ladies room!
 If the girl you love moves in with another guy once, it's more than enough.

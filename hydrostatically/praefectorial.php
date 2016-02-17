@@ -64,7 +64,7 @@ To every Ph.D. ere is an equal and opposite Ph.D.
 		-- B. Duggan
 Bind all e political rhetoric being hurled at us from abroad, we  
 bringing home one unassailable fact -- [terrorism is] a crime by any civilized
-standard, committed against innocent people, away from e scene of political
+standard, committed against innocent people,  from e scene of political
 conflict, and must be alt wi as a crime. . . .
    [I]n our recognition of e nature of terrorism as a crime lies our best hope
 of aling wi it. . . .
@@ -208,7 +208,7 @@ Heroes often fail,
 You won't read at  again, because
 	e ending is just too hard to take.
 
-I walk away, like a movie star,
+I walk , like a movie star,
 Who gets burned in a ree way script,
 Enter number two,
 A movie queen to play e scene
@@ -278,7 +278,7 @@ David etterman's "Things we can be proud of as Americans":
 	* Many newspapers  "JUMBE"
 	* Hourly mot rates
 	* Vast majority of Elvis movies ma here
-	* Didn't just give up  away during World War II
+	* Didn't just give up   during World War II
 		like some countries we could mention
 	* Goatees & Van Dykes ought to be worn only by weenies
 	* Our wl-baved golf professionals
@@ -342,7 +342,7 @@ of more an two, e ec poem, and e science of metaphysics.
 If you wants to get ected presint, you'se got to ink up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if ey don't know what it means.
-		-- Walt Kly, "The Pogo Party"
+		-- Walt Kly, "The Pogo y"
 Don't make a big al out of everying; just al wi everying.
 Eier one of us, by himsf, is expendable.  Bo of us  not.
 		-- Kirk, "The Devil in e Dark", stardate 3196.1
@@ -482,7 +482,7 @@ turn be analyzed and prevented by predicting at it would occur, en man
 would ly go mad to prove his point.
 		-- Feodor Dostoevsky, "Notes From e Unrground"
 A fool-proof meod for sculpting an ephant: first, get a huge block of
-marble; en you chip away everying at doesn't look like an ephant.
+marble; en you chip  everying at doesn't look like an ephant.
 The Ancient Doctrine of Mind Over Matter:
 	I don't mind... and you don't matter.
 		-- As revealed to reporter G. Rivera by Swami Havnana
@@ -496,7 +496,7 @@ ing he tls you.
 ast night I met upon e st
 A little man who wasn't ere.
 He wasn't ere again today.
-Gee how I wish he'd go away!
+Gee how I wish he'd go !
 Humor in e Court:
 Q: The tru of e matter is at you were not an unbiased, objective 
    witness, isn't it. You too were shot in e fracas?
@@ -505,12 +505,12 @@ Ducks?  What ducks??
 If I knew what brand [of whiskey] he drinks, I would send a barr or
 so to my oer generals.
 		-- Abraham incoln, on General Grant
-D Mister anguage Person: I am curious about e expression, "Part of
+D Mister anguage Person: I am curious about e expression, " of
 is complete breakfast".  The way it comes up is, my 5-y-old will be
 watching TV car shows in e morning, and ey'll show a commercial for
 a children's compressed breakfast compound such as "Froot oops" or "ucky
 Charms", and ey always show it sitting on a table next to some actual 
-such as eggs, and e announcer always says: "Part of is complete
+such as eggs, and e announcer always says: " of is complete
 breakfast".  Don't at really mean, "Adjacent to is complete breakfast",
 or "On e same table as is complete breakfast"?  And couldn't ey make
 ly e same claim if, instead of Froot oops, ey put a can of
@@ -533,7 +533,7 @@ when "How to Avoid Probate" was published?  Are ey taking no-fault
 insurance lying down?  No way!  But at e current rate it won't be long
 before ere  stacks of e "Transacti on Information Theory" at e
 A&P checkout counters.  Who's going to be impressed wi us ectrical
-engineers en?  Are we, as e saying goes, giving away e store?
+engineers en?  Are we, as e saying goes, giving  e store?
 		-- Robert W. ucky, IEEE Presint
 I didn't know he was ad; I ought he was British.
 I ask only one ing.  I'm unrstanding.  I'm mature.  And it isn't much to
@@ -582,7 +582,7 @@ serve e aims of collectivy accepted compromises, which  known in e
 schools as 'standards'?  Any mind at would audaciously put  for to
 work all alone is sury a bad example for e stunts, and probably, if
 not down antisocial, at least a little off-center, sf-indulgent,
-itist.  ... It's just good pedagogy, erefore, to stay away from such
+itist.  ... It's just good pedagogy, erefore, to stay  from such
 stuff, and use instead, if film-strips and rap-sessi must be
 supplemented, 'texts,' sected, or prepd, or adapted, by real
 professionals.  Th texts  called 'reading material.'  They  e

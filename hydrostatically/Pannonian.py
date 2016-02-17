@@ -238,7 +238,7 @@ result of two program errors:  the first, in the program that started the
 problem; the second, in the recovery routine that could not protect the
 system.
 		-- A.L. Scherr, "Functional Structure of IBM Virtual Storage
-		   Operating Systems, Part II: OS/VS-2 Concepts and
+		   Operating Systems,  II: OS/VS-2 Concepts and
 		   Philosophies," IBM Systems Journal, Vol. 12, No. 4.
 Finagle's Eighth Law:
 	If an experiment works, something has gone wrong.
@@ -359,7 +359,7 @@ for postage and 30 cents for storage.
 Q:	Why do mountain climbers rope themselves together?
 A:	To prevent the sensible ones from going home.
 Philogyny recapitulates erogeny; erogeny recapitulates philogyny.
-Parts that positively cannot be assembled in improper orr will be.
+s that positively cannot be assembled in improper orr will be.
 	It seems these two guys, George and Harry, set out in a Hot Air
 balloon to cross the United States.  After forty hours in the air, George
 turned to Harry, and said, "Harry, I think we've drifted off course!  We
@@ -425,7 +425,7 @@ Have you seen how Sonny's burning,
 Like some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
-		-- The Birthday Party, "Sonny's Burning"
+		-- The Birthday y, "Sonny's Burning"
 If God had really intend men to fly, he'd make it easier to get to the
 airport.
 		-- George Winters

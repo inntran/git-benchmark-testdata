@@ -97,7 +97,7 @@ together for years, virtually inseparable.  Unfortunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"
-	"It's me -- Bob," replies a faraway voice.
+	"It's me -- Bob," replies a far voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is that you?  Where are
 you?"
 	"Well," says the voice, "I'm in heaven now."
@@ -474,7 +474,7 @@ After the game the king and the pawn go in the same box.
 My My, hey hey
 Rock and roll is here to stay	The king is gone but he's not forgotten
 It's better to burn out		This is the story of a Johnny Rotten
-Than to fade away		It's better to burn out than it is to rust
+Than to fade 		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my
@@ -500,7 +500,7 @@ DE:  Is that mean-time-between-failure?
 
 Belenko:  No, the engine is finished; it is scrapped.
 
-DE:  You mean they pull it out and throw it away, not even overhauling it?
+DE:  You mean they pull it out and throw it , not even overhauling it?
 
 Belenko:  That is correct.  Overhaul is too expensive.
 
@@ -558,7 +558,7 @@ the d hearts of mountains, under torrents' beds, unerringly I rush!
 If you wants to get elected president, you'se got to think up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if they don't know what it means.
-		-- Walt Kelly, "The Pogo Party"
+		-- Walt Kelly, "The Pogo y"
 Please help keep the world clean: others may wish to use it.
 I don't know who my grandfather was; I am much more concerned to know
 what his grandson will be.

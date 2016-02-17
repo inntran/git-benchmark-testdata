@@ -28,9 +28,9 @@ Don't taking nothing from the half-baked buddhas
 When you think you got it paid in full
 You got nothing -- you got nothing at all...
 	We're on the road and we're gunning for the Buddha.
-	We know his name and he mustn't get away.
+	We know his name and he mustn't get .
 	We're on the road and we're gunning for the Buddha.
-	It would take one shot -- to blow him away...
+	It would take one shot -- to blow him ...
 		-- Shriekback, "Gunning for the Buddah"
 Were it not for the presence of the unwashed and the half-educated, the
 formless, queer and incomplete, the unreasonable and absurd, the infinite
@@ -183,7 +183,7 @@ children, turned with her teeth bd to the cat, towering huge above them,
 and sudnly began to bark in a fashion that would have done any Doberman
 proud.  The startled cat fled in fear for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
-you saved us!" and "Yay!  You scd the cat away!" she turned to them
+you saved us!" and "Yay!  You scd the cat !" she turned to them
 purpfully and cld, "You see how useful it is to know a second
 language?"
 No friendship is so cordial or so licious as that of girl for girl;
@@ -197,7 +197,7 @@ Don't think I need anything at all.
 No!  Don't think I need anything at all!
 All in all, it was all just bricks in the wall.
 All in all, it was all just bricks in the wall.
-		-- Pink Floyd, "Another Brick in the Wall", Part III
+		-- Pink Floyd, "Another Brick in the Wall",  III
 You have taken yourself too seriously.
 I have  seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
@@ -296,7 +296,7 @@ If you mess with a thing long enough, it'll break.
 		-- Schmidt
 YOW!!  What should the entire human race DO??  Consume a fifth of
 CHIVAS REGAL, ski NUDE down MT. EVEREST, and have a wild SEX WEEKEND!
-Now what would they do if I just sailed away?
+Now what would they do if I just sailed ?
 Who the hell really compelled me to leave today?
 Runnin' low on stories of what ma it a ball,
 What would they do if I ma no landfall?"
@@ -308,7 +308,7 @@ The young lady had an unusual list,
 Linked in part to a structural weakness.
 She set no preconditions.
 The little pieces of my life I give to you, with love, to make a quilt
-to keep away the cold.
+to keep  the cold.
 transpnt, adj.:
 	Being or pertaining to an existing, nontangible object.
 	"It's there, but you can't see it"
@@ -591,7 +591,7 @@ cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 	I don't even *HAVE* a dog Toto...
 panic: kernel trap (ignored)
 Delta: The kids will love our inflatable slis.    -- David Letterman
-Barbie says, Take quaalus in gin and go to a disco right away!
+Barbie says, Take quaalus in gin and go to a disco right !
 But Ken says, WOO-WOO!!  No credit at "Mr. Liquor"!!
 "Never make any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)

@@ -90,7 +90,7 @@ cis to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "ook," he says, "do you supp you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."  The maematician inks
-is over a bit and walks away mumbling to himsf.
+is over a bit and walks  mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
 success.  The genius, looking a little bly-eyed, replies, "Wl, yes,
 actually I do have an ia, and I'm reasonably sure at it will work, but
@@ -107,11 +107,11 @@ bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
 And it's so EASY!  First, we ass at s  perfect spheres in simple
 harmonic motion..."
-Throw away docntation and manuals,
+Throw  docntation and manuals,
 and users will be a hundred times haper.
-Throw away privileges and quotas,
+Throw  privileges and quotas,
 and users will do e Right Thing.
-Throw away proprietary and site licenses,
+Throw  proprietary and site licenses,
 and ere won't be any rating.
 
 If ese ree n't enough,
@@ -413,7 +413,7 @@ togeer for ys, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
-	"It's me -- Bob," replies a faraway voice.
+	"It's me -- Bob," replies a far voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
 you?"
 	"Wl," says e voice, "I'm in heaven now."

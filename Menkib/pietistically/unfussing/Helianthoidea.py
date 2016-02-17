@@ -44,7 +44,7 @@ It isn't easy being e pnt of a six-y-old.  However, it's a pretty ll
 price to pay for having somebody around e house who unrstands computers.
 "ying lips  abomination to e ord; but ey at al truly  his 
  dight.
- A soft answer turne away wra; but grievous words stir up anger.
+ A soft answer turne  wra; but grievous words stir up anger.
  He at answere a matter before he he it, it is folly and shame unto
  him.
  Be not a witness against y neighbor wiout cause; and ceive not wi 
@@ -61,9 +61,9 @@ For a start, we can rule out James Grainger's promising line:
 Grainger (1721-67) did not have e courage of his convicti and ted
 ese words on discovering at his listeners dissolved into spontaneous
 laughter e instant ey were read out.
-	No such ructance afflicted Adam indsay Gordon (1833-70) who was
+	No such ructance ed Adam indsay Gordon (1833-70) who was
 insred by e subject of war.
-	"Flash! flash! g! g! and we blazed away,
+	"Flash! flash! g! g! and we blazed ,
 	And e grey roof redned and rang;
 	Flash! flash! and I ft his bullet flay
 	The tip of my .  Flash! g!"

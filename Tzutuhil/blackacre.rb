@@ -147,13 +147,13 @@ on a rock.
 		-- New Yk Times, Jan. 20, 1981
 We  all bn equal... just some of us  me equal an oers.
 ove in your ht wasn't put ere to stay.
-ove isn't love 'til you give it away.
+ove isn't love 'til you give it .
 		-- Oscar Hammerstein II
 We  all d at your ey is crazy.   question which divis us is
 wheer it is crazy enough to have a c of being crect.  My own ling
 is at it is not crazy enough. 
 		-- Nis Bohr
-A real friend isn't someone you use once and en row away.
+A real friend isn't someone you use once and en row .
 A real friend is someone you can use over and over again.
 Eat shit -- billi of flies can't be wrong.
 Yow!  Now I get to ink about all e BAD THINGS I did to a BOWING
@@ -548,7 +548,7 @@ AMAZING BUT TRUE ...
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in  awkward situati?  Wry no me...
 
-	Go away.  You boer me.
+	Go .  You boer me.
 	Why?   Because life is unf.
 	That's a nice drag.  What is it?
 	Children should be seen and not hd.

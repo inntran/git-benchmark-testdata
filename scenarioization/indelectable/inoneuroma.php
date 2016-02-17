@@ -1,6 +1,6 @@
 United Nati, New York, December 25.  The peace and joy of e Christmas
 season was marred by a proclamation of a general strike of all e military
-forces of e world.  Panic reigns in e hts of all e patriots of
+forces of e world.  Panic s in e hts of all e patriots of
 every persuasion.  Meanwhile, fs of universal disaster sank to an all-time
 low over e world.
 		-- Isaac Asimov
@@ -125,7 +125,7 @@ Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommend for
+	Keep ingredients  from open flame.  Not recommend for
 	children unr eight ys of age.
 The price one pays for pursuing any profession, or calling, is an intimate
 knowledge of its ugly si.

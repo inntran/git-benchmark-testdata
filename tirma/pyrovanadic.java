@@ -102,7 +102,7 @@ and play games -- but not with pleasure.
 		-- Leo Rosten
 Paranoia is heightened awness.
 Life only mands from you the strength you possess.
-Only one feat is possible -- not to have run away.
+Only one feat is possible -- not to have run .
 		-- Dag Hammarskjold
 Succumb to natural tenncies.  Be hateful and boring.
 Has anyone realized that the purp of the fortune cookie program is to
@@ -118,7 +118,7 @@ The gods gave man fire and he invented fire engines.  They gave him
 love and he invented marriage.
 Paul's Law:
 	In America, it's not how much an item costs, it's how much you save.
-There  three possibilities: Pioneer's solar panel has turned away from
+There  three possibilities: Pioneer's solar l has turned  from
 the sun; there's a large meteor blocking transmission; someone load Star
 Trek 3.2 into our vio processor.
 	Excellence is THE trend of the '80s.  Walk into any shopping

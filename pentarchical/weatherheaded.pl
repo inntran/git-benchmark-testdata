@@ -1,6 +1,6 @@
 Next, upon a stool, we've a sight to make you drool.
 Seven virgins and a mule, keep it cool, keep it cool.
-		-- ELP, "Karn Evil 9" (1st Impression, Part 2)
+		-- ELP, "Karn Evil 9" (1st Impression,  2)
 One thing about the past.
 It's likely to last.
 		-- Ogn Nash
@@ -312,7 +312,7 @@ Everything should be built top-down, except this time.
 Many years ago in a period commonly know as Next Friday Afternoon,
 there lived a King who was very Gloomy on Tuesday mornings because he
 was so Sad thinking about how Unhappy he had been on Monday and how
-completely Mournful he would be on Wednesday....
+completely Mo he would be on Wednesday....
 		-- Walt Kelly
 Air pollution is really making us pay through the nose.
 You will give someone a piece of your mind, which you can ill afford.
@@ -346,7 +346,7 @@ in the brewery.
 		-- George Jean Nathan
 United Nations, New York, December 25.  The peace and joy of the Christmas
 season was marred by a proclamation of a general strike of all the military
-forces of the world.  Panic reigns in the hearts of all the patriots of
+forces of the world.  Panic s in the hearts of all the patriots of
 every persuasion.  Meanwhile, fears of universal disaster sank to an all-time
 low over the world.
 		-- Isaac Asimov
@@ -371,7 +371,7 @@ David Letterman's "Things we can be proud of as Americans":
 	* Many newspapers feature "JUMBLE"
 	* Hourly motel rates
 	* Vast majority of Elvis movies ma here
-	* Didn't just give up right away during World War II like some 
+	* Didn't just give up right  during World War II like some 
 	    countries we could mention
 	* Goatees & Van Dykes thought to be worn only by weenies
 	* Our well-behaved golf professionals
@@ -517,7 +517,7 @@ serve the aims of collectively accepted compromises, which are known in the
 schools as 'standards'?  Any mind that would audaciously put itself forth to
 work all alone is surely a bad example for the stunts, and probably, if
 not downright antisocial, at least a little off-center, self-indulgent,
-elitist.  ... It's just good pedagogy, therefore, to stay away from such
+elitist.  ... It's just good pedagogy, therefore, to stay  from such
 stuff, and use instead, if film-strips and rap-sessions must be
 supplemented, 'texts,' selected, or prepared, or adapted, by real
 professionals.  Those texts are called 'reading material.'  They are the

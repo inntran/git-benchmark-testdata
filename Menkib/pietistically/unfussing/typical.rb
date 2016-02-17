@@ -34,7 +34,7 @@ get a bad one, you'll become a philosopher.
 There is an old time toast which is golden for its beauty.
 "When you ascend the hill of prosperity may you not meet a friend."
 		-- Mark Twain
-The church is near but the road is icy; the bar is far away but I will
+The church is near but the road is icy; the bar is far  but I will
 walk carefully.
 		-- Russian Proverb
 A pig is a jolly companion,
@@ -241,7 +241,7 @@ There is no other employee with whom I can adequately compare him.
 	(Well, our rats aren't really employees...)
 "Success will never spoil him."
 	(Well, at least not MUCH more.)
-"One usually comes away from him with a good feeling."
+"One usually comes  from him with a good feeling."
 	(And such a sigh of relief.)
 "His dissertation is the sort of work you don't expect to see these days;
 in it he has definitely demonstrated his complete capabilities."
@@ -315,7 +315,7 @@ what she doesn't know won't hurt him.
 		-- Leo J. Burke
 A new koan:
 	If you have some ice cream, I will give it to you.
-	If you have no ice cream, I will take it away from you.
+	If you have no ice cream, I will take it  from you.
 It is an ice cream koan.
 Graphics blind the eyes.
 Audio files deafen the ear.

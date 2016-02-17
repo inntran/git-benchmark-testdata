@@ -90,7 +90,7 @@ Catholic girls start much too late,
 Ah, but sooner or later, it comes down to fate,
 I might as well be the one.
 Well, they showed you a statue, told you to pray,
-Built you a temple and locked you away,
+Built you a temple and locked you ,
 Ah, but they never told you the price that you paid,
 The things that you might have done.
 So come on, Virginia, show me a sign,
@@ -124,7 +124,7 @@ than my brain.
 Producers seem to be so prejudiced against actors who've had no training.
 And there's no reason for it.  So what if I didn't attend the Royal Acamy
 for twelve years?  I'm still a professional trying to be the best actress
-I can.  Why doesn't anyone send me the scripts that Faye Dunaway gets?
+I can.  Why doesn't anyone send me the scripts that Faye Dun gets?
 		-- Farrah Fawcett-Majors
 I like myself, but I won't say I'm as handsome as the bull that kidnapped
 Europa.

@@ -187,7 +187,7 @@ Saed, "Ne foe ben mie faersom cung-fu."
 Eren cocca-colha yce-cod, [d]e reol [p]yng.
 		-- Not Chaucer, f certain
 Real softw engineers don't like e ia of some inexplicable and
-greasy hardw several aisles away at may stop wking at any
+greasy hardw several aisles  at may stop wking at any
 moment.  y have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  y would like personal
 computers (you know no one's going to trip over someing and kill your

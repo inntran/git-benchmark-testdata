@@ -253,7 +253,7 @@ wse and sl a little cheaper.
 I do not bieve at is generation of Americans is willing to resign 
 to going to bed each night by e light of a Communist moon...
 - yndon B. Johnson
- first duty of a revolutionary is to get away wi it.
+ first duty of a revolutionary is to get  wi it.
 		-- Abbie Hoffman
 You have had a long-term stimulation rative to business.
 "Conversion, fastidious Godss, loves blood better an brick, and feasts
@@ -306,7 +306,7 @@ livew does not interfere wi e real-time processes, invoking e
 REA-TIME EXECUTIONER to te livew at adversy affects ...
 		-- inn and Wihminalaan
 I l ... JUGUAR ...
-	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
+	In "King Henry VI,  II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
@@ -316,7 +316,7 @@ of attneys and accountants, and a d of production exs.  awyers
 and accountants "do not make e economic e any bigger; ey only 
 out how e e gets divid.  Neier profession provis any add value
 to product."
-	Accding to Connlan, e highly productive Japanese society has
+	Accding to Connlan, e highly productive Jase society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-bakers and e-divirs is way out of whack."  Could Dick Butcher have

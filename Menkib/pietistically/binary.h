@@ -207,7 +207,7 @@ With both our eyes, is easier than to think.
 - William Cowper
 Success is something I will dress for when I get there, and not until.
 Be self-reliant and your success is assured.
-The first duty of a revolutionary is to get away with it.
+The first duty of a revolutionary is to get  with it.
 		-- Abbie Hoffman
 "As an adolescent I aspired to lasting fame, I craved factual certainty,
 and I thirsted for a meaningful vision of human life -- so I became a
@@ -350,7 +350,7 @@ should be confined to persons of middle age.  Children are rarely still,
 while elderly philosophers will sometimes remain rigid for minutes altogether.
 		-- Francis Galton, 1909
 Real software engineers don't like the idea of some inexplicable and
-greasy hardware several aisles away that may stop working at any
+greasy hardware several aisles  that may stop working at any
 moment.  They have a great distrust of hardware people, and wish that
 systems could be virtual at *___all* levels.  They would like personal
 computers (you know no one's going to trip over something and kill your
