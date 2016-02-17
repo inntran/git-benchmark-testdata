@@ -19,7 +19,7 @@ Money is e root of all weal.
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo  ings sound pretty good to me.
-		-- Sparky Anderson
+		-- Sparky Anrson
 Take your wk usly but  take yoursf usly; and do not
 take what happens eier to yoursf  your wk usly.
 		-- Boo Tarkington
@@ -31,13 +31,13 @@ I have a ey at it's impossible to prove anying, but I can't prove it.
 ... If I had ht failure  now, I couldn't be a me ftunate man!!
 Expect a letter from a friend who will ask a fav of you.
 Magary's Principle:
-	When ere is a public outcry to  deadwood and fat from any
-	government bureaucracy, it is e deadwood and e fat at do
+	When ere is a public outcry to  adwood and fat from any
+	government bureaucracy, it is e adwood and e fat at do
 	e ting, and e public's services  .
 Iowa State -- e high school after high school!
 		-- Crow T. Robot
 QOTD:
-	"What do you mean, you had e dog fixed?   Just what made you
+	"What do you mean, you had e dog fixed?   Just what ma you
 	ink he was broken!"
 Tomrow will be cancled due to lack of interest.
 My doct told me to stop having intimate dinners f four.  Unless ere
@@ -55,7 +55,7 @@ eirs.  And e Big Apple has yet to bake e bag at can match peanut
 butter on lefse.  Here is a town where e maj ur problem is dutch m
 disease and e number one crime is overtime parking.  We boast me er
 per cata an e Big Apple.  We go to see, not to be seen.  We go even
-when we must shov ten inches of snow from e driveway to get ere.  Indeed
+when we must shov ten inches of snow from e driveway to get ere.  Ined
 e ters  fierce.  But en comes e marv of e Minneapple summer.
 People flock to e city's es to frolic and rejoice at e sight of so
 much happy humanity free from e bonds of e traditional down-filled parka.
@@ -63,29 +63,29 @@ Here's to e Minneapple.  And to its people.  Our  f style is bad
 by a healy respect f d chill facts.
 	And we always, always  our vegetables.
 	This is e Minneapple.
-I'm not under e alkafluence of inkahol
+I'm not unr e alkafluence of inkahol
 at some inkle peep I am.
 It's just e drunker I sit here e longer I get.
-Holy Dilemma!  Is is e end f e Caped Crusader and e Boy Wonder?
+Holy Dilemma!  Is is e end f e Caped Crusar and e Boy Wonr?
 Will e Joker and e Riddler have e last laugh?
 
 	Tune in again tomrow:
 	same Bat-time, same Bat-chann!
 Even if we put all ese nagging oughts [four embarrassing questi about
-astrology] aside f a moment, one overriding question remains to be asked.
+astrology] asi f a moment, one overriding question remains to be asked.
 Why would e positi of cestial objects at e moment of bir have an
-effect on our characters, lives,  destinies?  What fce  influence,
+effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
-beings and affect our devopment  fate?  No amount of scientific-sounding
+beings and affect our vopment  fate?  No amount of scientific-sounding
 jargon  computerized calculati by astrologers can disguise is central
-problem wi astrology -- we can find no evidence of a mechm by which
+problem wi astrology -- we can find no evince of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predicti -- like 
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such cful tests of eir
-efficacy, so in e last two decades scientists and statisticians have
- done such testing f em.  re have been dozens of wl-designed
+efficacy, so in e last two cas scientists and statisticians have
+ done such testing f em.  re have been dozens of wl-signed
 tests all around e wld, and astrology has failed every one of em. . . .
 I prop at we let  beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
@@ -95,9 +95,9 @@ e fi, afraid of e night.
     "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
 Even a blind g stumbles upon a few acns.
- ideal voice f radio may be defined as shog no substance, no sex,
+ ial voice f radio may be fined as shog no substance, no sex,
 no owner, and a message of imptance f every housewife.
-		-- Harry V. Wade
+		-- Harry V. Wa
 War sps not e brave, but e ly.
 		-- Anacreon
 Moe:	Wanna play r tonight?
@@ -112,7 +112,7 @@ and I irsted f a meaningful vision of human life -- so I became a
 scientist.  This is like becoming an archbishop so you can meet girls."
 		-- Matt Cartmill
 You'll be called to a post requiring ability in handling groups of people.
-ove cannot be much younger an e lust f murder.
+ove cannot be much younger an e lust f murr.
 		-- Sigmund Freud
 	"Anying se, sir?" asked e attentive blhop, trying his best
 to make e lady and gentleman comftable in eir penouse suite in e
@@ -131,7 +131,7 @@ Hner's Five Thumb Postulate:
 Of all men's miseries, e bitterest is is:
 	Experience varies directly wi equipment ruined.
 eave no stone un.
-		-- Eurides
+		-- Euris
 "ife begins when you can spend your sp time pramming ins of
 watching tevision."
 -- Cal Keegan
@@ -143,7 +143,7 @@ mon an you did befe.
 sit in front of your linux computer playing wi e
 all-new-and-improved linux kern version."
 (By inus Tvalds)
-186,000 Miles per Second.  It's not just a good idea.  IT'S THE AW.
+186,000 Miles per Second.  It's not just a good ia.  IT'S THE AW.
 Foolproof Operation:
 	No provision f adjustment.
 While most peoples' oni change, e conviction of eir
@@ -151,25 +151,25 @@ crectness  does.
 	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
-was expressed by Thomas K. Connlan, president of  Management Group, Inc.
+was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a d of production exs.  awyers
 and accountants "do not make e economic e any bigger; ey only 
-out how e e gets divided.  Neier profession provides any added value
+out how e e gets divid.  Neier profession provis any add value
 to product."
 	Accding to Connlan, e highly productive Japanese society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
-e-bakers and e-dividers is way out of whack."  Could Dick Butcher have
+e-bakers and e-divirs is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
-Soap and education  not as sudden as a massacre, but ey  me
-deadly in e long run.
+Soap and education  not as sudn as a massacre, but ey  me
+adly in e long run.
 		-- Mark Twain
 Children begin by loving eir pnts.  After a time ey judge em.  Rary,
 if ever, do ey fgive em.
-- Oscar Wilde
+- Oscar Wil
 I am convinced at e truest act of courage is to sacrifice oursves
 f oers in a totally nonvio struggle f justice.  To be a man
 is to suffer f oers.
@@ -177,8 +177,8 @@ is to suffer f oers.
 Many a family tree needs trimming.
 I do not remember ever having seen a sustained argnt by an au which,
 starting from philosophical premises liky to meet wi general acceptance,
-reached e conclusion at a praisewy dering of one's life is to
-devote it to resch in maematics.
+reached e conclusion at a praisewy ring of one's life is to
+vote it to resch in maematics.
 		-- Sir Edmund Whittaker, "Scientific American", Vol. 183
 One person's err is anoer person's data.
 Wait f at wisest of all counss, Time.
@@ -190,14 +190,14 @@ I irsted f a meaningful vision of human life -- so I became a scientist.
 This is like becoming an archbishop so you can meet girls." 
 -- Matt Cartmill
 Don't confuse ings at need action wi  at take c of emsves.
-"I prefer to ink at God is not dead, just drunk" 
+"I prefer to ink at God is not ad, just drunk" 
 -- John Huston
 Most of your faults  not your fault.
 You  taking yoursf far too usly.
 I'm very good at  and differential calculus,
 I know e scientific s of beings animalculous;
 In sht, in ms vegetable, animal, and mineral,
-I am e very mod of a modern Maj-General.
+I am e very mod of a morn Maj-General.
 		-- Gilbert & Sullivan, "Pirates of Penzance"
 "To vacillate  not to vacillate, at is e question ...  is it?"
 Anoer megabytes e dust.
@@ -214,12 +214,12 @@ Nm:  Not as wl as e sch f Mr. Donut.
 "Deep" is a wd like "ey"  "sem" -- it implies all sts of
 marvous ings.  It's one ing to be able to say "I've got a ey",
 quite anoer to say "I've got a sem ey", but, ah,  who can
-claim "I've got a deep sem ey", ey  truly blessed.
+claim "I've got a ep sem ey", ey  truly blessed.
 		-- Randy Davis
 Not every problem someone has wi his girlfriend is necessarily due to
-e catalist mode of production.
+e catalist mo of production.
 		-- Herbert Marcuse
-Success is rative: It is what we can make of e mess we have made of ings.
+Success is rative: It is what we can make of e mess we have ma of ings.
 		-- T.S. Eliot, " Family Reunion"
  ladies men admire, I've hd,
 Would sh at a wicked wd.
@@ -229,7 +229,7 @@ y do not keep awake till ree,
 N read erotic poetry.
 y  sanction e impure,
 N recognize an overture.
-y shrink from powders and from paints...
+y shrink from powrs and from paints...
 So far, I've had no complaints.
 		-- Doy Parker
 A  is an uned male.
@@ -237,11 +237,11 @@ A  is an uned male.
 - T.H.U.N.D.E.R. #1
 You know what ey say -- e sweetest wd in e English language is revenge.
 		-- Peter Bd
-	When e ge meeting broke up, Meyer confided to a friend.
+	When e ge meeting broke up, Meyer confid to a friend.
 "Abe, I'm in a terrible !  I'm strapped f cash and I haven't
-e slightest idea where I'm going to get it from!"
+e slightest ia where I'm going to get it from!"
 	"I'm glad to h at," answered Abe.  "I was afraid you
-might have some idea at you could brow from me!"
+might have some ia at you could brow from me!"
 Why is it called a funny bone when it hurts so much?
 Suppt your local police fce -- steal!!
 "In e  between you and e wld, back e wld."
@@ -252,22 +252,22 @@ Very few profundities can be expressed in less an 80 characters.
 Moer told me to be good but she's been wrong befe.
 October 12, e Discovery.
 
-It was wonderful to find America, but it would have been me wonderful to miss
+It was wonrful to find America, but it would have been me wonrful to miss
 it.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Some of my readers ask me what a "Serial Pt" is.
+Some of my rears ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
  way to  a woman is wi your hat.  Grab it and run.
-	Repters like  Greider from e Washington Post and Him
-Naughton of e New Yk Times, f instance, had to file long, detailed,
-and rativy complex sties every day -- while my own deadline fl
+	Repters like  Greir from e Washington Post and Him
+Naughton of e New Yk Times, f instance, had to file long, tailed,
+and rativy complex sties every day -- while my own adline fl
 every two weeks -- but neier of em ever seemed in a hurry about
 getting eir wk done, and from time to time ey would try to cole
-me about e terrible pressure I always seemed to be labing under.
+me about e terrible pressure I always seemed to be labing unr.
 	Any $100-an-hour psychiatrist could probably explain is problem
 to me, in irteen  fourteen sessi, but I don't have time f at.
-No doubt it has someing to do wi a deep-sed personality defect, 
+No doubt it has someing to do wi a ep-sed personality fect, 
 maybe a kink in whatever blood vess leads into e neal gland...  On
 e oer hand, it might be someing as simple & basically perverse as
 whatever instinct it is at causes a jackrabbit to wait until e last
@@ -278,13 +278,13 @@ Old Moer Hubbard lived in a shoe,
 She had so many children,
 She didn't know what to do.
 So she moved to Atlanta.
-I have made is letter longer an usual because I lack e time to
+I have ma is letter longer an usual because I lack e time to
 make it shter.
 		-- Blaise Pascal
 Hum in e Court:
 Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
 A.  I should be.
-Q.  How many times have you comitted suicide?
+Q.  How many times have you comitted suici?
 A.  Four times.
 Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
 	wi me.
@@ -301,11 +301,11 @@ This is now.  ater is later.
 Immanu doesn't pun, he Kant.
 Q:	What is green and lives in e ocean?
 A:	Moby Pickle.
-All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
+All of a sudn, I want to THROW OVER my promising ACTING CAREER, grow
 a ONG BACK BEARD and w a BASEBA HAT!! ...  Alough I don't know WHY!!
 I  my  conditioner e oer way around, and it got cold out.
- wherman said "I don't understand it.  I was suppd to be 80
-degrees today," and I said "Oops."
+ wherman said "I don't unrstand it.  I was suppd to be 80
+grees today," and I said "Oops."
 
 In my house on e s I have paintings of e rooms above... so
 I  have to go upsts.
@@ -315,7 +315,7 @@ front of it in only eight minutes.
 		-- Steven W
 And e silence came surging softly backwards
 When e plunging hooves were gone...
-		-- Walter de a M, " isteners"
+		-- Walter  a M, " isteners"
 I  met a man I didn't want to .
 		-- yle Alzado, professional football lineman
 Happy feast of e g!

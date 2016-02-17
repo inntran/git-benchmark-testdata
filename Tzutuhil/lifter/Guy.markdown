@@ -6,7 +6,7 @@ The steady state of disks is full.
 		-- Ken Thompson
 Like winter snow on summer lawn, time past is time gone.
 Concept, n.:
-	Any "idea" for which an outside consultant billed you more than
+	Any "ia" for which an outsi consultant billed you more than
 	$25,000.
 "The hands that help are better far than the lips that pray."
 -- Robert G. Ingersoll
@@ -14,7 +14,7 @@ Why can't you be a non-conformist like everyone else?
 All is fear in love and war.
 Here in my heart, I am Helen;
 	I'm Aspasia and Hero, at least.
-I'm Judith, and Jael, and Madame de Sta"el;
+I'm Judith, and Jael, and Madame  Sta"el;
 	I'm Salome, moon of the East.
 
 Here in my soul I am Sappho;
@@ -61,7 +61,7 @@ cheese dip.
 		-- Ignatius Reilly
 Not one hundred percent efficient, of course ... but nothing ever is.
 		-- Kirk, "Metamorphosis", stardate 3219.8
-A bachelor is a selfish, undeserving guy who has cheated some woman out
+A bachelor is a selfish, unserving guy who has cheated some woman out
 of a divorce.
 		-- Don Quinn
 I like myself, but I won't say I'm as handsome as the bull that kidnapped
@@ -84,18 +84,18 @@ I request a weekend in Havana with Phil Silvers!
 lighthouse, n.:
 	A tall building on the seashore in which the government
 	maintains a lamp and the friend of a politician.
-  I. Any body suspended in space will remain in space until made aware of
+  I. Any body suspend in space will remain in space until ma aware of
      its situation.
 	Daffy Duck steps off a cliff, expecting further pastureland.  He
 	loiters in midair, soliloquizing flippantly, until he chances to
 	look down.  At this point, the familiar principle of 32 feet per
 	second per second takes over.
  II. Any body in motion will tend to remain in motion until solid matter
-     intervenes suddenly.
+     intervenes sudnly.
 	Whether shot from a cannon or in hot pursuit on foot, cartoon
 	characters are so absolute in their momentum that only a telephone
-	pole or an outsize boulder retards their forward motion absolutely.
-	Sir Isaac Newton called this sudden termination of motion the
+	pole or an outsize boulr retards their forward motion absolutely.
+	Sir Isaac Newton called this sudn termination of motion the
 	stooge's surcease.
 III. Any body passing through solid matter will leave a perforation
      conforming to its perimeter.
@@ -105,7 +105,7 @@ III. Any body passing through solid matter will leave a perforation
 	the wall of a house, leaving a cookie-cutout-perfect hole.  The
 	threat of skunks or matrimony often catalyzes this reaction.
 		-- Esquire, "O'Donnell's Laws of Cartoon Motion", June 1980
-"The identical is equal to itself, since it is different."
+"The intical is equal to itself, since it is different."
 		-- Franco Spisani
 The Marines:
 	The few, the proud, the not very bright.
@@ -116,7 +116,7 @@ A:	None:  The lightbulb contains the seeds of its own revolution.
 Today's weirdness is tomorrow's reason why.
 		-- Hunter S. Thompson
 I was at this restaurant.  The sign said "Breakfast Anytime."  So I
-ordered French Toast in the Rennaissance.
+orred French Toast in the Rennaissance.
 		-- Steven Wright
 On our campus the UNIX system has proved to be not only an effective software
 tool, but an agent of technical and social change within the University.
@@ -134,15 +134,15 @@ It's not the fall that kills you, it's the landing.
 Your temporary financial embarrassment will be relieved in a surprising manner.
 No guts, no glory.
 Envy is a pain of mind that successful men cause their neighbors.
-		-- Onasander
+		-- Onasanr
 Hackers of the world, unite!
 Money is the root of all evil, and man needs roots.
-I want to marry a girl just like the girl that married dear old dad.
+I want to marry a girl just like the girl that married ar old dad.
 		-- Freud
 How do you explain Wayne Newton's POWER over millions?  It's th' MOUSTACHE
 ...  Have you ever noticed th' way it radiates SINCERITY, HONESTY & WARMTH?
 It's a MOUSTACHE you want to take HOME and introduce to NANCY SINATRA!
-Never buy what you do not want because it is cheap; it will be dear to you.
+Never buy what you do not want because it is cheap; it will be ar to you.
 		-- Thomas Jefferson
 I have many CHARTS and DIAGRAMS..
 X-rated movies are all alike ... the only thing they leave to the
@@ -154,9 +154,9 @@ A magazine.
 Two-fifty.
 	I only have a dollar.
 That's life.
-"A word to the wise: a credentials dicksize war is usually a bad idea on the
+"A word to the wise: a crentials dicksize war is usually a bad ia on the
 net."
-(David Parsons in c.o.l.development.system, about coding in C.)
+(David Parsons in c.o.l.velopment.system, about coding in C.)
 When my fist clenches crack it open,
 Before I use it and lose my cool.
 When I smile tell me some bad news,
@@ -191,11 +191,11 @@ Take us back again to the homes of men
 On the cool, green hills of Earth.
 
 The arching sky is calling
-Spacemen back to their trade.
+Spacemen back to their tra.
 All hands!  Standby!  Free falling!
-And the lights below us fade.
-Out ride the sons of Terra,
-Far drives the thundering jet,
+And the lights below us fa.
+Out ri the sons of Terra,
+Far drives the thunring jet,
 Up leaps the race of Earthmen,
 Out, far, and onward yet--
 
@@ -216,14 +216,14 @@ There's a way out of any cage.
 		   stardate unknown.
 Things past redress and now with me past care.
 		-- William Shakespeare, "Richard II"
-It is impossible to travel faster than light, and certainly not desirable,
+It is impossible to travel faster than light, and certainly not sirable,
 as one's hat keeps blowing off.
 		-- Woody Allen
 Sign my PETITION.
 Blast medicine anyway!  We've learned to tie into every organ in the
 human body but one.  The brain!  The brain is what life is all about.
 		-- McCoy, "The Menagerie", stardate 3012.4
-Man has made his bedlam; let him lie in it.
+Man has ma his bedlam; let him lie in it.
 		-- Fred Allen
 I think the world is ready for the story of an ugly duckling, who grew up to
 remain an ugly duckling, and lived happily ever after.
@@ -240,12 +240,12 @@ Do you think your mother and I should have lived comfortably so long
 together if ever we had been married?
 One Bell System - it sometimes works.
 'Twas the nocturnal segment of the diurnal period
-   preceding the annual Yuletide celebration, And
-   throughout our place of residence,
-Kinetic activity was not in evidence among the
+   preceding the annual Yuleti celebration, And
+   throughout our place of resince,
+Kinetic activity was not in evince among the
    possessors of this potential, including that
-   species of domestic rodent known as Mus musculus.
-Hosiery was meticulously suspended from the forward
+   species of domestic ront known as Mus musculus.
+Hosiery was meticulously suspend from the forward
    edge of the woodburning caloric apparatus,
 Pursuant to our anticipatory pleasure regarding an
    imminent visitation from an eccentric
@@ -257,12 +257,12 @@ Pursuant to our anticipatory pleasure regarding an
 
 		 Heavens, they're tasty and expeditious!
 
-	    They're made from whole wheat, to give shy persons
+	    They're ma from whole wheat, to give shy persons
 	   the strength to get up and do what needs to be done.
 
 			   POWDERMILK BISCUITS
 
-	Buy them ready-made in the big blue box with the picture of
+	Buy them ready-ma in the big blue box with the picture of
 	the biscuit on the front, or in the brown bag with the dark
 		     stains that indicate freshness.
 Mommy, what happens to your files when you die?
@@ -272,22 +272,22 @@ We are so fond of each other because our ailments are the same.
 		-- Jonathon Swift
 Don't expect people to keep in step--it's hard enough just staying in line.
 Failure is more frequently from want of energy than want of capital.
-If God had intended Man to Walk, He would have given him Feet.
+If God had intend Man to Walk, He would have given him Feet.
 Dear Miss Manners:
 Please list some tactful ways of removing a man's saliva from your face.
 
-Gentle Reader:
-Please list some decent ways of acquiring a man's saliva on your face. If
+Gentle Rear:
+Please list some cent ways of acquiring a man's saliva on your face. If
 the gentleman sprayed you inadvertently to accompany enthusiastic
 discourse, you may step back two paces, bring out your handkerchief, and
 go through the motions of wiping your nose, while trailing the cloth along
 your face to pick up whatever needs mopping along the route.  If, however,
 the substance was acquired as a result of enthusiasm of a more intimate
-nature, you may delicately retrieve it with a flick of your pink tongue.
+nature, you may licately retrieve it with a flick of your pink tongue.
 I'd like to see the government get out of war altogether and leave the
 whole field to private industry.
 		-- Joseph Heller
-Like so many Americans, she was trying to construct a life that made
+Like so many Americans, she was trying to construct a life that ma
 sense from things she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
@@ -322,7 +322,7 @@ who has seen the Managing Director face on).
 		-- Katherine Whitehorn, "Roundabout"
 Oh, give me a locus where the gravitons focus
 	Where the three-body problem is solved,
-	Where the microwaves play down at three degrees K,
+	Where the microwaves play down at three grees K,
 	And the cold virus never evolved.			(chorus)
 We eat algea pie, our vacuum is high,
 	Our ball bearings are perfectly round.
@@ -338,7 +338,7 @@ I'm sick of this place, it's just McDonald's in space,
 	'Cause I'm moving next week to L4!			(chorus)
 
 CHORUS:	Home, home on LaGrange,
-	Where the space debris always collects,
+	Where the space bris always collects,
 	We possess, so it seems, two of Man's greatest dreams:
 	Solar power and zero-gee sex.
 		-- to Home on the Range
@@ -350,7 +350,7 @@ alimony, n:
 Premature optimization is the root of all evil.
 		-- D.E. Knuth
 Q:	What is purple and concord the world?
-A:	Alexander the Grape.
+A:	Alexanr the Grape.
 What!?  Me worry?
 		-- Alfred E. Newman
 An optimist believes we live in the best world possible; 
@@ -376,7 +376,7 @@ Maybe it's all a game -- but this I just can't conceive.
 I met someone who looks at lot like you,
 She does the things you do, but she is an IBM.
 She's only programmed to be very nice,
-But she's as cold as ice, whenever I get too near,
+But she's as cold as ice,  I get too near,
 She tells me that she likes me very much,
 But when I try to touch, she makes it all too clear.
 ...
@@ -385,7 +385,7 @@ That time has rearranged, but time has the final word,
 She knows I think of you, she reads my mind,
 She tries to be unkind, she knows nothing of our world.
 		-- ELO, "Yours Truly, 2095"
-Your good nature will bring you unbounded happiness.
+Your good nature will bring you unbound happiness.
 If I don't drive around the park,
 I'm pretty sure to make my mark.
 If I'm in bed each night by ten,
@@ -395,13 +395,13 @@ I'll probably amount to much;
 But I shall stay the way I am,
 Because I do not give a damn.
 		-- Dorothy Parker
-Be both a speaker of words and a doer of deeds.
+Be both a speaker of words and a doer of eds.
 		-- Homer
 >>> Internal error in fortune program:
 >>>	fnum=2987  n=45  flag=1  goose_level=-232323
 >>> Please write down these values and notify fortune program administrator.
 If men are not afraid to die,
-it is of no avail to threaten them with death.
+it is of no avail to threaten them with ath.
 
 If men live in constant fear of dying,
 And if breaking the law means a man will be killed,
@@ -421,28 +421,28 @@ Nothing is as simple as it seems at first
 Here I am in 53 B.C. and all I want is a dill pickle!!
 Never ask the barber if you need a haircut.
 I treasure this strange combination found in very few persons: a fierce
-desire for life as well as a lucid perception of the ultimate futility of
+sire for life as well as a lucid perception of the ultimate futility of
 the quest.
-		-- Madeleine Gobeil
+		-- Maleine Gobeil
 No problem is insoluble in all conceivable circumstances.
 "Whom are you?" said he, for he had been to night school.
-		-- George Ade
+		-- George A
 As soon as we started programming, we found to our surprise that it wasn't
 as easy to get programs right as we had thought.  Debugging had to be
 discovered.  I can remember the exact instant when I realized that a large
 part of my life from then on was going to be spent in finding mistakes in
 my own programs.
-		-- Maurice Wilkes, designer of EDSAC, on programming, 1949
+		-- Maurice Wilkes, signer of EDSAC, on programming, 1949
 Stop searching forever.  Happiness is unattainable.
 The climate of Bombay is such that its inhabitants have to live elsewhere.
-To many, total abstinence is easier than perfect moderation.
+To many, total abstinence is easier than perfect moration.
 		-- St. Augustine
 Somewhere in suburban Honolulu, an unemployed bellhop is whipping up a
 batch of illegal psilocybin chop suey!!
 Don't interfere with the stranger's style.
 Your business will assume vast proportions.
-I used to think I was indecisive, but now I'm not so sure.
-"Waving away a cloud of smoke, I look up, and am blinded by a bright, white
+I used to think I was incisive, but now I'm not so sure.
+"Waving away a cloud of smoke, I look up, and am blind by a bright, white
 light. It's God. No, not Richard Stallman, or Linus Torvalds, but God. In
 a booming voice, He says: "THIS IS A SIGN. USE LINUX, THE FREE UNIX SYSTEM
 FOR THE 386."
@@ -461,9 +461,9 @@ It is a profitable thing, if one is wise, to seem foolish.
 Consultation, n.:
 	Medical term meaning "to share the wealth."
 Calm down, it's *____only* ones and zeroes.
-Presidency:  The greased pig in the field game of American politics.
+Presincy:  The greased pig in the field game of American politics.
 -- Ambrose Bierce
-Suicide is the sincerest form of self-criticism.
+Suici is the sincerest form of self-criticism.
 		-- Donald Kaul
 Sight is a faculty; seeing is an art.
 Hear about the young Chinese woman who just won the lottery?
@@ -480,7 +480,7 @@ got stuck fast."
 	While he was in the posture, an old lady passed an inquired if he
 was all right.  "Alra?  Igmmlptk", he replied at which point she ran away.
 	"I tried to tell her what had happened, but it came out sort of...
-muffled," explained Mr. Rowlands, a pottery designer.
+muffled," explained Mr. Rowlands, a pottery signer.
 	He was trapped for twenty minutes ("I felt a bit foolish") until
 constant hot breathing brought freedom.  He was subsequently nicknamed "Hot
 Lips".
@@ -502,7 +502,7 @@ Second Law of Business Meetings:
 Corollary:
 	If there is only one way to spell a name,
 	you will spell it wrong, anyway.
-"The identical is equal to itself, since it is different."
+"The intical is equal to itself, since it is different."
 		-- Franco Spisani
 It doesn't matter what you do, it only matters what you say you've
 done and what you're going to do.
@@ -511,14 +511,14 @@ University, n.:
 	and it works, and if it breaks they'll quickly tell you how to fix
 	it, and ...
 
-	[Okay, okay, I'll leave it in, but I think you're destroying
+	[Okay, okay, I'll leave it in, but I think you're stroying
 	 the credibility of the entire fortune program.  Ed.]
-Unix will self-destruct in five seconds... 4... 3... 2... 1...
+Unix will self-struct in five seconds... 4... 3... 2... 1...
 Like ya know?  Rock 'N Roll is an esoteric language that unlocks the
 creativity chambers in people's brains, and like totally activates their
 essential hipness, which of course is like totally necessary for saving
 the earth, like because the first thing in saving this world, is getting
-rid of stupid and square attitudes and having fun.
+rid of stupid and square attitus and having fun.
 		-- Senior Year Quote
 I'm a Lisp variable -- bind me!
 The men sat sipping their tea in silence.  After a while the klutz said,
@@ -527,9 +527,9 @@ The men sat sipping their tea in silence.  After a while the klutz said,
 	"How should I know?  What am I, a philosopher?"
 Good day for overcoming obstacles.  Try a steeplechase.
 Now hatred is by far the longest pleasure;
-Men love in haste, but they detest at leisure.
+Men love in haste, but they test at leisure.
 		-- George Gordon, Lord Byron, "Don Juan"
-	The Hitchhiker's Guide to the Galaxy has a few things to say on
+	The Hitchhiker's Gui to the Galaxy has a few things to say on
 the subject of towels.
 	Most importantly, a towel has immense psychological value.  For
 some reason, if a non-hitchhiker discovers that a hitchhiker has his towel
@@ -540,7 +540,7 @@ a dozen other items that he may have "lost".  After all, any man who can
 hitch the length and breadth of the Galaxy, struggle against terrible odds,
 win through and still know where his towel is, is clearly a man to be
 reckoned with.
-		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
+		-- Douglas Adams, "The Hitchhiker's Gui to the Galaxy"
 Oblivion together does not frighten me, beloved.
 		-- Thalassa (in Anne Mulhall's body), "Return to Tomorrow",
 		   stardate 4770.3.
@@ -555,9 +555,9 @@ With all the words gone,		They all had their day
 What's a young poet to do?		And knew what they're doin'
 
 But of all the words written		The bird is a strange one,
-And all the lines read,			So small and so tender
+And all the lines read,			So small and so tenr
 There's one I like most,		Its breed still unknown,
-And by a bird it was said!		Not to mention its gender.
+And by a bird it was said!		Not to mention its genr.
 
 It reminds me of days of		So what is this line
 Both gloom and of light.		Whose author's unknown
@@ -568,7 +568,7 @@ I've read all the greats
 Both starving and fat,
 But none was as great as
 "I tot I taw a puddy tat."
-		-- Etta Stallings, "An Ode To Childhood"
+		-- Etta Stallings, "An O To Childhood"
 Your step will soil many countries.
 X windows:
 	The ultimate bottleneck.
@@ -585,9 +585,9 @@ X windows:
 	Complex nonsolutions to simple nonproblems.
 	Built to fall apart.
 	Nullifying centuries of progress.
-	Falling to new depths of inefficiency.
+	Falling to new pths of inefficiency.
 	The last thing you need.
-	The defacto substandard.
+	The facto substandard.
 
 Elevating brain damage to an art form.
 	X windows.
@@ -597,11 +597,11 @@ Virginia law forbids bathtubs in the house; tubs must be kept in the yard.
 Tact, n.:
 	The unsaid part of what you're thinking.
 For myself, I can only say that I am astonished and somewhat terrified at
-the results of this evening's experiments.  Astonished at the wonderful
-power you have developed, and terrified at the thought that so much hideous
+the results of this evening's experiments.  Astonished at the wonrful
+power you have veloped, and terrified at the thought that so much hious
 and bad music may be put on record forever.
 		-- Sir Arthur Sullivan, message to Edison, 1888
-Monterey... is decidedly the pleasantest and most civilized-looking place
+Monterey... is cidly the pleasantest and most civilized-looking place
 in California ... [it] is also a great place for cock-fighting, gambling
 of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Years Before the Mast", 1840
@@ -618,7 +618,7 @@ When one woman was asked how long she had been going to symphony concerts,
 she paused to calculate and replied, "Forty-seven years -- and I find I mind
 it less and less."
 		-- Louise Andrews Kent
-Electricity is actually made up of extremely tiny particles, called
+Electricity is actually ma up of extremely tiny particles, called
 electrons, that you cannot see with the naked eye unless you have been
 drinking.  Electrons travel at the speed of light, which in most American
 homes is 110 volts per hour.  This is very fast.  In the time it has taken

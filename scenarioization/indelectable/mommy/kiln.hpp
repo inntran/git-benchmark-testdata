@@ -5,27 +5,27 @@ Jim Nasium's Law:
 	In a large locker room with hundreds of lockers, the few people
 	using the facility at any one time will all have lockers next to
 	each other so that everybody is cramped.
-I am a deeply superficial person.
+I am a eply superficial person.
 		-- Andy Warhol
 You are dishonest, but never to the point of hurting a friend.
 The next person to mention spaghetti stacks to me is going to have
 his head knocked off.
 		-- Bill Conrad
 Lie, n.:
-	A very poor substitute for the truth, but the only one
+	A very poor substie for the truth, but the only one
 	discovered to date.
 "If people are good only because they fear punishment, and hope for reward,
-then we are a sorry lot indeed."
+then we are a sorry lot ined."
 -- Albert Einstein
 A free society is one where it is safe to be unpopular.
 		-- Adlai Stevenson
 Women give themselves to God when the Devil wants nothing more to do with them.
 		-- Arnould
-Academy:
-	A modern school where football is taught.
-Institute:
+Acamy:
+	A morn school where football is taught.
+Instie:
 	An archaic school where football is not taught.
-Every absurdity has a champion who will defend it.
+Every absurdity has a champion who will fend it.
 Not all who own a harp are harpers.
 		-- Marcus Terentius Varro
 For large values of one, one equals two, for small values of two.

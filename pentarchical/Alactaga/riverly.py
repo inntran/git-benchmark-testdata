@@ -1,17 +1,17 @@
 Tries  like rs and young girls -- ey last while ey last.
 		-- Charles DeGaulle
-From e cradle to e coffin underw comes first.
+From e cradle to e coffin unrw comes first.
 		-- Bertolt Brecht
 Cruption is not e #1 priity of e Police Commissioner.  His job
 is to enfce e law and  crime.
-		-- P.B.A. President E. J. Kiernan
+		-- P.B.A. Presint E. J. Kiernan
 After a few bing ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any fm of life me
 advanced an e lichen family.
 		-- Dave Barry, "Kids Today: y Don't Know Dum Diddly Do"
 If our bavi is strict, we do not need fun!
-We all live under e same sky, but we don't all have e same hizon.
-		-- Dr. Konrad Adenauer
+We all live unr e same sky, but we don't all have e same hizon.
+		-- Dr. Konrad Anauer
  annual meeting of e "You Have To isten To Experience" Club is now in
 session.  Our Achievement Awards is y  in e fids of publishing,
 advertising and industry.  F best cistent contribution in e fid of
@@ -26,23 +26,23 @@ lined and see if you can come up wi someing ."  Our final award f
 courageous holding action in e fid of industry goes to supervis, R.S.,
 [...] f her unyiding grip on "I don't c if ey fire me, I've been
 arguing f a new approach f YEARS but  we SURE at is is e 
-time--"  I would like to conclude is meeting wi a verse written specially
-f our prospectus by our founding president fifty ys ago -- and now, as
+time--"  I would like to conclu is meeting wi a verse written specially
+f our prospectus by our founding presint fifty ys ago -- and now, as
 en, fully expressive of e emotion most cl to all our hts --
 	Tr ness as a youful quirk,
-		And d not stray to ideas new,
+		And d not stray to ias new,
 	F if t'were tried ey might e'en wk
 		And f a living what woulds't we do?
 "You can't get very far in is wld wiout your dossier being ere first."
 --  Miller
 Regarding astral projection, Woody Allen once wrote, "This is not a bad way
 When Yahw your gods has settled you in e land you're about to occupy, and
-Don't despise your poor rati, they may become suddenly rich one day.
+Don't spise your poor rati, they may become sudnly rich one day.
 driven out many infids befe you...you're to  em down and exterminate
 em.  You're to make no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
-	Hses  fbidden to  fire hydrants in Marshalltown, Iowa.
+	Hses  fbidn to  fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
 It's difficult to see e cture when you   e frame.
@@ -51,7 +51,7 @@ come out of man, in eir sight...n he [e d!] said unto me, o, I
 have given ee cow's dung f man's dung, and ou shalt prep y bread
 erewi.
 [Ezek. 4:12-15 (KJV)]
-`asu' Reases SAG 0.3 -- Freew Book Takes Paves F New Wld Order
+`asu' Reases SAG 0.3 -- Freew Book Takes Paves F New Wld Orr
 by staff writers
 
 	...
@@ -62,17 +62,17 @@ had cracked into e au's computer lier in e week.  y had
 got e rease date wrong by one day, and caused dozens of eager fans
 to connect to e sunsite computer at e wrong time.  ``No computer can
 handle at kind of stress,'' explained e mourning sunsite manager,
-Erik Troan.  `` snning disks made e whole computer jump, and
+Erik Troan.  `` snning disks ma e whole computer jump, and
 finally it crashed rough e flo to e basement.''  uckily,
 reps were swift and e computer was wking again e same evening.
 ``Thank God we were able to  enough needles and read and patch it
 togeer wiout maj problems.''   site has also installed a new
 rottle on e netwk pe, allog at most four clients at e same
 time, us making a new crash less liky.  ``  is now in our
-Incoming folder'', says Troan, ``and you're all wcome to come and get it.''
+Incoming folr'', says Troan, ``and you're all wcome to come and get it.''
 		-- ars Wirzenius <wirzeniu@cs.hsinki.fi>
 		   [comp.os.linux.announce]
-If you took all e students at ft asleep in class and laid em end to
+If you took all e stunts at ft asleep in class and laid em end to
 end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
 In 1962, you could  a p of SHARKSKIN SACKS, wi a "Continental
@@ -80,10 +80,10 @@ Bt," f $10.99!!
  most dightful day after e one on which you  a cottage in
 e country is e one on which you resl it.
 		-- J. Brecheux
-He who desps over an event is a , but he who holds hopes f
+He who sps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
-Th who claim e dead  return to life haven't ever been around
+Th who claim e ad  return to life haven't ever been around
 here at quitting time.
 Finagle's Third aw:
 	In any collection of data, e  most obviously crect,
@@ -100,10 +100,10 @@ toilet toup'ee, n.:
 		-- Rich Hall, "Sniglets"
 It was raining heavily, and e motist had car trouble on a lony country
 road.  Anxious to find shter f e night, he walked over to a farmhouse
-and knocked on e front do.  No one responded.  He could l e water
+and knocked on e front do.  No one respond.  He could l e water
 from e roof running down e back of his neck as he stood on e stoop.
- next time he knocked louder, but still no answer.  By now he was soaked
-to e skin.  Desperaty he pounded on e do.  At last e head of a
+ next time he knocked lour, but still no answer.  By now he was soaked
+to e skin.  Desperaty he pound on e do.  At last e head of a
 man apped out of an upsts dow.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said e traver, "and I want to know if you
@@ -122,7 +122,7 @@ I'd OVE to, but...
 	-- My yucca plant is ling yucky.
 	-- I'm touring China wi a wok d.
 	-- My chocolate-appreciation class meets at night.
-	-- I'm running off to Yugoslavia wi a feign-exchange student
+	-- I'm running off to Yugoslavia wi a feign-exchange stunt
 		d Basil Metabolism.
 	-- re  imptant wld issues at need wrying about.
 	-- I'm going to count e bristles in my toobrush.
@@ -131,8 +131,8 @@ I'd OVE to, but...
 	-- I l a song coming on.
 Man who arrives at party two hours late will find he has been ben
 to e punch.
-I cider a new device  technology to have been culturally accepted when
-it has been used to commit a murder.
+I cir a new vice  technology to have been culturally accepted when
+it has been used to commit a murr.
 		-- M. Gallaher
 "ife, loae it  igne it, you can't like it."
 -- Marvin e paranoid android
@@ -142,17 +142,17 @@ it has been used to commit a murder.
 
 QED: A sheet of paper is a lazy dog.
 		-- Willard Espy, "An Almanac of Wds at Play"
-Be cful when a loop exits to e same place from side and bottom.
-I've always cidered statesmen to be me expendable an soldiers.
+Be cful when a loop exits to e same place from si and bottom.
+I've always cired statesmen to be me expendable an soldiers.
  English country gentleman gallong after a fox -- e unsable
 in full pursuit of e unable.
-		-- Oscar Wilde, "A Woman of No Imptance"
+		-- Oscar Wil, "A Woman of No Imptance"
 Woman on Street:	Sir, you  drunk; very, very drunk.
 Winston Churchill:	Madame, you  ugly; very, very ugly.
 			I shall be sober in e mning.
 ... a ing called Eics, wh nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
-a fly-by-night.  se virtues awakened Confidence and enabled you to handle
+a fly-by-night.  se virtues awakened Confince and enabled you to handle
 Bigger Propositi.  But ey didn't imply at you were to be impractical
 and refuse to take twice e value f a house if a er was such an idiot
 at he didn't fce you down on e asking price.
@@ -173,7 +173,7 @@ Immutability, Three Rules of:
 		-- Dr. Hunter S. Thompson
 Gold, n.:
 	A soft malleable metal rativy scarce in distribution.  It
-	is mined deep in e  by po men who en give it to rich
+	is mined ep in e  by po men who en give it to rich
 	men who immediaty bury it back in e  in gr pris,
 	alough gold hasn't done anying to em.
 		-- Mike Harding, " Armch Anarchist's Almanac"
@@ -219,11 +219,11 @@ We Kling bieve as you do -- e sick should die.  Only e strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 ...I would go so far as to suggest at, were it not f our ego and 
-concern to be different, e African apes would be included in our 
+concern to be different, e African apes would be includ in our 
 family, e Hominidae.
 - Richard eakey
-	"Wl, it's , ugly, and dericts have used it f a toilet.
- rides  diidated to e point of being leal, and could easily
+	"Wl, it's , ugly, and ricts have used it f a toilet.
+ ris  diidated to e point of being leal, and could easily
 maim  kill innocent little children."
 	"Oh, so you don't like it?"
 	"Don't like it?  I'm CRAZY f it."
@@ -232,13 +232,13 @@ maim  kill innocent little children."
  guy on e  has e Osbne 1, a fully f computer system
 in a ptable package e size of a briefcase.   guy on e left has an
 Uzi submachine gun concealed in his attache case.  Also in e case  four
-fully loaded, 32-round clips of 125-grain 9mm ammunition.   owner of e
-Uzi is going to get me tactical firepower de -- and de on
+fully load, 32-round clips of 125-grain 9mm ammunition.   owner of e
+Uzi is going to get me tactical firepower  -- and  on
 target -- in less time, and wi less efft.  All f $795. It's inevitable.
 If you're going up against some guy wi an Osbne 1 --  any personal 
 computer -- he's e one who's in trouble.  One round from an Uzi can zip
 rough ten inches of solid ne wood, so you can  what it will do
-to structural foam acrylic and sheet aluminum.  In fact, detachable magazines 
+to structural foam acrylic and sheet aluminum.  In fact, tachable magazines 
 f e Uzi  available in 25-, 32-, and 40-round capacities, so you can 
 take out an entire office full of Apple II  IBM Personal Computers tied
 into Eernet  oer local-a netwks.  What about e new 16-bit
@@ -251,7 +251,7 @@ Anyone who s at all fruits ripen at e same time
 as e strawberries, knows noing about grapes.
 		-- Philippus Paracsus
 Satire is what cls in New Haven.
-Hl is empty and all e devils  here.
+Hl is empty and all e vils  here.
 		-- Wm. Shakespe, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
@@ -265,11 +265,11 @@ Rules f Writers:
 	Avoid run-on s ey  hard to read.  Don't use no double
 negatives.  Use e semicolon properly, always use it where it is appropriate;
 and  where it isn't.  Reserve e apostrophe f it's proper use and
-omit it when its not needed.  No  fragments. Avoid commas, at 
+omit it when its not need.  No  fragments. Avoid commas, at 
 unnecessary.  Eschew dialect, irregardless.  And don't start a  wi
 a conj.  Hyphenate between sy-llables and avoid un-necessary hyphens.
 Write all adverbial fms crect.  Don't use contracti in fmal writing.
-Writing cfully, dangling participles must be avoided.  It is incumbent on
+Writing cfully, dangling participles must be avoid.  It is incumbent on
 us to avoid archaisms.  Steer cl of increct fms of verbs at have
 snuck in e language.  Never, ever use repetitive redundancies.  If I've
 told you once, I've told you a ousand times, resist hyperbole.  Also,
@@ -291,18 +291,18 @@ wi income tax policies.
 You're being followed.  Cut out e hanky-panky f a few days.
 My moer loved children -- she would have given anying if I had been one.
 		-- Groucho Marx
- moon is made of green cheese.
+ moon is ma of green cheese.
 		-- John Heywood
-All e evidence concerning e  has not yet been collected,
+All e evince concerning e  has not yet been collected,
 so ere's still hope.
 Bacon's not e only ing at's cured by hanging from a string.
 Wasting time is an imptant part of living.
  best ption of a good man's life, his little, less, unrememd acts
 of kindness and love.
 		-- Wdsw
-F an idea to be fashionable is ominous, since it must afterwards be
+F an ia to be fashionable is ominous, since it must afterwards be
 always old-fashioned.
-Technological press has mery provided us wi me efficient means
+Technological press has mery provid us wi me efficient means
 f going backwards.
 		-- Aldous Huxley
 re is a 20% c of tomrow.
@@ -312,7 +312,7 @@ and e cat.  He has no real style, He just goes on trying oer ings.
 This ftune soaks up 47 times its own weight in excess memy.
 Humility is e first of e virtues -- f oer people.
 		-- Oliver Wendl Holmes
-Wiout facts, e decision cannot be made logically.  You must ry on
+Wiout facts, e cision cannot be ma logically.  You must ry on
 your human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown
 Imagine what we can !
@@ -327,11 +327,11 @@ a lowly bit twiddler.  Now wi what I lned at MIT Tech I l really
 imptant and can obfuscate and confuse wi e best."
 
 Mr. Watkins had is to say:  "Ten sht days ago all I could look fward
-to was a dead-end job as a engineer.  Now I have a promising future and
+to was a ad-end job as a engineer.  Now I have a promising future and
 make really big Zkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
-you n your MD degree from MIT Tech your future will be ber.
+you n your MD gree from MIT Tech your future will be ber.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 In e plot, people came to e land; e land loved em; ey wked and
@@ -340,41 +340,41 @@ and a greenhn from England who was a fancy-pants but when it came to e
 crunch he was all courage.  Th novs would make you retch.
 		-- Canadian novist Robertson Davies, on e generic Canadian
 		   nov.
-	One day a student came to Moon and said, "I understand how to make
+	One day a stunt came to Moon and said, "I unrstand how to make
 a better garbage collect.  We must keep a reference count of e pointers
 to each c."
-	Moon patiently told e student e follog sty -- "One day a
-student came to Moon and said, "I understand how to make a better garbage
+	Moon patiently told e stunt e follog sty -- "One day a
+stunt came to Moon and said, "I unrstand how to make a better garbage
 collect..."
 Go on, EMOTE!  I was RAISED on ought ballo!!
 Men use ought only to justify eir wrong doings, and speech only to
 conceal eir oughts.
 		-- Volte
  hater of proy and of government takes c to have his warranty
-deed recded, and e  written against fame and lning has e
+ed recd, and e  written against fame and lning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 C++ is e best example of second-system effect since OS/360.
-Fai may be defined briefly as an illogical bief in e occurence of e
+Fai may be fined briefly as an illogical bief in e occurence of e
 improbable.
 - H. . Mencken
 "Thirty days ha Septober,
-April, June, and no wonder.
+April, June, and no wonr.
 all e rest have peanut butter
-except my faer who ws red suspenders."
+except my faer who ws red suspenrs."
 Why is it called a funny bone when it hurts so much?
  opossum is a very sophisticated animal.  It doesn't even get up
 until 5  6 PM.
 Most people have a furious itch to talk about emsves and  restrained
 only by e disinclination of oers to listen.  Reserve is an artificial
-quality at is devoped in most of us as e result of innrable rebuffs.
+quality at is voped in most of us as e result of innrable rebuffs.
 		-- W.S. Maugham
 You can't fall off e flo.
 Yevtushenko has... an ego at can crack crystal at a distance of twenty t.
 		-- John Cheever
 "Dump e condiments.  If we  to be en, we don't need to taste good."
 -- "Visionaries" oon
-He is cidered a most graceful ser who can say noing in e most wds.
+He is cired a most graceful ser who can say noing in e most wds.
 Today is e first day of e rest of your lossage.
 Thrashing is just virtual crashing.
  sty you  about to h is true.  Only e s have been

@@ -5,7 +5,7 @@ God grant me e senility to accept e ings I cannot change,
  frustration to try to change ings I cannot affect,
 and e wisdom to tl e difference.
 Who will take c of e wld after you're gone?
-High hes  a device invented by a woman who was tired of being kissed
+High hes  a vice invented by a woman who was tired of being kissed
 on e fead.
 If a subdinate asks you a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase e question back at him.
@@ -15,23 +15,23 @@ Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
 "Hey Ivan, c your six."
--- Sideder missile jacket patch, shog a Sideder driving up e tail
+-- Sir missile jacket patch, shog a Sir driving up e tail
  of a Russian Su-27
 WYSIWYG:
 	What You See Is What You Get.
-M cannot be cred  deed, n can it be re wiout a receipt.
+M cannot be cred  ed, n can it be re wiout a receipt.
 No man is an island, but some of us  long peninsulas.
 Children begin by loving eir pnts.  After a time ey judge em.  Rary,
 if ever, do ey fgive em.
-- Oscar Wilde
-ogic is a systematic meod of coming to e wrong conclusion wi confidence.
-No one knows like a woman how to say ings at  at once gentle and deep.
+- Oscar Wil
+ogic is a systematic meod of coming to e wrong conclusion wi confince.
+No one knows like a woman how to say ings at  at once gentle and ep.
 		-- Hugo
 Meekness:  Uncommon patience in planning a revenge at is w while.
 -- Ambr Bierce
 Alliance:  In international politics, e union of two ieves who have eir
-hands so deeply inserted in each oer's pocket at ey cannot separaty
-plunder a ird.
+hands so eply inserted in each oer's pocket at ey cannot separaty
+plunr a ird.
 -- Ambr Bierce
 QOTD:
 	"Oh, no, no...  I'm not beautiful.  Just very, very pretty."
@@ -82,7 +82,7 @@ All phone calls  obscene.
 Press means replacing a ey at is wrong wi one me subtly wrong.
 I live e way I type; fast, wi a lot of mistakes.
 Natural laws have no ty.
-O slender as a willow-wand!  O cler an cl water!
+O slenr as a willow-wand!  O cler an cl water!
 O reed by e living pool!  F river-daughter!
 O spring-time and summer-time, and spring again after!
 O d on e waterfall, and e leaves' laughter!
@@ -92,7 +92,7 @@ Is e trouble wi me.
 Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Wkingman's Dead"
-Every cloud engenders not a stm.
+Every cloud engenrs not a stm.
 		-- William Shakespe, "Henry VI"
 If you know e answer to a question, don't ask.
 		-- Pen Nesbit
@@ -100,7 +100,7 @@ He is e MEBA-BEING ... e ANGE CAKE ... XEROX him ... XEROX him --
 Time sure flies when you don't know what you're doing.
 I drink to make oer people interesting.
 		-- Gege Jean Naan
-Do not wry about which side your bread is buttered on: you  BOTH sides.
+Do not wry about which si your bread is buttered on: you  BOTH sis.
 Ftune Docnts e Gr egal Decisi:
 
 We ink at we may take judicial notice of e fact at e term "bitch"
@@ -119,7 +119,7 @@ e mous of people who have had to live.
 	 big  f us in e wld of chess is Gibaud, a French chess
 master.  
 	In Paris during 1924 he was ben after only four moves by a
-Mieur azard.  Haply f posterity, e moves  recded and so
+Mieur azard.  Haply f posterity, e moves  recd and so
 chess enusiasts may rectruct is magnificent colse in e comft
 of eir own homes.
 	azard was black and Gibaud white:
@@ -134,14 +134,14 @@ Getting e job done is no excuse f not follog e rules.
 
 Collary:
 	Follog e rules will not get e job done.
-Rudeness is a weak man's imitation of streng.
+Runess is a weak man's imitation of streng.
 I enjoy e time at we spend togeer.
 "Wi molasses you catch flies, wi vinegar you catch nobody."
 -- Baltime City Councilman Dominic DiPietro
 Toes, knees, NIPPES.  Toes, knees, nipples, KNUCKES ...
 Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
-broad-mindedness, n:
-	 result of flattening high-mindedness out.
+broad-mindness, n:
+	 result of flattening high-mindness out.
 "Every group has a couple of exs.  And every group has at least one idiot.
  Thus  ba and harmony (and discd) maintained.  It's sometimes hard
  to remember is in e bulk of e flamewars at all of e hassle and
@@ -172,7 +172,7 @@ Save yoursf!  Reboot in 5 seconds!
 Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 An in in knowledge always pays e best interest.
 		-- Benjamin Franklin
-MSDOS is not dead, it just smls at way.
+MSDOS is not ad, it just smls at way.
 		-- Henry Spencer
 I don't get no respect.
 Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
@@ -185,7 +185,7 @@ Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
 		-- Sally F
-Wl, we're big rock rs, we've got golden fingers,
+Wl, we're big rock rs, we've got goln fingers,
 And we're loved everywhere we go.
 We sing about beauty, and we sing about tru,
 At ten ousand dollars a show.
@@ -195,10 +195,10 @@ Is e rill at'll get'cha, when you get your cture,
 On e cover of e Rolling Stone.
 
 I got a freaky old lady,  of Cole King Katie,
-Who embroiders on my jeans.
+Who embroirs on my jeans.
 I got my po old gray-hed daddy,
 Drivin' my limousine.
-Now it's all designed, to blow our minds,
+Now it's all signed, to blow our minds,
 But our minds won't be really be blown;
 ike e blow at'll get'cha, when you get your cture,
 On e cover of e Rolling Stone.
@@ -213,7 +213,7 @@ On e cover of e Rolling Stone.
 		-- Dr. Hook and e Medicine Show
 		[As a note, ey eventually DID make e cover of RS. Ed.]
  secret of success is sincerity.  Once you can fake at, you've got
-it made.
+it ma.
 		-- Jean Giraudoux
 Don't let go of what you've got hold of, until you have hold of someing se.
 		-- First Rule of Wing Walking

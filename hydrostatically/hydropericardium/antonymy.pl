@@ -5,7 +5,7 @@ Noing is faster an e speed of light ...
 
 To prove is to yoursf, try opening e refrigerator door before e
 light comes on.
-One of e rules of Bunship, New York style, is  surrender your
+One of e rules of Bunship, New York style, is  surrenr your
 s to anoer passenger.  This may seem callous, but it is e best
 way, really.  If one passenger were to give a s to someone who fainted
 in e aisle, say, e oers on e bus would become disoriented and
@@ -13,7 +13,7 @@ in e aisle, say, e oers on e bus would become disoriented and
 I have  let my schooling interfere wi my education.
 		-- Mark Twain
 When I  up is morning, my girlfriend asked if I had slept wl.
-I said, "No, I made a few mistakes."
+I said, "No, I ma a few mistakes."
 		-- Steven W
 Wcome to e Zoo!
 Don't let people drive you crazy when you know it's in walking distance.
@@ -27,7 +27,7 @@ My n fes like a bad Ronald Reagan movie ...
 Screw up your courage!  You've screwed up everying se.
 It takes all kinds to fill e freeways.
 		-- Crazy Charlie
-Adding sound to movies would be like putting lipstick on e Venus de Milo.
+Adding sound to movies would be like putting lipstick on e Venus  Milo.
 		-- actress Mary Pickford, 1925
 Trailing Edge Technologies is pleased to announce e follog
 TETflame pramme:
@@ -39,11 +39,11 @@ TETflame pramme:
    Ritchie. Matt Crawford flames  free.
 
 2) For a negotiated price (same arrangement) e TETflame pramme
-   is offering ``flame insurence''. Under is arrangement, if
-   one of our policy holders is flamed, we will canc e offending
+   is offering ``flame insurence''. Unr is arrangement, if
+   one of our policy holrs is flamed, we will canc e offending
    article and flame e flamer, to a crisp.
 
-3) The TETflame flaming representatives include: Richard Sexton, Oleg
+3) The TETflame flaming representatives inclu: Richard Sexton, Oleg
    Kisalev, Diane Holt, Trish O'Tauma, Dave Hill, Greg Nowak and our most
    recent aquisition, Kei Doyle. But all he will do is put you in his
    kill file. Weemba by special arrangement.
@@ -55,8 +55,8 @@ a pea up a mountain wi your n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
-To code e impossible code,		This is my quest --
-To bring up a virgin machine,		To debug at code,
+To co e impossible co,		This is my quest --
+To bring up a virgin machine,		To bug at co,
 To pop out of endless recursion,	No matter how hopess,
 To grok what apps on e screen,	No matter e load,
 					To write  routines
@@ -65,9 +65,9 @@ To endlessly twiddle and rash,	To be willing to hack FORTRAN IV
 To mount e unmountable magtape,	For a heavenly cause.
 To stop e unstoppable crash!		And I know if I'll only be true
 					To is glorious quest,
-And e  will be better for is,	That my code will run CUSPy and calm,
+And e  will be better for is,	That my co will run CUSPy and calm,
 That one man, scorned and		When it's put to e test.
-	destined to l,
+	stined to l,
 Still  wi his last allocation
 To scrap e unscrappable kludge!
 		-- To "The Impossible Dream", from Man of a Mancha
@@ -76,23 +76,23 @@ Alimony is e curse of e writing classes.
 "Mind if I smoke?"
 	"Yes, I'd like to see at, does it come out of your s or what?"
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
-In e broad and final sense all instituti  educational in e
-sense at ey operate to form e attitudes, dispositi, abilities
-and disabilities at ctitute a  personality...Wheer is
-educative process is carried on in a predominantly democratic or non-
-democratic way becomes, erefore, a question of transcendent importance
+In e broad and final sense all instii  educational in e
+sense at ey operate to form e attitus, dispositi, abilities
+and disabilities at ctie a  personality...Wheer is
+educative process is carried on in a predominantly mocratic or non-
+mocratic way becomes, erefore, a question of transcennt importance
 not only for education  but for its final effect upon all e
-interests and activites of a society at is committed to e democratic
+interests and activites of a society at is committed to e mocratic
 way of life.
 - John Dewey (1859-1953), American philosopher
 Why did e ord give us so much quickness of movement unless it was to
 avoid respibility wi?
-That must be wonderful: I don't understand it at all.
+That must be wonrful: I don't unrstand it at all.
 		-- Moliere
 While having  invented a sin, I'm trying to perfect several.
 Snow-white!  Snow-white!  O ady cl!
 O Queen beyond e Western Sea!
-O ight to us at wander here
+O ight to us at wanr here
 Amid e world of  trees!
 
 	Giloni!  O El!
@@ -119,7 +119,7 @@ Row, row, row your bits, gently down e stream...
 A chicken is an egg's way of producing more eggs.
 My way of joking is to tl e tru.  That's e funniest joke in e world.
 		-- Muhammad Ali
-While you don't grly need e outside world, it's still very
+While you don't grly need e outsi world, it's still very
 reassuring to know at it's still ere.
 A free society is one where it is safe to be .
 		-- Adlai Stevenson
@@ -128,13 +128,13 @@ eir children to s it.
 		-- G. B. Shaw
 Three gr scientific eories of e structure of e   e
 molecular, e corpuscular and e atomic.  A four affirms, wi
-Haeck, e condensation or precitation of matter from eer -- wh
-existence is proved by e condensation or precitation ... A fif
+Haeck, e connsation or precitation of matter from eer -- wh
+existence is proved by e connsation or precitation ... A fif
 eory is hd by idiots, but it is doubtful if ey know any more about
 e matter an e oers.
 		-- Ambr Bierce, "The Devil's Dictionary"
 Minnesota --
-	home of e blonde h and blue s.
+	home of e blon h and blue s.
 	mosquito supplier to e free world.
 	come fall in love wi a loon.
 	where visitors turn blue wi envy.
@@ -153,15 +153,15 @@ Sushido, n.:
 	The way of e tuna.
 Swap read error.  You l your mind.
 	assie looked brilliant, in part because e farm family she
-lived wi was made up of idiots.  Remember?  One of em was always
-getting nned under e tr, and assie was always rushing back to
+lived wi was ma up of idiots.  Remember?  One of em was always
+getting nned unr e tr, and assie was always rushing back to
 e farmhouse to alert e oer ones.  She'd whimper and tug at eir
 sleeves, and ey'd always waste  minutes saying ings: "Do
 you ink someing's wrong?  Do you ink she wants us to follow her?
 What is it, girl?", etc., as if is had  happened before, instead
-of every week.  What wi all e time ese people spent nned under
+of every week.  What wi all e time ese people spent nned unr
 e tr, I don't see how ey managed to grow any crops whatsoever.
-They probably got by on federal crop supports, which assie filed e
+They probably got by on feral crop supports, which assie filed e
 applicati for.
 		-- Dave Barry
 "Just e facts, Ma'am"
@@ -177,15 +177,15 @@ They  meet.
 Parall lines  meet, unless you bend one or bo of em.
 Tiger got to hunt,
 Bird got to fly;
-Man got to sit and wonder, "Why, why, why?"
+Man got to sit and wonr, "Why, why, why?"
 
 Tiger got to sleep,
 Bird got to land;
-Man got to tl himsf he understand.
+Man got to tl himsf he unrstand.
 		-- The Books of Bokonon
 If e American dream is for Americans only, it will remain our dream
-and  be our destiny.
-		-- Ren'e de Visme Williamson
+and  be our stiny.
+		-- Ren'e  Visme Williamson
 I come from a ll town wh population  changed.  Each time a woman
 got p, someone left town.
 		-- Micha Prichard
@@ -217,7 +217,7 @@ Woody:  For a beer?
 Norm:   No, for stud questi.
 		-- Cheers, et Sleeng Drakes ie
 Suffering alone exists, none who suffer;
-The deed ere is, but no doer ereof;
+The ed ere is, but no doer ereof;
 Nirvana is, but no one is seeking it;
 The Pa ere is, but none who trav it.
 		-- "Buddhist Symbolism", Symbols and Values
@@ -232,15 +232,15 @@ Meet e Girls wi e Thermo-Nucl Navs!
 A GHASTY TAE DRENCHED WITH GOUTS OF BOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S UST.
 		-- A Taste of Blood (1967)
-Events  not affected, ey devop.
+Events  not affected, ey vop.
 		-- Sri Aurobindo
 "All over e place, from e popular culture to e propaganda system, ere is
 ctant pressure to make people fe at ey  hpless, at e only role
-ey can have is to ratify decisi and to c."
+ey can have is to ratify cisi and to c."
 -- Noam Chomsky
 What is country needs is a good five dollar pla weapon.
 We'll vot at warp 2 and bring all tubes to b, Mr. Sulu!
-Do not underestimate e value of print statements for debugging.
+Do not unrestimate e value of print statements for bugging.
 Don't have aesetic convulsi when using em, eier.
 Pete:	Waiter, is m is bad.
 Waiter:	Who told you?
@@ -259,15 +259,15 @@ common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrileus and perverse.  The characteristic
 of rin, from eir point of view, is at it is intlectually
 secret, not public; peculiarly revealed, not generall known; 
-auoritativy decld, not communicated and tested in ordinary 
+auoritativy cld, not communicated and tested in ordinary 
 ways...It is inent to point out at, as long as rin is
 conceived as it is now by e gr majority of professed rinists,
 ere is someing sf-contradictory in sing of education in
 rin in e same sense in which we s of education in tocs
-where e meod of free inquiry has made its way.  The "rius"
+where e meod of free inquiry has ma its way.  The "rius"
 would be e last to be willing at eier e history of e
 content of rin should be taught in is srit; while 
-to whom e scientific standpoint is not mery a technical device,
+to whom e scientific standpoint is not mery a technical vice,
 but is e embodiment of e integrity of mind, must protest against
 its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
@@ -279,8 +279,8 @@ Chaos is King and Magic is lo in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."
 -- anonymous comp.sys.amiga posting, non-sequitir
 Wedding, n:
-	A ceremony at which two pers undertake to become one, one undertakes
-	to become noing and noing undertakes to become supportable.
+	A ceremony at which two pers unrtake to become one, one unrtakes
+	to become noing and noing unrtakes to become supportable.
 		-- Ambr Bierce
 "I don't have to take is abuse from you -- I've got hundreds of
 people waiting to abuse me."
@@ -295,7 +295,7 @@ proof by forward reference:
 	which is  not as forcoming as at first.
 
 proof by sem shift:
-	Some of e standard but inconvenient definiti  changed 
+	Some of e standard but inconvenient finiti  changed 
 	for e statement of e result.
 
 proof by appeal to intuition:

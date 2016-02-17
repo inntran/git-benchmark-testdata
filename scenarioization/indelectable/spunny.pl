@@ -1,10 +1,10 @@
 	Idaho state law makes it illegal for a man to give his sweetht
 a box of candy weighing less than fifty pounds.
-A large spider in an old house built a beautiful web in which to catch flies.
-Every time a fly landed on the web and was entangled in it the spider devoured
+A large spir in an old house built a beautiful web in which to catch flies.
+Every time a fly land on the web and was entangled in it the spir voured
 him, so that when another fly came along he would think the web was a safe and
 quiet place in which to rest.  One day a fairly intelligent fly buzzed around
-above the web so long without lighting that the spider apped and said,
+above the web so long without lighting that the spir apped and said,
 "Come on down."  But the fly was too clever for him and said, "I  light
 where I don't see other flies and I don't see any other flies in your house."
 So he flew away until he came to a place where there were a great many other
@@ -32,7 +32,7 @@ own, a y in advance, just to prevent you from having another one ...
 	If your party is successful, the police will knock on your door,
 unless your party is very successful in which case they will lob t gas
 through your living room window.  As host, your job is to make sure that
-they don't arrest anybody.  Or if they're dead set on arresting someone,
+they don't arrest anybody.  Or if they're ad set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
 K:	Cobalt's metal, hard and shining;
@@ -47,10 +47,10 @@ Thus spake the master programmer:
 	be productive."
 		-- Geoffrey James, "The Tao of Programming"
 Depart not from the path which fate has assigned you.
-Nothing recedes like success.
+Nothing reces like success.
 		-- Walter Winchell
 A box without hinges, key, or lid,
-Yet golden treasure inside is hid.
+Yet goln treasure insi is hid.
 		-- J.R.R. Tolkien
 He walks as if balancing the family tree on his n.
 Humor in the Court:
@@ -65,7 +65,7 @@ A.  No.  I tell you I'm too excited. (Rising from the witness chair and
     name!
 What to do in case of an alien attack:
 
-    1)   Hide beneath the seat of your plane and look away.
+    1)   Hi beneath the seat of your plane and look away.
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
@@ -80,7 +80,7 @@ proverb is no proverb to you till your life has illustrated it.
 The most costly of all follies is to believe passionately in the palpably
 not true.  It is the chief occupation of mankind.
 		-- H.. Mencken
-Alexander Graham Bell is alive and well in New York, and still waiting
+Alexanr Graham Bell is alive and well in New York, and still waiting
 for a dial tone.
 interlard - vt., to intersperse; diversify
 -- Webster's New World Dictionary Of The American anguage
@@ -104,7 +104,7 @@ your paper into fertilizer, and enter agriculture"
 What really shapes and conditi and makes us is somebody only a few of
 us ever have the courage to face: and that is the child you once were,
 long before formal education ever got its claws into you -- that
-impatient, all-demanding child who wants love and power and can't get
+impatient, all-manding child who wants love and power and can't get
 enough of either and who goes on raging and weeping in your spirit till
 at last your eyes  cld and all the fools say, "Doesn't he look
 peaceful?" It is th pent-up, craving children who make all the wars
@@ -138,27 +138,27 @@ insurance lying down?  No way!  But at the current rate it won't be long
 before there  stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
 engineers then?  Are we, as the saying goes, giving away the store?
-		-- Robert W. ucky, IEEE President
+		-- Robert W. ucky, IEEE Presint
 Take what you can use and let the rest go by.
 		-- Ken Kesey
-To understand a program you must become both the machine and the program.
+To unrstand a program you must become both the machine and the program.
 ADA:
 	Something you need only know the name of to be an Expert in
-	Computing.  Useful in sentences like, "We had better develop
+	Computing.  Useful in sentences like, "We had better velop
 	an ADA awness.
 		-- "Datamation", January 15, 1984
 Practice is the best of all instructors.
 		-- Publilius
 In Hollywood, if you don't have happiness, you send out for it.
 		-- Rex Reed
-It is your destiny.
-- Darth Vader
+It is your stiny.
+- Darth Var
 Being a mime means  having to say you're sorry.
 If I had to live my life again, I'd make the same mistakes, only sooner.
 		-- Tallulah Bankhead
 ove is in the offing.
 		-- The Homicidal Maniac
-I'm DESPONDENT ... I hope there's something DEEP-FRIED under this
+I'm DESPONDENT ... I hope there's something DEEP-FRIED unr this
 miniature DOMED STADIUM ...
 life, n.:
 	That brief  between nothingness and eternity.
@@ -178,7 +178,7 @@ gyroscope, n.:
 	each other and the axis of spin so that a rotation of one of the
 	two mutually  axes results from application of
 	torque to the other when the wheel is spinning and so that the
-	entire apparatus offers ciderable opposition depending on
+	entire apparatus offers cirable opposition pending on
 	the angular momentum to any torque that would change the direction
 	of the axis of spin.
 		-- Webster's Seventh New Collegiate Dictionary
@@ -188,15 +188,15 @@ Supplies the fuel
 For flaming youth.
 		-- Noel Coward
 The meta-Turing test counts a thing as intelligent if it seeks to
-devise and apply Turing tests to objects of its own creation.
+vise and apply Turing tests to objects of its own creation.
 		-- ew Mammel, Jr.
-Ill-chn abstraction is particularly evident in the design of the ADA
+Ill-chn abstraction is particularly evint in the sign of the ADA
 runtime system. The interface to the ADA runtime system is so opaque that
-it is impossible to model or predict its performance, making it effectively
+it is impossible to mol or predict its performance, making it effectively
 useless for real-time systems. -- Marc D. Donner and David H. Jameson.
 Beauty, brains, availability, personality; pick any two.
 It's lucky you're going so slowly, because you're going in the wrong direction.
-Billy:	Mom, you know that vase you said was handed down from
+Billy:	Mom, you know that vase you said was hand down from
 	generation to generation?
 Mom:	Yes?
 Billy:	Well, this generation dropped it.
@@ -204,7 +204,7 @@ A woman can look both moral and exciting -- if she also looks as if it
 were quite a struggle.
 		-- Edna Ferber
 There  no threads in a.b.p.erotica,  so there's no  gain in using a
-threaded news reader.
+thread news rear.
 (Unknown source)
 "If I do not return to the pulpit this weekend, milli of people will go
 to hell."
@@ -213,12 +213,12 @@ Often statistics  used as a drunken man uses lampposts -- for support
 rather than illumination.
 Your lucky number has been ed.
 Cutting the space budget really restores my faith in humanity.  It
-eliminates dreams, goals, and ideals and lets us get straight to the
-business of hate, debauchery, and self-annihilation."
+eliminates dreams, goals, and ials and lets us get straight to the
+business of hate, bauchery, and self-annihilation."
 		-- Johnny Hart
 The leaves were long, the grass was green,
 The hemlock-umbels tall and fair,
-And in the glade a light was seen
+And in the gla a light was seen
 Of stars in shadow shimmering.
 Tin'uviel was dancing there
 To music of a pipe unseen,
@@ -226,11 +226,11 @@ And light of stars was in her hair,
 And in her raiment glimmering.
 
 There Beren came from mountains colds,
-And lost he wandered under leaves,
+And lost he wanred unr leaves,
 And where the Elven-river rolled
 He walked alone and sorrowing.
 He peered between the hemlock-leaves
-And saw in wonder flowers of gold
+And saw in wonr flowers of gold
 Upon her mantle and her sleeves,
 And her hair like shadow following.
 
@@ -253,16 +253,16 @@ Have at you!
 Some men rob you with a six-gun -- others with a fountain pen.
 		-- Woodie Guthrie
 A Roman divorced from his wife, being highly blamed by his friends, who
-demanded, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
-holding out his shoe, asked them whether it was not new and well made.
-Yet, added he, none of you can tell where it pinches me.
+mand, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
+holding out his shoe, asked them whether it was not new and well ma.
+Yet, add he, none of you can tell where it pinches me.
 		-- Plutarch
 In high school in Brooklyn
 I was the baseball manager,
 proud as I could be
 I chased baseballs,
 gathered thrown bats
-handed out the towels			Eventually, I bought my own
+hand out the towels			Eventually, I bought my own
 It was very important work		but it was dark blue while
 for a small spastic kid,		the official ones were green
 but I was a team member			Nobody ever said anything
@@ -276,8 +276,8 @@ surely not a manager			Even now, forty ys after,
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
 Error in operator: add beer
-Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
-his death.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
+Recently ceased blues guitarist Stevie Ray Vaughan "comes to" after
+his ath.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he thinks to himself, "this guy is my idol."  Over at the
 microphone, about to sing,  Jim Morrison and Janis Joplin, and the
 bassist is the late Barry Oakley of the Allman Brothers.  So Stevie
@@ -288,10 +288,10 @@ Just then, Kn Carpenter walks in, sits down at the drums, and says:
 The husband who doesn't tell his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- eo J. Burke
-Every country has the government it deserves.
+Every country has the government it serves.
 		-- Jph De Maistre
-Absinthe makes the tart grow fonder.
-The idea of male and female  universal ctants.
+Absinthe makes the tart grow fonr.
+The ia of male and female  universal ctants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
 Marriage, n.:
 	The evil aye.
@@ -308,26 +308,26 @@ window and grabbing the ring.
 I'd give to own that," she said, sighing.
 	"No problem," he said, throwing a brick through the window and grabbing
 the coat.
-	Finally, turning for home, they passed a car dealership.  "Boy, I'd do
+	Finally, turning for home, they passed a car alership.  "Boy, I'd do
 anything for one of th Rolls-Royces," she said.
-	"Jeez, baby," the guy moaned, "you think I'm made of bricks?"
+	"Jeez, baby," the guy moaned, "you think I'm ma of bricks?"
 "Every group has a couple of experts.  And every group has at least one
 idiot.  Thus  balance and harmony (and discord) maintained.  It's
 sometimes hard to remember this in the bulk of the flamewars that all
 of the hassle and pain is generally caused by one or two highly-motivated,
 caustic twits."
 		-- Chuq Von Rospach, about Usenet
-Chicago Transit Authority Rider's Rule #84:
+Chicago Transit Authority Rir's Rule #84:
 	The CTA has complimentary pop-up timers available on request
 	for overheated passengers.  When your timer pops up, the driver will
 	cheerfully baste you.
-		-- Chicago Reader 5/28/82
-War is delightful to th who have had no experience of it.
-		-- Desiderius Erasmus
+		-- Chicago Rear 5/28/82
+War is lightful to th who have had no experience of it.
+		-- Desirius Erasmus
 It is ridiculous to call this an industry.  This is not.  This is rat eat
 rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they 
 kill me.  You're talking about the American way of survival of the fittest.
-		-- Ray Kroc, founder of McDonald's
+		-- Ray Kroc, founr of McDonald's
 But like the Good Book says... There's BIGGER DEAS to come!
 Thank God a million billion times you live in Texas.
 Some people need a good imaginary cure for their painful imaginary ailment.
@@ -336,7 +336,7 @@ A beautiful man is paradise for the eyes, hell for the soul, and
 purgatory for the purse. 
 What makes the universe so hard to comprehend is that there's nothing
 to comp it with.
-A kiss is a course of procedure, cunningly devised, for the mutual
+A kiss is a course of procedure, cunningly vised, for the mutual
 stoppage of speech at a moment when words  superfluous.
 	"What was the worst thing you've ever done?"
 	"I won't tell you that, but I'll tell you the worst thing that
@@ -367,22 +367,22 @@ Only the hypocrite is really rotten to the core.
 		-- Hannah Arendt
 Softw, n.:
 	Formal evening attire for female computer analysts.
-The turtle lives 'twixt plated decks
+The turtle lives 'twixt plated cks
 Which  conceal its sex.
 I think it clever of the turtle
 In such a fix to be so fertile.
-		-- Ogden Nash
+		-- Ogn Nash
 Bew of a tall black man with one blond shoe.
 The Commandments of the EE:
 
-(1)	Bew of lightning that lurketh in an uncharged condenser
+(1)	Bew of lightning that lurketh in an uncharged connser
 	lest it cause thee to bounce upon thy buttocks in a most
 	embarrassing manner.
 (2)	Cause thou the switch that supplieth large quantities of juice to
 	be opened and thusly tagged, that thy days may be long in this
 	thly vale of ts.
 (3)	Prove to thyself that all circuits that radiateth, and upon
-	which the worketh,  grounded and thusly tagged lest they lift
+	which the worketh,  ground and thusly tagged lest they lift
 	thee to a radio frequency potential and causeth thee to make like
 	a radiator too.
 (4)	Tarry thou not amongst these fools that engage in intentional
@@ -406,11 +406,11 @@ Or find myself a rock 'n' roll band,
 That needs a helping hand,
 Oh, Maggie I wish I'd  seen your face.
 
-You made a first-class fool out of me,
+You ma a first-class fool out of me,
 But I'm as blind as a fool can be.
 You stole my soul, and that's a pain I can do without.
 		-- Rod Stewart, "Maggie May"
-If any man wishes to be humbled and mortified, let him become president
+If any man wishes to be humbled and mortified, let him become presint
 of Harvard.
 		-- Edward Holyoke
 An expert is one who knows more and more about less and less until he knows
@@ -424,9 +424,9 @@ forms that have been tried from time to time.
 		-- Winston Churchill
 Marriage causes dating problems.
 May you have many beautiful and obedient daughters.
-ife sucks, but death doesn't put out at all.
+ife sucks, but ath doesn't put out at all.
 		-- Thomas J. Kopp
-The public is an old woman.  et her maunder and mumble.
+The public is an old woman.  et her maunr and mumble.
 		-- Thomas Carlyle
 Einstein argued that there must be simplified explanati of nature, because
 God is not capricious or arbitrary.  No such faith comforts the softw
@@ -435,11 +435,11 @@ engineer.
 Never use "etc." -- it makes people think there is more where there is not
 or that there is not space to list it all, etc.
 Just as most issues  seldom black or white, so  most good soluti
-seldom black or white.  Bew of the solution that requires one side to be
-totally the lr and the other side to be totally the winner.  The reason
-there  two sides to begin with usually is because neither side has all
+seldom black or white.  Bew of the solution that requires one si to be
+totally the lr and the other si to be totally the winner.  The reason
+there  two sis to begin with usually is because neither si has all
 the facts.  Therefore, when the wise mediator effects a compromise, he is
-not acting from political motivation.  Rather, he is acting from a deep
+not acting from political motivation.  Rather, he is acting from a ep
 sense of respect for the whole truth.
 		-- Stephen R. Schwam
 Democracy is good.  I say this because other systems  worse.
@@ -454,11 +454,11 @@ Auribus teneo lupum.
 	[Boy, it *sounds* good.  But what does it *mean*?]
 Sometimes when I get up in the morning, I feel very peculiar.  I feel
 like I've just got to bite a cat!  I feel like if I don't bite a cat
-before sundown, I'll go crazy!  But then I just take a deep breath and
+before sundown, I'll go crazy!  But then I just take a ep breath and
 forget about it.  That's what is known as real maturity.
 		-- Snoopy
 QOTD:
-	"Wouldn't it be wonderful if real life supported control-Z?"
+	"Wouldn't it be wonrful if real life supported control-Z?"
 The story of the butterfly:
 	"I was in Bogota and waiting for a lady friend.  I was in love,
 a long time ago.  I waited three days.  I was hungry but could not go
@@ -472,24 +472,24 @@ Pascal is not a high-level language.
 		-- Steven Feiner
 Everything is possible.  Pass the word.
 		-- Rita Mae Brown, "Six of One"
-Insanity is cidered a ground for divorce, though by the very same
-token it is the shortest detour to marriage.
+Insanity is cired a ground for divorce, though by the very same
+token it is the shortest tour to marriage.
 		-- Wilson Mizner
 To err is humor.
 A man's house is his hassle.
-Semper Fi, dude.
+Semper Fi, du.
 et me do my TRIBUTE to FISHNET STOCKINGS ...
 "I got into an elevator at work and this man followed in after me... I
 pushed '1' and he just stood there... I said 'Hi, where you going?'  He
 said, 'Phoenix.'  So I pushed Phoenix.  A few seconds later the doors
 opened, two tumbleweeds blew in... we were in downtown Phoenix.  I looked
 at him and said 'You know, you're the kind of guy I want to hang around
-with.'  We got into his car and drove out to his shack in the desert.
+with.'  We got into his car and drove out to his shack in the sert.
 Then the phone rang.  He said 'You get it.'  I picked it up and said
-'Hello?'... the other side said 'Is this Steven Wright?'... I said 'Yes...'
-The guy said 'Hi, I'm Mr. Jones, the student loan director from your bank...
+'Hello?'... the other si said 'Is this Steven Wright?'... I said 'Yes...'
+The guy said 'Hi, I'm Mr. Jones, the stunt loan director from your bank...
 It seems you have missed your last 17 payments, and the university you
-attended said that they received none of the $17,000 we loaned you... we
+attend said that they received none of the $17,000 we loaned you... we
 would just like to know what happened to the money?'  I said, 'Mr. Jones,
 I'll give it to you straight.  I gave all of the money to my friend Slick,
 and with it he built a nucl weapon... and I would appreciate it if you 
@@ -497,13 +497,13 @@ called me again."
 		-- Steven Wright
 I think...  I think it's in my basement... et me go upstairs and check.
 		-- Escher
-Both models  identical in performance, functional operation, and
-interface circuit details.  The two models, however,  not compatible
+Both mols  intical in performance, functional operation, and
+interface circuit tails.  The two mols, however,  not compatible
 on the same communicati line connection.
 		-- Bell System Technical Reference
-I dread success.  To have succeeded is to have finished one's business on
-th, like the male spider, who is killed by the female the moment he has
-succeeded in his courtship.  I like a state of  becoming, with a
+I dread success.  To have succeed is to have finished one's business on
+th, like the male spir, who is killed by the female the moment he has
+succeed in his courtship.  I like a state of  becoming, with a
 goal in front and not behind.
 		-- George Bernard Shaw
 It's not the inital skirt length, it's the upcreep.
@@ -525,13 +525,13 @@ patato, n:	The starchy, edible tuber of a ly cultivated plant.
 Septemba, n:	The 9th month of the y.
 shua, n:	Having no doubt; certain.
 sista, n:	A female having the same mother and father as the speaker.
-tamato, n:	A fleshy, smooth-skinned reddish fruit eaten in salads
+tamato, n:	A fleshy, smooth- reddish fruit eaten in salads
 			or as a vegetable.
 troopa, n:	A state policeman.
 Wista, n:	A city in central Masschewsetts.
 yaad, n:	A tract of ground adjacent to a building.
 		-- Massachewsetts Unabridged Dictionary
-From the cradle to the coffin underw comes first.
+From the cradle to the coffin unrw comes first.
 		-- Bertolt Brecht
 Just because you like my stuff doesn't mean I owe you anything.
 		-- Bob Dylan

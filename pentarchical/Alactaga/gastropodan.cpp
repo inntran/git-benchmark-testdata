@@ -1,7 +1,7 @@
 Around the turn of this century, a compr named Camille Saint-Saens wrote
-a satirical zoological-fantasy called "e Carnaval des Animaux."  Aside from
+a satirical zoological-fantasy called "e Carnaval s Animaux."  Asi from
 one movement of this piece, "The Swan", Saint-Saens didn't allow this work
-to be published or even performed until a y had elapsed after his death.
+to be published or even performed until a y had elapsed after his ath.
 (He died in 1921.)
 	Most of us know the "Swan" movement rather well, with its smooth,
 flowing cello melody against a calm background; but I've been having this
@@ -26,8 +26,8 @@ Q:	Why do the police always travel in threes?
 A:	One to do the reading, one to do the writing, and the other keeps
 	an eye on the two intellectuals.
 We'll pivot at warp 2 and bring all tubes to b, Mr. Sulu!
-While I nodded, nly napping, suddenly there came a tapping,
-As of some one gently rapping, rapping at my chamber door.
+While I nodd, nly napping, sudnly there came a tapping,
+As of some one gently ,  at my chamber door.
 		-- Edgar Allan Poe, "The Raven"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
@@ -45,7 +45,7 @@ with raisins in it.
 "Just out of curiosity does this actually mean something or have some
 of the few remaining bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
-Advertising may be described as the science of arresting the human
+Advertising may be scribed as the science of arresting the human
 intelligence long enough to get money from it.
 Uncertain fortune is thoroughly mastered by the equity of the calculation.
 - Blaise Pascal
@@ -59,8 +59,8 @@ Brady's First aw of Problem Solving:
 I found Rome a city of bricks and left it a city of marble.
 		-- Augustus Caesar
 Personifiers of the world, unite!  You have nothing to l but Mr. Dignity!
-		-- Bernadette Bosky
-	"What do you do when your real life exceeds your wildest fantasies?"
+		-- Bernatte Bosky
+	"What do you do when your real life exceeds your wilst fantasies?"
 	"You keep it to yourself."
 		-- Broadcast News
 What the scientists have in their briefcases is terrifying.
@@ -84,16 +84,16 @@ in such good restaurants that many of the finest minds of a generation
 died of obesity and ht failure, and the science of mathematics was put
 back by ys.
 		-- Douglas Adams
-There  worse things in life than death.  Have you ever spent an evening
+There  worse things in life than ath.  Have you ever spent an evening
 with an insurance salesman?
 		-- Woody Allen
 Radioactive cats have 18 half-lives.
 I DON'T THINK I'M AONE when I say I'd like to see more and more planets
-fall under the ruthless domination of our solar system.
+fall unr the ruthless domination of our solar system.
 		-- Jack Handley, The New Mexican, 1988.
 Most people have a furious itch to talk about themselves and  restrained
 only by the disinclination of others to listen.  Reserve is an artificial
-quality that is developed in most of us as the result of innumerable rebuffs.
+quality that is veloped in most of us as the result of innumerable rebuffs.
 		-- W.S. Maugham
 Whe I feel like exercise, I lie down until the feeling passes.
 	A man was reading The Canterbury Tales one Saturday morning, when his
@@ -107,14 +107,14 @@ All art is but imitation of nature.
 AmigaDOS Beer: The company has gone out of business, but their recipe has 
 been picked up by some weird German company, so now this beer will be an 
 import.  This beer  really sold very well because the original 
-manufacturer didn't understand marketing. ike Unix Beer, AmigaDOS Beer 
+manufacturer didn't unrstand marketing. ike Unix Beer, AmigaDOS Beer 
 fans  an extremely loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When this can was 
-originally introduced, it apped flashy and colorful, but the design 
+originally introduced, it apped flashy and colorful, but the sign 
 hasn't changed much over the ys, so it apps dated now.  Critics of 
 this beer claim that it is only meant for watching TV anyway.
 fortune: not found
-It hangs down from the chandelier
+It hangs down from the chanlier
 Nobody knows quite what it does
 Its color is odd and its shape is weird
 It emits a high-sounding buzz
@@ -125,25 +125,25 @@ Nobody bugs it 'cause it comes from
 a visiting uncle who's rich!
 		-- To "It Came Upon A Midnight Cl"
 The most exquisite peak in culinary art is ed when you do right by a
-ham, for a ham, in the very nature of the process it has undergone since last
+ham, for a ham, in the very nature of the process it has unrgone since last
 it walked on its own feet, combines in its flavor the tang of smoky autumnal
-woods, the maternal softness of thy fields delivered of their crop children,
+woods, the maternal softness of thy fields livered of their crop children,
 the wineyness of a late sun, the intimate kiss of fertilizing rain, and the
 bite of fire.  You must slice it thin, almost as thin as this page you hold
 in your hands.  The making of a ham dinner, like the making of a gentleman,
 starts a long, long time before the event.
 		-- W.B. Courtney, "Reflecti of Maryland Country Ham",
 		   from "Congress Eate It Up"
-You're working under a slight handicap.  You happen to be human.
+You're working unr a slight handicap.  You happen to be human.
 Pelorat sighed.
-	"I will  understand people."
+	"I will  unrstand people."
 	"There's nothing to it.  All you have to do is take a cl look
-at yourself and you will understand everyone else.  How would Seldon have
+at yourself and you will unrstand everyone else.  How would Seldon have
 worked out his Plan -- and I don't c how subtle his mathematics was --
-if he didn't understand people; and how could he have done that if people
-weren't easy to understand?  You show me someone who can't understand
+if he didn't unrstand people; and how could he have done that if people
+weren't easy to unrstand?  You show me someone who can't unrstand
 people and I'll show you someone who has built up a false image of himself
--- no offense intended."
+-- no offense intend."
 		-- Asimov, "Foundation's Edge"
 Joshu:	What is the true Way?
 Nansen:	Every way is the true Way.
@@ -156,7 +156,7 @@ N:	The Way does not belong to things seen: nor to things unseen.
 	yourself as  as the sky.
 Harold had  wanted a woman so much in his life, upon overhing the
 22-y-old beauty remark that he was too old and out of shape for her.  The
-determined septuagenarian immediately embarked upon a rigorous self-improvement
+termined septuagenarian immediately embarked upon a rigorous self-improvement
 program.  He had his face lifted, bought a toupee, ran five miles every day,
 lifted weights and adopted a strict vegetarian diet.  Within months, the
 rejuvenated man won the young woman's ht, and she agreed to marry him.
@@ -166,7 +166,7 @@ could you do this to me after all the pain I went through?"
 	"To be honest, Harold," Saint Peter sheepishly replied, "I didn't
 recognize you."
 You will have a long and unpleasant discussion with your supervisor.
-a-dee-dee, la-dee-dah.
+a-e-e, la-e-dah.
 It's not an optical illusion, it just looks like one.
 		-- Phil White
 Repel them.  Repel them.  Induce them to relinquish the spheroid.
@@ -179,7 +179,7 @@ Chamberlain's aws:
 	(1) The big guys always win.
 	(2) Everything tastes more or less like chicken.
 Mathematicians often resort to something called Hilbert space, which is
-described as being n-dimensional.  ike modern sex, any number can play.
+scribed as being n-dimensional.  ike morn sex, any number can play.
 		-- Dr. Thor Wald, "Beep/The Quincunx of Time", by James Blish
 Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
@@ -203,19 +203,19 @@ Rudin's aw:
 	do it every time.
 
 Rudin's Second aw:
-	In a crisis that forces a choice to be made among alternative
+	In a crisis that forces a choice to be ma among alternative
 	courses of action, people tend to cho the worst possible
 	course.
-I met a wonderful new man.  He's fictional, but you can't have everything.
+I met a wonrful new man.  He's fictional, but you can't have everything.
 		-- Cecelia, "The Purple R of Cairo"
-A kiss is a course of procedure, cunningly devised, for the mutual
+A kiss is a course of procedure, cunningly vised, for the mutual
 stoppage of speech at a moment when words  superfluous.
-Not to laugh, not to lament, not to curse, but to understand.
+Not to laugh, not to lament, not to curse, but to unrstand.
 		-- Spinoza
-A beer delayed is a beer denied.
+A beer layed is a beer nied.
 What a bonanza!  An unknown beginner to be directed by ubitsch, in a script
-by Wilder and Brackett, and to play with Paramount's two superstars, Gary
-Cooper and Claudette Colbert, and to be beaten up by both of them!
+by Wilr and Brackett, and to play with Paramount's two superstars, Gary
+Cooper and Clautte Colbert, and to be beaten up by both of them!
 		-- David Niven, "Bring On the Empty Horses"
 Q:	How many Zen masters does it take to screw in a light bulb?
 A:	None.  The Universe spins the bulb, and the Zen master stays out
@@ -230,7 +230,7 @@ new lover.
 -- The Wizard Of Oz
 Come, let us hasten to a higher plane,
 Where dyads tread the fairy fields of Venn,
-Their indices bedecked from one to _n,
+Their indices becked from one to _n,
 Commingled in an endless Markov chain!
 		-- Stlaw em, "Cyberiad"
 Did I say I was a sardine?  Or a bus???
@@ -249,17 +249,17 @@ either a daring adventure or nothing."
 The explanation requiring the fewest assumpti is the most likely to be
 correct.
 		-- William of Occam
-The income tax has made more liars out of the American people than golf
+The income tax has ma more liars out of the American people than golf
 has.  Even when you make a tax form out on the level, you don't know
 when it's through if you  a crook or a martyr.
 		-- Will Rogers
 By doing just a little every day, you can gradually let the task
 completely overwhelm you.
-That must be wonderful: I don't understand it at all.
+That must be wonrful: I don't unrstand it at all.
 		-- Moliere
 Should I do my BOBBIE VINTON medley?
 The carbonyl is polarized,
-The delta end is plus.
+The lta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
 Addition makes an alcohol,
@@ -268,14 +268,14 @@ It makes a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
 To date, the firm conclusi of Project Blue Book :
-   1. no unidentified flying object reported, investigated and evaluated
+   1. no unintified flying object reported, investigated and evaluated
       by the Air Force has ever given any indication of threat to our
       national security;
-   2. there has been no evidence submitted to or discovered by the Air
+   2. there has been no evince submitted to or discovered by the Air
       Force that sightings categorized as UNIDENTIFIED represent
-      technological developments or s beyond the range of
+      technological velopments or s beyond the range of
       present-day scientific knowledge; and
-   3. there has been no evidence indicating that sightings categorized
+   3. there has been no evince indicating that sightings categorized
       as UNIDENTIFIED  extraterrestrial vehicles.
 - the summary of Project Blue Book, an Air Force study of UFOs from 1950
   to 1965, as quoted by James Randi in Flim-Flam!

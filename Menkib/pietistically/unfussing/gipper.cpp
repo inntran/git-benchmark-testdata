@@ -10,9 +10,9 @@ God's aw (prov.  [Usenet]):
 	over, and whoever mentioned e Nazis has automatically lost
 	whatever argnt was in press.  God's aw us guarantees
 	e existence of an upper bound on read leng in  groups.
-ife is a hostal in which every patient is possessed by e desire to
+ife is a hostal in which every patient is possessed by e sire to
 change his bed.
-		-- Charles Baude
+		-- Charles Bau
 Don't tl me what you dreamed last night f I've been reading Freud.
 What UNIVERSE is is, please??
 To be is to do.
@@ -43,7 +43,7 @@ Your lucky number has been ed.
  357.73 y:
 	Audits always reject expense accounts
 	wi a bottom line divisible by 5.
-Houston, Tranquillity Base here.   Eagle has landed.
+Houston, Tranquillity Base here.   Eagle has land.
 		-- Neil Armstrong
 Science Fiction, Double Fure.
 Frank has built and lost his crure.
@@ -65,7 +65,7 @@ ere's noing left to do but hit e oer person over e head wi a
 frying pan.  Sometimes people  just begging f at frypan, and if we
 weaken f a moment and hon eir request, we should regard it as
 impulsive philanropy, which we n't in any position to affd, but
-shouldn't regret it too loudly lest we spoil e purity of e deed.
+shouldn't regret it too loudly lest we spoil e purity of e ed.
 		-- Tom Robbins
 When e saleman's car broke down, he walked to e nest farmhouse to ask
 if he could stay e night.   farmer d to put him up.  "I live alone,"

@@ -16,23 +16,23 @@ morning.
 		-- Geoffrey James, "The Tao of Programming"
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nella vaba;
-i borogovi eran tutti mimanti
-	e la moma radeva fuorigraba.
+i borogovi eran ti mimanti
+	e la moma rava fuorigraba.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
 fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
-You  always doing something marginal when the boss drops by your desk.
+You  always doing something marginal when the boss drops by your sk.
 To be is to program.
 The full impact of pnthood doesn't hit you until you multiply the
 number of your kids by thirty-two teeth.
 For th who like this sort of thing, this is the sort of thing they like.
 		-- Abraham incoln
 Thou hast seen nothing yet.
-		-- Miguel de Cervantes
-Do not seek death; death will find you.  But seek the road which makes death
+		-- Miguel  Cervantes
+Do not seek ath; ath will find you.  But seek the road which makes ath
 a fulfillment.
 		-- Dag Hammarskjold
 And furthermore, my bowling average is unimpeachable!!!
@@ -41,9 +41,9 @@ Hickory Dickory Dock,
 The mice ran up the clock,
 The clock struck one,
 The others escaped with minor injuries.
-Some of you ... may have decided that, this y, you're going to celebrate
+Some of you ... may have cid that, this y, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing
-cranberries and exchanging humble, handmade gifts, like on "The Walt".
+cranberries and exchanging humble, handma gifts, like on "The Walt".
 Well, you can forget it.  If everybody pulled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
@@ -52,7 +52,7 @@ and electronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Program.  This means you should get a large
 sum of money and go to a mall.
-		-- Dave Barry, "Christmas Shopping: A Survivor's Guide"
+		-- Dave Barry, "Christmas Shopping: A Survivor's Gui"
 ast week's pet, this week's special.
 Familiarity breeds contempt -- and children.
 		-- Mark Twain
@@ -63,7 +63,7 @@ I refuse to have a battle of wits with an unarmed person.
 Proper treatment will cure a cold in seven days, but left to itself,
 a cold will hang on for a week.
 		-- Darrell Huff
-Always look over your shoulder because everyone is watching and plotting
+Always look over your shoulr because everyone is watching and plotting
 against you.
 Say no, then negotiate.
 		-- Helga
@@ -72,7 +72,7 @@ ike some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
 		-- The Birthday Party, "Sonny's Burning"
-All the world's a stage and most of us  desperately unrehsed.
+All the world's a stage and most of us  sperately unrehsed.
 		-- Sean O'Casey
 Just weigh your own hurt against the hurt of all the others, and then
 do what's best.
@@ -82,6 +82,6 @@ No problem is insoluble.
 Optimism is the content of small men in high places.
 		-- F. Scott Fitzgerald, "The Crack Up"
 A lost ounce of gold may be found, a lost moment of time .
-Patience is a minor form of despair, disguised as virtue.
+Patience is a minor form of spair, disguised as virtue.
 		-- Ambr Bierce, on qualifiers
-1: No code table for op: ++post
+1: No co table for op: ++post

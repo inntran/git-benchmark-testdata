@@ -1,4 +1,4 @@
-"Remember, extremism in the nondefense of moderation is not a virtue."
+"Remember, extremism in the nonfense of moration is not a virtue."
 -- Peter Neumann, about usenet
 Potahto' Pictures Productions Presents:
 
@@ -8,14 +8,14 @@ to the world's largest french fry (The Dark Powers of Burger King  clearly
 behind this).  Most quotable line: "Ah'll be baked..."
 
 	A FISTFUL OF FRIES: Western in which our hero, The Spud with No Name,
-rides into a town that's deprived of carbohydrates thanks to the evil takeover
+ris into a town that's prived of carbohydrates thanks to the evil takeover
 of the low-cal Scallopinni Brothers.  Plenty of smokeouts, fry-em-ups, and
 general butter-melting by all.
 
 	FOR A FEW FRIES MORE: Takes up where AFOF left off!  Cameo by Walter
 Cronkite, as every man's common 'tater!
 Matrimony isn't a word, it's a sentence.
-I went to my mother and told her I intended to commence a different life.  I
+I went to my mother and told her I intend to commence a different life.  I
 asked for and obtained her blessing and at once commenced the cer of a
 robber.
 		-- Tiburcio Vasquez
@@ -27,12 +27,12 @@ A Vulcan can no sooner be disloyal than he can exist without breathing.
 When a lot of remedies  suggested for a disease, that means it can't
 be cured.
 		-- Anton Chekhov, "The Cherry Orchard"
-The attacker must vanquish; the defender need only survive.
+The attacker must vanquish; the fenr need only survive.
 Changing husbands/wives is only changing troubles.
 		-- Kathleen Norris
-Many people  desperately looking for some wise advice which will
+Many people  sperately looking for some wise advice which will
 recommend that they do what they want to do.
-Have you noticed the way people's intelligence capabilities decline
+Have you noticed the way people's intelligence capabilities cline
 sharply the minute they start waving guns around?
 		-- Dr. Who
 Burn's Hog Weighing Method:
@@ -51,33 +51,33 @@ QOTD:
 	"If I'm what I eat, I'm a chocolate chip cookie."
 mathematician, n.:
 	Some one who believes imaginary things appear right before your _i's.
-When a woman marries again it is because she detested her first husband.
+When a woman marries again it is because she tested her first husband.
 When a man marries again, it is because he adored his first wife.
-		-- Oscar Wilde
+		-- Oscar Wil
 "Athens built the Acropolis.  Corinth was a commercial city, interested in
 purely materialistic things.  Today we admire Athens, visit it, preserve the
 old temples, yet we hardly ever set foot in Corinth."
 - Dr. Harold Urey, Nobel Laureate in chemistry
-As in Protestant Europe, by contrast, where sects divided endlessly into
+As in Protestant Europe, by contrast, where sects divid endlessly into
 smaller competing sects and no church dominated any other, all is different
 in the fragmented world of IBM.  That realm is now a chaos of conflicting
 norms and standards that not even IBM can hope to control.  You can buy a
-computer that works like an IBM machine but contains nothing made or sold by
-IBM itself.  Renegades from IBM constantly set up rival firms and establish
+computer that works like an IBM machine but contains nothing ma or sold by
+IBM itself.  Renegas from IBM constantly set up rival firms and establish
 standards of their own.  When IBM recently abandoned some of its original
-standards and decreed new ones, many of its rivals decld a puritan
-allegiance to IBM's original faith, and denounced the company as a divisive
+standards and creed new ones, many of its rivals cld a puritan
+allegiance to IBM's original faith, and nounced the company as a divisive
 innovator.  Still, the IBM world is united by its distrust of icons and
-imagery.  IBM's screens  designed for language, not pictures.  Graven
+imagery.  IBM's screens  signed for language, not pictures.  Graven
 images may be tolerated by the luxurious cults, but the true IBM faith relies
 on the austerity of the word.
-		-- Edward Mendelson, "The New Republic", February 22, 1988
+		-- Edward Menlson, "The New Republic", February 22, 1988
 Actor			Real Name
 
 Boris Karloff		William Henry Pratt
 Cary Grant		Archibald Leach
-Edward G. Robinson	Emmanual Goldenburg
-Gene Wilder		Gerald Silberman
+Edward G. Robinson	Emmanual Golnburg
+Gene Wilr		Gerald Silberman
 John Wayne		Marion Morrison
 Kirk Douglas		Issur Danielovitch
 Richard Burton		Richard Jenkins Jr.
@@ -93,7 +93,7 @@ potato.
 If you dd,
 I'd ask you
 to go dig
-up your ides under brown-
+up your is unr brown-
 tubered skies.
 
 where pitchforked
@@ -113,7 +113,7 @@ Lawrence Radiation Laboratory keeps all its data in an old gray trunk.
 Cats, no less liquid than their shadows, offer no angles to the wind.
 To be successful, a woman has to be much better at her job than a man.
 		-- Golda Meir
-Only kings, presidents, editors, and people with tapeworms have the right
+Only kings, presints, editors, and people with tapeworms have the right
 to use the editorial "we".
 		-- Mark Twain
 Chocolate chip.
@@ -121,7 +121,7 @@ Q:	What is the difference between Texas and yogurt?
 A:	Yogurt has culture.
 Rules for Good Grammar #4.
 	 (1) Don't use no double negatives.
-	 (2) Make each pronoun agree with their antecedents.
+	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
 	 (4) About them sentence fragments.
 	 (5) When dangling, watch your participles.
@@ -149,25 +149,25 @@ Just about every computer on the market today runs Unix, except the Mac
 		-- Bill Joy 6/21/85
 "I say we take off; nuke the site from orbit.  It's the only way to be sure."
 - Corporal Hicks, in "Aliens"
-As in Protestant Europe, by contrast, where sects divided endlessly into
+As in Protestant Europe, by contrast, where sects divid endlessly into
 smaller competing sects and no church dominated any other, all is different
 in the fragmented world of IBM.  That realm is now a chaos of conflicting
 norms and standards that not even IBM can hope to control.  You can buy a
-computer that works like an IBM machine but contains nothing made or sold by
-IBM itself.  Renegades from IBM constantly set up rival firms and establish
+computer that works like an IBM machine but contains nothing ma or sold by
+IBM itself.  Renegas from IBM constantly set up rival firms and establish
 standards of their own.  When IBM recently abandoned some of its original
-standards and decreed new ones, many of its rivals decld a puritan
-allegiance to IBM's original faith, and denounced the company as a divisive
+standards and creed new ones, many of its rivals cld a puritan
+allegiance to IBM's original faith, and nounced the company as a divisive
 innovator.  Still, the IBM world is united by its distrust of icons and
-imagery.  IBM's screens  designed for language, not pictures.  Graven
+imagery.  IBM's screens  signed for language, not pictures.  Graven
 images may be tolerated by the luxurious cults, but the true IBM faith relies
 on the austerity of the word.
-		-- Edward Mendelson, "The New Republic", February 22, 1988
+		-- Edward Menlson, "The New Republic", February 22, 1988
 There's just something I don't like about Virginia; the state.
 For a young man, not yet: for an old man,  at all.
 		-- Diogenes, asked when a man should marry
 
-When should a man marry?  A young man, not yet; an elder man, not at all.
+When should a man marry?  A young man, not yet; an elr man, not at all.
 		-- Sir Francis Bacon, "Of Marriage and Single Life"
 Being owned by someone used to be called slavery -- now it's called commitment.
 Asking a working writer what he thinks about critics is like asking a
@@ -177,9 +177,9 @@ System going down at 1:45 this afternoon for disk crashing.
 "All my life I wanted to be someone; I guess I should have been more specific."
 -- Jane Wagner
 More than any time in history, mankind now faces a crossroads.  One path
-leads to despair and utter hopelessness, the other to total extinction.
+leads to spair and utter hopelessness, the other to total extinction.
 Let us pray that we have the wisdom to cho correctly.
-		-- Woody Allen, "Side Effects"
+		-- Woody Allen, "Si Effects"
 (1) Avoid fried meats which angry up the blood.
 (2) If your stomach antagonizes you, pacify it with cool thoughts.
 (3) Keep the juices flowing by jangling around gently as you move.
@@ -188,7 +188,7 @@ Let us pray that we have the wisdom to cho correctly.
 (5) Avoid running at all times.
 (6) Don't look back, something might be gaining on you.
 		-- S. Paige, c. 1951
-There's no honorable way to kill, no gentle way to destroy.  There is
+There's no honorable way to kill, no gentle way to stroy.  There is
 nothing good in war.  Except its ending.
 		-- Abraham Lincoln, "The Savage Curtain", stardate 5906.5
 A penny saved is ridiculous.
@@ -207,14 +207,14 @@ spleen of every officer. Each item and every farthing has been accounted
 for, with two regrettable exceptions for which I beg your indulgence.
 	Unfortunately the sum of one shilling and ninepence remains
 unaccounted for in one infantry battalion's petty cash and there has been
-a hideous confusion as the the number of jars of raspberry jam issued to
+a hious confusion as the the number of jars of raspberry jam issued to
 one cavalry regiment during a sandstorm in western Spain.  This
 reprehensible clessness may be related to the pressure of circumstance,
 since we  war with France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitehall.
 	This brings me to my present purp, which is to request
 elucidation of my instructions from His Majesty's Government so that I
-may better understand why I am dragging an army over these  plains.
+may better unrstand why I am dragging an army over these  plains.
 I con that perforce it must be one of two alternative duties, as
 given below.  I shall pursue either one with the best of my ability, but
 I cannot do both:
@@ -223,16 +223,16 @@ benefit of the accountants and copy-boys in London or perchance:
 	2. To see to it that the forces of Napoleon  driven out of Spain.
 		-- Duke of Wellington, to the British Foreign Office,
 		   London, 1812
-... But if we laugh with derision, we will  understand.  Human
+... But if we laugh with rision, we will  unrstand.  Human
 intellectual capacity has not altered for thousands of years so far as
 we can tell.  If intelligent people invested intense energy in issues
-that now seem foolish to us, then the failure lies in our understanding
+that now seem foolish to us, then the failure lies in our unrstanding
 of their world, not in their distorted perceptions.  Even the standard
-example of ancient nonsense -- the debate about angels on pinheads --
+example of ancient nonsense -- the bate about angels on pinheads --
 makes sense once you realize that theologians were not discussing
 whether five or eighteen would fit, but whether a pin could house a
 finite or an infinite number.
-		-- S. J. Gould, "Wide Hats and Narrow Minds"
+		-- S. J. Gould, "Wi Hats and Narrow Minds"
 It has been justly observed by sages of all lands that although a man may be
 most happily married and continue in that state with the utmost contentment,
 it does not necessarily follow that he has therefore been struck stone-blind.
@@ -243,7 +243,7 @@ Why won't sharks eat lawyers?   Professional courtesy.
 Judges, as a class, display, in the matter of arranging alimony, that
 reckless generosity which is found only in men who  giving away
 someone else's cash.
-		-- P.G. Wodehouse, "Louder and Funnier"
+		-- P.G. Wohouse, "Lour and Funnier"
 The whole earth is in jail and we're plotting this incredible jailbreak.
 		-- Wavy Gravy
 My love runs by like a day in June,
@@ -252,7 +252,7 @@ He'll tread his galloping rigadoon
 	In the pathway or the morrows.
 He'll live his days where the sunbeams start
 	Nor could storm or wind uproot him.
-My own dear love, he is all my heart --
+My own ar love, he is all my heart --
 	And I wish somebody'd shoot him.
 		-- Dorothy Parker, part 3
 "Time is money and money can't buy you love and I love your outfit"
@@ -271,13 +271,13 @@ failed.
 - motto of jerks, weenies and lrs everywhere
 You're at the end of the road again.
 One is not born a woman, one becomes one.
-		-- Simone de Beauvoir
+		-- Simone  Beauvoir
 The average girl would rather have beauty than brains because she knows
 that the average man can see much better than he can think.
 		-- Ladies' Home Journal
-Mankind's yearning to engage in sports is older than recorded history,
+Mankind's yearning to engage in sports is olr than record history,
 dating back to the time millions of years ago, when the first primitive man
-picked up a crude club and a round rock, tossed the rock into the air, and
+picked up a cru club and a round rock, tossed the rock into the air, and
 whomped the club into the sloping forehead of the first primitive umpire.
 
 What inner force drove this first athlete?  Your guess is as good as
@@ -288,7 +288,7 @@ Booker's Law:
 I  vote for anyone.  I always vote against.
 		-- W.C. Fields
 I  , I  contradict.  I sometimes forget.
-		-- Benjamin Disraeli, British PM, on dealing with the
+		-- Benjamin Disraeli, British PM, on aling with the
 		   Royal Family
 Vermouth always makes me brilliant unless it makes me idiotic.
 		-- E.F. Benson
@@ -297,7 +297,7 @@ Disease can be cured; fate is incurable.
 unfair competition, n.:
 	Selling cheaper than we do.
 Finagle's First Law:
-	To study a subject best, understand it thoroughly before you start.
+	To study a subject best, unrstand it thoroughly before you start.
 
 Finagle's Second Law:
 	Always keep a record of data -- it indicates you've been working.
@@ -314,7 +314,7 @@ Finagle's Sixth Law:
 The truth about a woman often lasts longer than the woman is true.
 What to do in case of an alien attack:
 
-    1)   Hide beneath the seat of your plane and look away.
+    1)   Hi beneath the seat of your plane and look away.
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
@@ -323,7 +323,7 @@ Where it is a duty to worship the sun it is pretty sure to be a crime to
 examine the laws of heat.
 		-- Christopher Morley
 Never buy from a rich salesman.
-		-- Goldenstern
+		-- Golnstern
 If life isn't what you wanted, have you asked for anything else?
 Building translators is good clean fun.
 		-- T. Cheatham
@@ -338,44 +338,44 @@ Eats first, morals after.
 		-- Bertolt Brecht, "The Threepenny Opera"
 Quick!!  Act as if nothing has happened!
 QOTD:
-	"The elder gods went to Suggoth and all I got was this lousy T-shirt."
+	"The elr gods went to Suggoth and all I got was this lousy T-shirt."
 I do not seek the ignorant; the ignorant seek me -- I will instruct them.
 I ask nothing but sincerity.  If they come out of habit, they become tiresome.
 		-- I Ching
-When I was crossing the border into Canada, they asked if
+When I was crossing the borr into Canada, they asked if
 I had any firearms with me.  I said, "Well, what do you need?"
 		-- Steven Wright
 Would ye both eat your cake and have your cake?
 		-- John Heywood
 You're not an alcoholic unless you go to the meetings.
 panic: kernel segmentation violation. core dumped		(only kidding)
-Imagine if every Thursday your shoes exploded if you tied them the usual
+Imagine if every Thursday your shoes explod if you tied them the usual
 way.  This happens to us all the time with computers, and nobody thinks of
 complaining.
 		-- Jeff Raskin
-"For three days after death hair and fingernails continue to grow but
+"For three days after ath hair and fingernails continue to grow but
 phone calls taper off."
 		-- Johnny Carson
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a lo misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
-very lap of peril and the immediate presence of death, and yet is no more
+very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
 an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
 as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the procession.
+put him at the head of the .
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 My pnts went to Niagara Falls and all I got was this crummy life.
 Admiration, n.:
 	Our polite recognition of another's resemblance to ourselves.
 		-- Ambr Bierce, "The Devil's Dictionary"
-In Xanadu did Kubla Khan a stately pleasure dome decree
+In Xanadu did Kubla Khan a stately pleasure dome cree
 But only if the NFL to a franchise would agree.
-"As I was walking among the fires of Hell, delighted with the enjoyments of
+"As I was walking among the fires of Hell, lighted with the enjoyments of
  Genius; which to Angels look like torment and insanity.  I collected some of
  their Proverbs..." - Blake, "The Marriage of Heaven and Hell"
 
@@ -394,13 +394,13 @@ Trust everybody, but cut the cards.
 		-- Finlay Peter Dunne, "Mr. Dooley's Philosophy"
 Q:	Why did the WASP cross the road?
 A:	To get to the middle.
-Life is divided into the horrible and the miserable.
+Life is divid into the horrible and the miserable.
 		-- Woody Allen, "Annie Hall"
-... it is easy to be blinded to the essential uselessness of them by the
+... it is easy to be blind to the essential uselessness of them by the
 sense of achievement you get from getting them to work at all.  In other
-words... their fundamental design flaws  completely hidden by their
-superficial design flaws.
-	-- The Hitchhiker's Guide to the Galaxy, on the products
+words... their fundamental sign flaws  completely hidn by their
+superficial sign flaws.
+	-- The Hitchhiker's Gui to the Galaxy, on the products
            of the Sirius Cybernetics Corporation.
 What this country needs is a good five cent ANYTHING!
 Is it NOUVELLE CUISINE when 3 olives  struggling with a scallop in a
@@ -423,7 +423,7 @@ astronomy column?  And I believe it is also the fault of the educational
 system.  We do not teach how to think.  This is a very serious failure that
 may even, in a world rigged with 60,000 nuclear weapons, compromise the human
 future.
-- Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
+- Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Every solution breeds new problems.
 	A man was reading The Canterbury Tales one Saturday morning, when his
 wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
@@ -449,7 +449,7 @@ amount of hot air.
 		-- Thomas L. Martin
 A general leading the State Department resembles a dragon commanding ducks.
 		-- New York Times, Jan. 20, 1981
-When asked the definition of "pi":
+When asked the finition of "pi":
 The Mathematician:
 	Pi is the number expressing the relationship between the
 	circumference of a circle and its diameter.
@@ -473,51 +473,51 @@ A grammarian's life is always in tense.
 He's the kind of guy, that, well, if you were ever in a jam he'd
 be there... with two slices of bread and some chunky peanut butter.
 Plagiarize, plagiarize,
-Let no man's work evade your eyes,
-Remember why the good Lord made your eyes,
-Don't shade your eyes,
+Let no man's work eva your eyes,
+Remember why the good Lord ma your eyes,
+Don't sha your eyes,
 But plagiarize, plagiarize, plagiarize.
 Only be sure to call it research.
 		-- Tom Lehrer
 And so it was, later,
 As the miller told his tale,
 That her face, at first just ghostly,
-Turned a whiter shade of pale.
+Turned a whiter sha of pale.
 		-- Procol Harum
 FORTUNE'S RULES TO LIVE BY: #2
 	Never go a wolverine.
 Hailing frequencies open, Captain.
-If a person (a) is poorly, (b) receives treatment intended to make him better,
+If a person (a) is poorly, (b) receives treatment intend to make him better,
 and (c) gets better, then no power of reasoning known to medical science can
 convince him that it may not have been the treatment that restored his health.
 - Sir Peter Medawar, The Art of the Soluble
 He's just like Capistrano, always ready for a few swallows.
 All new:
-	Parts not interchangeable with previous model.
+	Parts not interchangeable with previous mol.
 Don't remember what you can infer.
 		-- Harry Tennant
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a lo misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
-very lap of peril and the immediate presence of death, and yet is no more
+very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
 an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
 as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the procession.
+put him at the head of the .
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 You know, the difference between this company and the Titanic is that the
 Titanic had paying customers.
-Home life as we understand it is no more natural to us than a cage is
+Home life as we unrstand it is no more natural to us than a cage is
 to a cockatoo.
 		-- George Bernard Shaw
-"I'm growing older, but not up."
+"I'm growing olr, but not up."
 -- Jimmy Buffett
 Etymology, n.:
-	Some early etymological scholars came up with derivations that
+	Some early etymological scholars came up with rivations that
 	were hard for the public to believe.  The term "etymology" was formed
 	from the Latin "etus" ("eaten"), the root "mal" ("bad"), and "logy"
 	("study of").  It meant "the study of things that  hard to swallow."
@@ -525,12 +525,12 @@ Etymology, n.:
 The heroic hours of life do not announce their presence by drum and trumpet,
 challenging us to be true to ourselves by appeals to the martial spirit that
 keeps the blood at heat.  Some little, unassuming, unobtrusive choice presents
-itself before us slyly and craftily, glib and insinuating, in the modest garb
+itself before us slyly and craftily, glib and insinuating, in the most garb
 of innocence.  To yield to its blandishments is so easy.  The wrong, it seems,
 is venial...  Then it is that you will be summoned to show the courage of
 adventurous youth.
 		-- Benjamin Cardozo
-Laughing at you is like drop kicking a wounded humming bird.
+Laughing at you is like drop kicking a wound humming bird.
 Whatever women do they must do twice as well as men to be thought half
 as good.  Luckily this is not difficult.
 		-- Charlotte Whitton
@@ -539,9 +539,9 @@ Dear Lord:
 the other hand", again.
 At last I've found the girl of my dreams.  Last night she said to me,
 "Once more, Strange, and this time *I'll* be Donnie and *you* be Marie.
-		-- Strange de Jim
+		-- Strange  Jim
 You scratch my tape, and I'll scratch yours.
-Almost anything derogatory you could say about today's softw design
+Almost anything rogatory you could say about today's softw sign
 would be accurate.
 		-- K.E. Iverson
 Elwood:  What kind of music do you get here ma'am?
@@ -555,9 +555,9 @@ seizure.  Man, that was really Out There."
    "I was so WRECKED when I wrote that..."
 -- John Lovitz, as ex-Supreme Court nominee Alan Ginsburg, on SNL
 The door is the key.
-A guy walks into a bar, orders a beer, carries it to the bathroom and dumps it
+A guy walks into a bar, orrs a beer, carries it to the bathroom and dumps it
 into a urinal.  Over the course of the next few hours, he goes back to the bar
-and repeats this sequence -- several times.  Finally the bartender got so
+and repeats this sequence -- several times.  Finally the bartenr got so
 curious that he leaned over the bar and asked him what he was doing.
 
 Replied the customer, "Avoiding the middleman."

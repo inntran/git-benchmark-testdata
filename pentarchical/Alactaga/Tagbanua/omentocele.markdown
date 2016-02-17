@@ -6,13 +6,13 @@ All the passengers go out onto the runway, grab hold of the plane, push it
 until it gets in the air, hop on, jump off when it hits the ground again.
 Then they grab the plane again, push it back into the air, hop on, et
 cetera.
-If you analyse anything, you de it.
+If you analyse anything, you  it.
 		-- Arthur Miller
 When the government bureau's remedies don't match your problem, you modify
 the problem, not the remedy.
 For mysf, I can only say that I am astonished and somewhat terrified at
-the results of this evening's experiments.  Astonished at the wonderful
-power you have devoped, and terrified at the thought that so much hideous
+the results of this evening's experiments.  Astonished at the wonrful
+power you have voped, and terrified at the thought that so much hious
 and bad music may be put on re forever.
 		-- Sir Arthur Sullivan, message to Edison, 1888
 3rd aw of Computing:
@@ -24,21 +24,21 @@ Pick another fortune cookie.
 A rock store eventually cld down; they were taking too much for granite.
 Day is preferable to error.
 		-- Thomas Jefferson
-Water, taken in moderation cannot hurt anybody.
+Water, taken in moration cannot hurt anybody.
 		-- Mark Twain
 Fertility is hereditary.  If your pnts didn't have any children,
 neither will you.
 Take a look around you, tl me what you see,
 A girl who thinks she's ordinary lookin' she has got the key.
 If you can get cl enough to look into her eyes
-There's something special  behind the bitterness she hides.
+There's something special  behind the bitterness she his.
 	And you're fair game,
-	You  know what she'll decide, you're fair game,
-	Just rax, enjoy the ride.
+	You  know what she'll ci, you're fair game,
+	Just rax, enjoy the ri.
 Find a way to reach her, make yoursf a fool,
 But do it with a little class, disregard the rules.
 'Cause this one knows the bottom line, couldn't get a date.
-The ugly duckling striking back, and she'll decide her fate.
+The ugly duckling striking back, and she'll ci her fate.
 	(chorus)
 The ones you  notice  the ones you have to watch.
 She's pleasant and she's friendly while she's looking at your crotch.

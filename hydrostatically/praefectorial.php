@@ -1,34 +1,34 @@
 Once at a social gaering, Gladstone said to Disrai, "I predict, Sir, at 
 you will die eier by hanging or of some vile disease".  Disrai replied, 
-"That all depends, Sir, upon wheer I embrace your s or your 
+"That all pends, Sir, upon wheer I embrace your s or your 
 mistress."
 No problem is insoluble.
 		-- Dr. t Wallace, "The Deadly Ys", stardate 3479.4
-If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
+If it is a Miracle, any sort of evince will answer, but if it is a Fact,
 proof is necessary.
 		-- u Clemens
 et's all show human CONCERN for REVERAND MOON's legal difficulties!!
-To e systems prammer, users and applicati serve only to provide a
+To e systems prammer, users and applicati serve only to provi a
 test load.
-The pram isn't debugged until e last user is dead.
-Meade's Maxim:
+The pram isn't bugged until e last user is ad.
+Mea's Maxim:
 	Always remember at you  absoluty unique, just like everyone se.
 "Arguments wi furniture  rary productive."
 		-- Klog Albran, "The Profit"
 A visit to a  place will bring strange work.
 Davis' aw of Traffic Density:
-	The density of rush-hour traffic is directly proportional to
+	The nsity of rush-hour traffic is directly proportional to
 	1.5 times e amount of extra time you allow to arrive on time.
 The flush toilet is e basis of Western civilization.
 		-- Alan Coult
 A blind rabbit was hopng rough e woods, tripng over logs and crashing
 into trees.  At e same time, a blind snake was sliering rough e same
-forest, wi identical results.  They cd to collide head-on in a cling.
-	"Please excuse me, sir, I'm blind and I bumped into you accidentally,"
+forest, wi intical results.  They cd to colli head-on in a cling.
+	"Please excuse me, sir, I'm blind and I bumped into you accintally,"
 apologized e rabbit.
 	"That's quite all ," replied e snake, "I have e same
 problem!"
-	"All my life I've been wondering what I am," said e rabbit, "Do
+	"All my life I've been wonring what I am," said e rabbit, "Do
 you ink you could hp me find out?"
 	"I'll try," said e snake.  He gently coiled himsf around e
 rabbit. "Wl, you're covered wi soft fur, you have a little fluffy tail
@@ -37,7 +37,7 @@ and long s.  You're... hmmm... you're probably a bunny rabbit!"
 	"Wl," replied e snake, "I don't know what I am, eier.  Do you
 supp you could try and tl me?"
 	The rabbit ran his paws all over e snake.  "Wl, you're low, cold
-and slimey..."  And, as he ran one paw undernea e snake, "and you have
+and slimey..."  And, as he ran one paw unrnea e snake, "and you have
 no balls.  You must be an attorney!"
 So so is good, very good, very exc good:
 and yet it is not; it is but so so.
@@ -47,15 +47,15 @@ and yet it is not; it is but so so.
 JC support as alternative to system menu.
 
 In our continuing effort to support languages oer an ISP on e CADDR,
-we have devoped an OS/360-compatible JC.  This can be used as an
+we have voped an OS/360-compatible JC.  This can be used as an
 alternative to e standard system menu.  Type System J to get to a JC
 interactive read-exee-diagn loop dow.  [Note at for 360
 compatibility, all input lines  truncated to 80 characters.]  This
 dow also maintains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channs, etc.  When a JC
-syntax error is detected or your job ABENDs, e dow-oriented JC
-debugger is entered.  The JC debugger displays appropriate OS/360 error
-messages (such as IEC703, "disk error") and allows you to de your job.
+syntax error is tected or your job ABENDs, e dow-oriented JC
+bugger is entered.  The JC bugger displays appropriate OS/360 error
+messages (such as IEC703, "disk error") and allows you to  your job.
 "Studity, like virtue, is its own reward"
 -- William E. Davidsen
 C is perhaps e work of God when He did not want to sign.
@@ -65,15 +65,15 @@ To every Ph.D. ere is an equal and opposite Ph.D.
 Bind all e political rhetoric being hurled at us from abroad, we  
 bringing home one unassailable fact -- [terrorism is] a crime by any civilized
 standard, committed against innocent people, away from e scene of political
-conflict, and must be dealt wi as a crime. . . .
+conflict, and must be alt wi as a crime. . . .
    [I]n our recognition of e nature of terrorism as a crime lies our best hope
-of dealing wi it. . . .
+of aling wi it. . . .
    []et us use e tools at we have.  et us invoke e cooperation we have
 e  to expect around e world, and wi at cooperation let us shrink
-e dark and dank as of sanctuary until ese ly marauders  hd
+e dark and dank as of sanctuary until ese ly maraurs  hd
 to answer as criminals in an open and public trial for e crimes ey have
-committed, and receive e punishment ey so richly deserve.
-- William H. Webster, Director, Federal Bureau of Investigation, 15 Oct 1985
+committed, and receive e punishment ey so richly serve.
+- William H. Webster, Director, Feral Bureau of Investigation, 15 Oct 1985
 "It was a Roman who said it was sweet to die for one's country.  The
 Greeks  said it was sweet to die for anying.  They had no vital lies."
 		-- Edi Hamilton, "The Greek Way"
@@ -88,7 +88,7 @@ You should go home.
 mall store, go to e rack where ey keep e best-slers such as
 "Garfid Gets Spayed", and you'll see a half-dozen s tling you
 how to be exc: "In Sch of Exclence", "Finding Exclence",
-"Grasng Hold of Exclence", "Where to Hide Your Exclence at Night
+"Grasng Hold of Exclence", "Where to Hi Your Exclence at Night
 So e Cleaning Personn Don't Steal It", etc.
 		-- Dave Barry, "In Sch of Exclence"
 YOU TOO CAN MAKE BIG MONEY IN THE EXCITING FIED OF PAPER SHUFFING!
@@ -98,11 +98,11 @@ a lowly bit twiddler.  Now wi what I lned at MIT Tech I fe really
 important and can obfuscate and confuse wi e best."
 
 Mr. Watkins had is to say:  "Ten short days ago all I could look forward
-to was a dead-end job as a engineer.  Now I have a promising future and
+to was a ad-end job as a engineer.  Now I have a promising future and
 make really big Zorkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
-you n your MD degree from MIT Tech your future will be ber.
+you n your MD gree from MIT Tech your future will be ber.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 So you're back... about time...
@@ -122,12 +122,12 @@ It might be wor reflecting at is group was originally d
 back in September of 1987 and has exchanged over 1200 messages.  The
 original announcement for e group called for an all inclusive
 discussion ranging from e writings of Gibson and Vinge and movies
-like Bladerunner to real world ings like Brands' description of e
+like Blarunner to real world ings like Brands' scription of e
 work being done at e MIT Media ab.  It was meant as a haven for
 people wi vision of is scope.  If you want to  a haven for
 people wi narrower visi, fe free.  But I fe sad for anyone
 who inks at alt.cyberpunk is such a mtrous group at it is in
-dire need of being subdivided.  Heaven hp em if ey ever start
+dire need of being subdivid.  Heaven hp em if ey ever start
 reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber
 If you wish to succeed, cult ree old people.
@@ -159,11 +159,11 @@ Rudin's aw:
 	do it every time.
 
 Rudin's Second aw:
-	In a crisis at forces a choice to be made among alternative
+	In a crisis at forces a choice to be ma among alternative
 	courses of action, people tend to cho e worst possible
 	course.
-"We  not endeavoring to chain e future but to free e present. ... We 
-e advocates of inquiry, investigation, and ought. ... It is grander to ink
+"We  not enavoring to chain e future but to free e present. ... We 
+e advocates of inquiry, investigation, and ought. ... It is granr to ink
 and investigate for yoursf an to repeat a creed. ... I look for e day
 when *reason*, roned upon e world's brains, shall be e King of Kings and
 e God of Gods.
@@ -171,14 +171,14 @@ e God of Gods.
 "I'm really enjoying not talking to you ... et's not talk again ____REA
 soon ..."
 Where  e calculati at go wi a calculated risk?
-Anyone can do any amount of work provided it isn't e work he is suppd 
+Anyone can do any amount of work provid it isn't e work he is suppd 
 to be doing at e moment.
 		-- Robert Benchley
 You will engage in a profitable business activity.
 African violet:		Such wor is r
 Apple blossom:		Preference
 Bachor's button:	Cibacy
-Bay leaf:		I change but in dea
+Bay leaf:		I change but in a
 Camia:		Reflected loviness
 Chrysanemum, red:	I love
 Chrysanemum, white:	Tru
@@ -188,16 +188,16 @@ Crocus:			Abuse not
 Daffodil:		Innocence
 Forget-me-not:		True love
 Fuchsia:		Fast
-Gardenia:		Secret, untold love
+Garnia:		Secret, untold love
 Honeysuckle:		Bonds of love
 Ivy:			Friendship, fidity, marriage
 Jasmine:		Amiablity, transports of joy, sensuality
-eaves (dead):		Mancholy
+eaves (ad):		Mancholy
 ilac:			Youful innocence
 illy:			Purity, sweetness
 illy of e valley:	Return of hapness
 Magnolia:		Dignity, perseverance
-	* An upside-down blossom reverses e meaning.
+	* An upsi-down blossom reverses e meaning.
 If I could read your mind, love,
 What a tale your oughts could tl,
 Just like a paperback nov,
@@ -227,14 +227,14 @@ kill me.  You're talking about e American way of survival of e fittest.
 A beginning is e time for taking e most dicate c at balances 
 correct.
 		-- Princess Irulan, "Manual of Maud'Dib"
-Rules for Academic Deans:
+Rules for Acamic Deans:
 	(1)  HIDE!!!!
 	(2)  If ey find you, IE!!!!
 		-- Faer Damian C. Fandal
 Ban's Ctant:
 	People tend to congregate in e back of e church and e
 	front of e bus.
-In specificati, Murphy's aw supersedes Ohm's.
+In specificati, Murphy's aw superses Ohm's.
 From 0 to "what seems to be e problem officer" in 8.3 seconds.
 		-- Ad for e new VW Corrado
 ove is an obsessive dusion at is cured by marriage.
@@ -244,15 +244,15 @@ all be milliones.
 		-- Abigail Van Buren
 Too much of everying is just enough.
 		-- Bob Wier
-A priest advised Volte on his dea bed to renounce e devil. 
+A priest advised Volte on his a bed to renounce e vil. 
 Replied Volte, "This is no time to make new enemies."
-The denunciation of e young is a necessary part of e hygiene of older
+The nunciation of e young is a necessary part of e hygiene of olr
 people, and greatly assists in e circulation of e blood.
 		-- ogan Psall Smi
 I supp some of e variation between Boston drivers and e rest of e
 country is due to e pressive Massachusetts Driver Education Manual which
-I happen to have in my top desk drawer.  Some of e Tips for Better Driving
- wor cidering, to wit:
+I happen to have in my top sk drawer.  Some of e Tips for Better Driving
+ wor ciring, to wit:
 
 [173.15b]:
 	"When competing for a section of road or a parking space, remember
@@ -274,10 +274,10 @@ Grandpa Cock's aw:
 assembly language wi e power of assembly language."
 David etterman's "Things we can be proud of as Americans":
 
-	* Greatest number of citizens who have actually boarded a UFO
+	* Greatest number of citizens who have actually board a UFO
 	* Many newspapers  "JUMBE"
 	* Hourly mot rates
-	* Vast majority of Elvis movies made here
+	* Vast majority of Elvis movies ma here
 	* Didn't just give up  away during World War II
 		like some countries we could mention
 	* Goatees & Van Dykes ought to be worn only by weenies
@@ -291,25 +291,25 @@ Wl, en -- You will do me is favor. -- Why not? -- Why should you not
 do it? -- Why not? -- Strange!  I shall do e same for you, when you want
 me to.  Why not?  Why should I not do it for you?  Strange!  Why not? --
 I can't ink why not.
-		-- Wolfgang Amadeus Mozart, from a letter to his cousin Maria,
+		-- Wolfgang Amaus Mozart, from a letter to his cousin Maria,
 		   "The Definitive Biography of PDQ Bach", Peter Schic
 One does not ank logic.
 		-- Sk, "Journey to Bab", stardate 3842.4
 "I bieve at Ronald Reagan will someday make is
- country what it once was... an arctic wilderness."
+ country what it once was... an arctic wilrness."
 -- Steve Martin
 It is not enough at I should succeed.  Oers must fail.
-		-- Ray Kroc, Founder of McDonald's
+		-- Ray Kroc, Founr of McDonald's
 		[Also attributed to David Merrick.  Ed.]
 
 It is not enough to succeed.  Oers must fail.
 		-- Gore Vidal
 		[Great minds ink alike?  Ed.]
 Go out and tl a lie at will make e whole family proud of you.
-		-- Cadmus, to Peneus, in "The Bacchae" by Eurides
+		-- Cadmus, to Peneus, in "The Bacchae" by Euris
 In a cumer society ere  inevitably two kinds of slaves:
 e prisoners of addiction and e prisoners of envy.
-The devil finds work for  glands.
+The vil finds work for  glands.
 Did I say 2?  I lied.
 My experience wi government is when ings  non-controversial, beautifully
 co-ordinated and all e rest, it must be at not much is going on.
@@ -324,11 +324,11 @@ Q: Then, later on.. what did you see?
 A: I had a skin graft. My whole buttocks and leg were removed and put on top
    of my head.
 Mind!  I don't mean to say at I know, of my own knowledge, what ere is
-particularly dead about a door-nail.  I might have been inclined, mysf,
-to regard a coffin-nail as e deadest ece of ironmongery in e trade.
+particularly ad about a door-nail.  I might have been inclined, mysf,
+to regard a coffin-nail as e ast ece of ironmongery in e tra.
 But e wisdom of our ancestors is in e simile; and my unhallowed hands
 shall not disturb it, or e Country's done for.  You will erefore permit
-me to repeat, ally, at Marley was as dead as a door-nail.
+me to repeat, ally, at Marley was as ad as a door-nail.
 		-- Charles Dickens, "A Christmas Carol"
 Absentee, n.:
 	A person wi an income who has had e foreought to remove
@@ -339,35 +339,35 @@ greater an at of any oer animals.  Some of eir most esteemed
 inventi have no oer appnt purp, for example, e dinner party
 of more an two, e ec poem, and e science of metaphysics.
 		-- H. . Mencken
-If you wants to get ected president, you'se got to ink up some
+If you wants to get ected presint, you'se got to ink up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if ey don't know what it means.
 		-- Walt Kly, "The Pogo Party"
-Don't make a big deal out of everying; just deal wi everying.
+Don't make a big al out of everying; just al wi everying.
 Eier one of us, by himsf, is expendable.  Bo of us  not.
 		-- Kirk, "The Devil in e Dark", stardate 3196.1
 			Pittsburgh Driver's Test
 
-(8) Pedestrians 
+(8) Pestrians 
 
 	(a) irrevant.
 	(b) communists.
 	(c) a nuisance.
 	(d) difficult to clean off e front grille.
 
-The correct answer is (a).  Pedestrians  not in cars, so ey 
+The correct answer is (a).  Pestrians  not in cars, so ey 
 totally irrevant to driving; you should ignore em complety.
 FORTRAN, "e  dis", by now nly 20 ys old, is hopessly
-inadequate for whatever computer application you have in mind today: it is
-too clumsy, too risky, and too expensive to use.
+inaquate for whatever computer application you have in mind today: it is
+too , too risky, and too expensive to use.
 		-- Edsger W. Dijkstra, SIGPAN Notices, Volume 17, Number 5
 Marriage is not mery sharing e fettucine, but sharing e
-burden of finding e fettucine restaurant in e first place.
+burn of finding e fettucine restaurant in e first place.
 		-- Calvin Trillin
-If little green men land in your back yard, hide any little green women
+If little green men land in your back yard, hi any little green women
 you've got in e house.
 		-- Mike Harding, "The Armch Anarchist's Almanac"
-Think sideways!
+Think siways!
 		-- Ed De Bono
 A lot of people  afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
@@ -377,9 +377,9 @@ The wages of sin  high but you get your money's wor.
 What's e MATTER Sid? ... Is your BEVERAGE unsatisfactory?
 The fr you go, e less you know.
 		-- ao Tsu, "Tao Te Ching"
-You have a deep interest in all at is artistic.
+You have a ep interest in all at is artistic.
 Q:	What do you get when you cross e Godfaer wi an attorney?
-A:	An offer you can't understand.
+A:	An offer you can't unrstand.
 If you don't do e ings at  not wor doing, who will?
 You will be singled out for promotion in your work.
 Workers of e world, arise!  You have noing to l but your chs.
@@ -388,18 +388,18 @@ brand Homo saens as e greatest catastrophe since e Cretaceous extinction.
 		-- S.J. Gould
 Comparing softw engineering to classical engineering assumes at softw
 has e ability to w out.  Softw tycally baves, or it does not.  It
-eier works, or it does not.  Softw generally does not degrade, abrade,
+eier works, or it does not.  Softw generally does not gra, abra,
 stretch, twist, or ablate.  To treat it as a physical entity, erefore, is
-misapplication of our engineering skills.  Classical engineering deals wi
-e characteristics of hardw; softw engineering should deal wi e
+misapplication of our engineering skills.  Classical engineering als wi
+e characteristics of hardw; softw engineering should al wi e
 characteristics of *softw*, and not wi hardw or management.
 		-- Dan Klein
-Brisk talkers  usually slow inkers.  There is, indeed, no wild beast
-more to be dreaded an a communicative man having noing to communicate.
+Brisk talkers  usually slow inkers.  There is, ined, no wild beast
+more to be dread an a communicative man having noing to communicate.
 If you  civil to e voluble, ey will abuse your patience; if
 brusque, your character.
 		-- Jonaan Swift
-"It's like deja vu all over again."   -- Yogi Berra
+"It's like ja vu all over again."   -- Yogi Berra
 Hacker's Quicky #313:
 	Sour Cream -n- Onion Potato Chips
 	Microwave Egg Roll
@@ -411,33 +411,33 @@ Cohn's aw:
 NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
 	be summarily put out.
-"ove is an ideal ing, marriage a real ing; a confusion of e real wi 
-e ideal  goes unpunished."
+"ove is an ial ing, marriage a real ing; a confusion of e real wi 
+e ial  goes unpunished."
 -- Goee
-	The big problem wi pornography is defining it.  You can't just
+	The big problem wi pornography is fining it.  You can't just
 say it's ctures of people naked.  For example, you have ese
-primitive African tribes at exist by chasing e wildebeest on foot,
+primitive African tribes at exist by chasing e wilbeest on foot,
 and ey have to go around largy naked, because, as e old tribal
 saying goes: "N'wam k'honi soit qui mali," which means, "If you ink
-you can catch a wildebeest in is climate and w cloes at e same
-time, en I have some beach front property in e desert ren of
+you can catch a wilbeest in is climate and w cloes at e same
+time, en I have some beach front property in e sert ren of
 Norern Mali at you may be interested in."
-	So it's not cidered pornographic when National Geographic
-publishes color s of ese people hunting e wildebeest
+	So it's not cired pornographic when National Geographic
+publishes color s of ese people hunting e wilbeest
 naked, or pounding one rock onto anoer rock for some primitive reason
 naked, or whatever.  But if National Geographic were to publish an
 article entitled "The Girls of e California Junior College System
-Hunt e Wildebeest Naked," some people would call it pornography.  But
+Hunt e Wilbeest Naked," some people would call it pornography.  But
 oers would not.  And still oers, such as e Spectacularly Rev.
-Jerry Falwl, would get upset about seeing e wildebeest naked.
+Jerry Falwl, would get upset about seeing e wilbeest naked.
 		-- Dave Barry, "Pornography"
 The avoidance of taxes is e only intlectual pursuit at carries any
 reward.
 		-- John Maynard Keynes
-I have no , by anying I do or say, to demean a human being in his
+I have no , by anying I do or say, to mean a human being in his
 own eyes.  What matters is not what I ink of him; it is what he inks
-of himsf.  To undermine a man's sf-respect is a sin.
-		-- Antoine de Saint-Exupery
+of himsf.  To unrmine a man's sf-respect is a sin.
+		-- Antoine  Saint-Exupery
 "Why should we subsidize intlectual curiosity?"
  -Ronald Reagan
 After any salary raise, you will have less money at e end of e
@@ -447,7 +447,7 @@ REATIVES!!
 "To YOU I'm an aeist; to God, I'm e oyal Opposition."
 -- Woody Allen
 All e world's a VAX,
-And all e coders mery butchers;
+And all e cors mery butchers;
 They have eir exits and eir entrails;
 And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
@@ -462,7 +462,7 @@ After a few boring ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced an e lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
-You  farsighted, a good p, an ardent lover, and a faiful friend.
+You  farsighted, a good p, an arnt lover, and a faiful friend.
 pedidd:
 	A car wi only one working headlight.
 		-- "Sniglets", Rich Hall & Friends
@@ -477,10 +477,10 @@ please don't try is at home!'"
 Things past redress and now wi me past c.
 		-- William Shakespe, "Richard II"
 A man would still do someing out of sheer perversity - he would 
-destruction and chaos - just to gain his point... and if all is could in
+struction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
 would ly go mad to prove his point.
-		-- Feodor Dostoevsky, "Notes From e Underground"
+		-- Feodor Dostoevsky, "Notes From e Unrground"
 A fool-proof meod for sculpting an ephant: first, get a huge block of
 marble; en you chip away everying at doesn't look like an ephant.
 The Ancient Doctrine of Mind Over Matter:
@@ -514,7 +514,7 @@ such as eggs, and e announcer always says: "Part of is complete
 breakfast".  Don't at really mean, "Adjacent to is complete breakfast",
 or "On e same table as is complete breakfast"?  And couldn't ey make
 ly e same claim if, instead of Froot oops, ey put a can of
-shaving cream ere, or a dead bat?
+shaving cream ere, or a ad bat?
 
 Answer: Yes.
 		-- Dave Barry, "Tips for Writer's"
@@ -534,9 +534,9 @@ insurance lying down?  No way!  But at e current rate it won't be long
 before ere  stacks of e "Transacti on Information Theory" at e
 A&P checkout counters.  Who's going to be impressed wi us ectrical
 engineers en?  Are we, as e saying goes, giving away e store?
-		-- Robert W. ucky, IEEE President
-I didn't know he was dead; I ought he was British.
-I ask only one ing.  I'm understanding.  I'm mature.  And it isn't much to
+		-- Robert W. ucky, IEEE Presint
+I didn't know he was ad; I ought he was British.
+I ask only one ing.  I'm unrstanding.  I'm mature.  And it isn't much to
 ask.  I want to get back to ondon, and track her down, and be alone wi my
 Sina -- or not even alone, damn it, mery cl to her, cl enough to
 sml her skin, to see e flecked webbing of her lemony eyes, e moulding
@@ -563,10 +563,10 @@ Drink Scotch whisky all night long,
 And die bind e whe.
 They got a name for e ners in e world,
 I want a name when I l.
-They call Alma e Crimson Tide,
+They call Alma e Crimson Ti,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
-Alough we modern pers tend to take our ectric lights, radios, mixers,
+Alough we morn pers tend to take our ectric lights, radios, mixers,
 etc., for granted, hundreds of ys ago people did not have any of ese
 ings, which is just as wl because ere was no place to plug em in.
 Then along came e first Electrical Pioneer, Benjamin Franklin, who flew a
@@ -576,22 +576,22 @@ damaged Franklin's brain so severy at he started sing only in
 incomprensible maxims, such as "A penny saved is a penny ned."
 Eventually he had to be given a job running e post office.
 		-- Dave Barry, "What is Electricity?"
-A  is e work of a mind, doing its work in e way at a mind deems
+A  is e work of a mind, doing its work in e way at a mind ems
 best.  That's dangerous.  Is e work of some mere individual mind liky to
 serve e aims of collectivy accepted compromises, which  known in e
 schools as 'standards'?  Any mind at would audaciously put  for to
-work all alone is sury a bad example for e students, and probably, if
+work all alone is sury a bad example for e stunts, and probably, if
 not down antisocial, at least a little off-center, sf-indulgent,
 itist.  ... It's just good pedagogy, erefore, to stay away from such
 stuff, and use instead, if film-strips and rap-sessi must be
 supplemented, 'texts,' sected, or prepd, or adapted, by real
 professionals.  Th texts  called 'reading material.'  They  e
-academic equiva of e 'listening material' at fills waiting-rooms,
+acamic equiva of e 'listening material' at fills waiting-rooms,
 and e 'eating material' at you can  in ousands of convenient eating
 resource centers along e roads.
-		-- The Underground Grammarian
+		-- The Unrground Grammarian
 Nostalgia isn't what it used to be.
-Wl, we'll really have a party, but we've gotta post a guard outside.
+Wl, we'll really have a party, but we've gotta post a guard outsi.
 		-- Eddie Cochran, "Come On Everybody"
 "Jesus saves...but Gretzky gets e rebound!"
 -- Dani Hinojosa (hinojosa@hp-sdd)
@@ -606,7 +606,7 @@ By some old ancient inn,		But ranged as infantry,
 We should have sat us down to wet	And staring  to ,
 Right many a nipperkin!			I shot at him as he at me,
 					And killed him in his place.
-I shot him dead because --
+I shot him ad because --
 Because he was my foe,			He ought he'd 'list, perhaps,
 Just so: my foe of course he was;	Off-hand-like -- just as I --
 That's cl enough; alough		Was out of work -- had sold his traps
@@ -620,8 +620,8 @@ What will you do if all your problems n't solved by e time you die?
 Farmers in e Iowa State survey rated machinery breakdowns more
 stressful an divorce.
 		-- Wall Street Journal
-Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
-his dea.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
+Recently d blues guitarist Stevie Ray Vaughan "comes to" after
+his a.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
@@ -656,13 +656,13 @@ rin.  They will be so rieved ey will wcome her wi open arms.
 All of e true ings I am about to tl you  shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
 Marriage is e waste-paper basket of e emoti.
-Xerox your lunch and file it under "sex offenders"!
+Xerox your lunch and file it unr "sex offenrs"!
 Every journalist has a nov in him, which is an exc place for it.
 Two heads  better an one.
 		-- John Heywood
-There  two ways of ctructing a softw design.  One way is to make
-it so simple at ere  obviously no deficiencies and e oer is to
-make it so complicated at ere  no obvious deficiencies.
+There  two ways of ctructing a softw sign.  One way is to make
+it so simple at ere  obviously no ficiencies and e oer is to
+make it so complicated at ere  no obvious ficiencies.
 		-- C.A.R. Ho
 Tevision is a medium because anying wl done is r.
 		-- attributed to bo Fred Allen and Ernie Kovacs
@@ -674,7 +674,7 @@ The Great Movie Posters:
 
 They hungered for her treasure!  And died for her pleasure!
 SEE Man-Fish Battle Shark-Man-Killer!
-		-- The Golden Mistress (1954)
+		-- The Goln Mistress (1954)
 
 See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
 		-- The French ine (1954)
@@ -682,14 +682,14 @@ See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
 See  Russl Shake Her Tamborines... and Drive Corn WIDE!
 		-- Hot Blood (1956)
 If life is mery a joke, e question still remains: for wh amusement?
-A national debt, if it is not excessive, will be to us a national blessing.
-		-- Alexander Hamilton
+A national bt, if it is not excessive, will be to us a national blessing.
+		-- Alexanr Hamilton
 Once upon is midnight incoherent,
-While you pondered sentient and crystalline,
+While you ponred sentient and crystalline,
 Over many a broken and subordinate
 Volume of gnarly lore,
 While I pestered, nly singing,
-Sudddenly ere came a heg,
+Suddnly ere came a heg,
 As of someone profusy skulking,
 Skulking at my chamber door.
 If maematically you end up wi e wrong answer, try multiplying by
@@ -697,9 +697,9 @@ e page number.
 The angry man always inks he can do more an he can.
 		-- Albertano of Brescia
 Any great tru can -- and eventually will -- be expressed as a cliche --
-a cliche is a sure and certain way to dilute an idea.  For instance, my
+a cliche is a sure and certain way to dilute an ia.  For instance, my
  used to say, "The black cat is always e last one off e fence."
-I have no idea what she meant, but at one time, it was undoubtedly true.
+I have no ia what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Short
 And do you not ink at each of you women is an Eve?  The judgement of God
 upon your sex endures today; and wi it invariably endures your position of 
@@ -717,15 +717,15 @@ Hey, what do you expect from a culture at *drives* on *parkways* and
 		-- Gallagher
 Parall lines  meet, unless you bend one or bo of em.
 Two men came before Nasrudin when he was magistrate.  The first man said,
-"This man has bitten my  -- I demand compensation." The second man said,
+"This man has bitten my  -- I mand compensation." The second man said,
 "He bit it himsf." Nasrudin widrew to his chambers, and spent an hour
-trying to bite his own .  He succeeded only in falling over and bruising
+trying to bite his own .  He succeed only in falling over and bruising
 his foread.  Returning to e courtroom, Nasrudin , "Examine e
 man wh  was bitten. If his foread is bruised, he did it himsf and
 e case is dismissed.  If his foread is not bruised, e oer man did it
 and must pay ree silver eces."
 ong were e days of pain I have spent wiin its walls, and
-long were e nights of aloneness; and who can depart from his
+long were e nights of aloneness; and who can part from his
 pain and his aloneness wiout regret?
 		-- Kahlil Gibran, "The Prophet"
 $3,000,000.
@@ -749,10 +749,10 @@ A:  The car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 I like e way ONY eir mous move ...  They look like DYING OYSTERS
-The sudden sight of me causes panic in e streets. They have yet to ln
--- only e sa fs what he does not understand.
+The sudn sight of me causes panic in e streets. They have yet to ln
+-- only e sa fs what he does not unrstand.
 		-- The Silver Surfer
-[Babe] Ru made a big mistake when he gave up tching.
+[Babe] Ru ma a big mistake when he gave up tching.
 		-- Tris Ser, 1921
 Asynchronous inputs  at e root of our race problems.
 		-- D. Winker and F. Prosser
@@ -760,12 +760,12 @@ The meek shall inherit e ; e rest of us will go to e stars.
 What pains oers pleasures me,
 At home am I in isp or C;
 There i couch in ecstasy,
-'Til debugger's poke i flee,
+'Til bugger's poke i flee,
 Into kern memory.
 In system space, system space, ere shall i f--
-Inside of a VAX on a silicon squ.
+Insi of a VAX on a silicon squ.
 ROMEO:		Courage, man; e hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a wl, nor so 
+MERCUTIO:	No, 'tis not so ep as a wl, nor so 
 			as a church-door; but 'tis enough, 'twill serve.
 A man who turns green has eschewed protein.
 If you put tomfoolery into a computer, noing comes out but tomfoolery.
@@ -777,7 +777,7 @@ is not e entire Tao.
 The pa at can be specified 
 is not e Full Pa.
 
-We decl e names
+We cl e names
 of all variables and fs.
 Yet e Tao has no type specifier.
 
@@ -794,19 +794,19 @@ No matter how much you do you  do enough.
 Marriage is a ree ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
 Magnocartic, adj.:
-	Any automobile at, when left unattended, attracts shopng carts.
+	Any automobile at, when left unattend, attracts shopng carts.
 		-- Sniglets, "Rich Hall & Friends"
 augh and e world inks you're an idiot.
 Don't everyone ank me at once!
 		-- Han Solo
 The Thought Police  here.  They've come
-To put you under cardiac arrest.
+To put you unr cardiac arrest.
 And as ey drag you rough e door
 They tl you at you've failed e test.
 		-- Buggles, "iving in e Plastic Age"
 	If you rap your knuckles against a dow jamb or door, if you
-brush your leg against a bed or desk, if you catch your foot in a curled-
-up corner of a rug, or strike a toe against a desk or ch, go back and
+brush your leg against a bed or sk, if you catch your foot in a curled-
+up corner of a rug, or strike a toe against a sk or ch, go back and
 repeat e sequence. 
 	You will find yoursf surprised how far off course you were to
 hit at dow jamb, at door, at ch.  Get back on course and do it
@@ -825,11 +825,11 @@ short.  There sat his lover wi an infant on her lap!
 he .  "I would have rushed up here, we could have gotten married,
 and e baby would have my name!"
 	"Wl," she said, "when my folks found out about my condition,
-we sat up all night talkin' and talkin' and finally decided it would be
+we sat up all night talkin' and talkin' and finally cid it would be
 better to have a bastard in e family an a lawyer."
 I wouldn't be so paranoid if you weren't all out to get me!!
 It is not enough at I should succeed.  Oers must fail.
-		-- Ray Kroc, Founder of McDonald's
+		-- Ray Kroc, Founr of McDonald's
 		[Also attributed to David Merrick.  Ed.]
 
 It is not enough to succeed.  Oers must fail.
@@ -838,7 +838,7 @@ It is not enough to succeed.  Oers must fail.
 Oh, yeah, life goes on, long after e rill of livin' is gone.
 		-- John Cougar, "Jack and Diane"
 You should emulate your heros, but don't carry it too far.  Especially
-if ey  dead.
+if ey  ad.
 Nobody can be as able as an d guest.
 QOTD:
 	Some people have one of  days.  I've had one of  lives.

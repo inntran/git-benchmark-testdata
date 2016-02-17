@@ -1,11 +1,11 @@
 	Young men and young women may work systematically six days in the
-week and rise fresh in the morning, but let them attend modern dances for
+week and rise fresh in the morning, but let them attend morn dances for
 only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
-to both sexes.  Health and vigor will vh like the dew before the sun.
+to both sexes.  Health and vigor will vh like the w before the sun.
 	It is not the extraordinary exercise which harms the dancer, but
 rather the coming into cl contact with the opposite sex.  It is the
-fury of lust craving incessantly for more pleasure that undermines the
+fury of lust craving incessantly for more pleasure that unrmines the
 soul, the body, the sinews and nerves.  Experience and statistics show
 beyond doubt that passionate excessive dancing girls can hardly reach
 twenty-five ys of age and men thirty-one.  Even if they reached that
@@ -34,16 +34,16 @@ Mix JE-O and Knox gelatin into 2 cups of boiling water.  Stir 'til
 Pour hot mixture into a flat pan.  (JE-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
 	glops of slime. (Alcohol has an unusual effect on excess JE-O.)
-Pour in fruit to desired taste, and to absorb any excess alcohol.
+Pour in fruit to sired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute the alcohol and make it easier to eat for
 	the faint of ht.
-Refrigerate overnight to allow mixture to fully harden. (About 8-12 hours.)
+Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommended for
-	children under eight ys of age.
-	My friends, I am here to tell you of the wonderous continent known as
+	Keep ingredients away from open flame.  Not recommend for
+	children unr eight ys of age.
+	My friends, I am here to tell you of the wonrous continent known as
 Africa.  Well we left New York drunk and ly on the morning of February 31.
 We were 15 days on the water, and 3 on the boat when we finally arrived in
 Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
@@ -58,13 +58,13 @@ weren't looking for a water hole.  They were looking for an alck hole.
 	One morning I shot an elephant in my pajamas, how he got in my
 pajamas, I don't know.  Then we tried to remove the tusks.  That's a tough
 word to say, tusks.  As I said we tried to remove the tusks, but they were
-imbedded so firmly we couldn't get them out.  But in Alabama the Tuscaloosa,
+imbedd so firmly we couldn't get them out.  But in Alabama the Tuscaloosa,
 but that is totally irrelephant to what I was saying.
-	We took some pictures of the native girls, but they weren't developed.
+	We took some pictures of the native girls, but they weren't veloped.
 So we're going back in a few ys...
 		-- Julius H. Marx [Groucho]
 "Anything created must necessarily be inferior to the essence of the creator."
-		-- Claude Shouse
+		-- Clau Shouse
 
 "Einstein's mother must have been one heck of a physicist."
 		-- Jph C. Wang
@@ -73,7 +73,7 @@ I have a map of the United States.  It's actual size.  I spent last summer
 folding it.  People ask me where I live, and I say, "E6".
 		-- Steven Wright
 Too clever is dumb.
-		-- Ogden Nash
+		-- Ogn Nash
 The fortune program is supported, in part, by user contributi and by
 a major grant from the National Endowment for the Inanities.
 In most countries selling harmful things like drugs is punishable.

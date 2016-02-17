@@ -5,17 +5,17 @@ You  always busy.
 -- Frank Zappa, Feb 1, 1989
 A woman's place is in the house... and in the Senate.
 Earn cash in your sp time -- blackmail your friends.
-"The bad reputation UNIX has gotten is totally undeserved, laid on by people
-who don't understand, who have not gotten in there and tried anything."
+"The bad reputation UNIX has gotten is totally unserved, laid on by people
+who don't unrstand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
 O love, could thou and I with fate conspire
 To grasp this sorry scheme of things entire,
 Might we not smash it to bits
-And mould it clr to our hearts' desire?
+And mould it clr to our hearts' sire?
 		-- Omar Khayyam, tr. FitzGerald
 An interpretation _I satisfies a sentence in the table language if and only if
-each entry in the table designates the value of the function designated by the
-function constant in the upper-left corner applied to the objects designated
+each entry in the table signates the value of the function signated by the
+function constant in the upper-left corner applied to the objects signated
 by the corresponding row and column labels.
 		-- Genesereth & Nilsson, "Logical foundations of Artificial
 		   Intelligence"
@@ -28,10 +28,10 @@ It seems intuitively obvious to me, which means that it might be wrong.
 AmigaDOS Beer: The company has gone out of business, but their recipe has 
 been picked up by some weird German company, so now this beer will be an 
 import.  This beer  really sold very well because the original 
-manufacturer didn't understand marketing. Like Unix Beer, AmigaDOS Beer 
+manufacturer didn't unrstand marketing. Like Unix Beer, AmigaDOS Beer 
 fans  an extremely loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When this can was 
-originally introduced, it apped flashy and colorful, but the design 
+originally introduced, it apped flashy and colorful, but the sign 
 hasn't changed much over the years, so it appears dated now.  Critics of 
 this beer claim that it is only meant for watching TV anyway.
 My problem lies in reconciling my gross habits with my net income.
@@ -46,7 +46,7 @@ of the Northern Ocean, happened once to meet in the realm of Chaos, the god
 of the center.  Chaos treated them very handsomely and they discussed together
 what they could do to repay his kindness.  They had noticed that, whereas
 everyone else had seven apertures, for sight, hearing, eating, breathing and
-so on, Chaos had none.  So they decided to make the experiment of boring holes
+so on, Chaos had none.  So they cid to make the experiment of boring holes
 in him.  Every day they bored a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
 All laws  simulations of reality.
@@ -70,9 +70,9 @@ reward among the furthest reaches of Galactic space.  In th days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures
 from Alpha Centauri.  And all dd to brave unknown terrors, to do mighty
-deeds, to boldly split infinitives that no man had split before -- and thus
+eds, to boldly split infinitives that no man had split before -- and thus
 was the  forged.
--- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
+-- Douglas Adams, _The Hitchhiker's Gui to the Galaxy_
 ink, n.:
 	A villainous compound of tannogallate of iron, gum-arabic,
 	and water, chiefly used to facilitate the infection of
@@ -92,7 +92,7 @@ Fun experiments:
 	bedroom, car, etc.  As it thaws, it expands an unbelievable amount.
 When the sun shineth, make hay.
 		-- John Heywood
-Loan-department manager:  "There isn't any fine print.  At these
+Loan-partment manager:  "There isn't any fine print.  At these
 interest rates, we don't need it."
 From listening comes wisdom and from speaking repentance.
 Even if you're on the right track, you'll get run over if you just sit there.
@@ -101,12 +101,12 @@ Reclaimer, sp that tree!
 Take not a single bit!
 It used to point to me,
 Now I'm protecting it.
-It was the reader's CONS
-That made it, paired by dot;
+It was the rear's CONS
+That ma it, paired by dot;
 Now, GC, for the nonce,
 Thou shalt reclaim it not.
 George Orwell 1984.  Northwestern 0.
-		-- Chicago Reader 10/15/82
+		-- Chicago Rear 10/15/82
 Be self-reliant and your success is assured.
 You  in a maze of little twisting passages, all alike.
 "If anything can go wrong, it will."
@@ -127,30 +127,30 @@ No bird soars too high if he soars with his own wings.
 Call on God, but row away from the rocks.
 		-- Indian proverb
 It would be illogical to assume that all conditions remain stable.
-		-- Spock, "The Enterprise" Incident", stardate 5027.3
+		-- Spock, "The Enterprise" Incint", stardate 5027.3
 Politicians  the same all over.  They promise to build a bridge even
 where there is no river.
 	-- Nikita Khrushchev
 You will stop at nothing to reach your objective, but only because your
-brakes  defective.
+brakes  fective.
 Ryan's Law:
 	Make three correct guesses consecutively
 	and you will establish yourself as an expert.
 "I couldn't remember things until I took that Sam Carnegie course."
 -- Bill Peterson, former Houston Oiler football coach
-You can take all the impact that science considerations have on funding
-decisions at NASA, put them in the navel of a flea, and have room left
+You can take all the impact that science consirations have on funding
+cisions at NASA, put them in the navel of a flea, and have room left
 over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
 Authors  easy to get on with -- if you're fond of children.
 		-- Michael Jph, "Observer"
-Uh-oh -- WHY am I suddenly thinking of a VENERABLE relius leader
+Uh-oh -- WHY am I sudnly thinking of a VENERABLE relius lear
 frolicking on a FORT LAUDERDALE weekend?
-In the long run we  all dead.
+In the long run we  all ad.
 		-- John Maynard Keynes
 HOW YOU CAN TELL THAT IT'S GOING TO BE A ROTTEN DAY:
 	#1040 Your income tax refund cheque bounces.
-If someone had told me I would be Pope one day, I would have studied harder.
+If someone had told me I would be Pope one day, I would have studied harr.
 		-- Pope John Paul I
 Mr. Cole's Axiom:
 	The sum of the intelligence on the planet is a constant; the
@@ -162,14 +162,14 @@ is play.  _Z is keep your mouth shut.
 		-- Albert Einstein
 ... I want to perform cranial activities with Tuesday Weld!!
 It is easier to change the specification to fit the program than vice versa.
-I have  understood the female capacity to avoid a direct answer to
+I have  unrstood the female capacity to avoid a direct answer to
 any question.
-		-- Spock, "This Side of Paradise", stardate 3417.3
+		-- Spock, "This Si of Paradise", stardate 3417.3
 "jackpot:  you may have an unneccessary change record"
 -- message from "diff"
 One doesn't have a sense of humor.  It has you.
 		-- Larry Gelbart
-How beautiful, how entrancing you , my loved one, daughter of delights!
+How beautiful, how entrancing you , my loved one, daughter of lights!
 You  stately as a palm-tree, and your breasts  the clusters of dates.
 I said, "I will climb up into the palm to grasp its fronds."  May I find your
 breast like clusters of grapes on the vine, the scent of your breath like
@@ -197,13 +197,13 @@ HOGAN'S HEROES DRINKING GAME --
 -- One of the Germans is threatened with being sent to the Russian front.
 -- Corporal Newkirk calls up a German in his phoney German accent, and
 	tricks him (two shots if it's Colonel Klink).
--- Hogan has a romantic  with a beautiful girl from the underground.
+-- Hogan has a romantic  with a beautiful girl from the unrground.
 -- Colonel Klink relates how he's  had an escape from Stalag 13.
 -- Sergeant Schultz gives up a secret (two shots if he's bribed with food).
--- The prisoners listen to the Germans' conversation by a hidden transmitter.
+-- The prisoners listen to the Germans' conversation by a hidn transmitter.
 -- Sergeant Schultz "captures" one of the prisoners after an escape.
 -- Lebeau pronounces "colonel" as "cuh-loh-`nell".
--- Carter builds some kind of device (two shots if it's not explosive).
+-- Carter builds some kind of vice (two shots if it's not explosive).
 -- Lebeau wears his apron.
 -- Hogan says "We've got no choice" when someone claims that the plan is
 	impossible.
@@ -217,14 +217,14 @@ sun shines where clouds go
 clouds just come and go
 		-- Florian Gutzwiller
 Where's SANDY DUNCAN?
-"If once a man indulges himself in murder, very soon he comes to think
+"If once a man indulges himself in murr, very soon he comes to think
 little of robbing; and from robbing he next comes to drinking and
 Sabbath-breaking, and from that to incivility and procrastination."
 		-- Thomas De Quincey (1785 - 1859)
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nella vaba;
-i borogovi eran tutti mimanti
-	e la moma radeva fuorigraba.
+i borogovi eran ti mimanti
+	e la moma rava fuorigraba.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
@@ -232,20 +232,20 @@ fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 "Interesting survey in the current Journal of Abnormal Psychology: New York 
-City has a higher percentage of people you shouldn't make any sudden moves 
+City has a higher percentage of people you shouldn't make any sudn moves 
 around than any other city in the world."
 -- David Letterman
-Under every stone lurks a politician.
+Unr every stone lurks a politician.
 		-- Aristophanes
 QOTD:
 	"He eats like a bird... five times his own weight each day."
 
 "Whatever the missing mass of the universe is, I hope it's not cockroaches!"
 		-- Mom
-When God saw how faulty was man He tried again and made woman.  As to
+When God saw how faulty was man He tried again and ma woman.  As to
 why he then stopped there  two opinions.  One of them is woman's.
 		-- DeGourmont
-Almost anything derogatory you could say about today's softw design
+Almost anything rogatory you could say about today's softw sign
 would be accurate.
 		-- K.E. Iverson
 The eagle may soar, but the weasel  gets sucked into a jet engine.
@@ -279,10 +279,10 @@ backups: always in season,  out of style.
 Time will end all my troubles, but I don't always approve of Time's methods.
 Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
-An elderly couple were flying to their Caribbean hideaway on a chartered plane
+An elrly couple were flying to their Caribbean hiaway on a chartered plane
 when a terrible storm forced them to land on an uninhabited island.  When
 several days passed without rescue, the couple and their pilot sank into a
-despondent silence. Finally, the woman asked her husband if he had made his
+sponnt silence. Finally, the woman asked her husband if he had ma his
 usual pledge to the United Way Campaign.
 	"We're running out of food and water and you ask *that*?" her husband
 barked.  "If you really need to know, I not only pledged a half million but

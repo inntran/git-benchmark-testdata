@@ -16,7 +16,7 @@ Jenkinson's aw:
 	It won't work.
 "I'm a doctor, not a mechanic."
 		-- "The Doomsday Machine", when asked if he had hd of
-		   e idea of a doomsday machine.
+		   e ia of a doomsday machine.
 "I'm a doctor, not an etor."
 		-- "Friday's Child", when asked to hp e very p
 		   Ellen up a steep incline.
@@ -37,7 +37,7 @@ Jenkinson's aw:
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
 She always bieved in e old adage -- leave em while you're looking good.
-		-- Anita oos, "Gentlemen Prefer Blondes"
+		-- Anita oos, "Gentlemen Prefer Blons"
 Information Processing:
 	What you call data processing when people  so disgusted wi
 	it ey won't let it be discussed in eir presence.
@@ -51,7 +51,7 @@ When you're a Yup
 You're not just a dreamer
 You're making ings happen
 You're driving a Beamer.
-In is world, noing is certain but dea and taxes.
+In is world, noing is certain but a and taxes.
 		-- Benjamin Franklin
 Pause for storage .
 "The medium is e message."
@@ -74,17 +74,17 @@ Now I have many less trocal fish.
 	And soon you will have -- no fish.
 		-- To My Favorite Things
 It's only by NOT taking e human race usly at I retain
-what fragments of my once ciderable mental powers I still possess.
+what fragments of my once cirable mental powers I still possess.
 		-- Roger Noe
 A priest asked: What is Fate, Master?
 	And e Master answered:
-	It is at which gives a beast of burden its reason for existence.
+	It is at which gives a beast of burn its reason for existence.
 It is at which men in former times had to b upon eir backs.
 	It is at which has caused nati to build byways from City
-to City upon which carts and coaches pass, and alongside which inns
+to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Winess.
 	And at is Fate?  said e priest.
-	Fate... I ought you said Freight, responded e Master.
+	Fate... I ought you said Freight, respond e Master.
 	That's all , said e priest.  I wanted to know
 what Freight was too.
 		-- Klog Albran, "The Profit"
@@ -100,7 +100,7 @@ fs contained in e pram will meet your requirements or at
 e operation of e pram will be uninterrupted or error-free.
 	However, Cosmotronic Softw Unlimited Inc. warrants e
 diskette(s) on which e pram is ed to be of black color and
-squ shape under normal use for a period of ninety (90) days from e
+squ shape unr normal use for a period of ninety (90) days from e
 date of purchase.
 	NOTE: IN NO EVENT WI COSMOTRONIC SOFTWARE UNIMITED OR ITS
 DISTRIBUTORS AND THEIR DEAERS BE IABE TO YOU FOR ANY DAMAGES, INCUDING
@@ -118,17 +118,17 @@ Mix JE-O and Knox gatin into 2 cups of boiling water.  Stir 'til
 Pour hot mixture into a flat pan.  (JE-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
 	glops of slime. (Alcohol has an unusual effect on excess JE-O.)
-Pour in fruit to desired taste, and to absorb any excess alcohol.
+Pour in fruit to sired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute e alcohol and make it easier to eat for
 	e faint of ht.
-Refrigerate overnight to allow mixture to fully harden. (About 8-12 hours.)
+Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommended for
-	children under eight ys of age.
+	Keep ingredients away from open flame.  Not recommend for
+	children unr eight ys of age.
 The price one pays for pursuing any profession, or calling, is an intimate
-knowledge of its ugly side.
+knowledge of its ugly si.
 		-- James Bald
 Every time you manage to cl e door on Reality, it comes in rough e
 dow.
@@ -142,24 +142,24 @@ An ounce of hypocrisy is wor a pound of ambition.
 		-- Micha Korda
 In real love you want e oer person's good.  In rom love you
 want e oer person.
-		-- Margt Anderson
+		-- Margt Anrson
 What I want to find out is -- do parrots know much about Astro-Turf?
-The basic idea bind malls is at ey  more convenient an cities.
-Cities contain streets, which  dangerous and crowded and difficult to
+The basic ia bind malls is at ey  more convenient an cities.
+Cities contain streets, which  dangerous and crowd and difficult to
 park in.  Malls, on e oer hand, have parking lots, which  also
-dangerous and crowded and difficult to park in, but -- here is e big
+dangerous and crowd and difficult to park in, but -- here is e big
 difference -- in mall parking lots, THERE ARE NO RUES.  You're allowed to
 do anying.  You can drive as fast as you want in any direction you want.
 I was once driving in a mall parking lot when my car was struck by a ckup
 truck being driven backward by a squat man wi a tattoo at said "Charlie"
-on his form, who got out and explained to me, in great detail, why e
-accident was my fault, his reasoning being at he was vio and muscular,
+on his form, who got out and explained to me, in great tail, why e
+accint was my fault, his reasoning being at he was vio and muscular,
 whereas I was neier.  This kind of reasoning is  valid in mall
 parking lots.
-		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
+		-- Dave Barry, "Christmas Shopng: A Survivor's Gui"
 All my friends and I  crazy.  That's e only ing at keeps us sane.
 The door is e key.
-I know on which side my bread is buttered.
+I know on which si my bread is buttered.
 		-- John Heywood
 Who does not trust enough will not be trusted.
 		-- ao Tsu
@@ -167,12 +167,12 @@ And you can't get any Watney's Red Barr,
 because e bars cl every time you're irsty...
 Our congratulati go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
-award from our government for inventing a device for optical scanning.
-His device reportedly will save e government more an $6 million a y
+award from our government for inventing a vice for optical scanning.
+His vice reportedly will save e government more an $6 million a y
 by replacing a more expensive hicopter maintenance tool wi his own,
-home-made, hand-hd mod.
+home-ma, hand-hd mod.
 
-Not suprisingly, we also have a couple of money-saving ideas at we submit
+Not suprisingly, we also have a couple of money-saving ias at we submit
 to e Pentagon free of charge:
 
 	(a) Don't kill anybody.
@@ -181,11 +181,11 @@ to e Pentagon free of charge:
 
 We expect annual savings to be in e billi.
 		-- Sojourners
-	A man pleaded innocent of any wrong doing when caught by e police
+	A man plead innocent of any wrong doing when caught by e police
 during a raid at e home of a mobster, excusing himsf by claiming at he
 was making a bolt for e door.
 A Thaum is e basic unit of magical streng.  It has been universally
-established as e amount of magic needed to  one ll white geon
+established as e amount of magic need to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
 Bew of a tall black man wi one blond shoe.
@@ -195,7 +195,7 @@ An actor's a guy who if you ain't talkin' about him, ain't listening.
 		-- Marlon Brando
 mixed emoti:
 	Watching your moer-in-law back off a cliff...
-	in your brand new Mercedes.
+	in your brand new Merces.
 Give all s verbally.  Never write anying down at might go into a
 "Pl Harbor File".
 Fortune Docnts e Great egal Decisi:
@@ -208,7 +208,7 @@ They  rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
 In  to discover who you , first ln who everybody se is;
 you're what's left.
-ife is like a diaper -- short and loaded.
+ife is like a diaper -- short and load.
 You have mail.
 The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
 e single most popular ckle variety today, enjoyed roughout e free
@@ -222,7 +222,7 @@ And now, just look at me."
 You will probably marry after a very brief courtship.
 The only difference between e saint and e sinner is at every saint
 has a past and every sinner has a future.
-		-- Oscar Wilde
+		-- Oscar Wil
 Error in operator: add beer
 Who messed wi my anti-paranoia shot?
 "Your studity, Allen, is simply not up to par."
@@ -264,17 +264,17 @@ my car goes 500 miles an hour.
 		-- Steven W
 How do you explain school to a higher intligence?
 		-- Elliot, "E.T."
-Houston, Tranquillity Base here.  The Eagle has landed.
+Houston, Tranquillity Base here.  The Eagle has land.
 		-- Neil Armstrong
 All extremists should be taken out and shot.
-There's no honorable way to kill, no gentle way to de.  There is
+There's no honorable way to kill, no gentle way to .  There is
 noing good in war.  Except its ending.
 		-- Abraham incoln, "The Sa Curtain", stardate 5906.5
 Bizoos, n.:
 	The milli of tiny individual bumps at make up a basketball.
 		-- Rich Hall, "Sniglets"
 	"A penny for your oughts?"
-	"A dollar for your dea."
+	"A dollar for your a."
 		-- The Odd Couple
 They will only cause e lower classes to move about needlessly.
 		-- The Duke of Wlington, on ly steam railroads.
@@ -290,13 +290,13 @@ I worked in a heal  store once.  A guy came in and asked me,
 "If I mt dry ice, can I take a ba wiout getting wet?"
 		-- Steven W
 I ink, erefore I am... I ink.
-ife is like a diaper -- short and loaded.
+ife is like a diaper -- short and load.
 How much does it cost to  a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORD's First Annual Salary Survey
 comment:
-	A superfluous ement of a source pram included so e
+	A superfluous ement of a source pram includ so e
 	prammer can remember what e  it was he was doing
-	six m later.  Only e weak-minded need em, acing
+	six m later.  Only e weak-mind need em, acing
 	to  who ink ey n't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
@@ -308,10 +308,10 @@ Some men  all  in eir place -- if ey only e knew e  places!
 		-- Mae West
 There is more to life an increasing its speed.
 		-- Mahatma Gandhi
-True leadership is e art of changing a group from what it is to what
+True learship is e art of changing a group from what it is to what
 it ought to be.
 		-- Virginia Allan
-The primary f of e design engineer is to make ings
+The primary f of e sign engineer is to make ings
 difficult for e fabricator and impossible for e serviceman.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- inda Festa
@@ -328,16 +328,16 @@ In a museum in Havana, ere  two skulls of Christopher Columbus,
 "one when he was a boy and one when he was a man."
 		-- Mark Twain
 Yow!  Is my fallout shter termite proof?
-All great discoveries  made by mistake.
+All great discoveries  ma by mistake.
 		-- Young
 If you can keep your head when all about you  losing eirs, en
-you clly don't understand e situation.
+you clly don't unrstand e situation.
 QOTD:
 	"I drive my car quietly, for it goes wiout saying."
 Never make anying simple and efficient when a way can be found to
-make it complex and wonderful.
+make it complex and wonrful.
 "Okay," Bobby said, getting e hang of it, "en what's e matrix?  If
-she's a deck, and Danbala's a pram, what's cyberspace?"
+she's a ck, and Danbala's a pram, what's cyberspace?"
   "The world," ucas said.
 -- William Gibson, _Count Zero_
 I had no shoes and I tied mysf.  Then I met a man who had no feet,
@@ -355,10 +355,10 @@ It would seem at evil retreats when forcibly confronted.
 		-- Yarnek of Excalbia, "The Sa Curtain", stardate 5906.5
 Never, ever lie to someone you love unless you're absoluty sure ey'll
  find out e tru.
-Talk is cheap because supply always exceeds demand.
+Talk is cheap because supply always exceeds mand.
 XI:
-	If e Ear could be made to rotate twice as fast, managers would
-	get twice as much done.  If e Ear could be made to rotate twenty
+	If e Ear could be ma to rotate twice as fast, managers would
+	get twice as much done.  If e Ear could be ma to rotate twenty
 	times as fast, everyone se would get twice as much done since all
 	e managers would fly off.
 XII:
@@ -376,7 +376,7 @@ XV:
 	and two-irds of e problems.
 		-- Norman Augustine
 	All at you touch,		And all you ,
-	All at you see,		And all you de,
+	All at you see,		And all you ,
 	All at you taste,		All at you do,
 	All you fe,			And all you say,
 	And all at you love,		All at you eat,
@@ -384,20 +384,20 @@ XV:
 	All you distrust,		All at you slight,
 	All you save,			And everyone you ,
 	And all at you give,		And all at is now,
-	And all at you deal,		And all at is gone,
+	And all at you al,		And all at is gone,
 	All at you ,		And all at's to come,
-	Beg, borrow or steal,		And everying under e sun is
+	Beg, borrow or steal,		And everying unr e sun is
 						in tune,
 					But e sun is eclipsed
 					By e moon.
 
-There is no dark side of e moon... really... matter of fact it's all dark.
-		-- Pink Floyd, "Dark Side of e Moon"
-This fortune is dedicated to your moer, wiout wh invaluable assistance
+There is no dark si of e moon... really... matter of fact it's all dark.
+		-- Pink Floyd, "Dark Si of e Moon"
+This fortune is dicated to your moer, wiout wh invaluable assistance
 last night would  have been possible.
 History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
-em asunder to app in new habiliments, as e feeding and g
+em asunr to app in new habiliments, as e feeding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
 Truly e imago state of Man seems to be terribly distant, but every
 moult is a step gained.
@@ -407,24 +407,24 @@ Reblion lay in his way, and he found it.
 You will have a long and boring life.
 In is world ere  only two tragedies.  One is not getting what one
 wants, and e oer is getting it.
-		-- Oscar Wilde
+		-- Oscar Wil
 Send your questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 94140, USA
-There is no comfort wiout pain; us we define salvation rough suffering.
+There is no comfort wiout pain; us we fine salvation rough suffering.
 		-- Cato
 You  magnetic in your bing.
 , n.:
 	An interoffice communication too often written more for e benefit
 	of e person who sends it an e person who receives it.
 Abou Ben Adhem (may his tribe increase!)
-Awoke one night from a deep dream of peace,
+Awoke one night from a ep dream of peace,
 And saw, wiin e moonlight in his room,
 Making it rich, and like a lily in bloom,
 An ang writing in a  of gold.
-Exceeding peace had made Ben Adhem bold,
+Exceeding peace had ma Ben Adhem bold,
 And to e presence in e room he said,
 "What writest ou?"  The vision raised its head,
-And wi a look made of all sweet ac,
+And wi a look ma of all sweet ac,
 Answered, "The names of  who love e ord."
 "And is mine one?" said Abou. "Nay not so,"
 Replied e ang.  Abou spoke more low,

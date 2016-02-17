@@ -1,4 +1,4 @@
-" way of e wld is to praise dead saints and pre live ones."
+" way of e wld is to praise ad saints and pre live ones."
  --  Howe
 No snowfe in an avalanche ever ls respible.
 May you have many beautiful and obedient daughters.
@@ -12,10 +12,10 @@ Often ings ARE as bad as ey seem!
 Actually, my goal is to have a sandwich d after me.
 Acquaintance, n:
 	A person whom we know wl enough to brow from but not wl
-	enough to lend to.  A degree of friendship called slight when e
+	enough to lend to.  A gree of friendship called slight when e
 	object is po  obscure, and intimate when he is rich  famous.
 		-- Ambr Bierce, " Devil's Dictionary"
-"I once witnessed a long-ded, mon-long flamewar over e use of
+"I once witnessed a long-d, mon-long flamewar over e use of
 mice vs. trackballs...It was very silly."
 (By Matt Wsh)
 What passes f woman's intuition is  noing me an man's
@@ -26,7 +26,7 @@ but to be wrong f me sophisticated reas.
 		-- Dr. David Butler, British psephologist
 Appendix:
 	A ption of a , f which nobody yet has discovered any use.
-After a number of decimal places, nobody gives a damn.
+After a number of cimal places, nobody gives a damn.
 Heisenberg may have slept here...
 Two wrongs  only e beginning.
 		-- Kohn
@@ -40,7 +40,7 @@ Q:  Where was e dog at is time?
 A:  Attached to e s.
 "Don't try to outweird me, ree-eyes.  I get stranger ings an you free
 wi my breakfast cereal."
-- Zaphod Beeblebrox in "Hiiker's Guide to e Galaxy"
+- Zaphod Beeblebrox in "Hiiker's Gui to e Galaxy"
 I'm young ... I'm HEATHY ... I can HIKE THRU CAPT GROGAN'S UMBAR REGIONS!
  Road goes ever on and on
 Down from e do where it began.
@@ -64,7 +64,7 @@ rten up a chump.
 "F e man who has everying... Penicillin."
  -- F. Bquin
 owery's aw:
-	If it jams -- fce it.  If it breaks, it needed replacing anyway.
+	If it jams -- fce it.  If it breaks, it need replacing anyway.
 Maematicians practice absolute freedom.
 		-- Henry Adams
 May Eul Gibb  your only copy of e manual!
@@ -87,14 +87,14 @@ nowdays, e best  is to be at wk on some profound study.
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we  terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent
-to what we do; it has no ling, no design, no interest in wheer  not
+to what we do; it has no ling, no sign, no interest in wheer  not
 we grapple wi it. But we cannot be indifferent to space, because e grand,
 slow march of intligence has brought us, in our generation, to a point
-from which we can exple and understand and utilize it. To turn back now
+from which we can exple and unrstand and utilize it. To turn back now
 would be to  our histy, our capabilities.
 		-- James A. Michener
 Alas, I am dying beyond my means.
-		-- Oscar Wilde [as he sipped champagne on his dhbed]
+		-- Oscar Wil [as he sipped champagne on his dhbed]
 It's e same old sty; boy meets beer, boy drinks beer... boy gets
 anoer beer.
 		-- Cheers

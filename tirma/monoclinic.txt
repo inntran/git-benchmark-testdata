@@ -1,5 +1,5 @@
 Your happiness is intertwined with your outlook on life.
-	A man pleaded innocent of any wrong doing when caught by the police
+	A man plead innocent of any wrong doing when caught by the police
 during a raid at the home of a mobster, excusing himself by claiming that he
 was making a bolt for the door.
 "A raccoon tangled with a 23,000 volt line today.  The results blacked
@@ -37,11 +37,11 @@ so friendly.
 	The crucial point is if you can tell which is which.
 		-- Dolph Sharp, "I'm O.K., You're Not So Hot"
 Tourists -- have some fun with New York's hard-boiled cabbies.  When you
-get to your destination, say to your driver, "Pay?  I was hitch-hiking."
+get to your stination, say to your driver, "Pay?  I was hitch-hiking."
 		-- David etterman
 Fortune's nomination for All-Time Champion and Protector of Youthful
 Morals goes to Representative Cl E. Hoffman of Michigan.  During an
-impassioned House debate over a propd bill to "expand oyster and
+impassioned House bate over a propd bill to "expand oyster and
 clam resch," a sharp-ed informant transcribed the following
 exchange between our hero and Rep. John D. Dingell, also of Michigan.
 
@@ -55,13 +55,13 @@ DINGE: They may or may not be natural.  The simple fact of the matter
 HOFFMAN: Wait a minute!  I do not want to go into that.  There  many
 	 teenagers who read The Congressional Record.
 We have found all life forms in the galaxy  capable of superior
-development.
+velopment.
 		-- Kirk, "The Gamesters of Triskelion", stardate 3211.7
-Bistromathics is simply a revolutionary new way of understanding the
+Bistromathics is simply a revolutionary new way of unrstanding the
 behavior of numbers.  Just as Einstein observed that space was not an
-absolute, but depended on the observer's movement in space, and that
-time was not an absolute, but depended on the observer's movement in
-time, so it is now realized that numbers  not absolute, but depend
+absolute, but pend on the observer's movement in space, and that
+time was not an absolute, but pend on the observer's movement in
+time, so it is now realized that numbers  not absolute, but pend
 on the observer's movement in restaurants.
 		-- Douglas Adams
 "Ada is P/I trying to be Smalltalk.
@@ -70,10 +70,10 @@ Real Programmers don't write in FORTRAN.  FORTRAN is for pipe stress freaks and
 crystallography weenies.  FORTRAN is for wimp engineers who w white socks.
 I just thought of something funny...your mother.
 - Cheech Marin
-You had mail, but the super-user read it, and deleted it!
+You had mail, but the super-user read it, and leted it!
 You can't go home again, unless you set $HOME.
-Do not underestimate the power of the Force.
-No live orgm can continue for long to exist sanely under conditi of
+Do not unrestimate the power of the Force.
+No live orgm can continue for long to exist sanely unr conditi of
 absolute reality; even larks and katydids  suppd, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty ys and might stand for eighty more.
@@ -83,7 +83,7 @@ of Hill House, and whatever walked there, walked alone.
 		-- Shirley Jackson, "The Haunting of Hill House"
 QOTD:
 	"It's hard to tell whether he has an ace up his sleeve or if
-	the ace is missing from his deck altogether."
+	the ace is missing from his ck altogether."
 "Being against torture ought to be sort of a bipartisan thing."
 -- Karl ehenbauer
 Being popular is important.  Otherwise people might not like you.
@@ -91,24 +91,24 @@ It is often the case that the man who can't tell a lie thinks he is the best
 judge of one.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Feel free to contact me (flames about my english and the useless of this
-driver will be redirected to /dev/null, oh no, it's full...).
-(Michael Beck, describing the PC-speaker sound device)
-The garden is in mourning;
+driver will be redirected to /v/null, oh no, it's full...).
+(Michael Beck, scribing the PC-speaker sound vice)
+The garn is in mourning;
 The rain falls cool among the flowers.
 Summer shivers quietly
 On its way towards its end.
 
-Golden leaf after leaf
+Goln leaf after leaf
 Falls from the tall acacia.
 Summer smiles, astonished, feeble,
-In this dying dream of a garden.
+In this dying dream of a garn.
 
 For a long while, yet, in the rs,
 She will linger on, yning for peace,
 And slowly
 Cl her wy eyes.
 		-- Hermann Hesse, "September"
-The most important service rendered by the press is that of educating
+The most important service renred by the press is that of educating
 people to approach printed matter with distrust. 
 My problem lies in reconciling my gross habits with my net income.
 		-- Errol Flynn
@@ -129,13 +129,13 @@ Sm the road with a runner!!
 The door is the key.
 	"Cheshire-Puss," she began, "would you tell me, please, which way I
 ought to go from here?"
-	"That depends a good deal on where you want to get to," said the Cat.
+	"That pends a good al on where you want to get to," said the Cat.
 	"I don't c much where--" said Alice.
 	"Then it doesn't matter which way you go," said the Cat.
 Do more than anyone expects, and pretty soon everyone will expect more.
 The sum of the intelligence of the world is ctant.  The population is,
 of course, growing.
-"It's a dog-eat-dog world out there, and I'm wing Milkbone underw."
+"It's a dog-eat-dog world out there, and I'm wing Milkbone unrw."
 -- Norm, from _Cheers_
 Everything you read in newspapers is absolutely true, except for that
 r story of which you happen to have first-hand knowledge.
@@ -158,8 +158,8 @@ A comment on schedules:
    For each manager who says "data flow analysis" add another month.
    For each unique end-user type add one month.
    For each unknown softw package to be employed add two months.
-   For each unknown hardw device add two months.
-   For each 100 miles between developer and installation add one month.
+   For each unknown hardw vice add two months.
+   For each 100 miles between veloper and installation add one month.
    For each type of communication channel add one month.
    If an IBM mainframe shop is involved and you  working on a non-IBM
       system add 6 months.
@@ -171,7 +171,7 @@ By the way, A softw projects  done by iterative prototyping.
 Some companies call their prototypes "releases", that's all.
 You cannot propel yourself forward by patting yourself on the back.
 Virginia law forbids bathtubs in the house; tubs must be kept in the yard.
-The more laws and order  made prominent, the more thieves and
+The more laws and orr  ma prominent, the more thieves and
 robbers there will be.
 		-- ao Tsu
 insecurity, n.:
@@ -195,16 +195,16 @@ cell and found it long empty.  The engineer had ctructed a can opener from
 pocket trash, used aluminum shavings and dried sugar to make an explosive,
 and escaped.
 	The physicist had worked out the angle necessary to knock the lids
-off the tin cans by throwing them against the wall.  She was developing a good
+off the tin cans by throwing them against the wall.  She was veloping a good
 pitching arm and a new quantum theory.
 	The mathematician had stacked the unopened cans into a surprising
-solution to the kissing problem; his dessicated corpse was propped calmly
+solution to the kissing problem; his ssicated corpse was propped calmly
 against a wall, and this was inscribed on the floor:
 	Theorem: If I can't open these cans, I'll die.
 	Proof: assume the opposite...
-I'd give my right arm to be ambidextrous.
-Time and tide wait for no man.
-He was so narrow-minded he could see through a keyhole with both eyes.
+I'd give my right arm to be ambixtrous.
+Time and ti wait for no man.
+He was so narrow-mind he could see through a keyhole with both eyes.
 It is an important and popular fact that things  not always what
 they seem.  For instance, on the planet Earth, man had always assumed
 that he was more intelligent than dolphins because he had achieved so
@@ -214,19 +214,19 @@ conversely, the dolphins had always believed that they were far more
 intelligent than man -- for precisely the same reas.
 
 Curiously enough, the dolphins had long known of the impending
-destruction of the of the planet Earth and had made many attempts to
+struction of the of the planet Earth and had ma many attempts to
 alert mankind to the danger; but most of their communicati were
 misinterpreted ...
-		-- Douglas Admas "The Hitchhikers' Guide To The Galaxy"
+		-- Douglas Admas "The Hitchhikers' Gui To The Galaxy"
 The wise man seeks everything in himself; the ignorant man tries to get
 everything from somebody else.
 Heavier than air flying machines  impossible.
-		-- ord Kelvin, President, Royal Society, c. 1895
+		-- ord Kelvin, Presint, Royal Society, c. 1895
 Keep in mind always the four ctant aws of Frisbee:
 	(1) The most powerful force in the world is that of a disc
-	   straining to land under a car, just out of reach (this
+	   straining to land unr a car, just out of reach (this
 	   force is technically termed "car suck").
-	(2) Never precede any maneuver by a comment more predictive
+	(2) Never prece any maneuver by a comment more predictive
 	   than "Watch this!"
 	(3) The probability of a Frisbee hitting something is directly
 	   proportional to the cost of hitting it.  For instance, a
@@ -236,18 +236,18 @@ Keep in mind always the four ctant aws of Frisbee:
 	   cute girl you've been trying to impress is watching, the
 	   Frisbee will invariably bounce out of your hand or hit you
 	   in the head and knock you silly.
-"A University without students is like an ointment without a fly."
+"A University without stunts is like an ointment without a fly."
 	-- Ed Nather, professor of astronomy at UT Austin
 You  gain something but that you l something.
 		-- Thoreau
 Jealousy is all the fun you think they have.
-All great ideas  controversial, or have been at one time.
-I opened the drawer of my little desk and a single letter fell out, a
+All great ias  controversial, or have been at one time.
+I opened the drawer of my little sk and a single letter fell out, a
 letter from my mother, written in pencil, one of her last, with unfinished
-words and an implicit sense of her departure.  It's so curious: one can
-resist ts and "behave" very well in the hardest hours of grief.  But
+words and an implicit sense of her parture.  It's so curious: one can
+resist ts and "behave" very well in the harst hours of grief.  But
 then someone makes you a friendly sign behind a window... or one notices
-that a flower that was in bud only yesterday has suddenly blossomed... or
+that a flower that was in bud only yesterday has sudnly blossomed... or
 a letter slips from a drawer... and everything collapses.
 		-- etters From Colette
 The steady state of disks is full.
@@ -270,18 +270,18 @@ If we suffer tamely a lawless attack upon our liberty, we encourage it,
 and involve others in our doom.
 		-- Samuel Adams
 For some reason a glaze passes over people's faces when you say
-"Canada".  Maybe we should invade South Dakota or something.
+"Canada".  Maybe we should inva South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
 Skill without imagination is craftsmanship and gives us many useful objects
-such as wickerwork picnic baskets.  Imagination without skill gives us modern
+such as wickerwork picnic baskets.  Imagination without skill gives us morn
 art.
 		-- Tom Stoppard
-A boy gets to be a man when a man is needed.
+A boy gets to be a man when a man is need.
 		-- John Steinbeck
 The trouble with the rat-race is that even if you win, you're still a rat.
 		-- ily Tomlin
 	All that you touch,		And all you create,
-	All that you see,		And all you destroy,
+	All that you see,		And all you stroy,
 	All that you taste,		All that you do,
 	All you feel,			And all you say,
 	And all that you love,		All that you eat,
@@ -289,23 +289,23 @@ The trouble with the rat-race is that even if you win, you're still a rat.
 	All you distrust,		All that you slight,
 	All you save,			And everyone you fight,
 	And all that you give,		And all that is now,
-	And all that you deal,		And all that is gone,
+	And all that you al,		And all that is gone,
 	All that you buy,		And all that's to come,
-	Beg, borrow or steal,		And everything under the sun is
+	Beg, borrow or steal,		And everything unr the sun is
 						in tune,
 					But the sun is eclipsed
 					By the moon.
 
-There is no dark side of the moon... really... matter of fact it's all dark.
-		-- Pink Floyd, "Dark Side of the Moon"
+There is no dark si of the moon... really... matter of fact it's all dark.
+		-- Pink Floyd, "Dark Si of the Moon"
 GREAT MOMENTS IN AMERICAN HISTORY (#17):
 
 On November 13, Felix Unger was asked to remove himself from his place
-of residence.
+of resince.
 People (a group that in my opinion has always attracted an undue amount of
 attention) have often been likened to snowflakes.  This analogy is meant to
 suggest that each is unique -- no two alike.  This is quite patently not the
 case.  People ...  simply a dime a dozen.  And, I hasten to add, their
-only similarity to snowflakes resides in their invariable and lamentable
-tendency to turn, after a few warm days, to slush.
+only similarity to snowflakes resis in their invariable and lamentable
+tenncy to turn, after a few warm days, to slush.
 		-- Fran ebowitz, "Social Studies"

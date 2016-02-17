@@ -4,7 +4,7 @@ After all, what is your hosts' purp in having a party?  Sury not f
 you to enjoy yoursf; if at were eir sole purp, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
-On account of being a democracy and run by e people, we  e only
+On account of being a mocracy and run by e people, we  e only
 nation in e wld at has to keep a government four ys, no m
 what it does.
 		-- Will Rogers
@@ -27,18 +27,18 @@ X dows:
 	Complex noluti to simple nonproblems.
 	Built to fall apart.
 	Nullifying centuries of press.
-	Falling to new deps of inefficiency.
+	Falling to new ps of inefficiency.
 	 last ing you need.
-	 defacto substandard.
+	 facto substandard.
 
 Elevating brain damage to an art fm.
 	X dows.
 After 35 ys, I have finished a comprensive study of European
-comparative law.  In Germany, under e law, everying is prohibited,
-except at which is permitted.  In France, under e law, everying
+comparative law.  In Germany, unr e law, everying is prohibited,
+except at which is permitted.  In France, unr e law, everying
 is permitted, except at which is prohibited.  In e Soviet Union,
-under e law, everying is prohibited, including at which is
-permitted.  And in Italy, under e law, everying is permitted,
+unr e law, everying is prohibited, including at which is
+permitted.  And in Italy, unr e law, everying is permitted,
 especially at which is prohibited.
 		-- Newton Minow,
 		Speech to e Association of American aw s, 1985
@@ -69,7 +69,7 @@ There comes a time in the affairs of a man when he has to take the bull
 
 "I've just GOT to start labing my softw..."
 		-- Bloom County
-If you  shooting under 80 you  neglecting your business;
+If you  shooting unr 80 you  neglecting your business;
 over 80 you  neglecting your golf.
 		-- Walter Hagen
 Fly Windows NT:
@@ -80,10 +80,10 @@ A waist is a terrible ing to mind.
 		-- Ziggy
 OS/2 Skyways:
  terminal is almost empty, wi only a few prospective passengers milling
-about.  announcer says at eir flight has just departed, wishes em a
+about.  announcer says at eir flight has just parted, wishes em a
 good flight, ough ere  no planes on e runway. Airline personn
 walk around, apologising profusy to ers in hushed voices, pointing
-from time to time to e sleek, powerful jets outside e terminal on e
+from time to time to e sleek, powerful jets outsi e terminal on e
 fid. y tl each passenger how good e real flight will be on ese
 new jets and how much safer it will be an Windows Airlines, but at ey
 will have to wait a little longer f e technicians to finish e flight
@@ -97,7 +97,7 @@ you can always change e chann.
 		-- Jim Ignatowski
 news: gotcha
 "sic transit discus mundi"
-(From e System Administrat's Guide, by ars Wirzenius)
+(From e System Administrat's Gui, by ars Wirzenius)
 awrence R ty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
@@ -129,10 +129,10 @@ Famous last wds:
 	(3) What happens if you touch ese two wires tog--
 	(4) We won't need reservati.
 	(5) It's always sunny ere is time of e y.
-	(6) Don't wry, it's not loaded.
+	(6) Don't wry, it's not load.
 	(7) y'd  (be stud enough to) make him a manager.
 	(8) Don't wry!  Women love it!
-I've always cidered statesmen to be me expendable an soldiers.
+I've always cired statesmen to be me expendable an soldiers.
 Ccience is what hurts when everying se ls so good.
 	 salen and e system analyst took off to spend a weekend in e
 fest, hunting b.  y'd rented a cabin, and, when ey got ere, took
@@ -140,16 +140,16 @@ eir backpacks off and put em .  At which point e salen
 to his friend, and said, "You unpack while I go and find us a b."
 	Puzzled, e analyst finished unpacking and en went and sat down
 on e pch.  Soon he could h  noises in e fest.   noises
-got ner -- and louder -- and suddenly ere was e salen, running like
+got ner -- and lour -- and sudnly ere was e salen, running like
  across e cling toward e cabin, pursued by one of e largest and
 most  grizzly bs e analyst had ever seen.
 	"Open e do!", screamed e salen.
 	 analyst whipped open e do, and e salen ran to e do,
-suddenly stopped, and stepped aside.   b, unable to stop, continued
+sudnly stopped, and stepped asi.   b, unable to stop, continued
 rough e do and into e cabin.   salen slammed e do cld
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
 one and I'll go rustle us up anoer!"
-"Once he had one leg in e White House and e nation trembled under his 
+"Once he had one leg in e White House and e nation trembled unr his 
 roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e
 fln pasts who bab halfwits in galvanized iron tabernacles bind
 e railroad yards."
@@ -161,9 +161,9 @@ Carob wks on e  at, when mixed wi e  combination of
 fats and sugar, it can duplicate chocolate in col and texture.  Of course,
 e same can be said of dirt.
 	... wi liberty and justice f all ... who can affd it.
-Any circuit design must contain at least one part which is obsolete, two parts
-which  unobtainable, and ree parts which  still under devopment.
-"A fractal is by definition a set f which e Hausdff Besicovitch
+Any circuit sign must contain at least one part which is obsolete, two parts
+which  unobtainable, and ree parts which  still unr vopment.
+"A fractal is by finition a set f which e Hausdff Besicovitch
 dimension strictly exceeds e topological dimension."
 -- Mandbrot, _ Fractal Geometry of Nature_
 Iam
@@ -178,15 +178,15 @@ scientists
 overmagnify
 intlectual
 enlightenment
-Ftunaty, e respibility f providing evidence is on e part of
+Ftunaty, e respibility f providing evince is on e part of
 e person making e claim, not e critic.  It is not e respibility
 of UFO skeptics to prove at a UFO has  existed, n is it e
 respibility of paranmal-heal-claims skeptics to prove at crystals
  coled lights  healed anyone.   skeptic's role is to point out
-claims at  not adequaty suppted by acceptable evidcence and to
-provide plausible alternative explanati at  me in keeng wi
-e accepted body of scientific evidence.
+claims at  not aquaty suppted by acceptable evidcence and to
+provi plausible alternative explanati at  me in keeng wi
+e accepted body of scientific evince.
 		-- Thomas . Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215
  proof of e pudding is in e ing.
-		-- Migu de Cervantes
+		-- Migu  Cervantes

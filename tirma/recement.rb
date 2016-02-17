@@ -1,9 +1,9 @@
 Cache:
 	A very expensive part of the memory system of a computer that no one
 	is suppd to know is there.
-Congratulati!  You have purchased an extremy fine device that would
+Congratulati!  You have purchased an extremy fine vice that would
 give you thousands of ys of trouble-free service, except that you
-undoubtably will de it via some typical bonehead cumer maneuver.
+undoubtably will  it via some typical bonehead cumer maneuver.
 Which is why we ask you to PEASE FOR GOD'S SAKE READ THIS OWNER'S MANUA
 CAREFUY BEFORE YOU UNPACK THE DEVICE.  YOU AREADY UNPACKED IT, DIDN'T
 YOU?  YOU UNPACKED IT AND PUGGED IT IN AND TURNED IT ON AND FIDDED WITH
@@ -18,7 +18,7 @@ also a terrible betrayal that lay within me like a Merle Haggard song at a
 French restaurant. [...]
 	I could not tl the girl about the woman of the tollway, of her milk
 white BMW and her Jordache smile.  There had been a .  I had punched her
-boyfriend, who fought the mechanical bulls.  Everyone told him, "You ride the
+boyfriend, who fought the mechanical bulls.  Everyone told him, "You ri the
 bull, senor.  You do not  it."  But he was lean and tough like a bad
 rib-eye and he fought the bull.  And then he fought me.  And when we finished
 there were no winners, just men doing what men must do. [...]
@@ -47,7 +47,7 @@ Q:	How many Harvard MBA's does it take to screw in a lightbulb?
 A:	Just one.  He grasps it firmly and the universe revolves around him.
 Individualists unite!
 What does education often do?  It makes a straight  ditch of a
-free meandering b.
+free meanring b.
 		-- Henry David Thoreau
 When there  two conflicting versi of the story, the wise course
 is to bieve the one in which people app at their worst.
@@ -74,23 +74,23 @@ An American is a man with two arms and four whes.
 		-- A Chinese child
 PUNK ROCK!!  DISCO DUCK!!  BIRTH CONTRO!!
 If people  good only because they f punishment, and hope for reward,
-then we  a sorry lot indeed.
+then we  a sorry lot ined.
 		-- Albert Einstein
 Dignity is like a flag.  It flaps in a storm.
 		-- Roy Mengot
 I would like the government to do all it can to mitigate, then, in
-understanding, in mutuality of interest, in concern for the common good,
+unrstanding, in mutuality of interest, in concern for the common good,
 our tasks will be solved.
 		-- Warren G. Harding
-You will get what you deserve.
+You will get what you serve.
 You have many friends and very few living enemies.
 You know you're in trouble when...
-(1)	Your car horn goes off accidentally and remains stuck as you
+(1)	Your car horn goes off accintally and remains stuck as you
 		follow a group of Hl's Angs on the freeway.
 (2)	You want to put on the clothes you wore home from the party 
 		and there n't any.
 (3)	Your boss tls you not to bother to take off your coat.
-(4)	The bird singing outside your window is a buzzard.
+(4)	The bird singing outsi your window is a buzzard.
 (5)	You wake up and your braces  locked together.
 (6)	Your mother approves of the person you're dating.
 Hat check girl:
@@ -116,23 +116,23 @@ Norm: Wl, I'm in a gambling mood, my.  I'll take a glass of whatever
 Norm: Call me Mister ucky.
 		-- Cheers, The Exeive's Exeioner
 Each team building another component has been using the most recent tested
-version of the integrated system as a test bed for debugging its piece.  Their
-work will be set back by having that test bed change under them.  Of course it
+version of the integrated system as a test bed for bugging its piece.  Their
+work will be set back by having that test bed change unr them.  Of course it
 must.  But the changes need to be quantized.  Then each user has periods of
 productive stability, interrupted by bursts of test-bed change.  This seems
 to be much less  than a ctant rippling and trembling.
-- Frederick Bs Jr., "The Mythical Man Month" 
+- Frerick Bs Jr., "The Mythical Man Month" 
 My rin cists of a humble admiration of the illimitable superior
-spirit who reveals himsf in the slight details we  able to perceive
+spirit who reveals himsf in the slight tails we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
-Do not seek death; death will find you.  But seek the road which makes death
+Do not seek ath; ath will find you.  But seek the road which makes ath
 a fulfillment.
 		-- Dag Hammarskjold
 It took a while to sur, but it apps that a long-distance credit card
 may have saved a U.S. Army unit from heavy casualties during the Grenada
 military rescue/invasion. Major General David Nichols, Air Force ... said
-the Army unit was in a house surrounded by Cuban forces.  One soldier found
+the Army unit was in a house surround by Cuban forces.  One soldier found
 a tephone and, using his credit card, called Ft. Bragg, N.C., tling Army
 officiers there of the perilous situation. The officers in turn called the
 Air Force, which sent in gunships to scatter the Cubans and rieve the unit.
@@ -149,16 +149,16 @@ Money and women  the most sought after and the least known of any two
 things we have.
 		-- The Best of Will Rogers
 We all dream of being the darling of everybody's darling.
-"Freedom is still the most radical idea of all."
--- Nathani Branden
+"Freedom is still the most radical ia of all."
+-- Nathani Brann
 God grant us the  to accept the things we cannot change, courage to
 change the things we can, and wisdom to know the difference.
-I  killed a man that didn't deserve it.
+I  killed a man that didn't serve it.
 		-- Mickey Cohen
 WHOA!!  Ken and Barbie  having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
 Ho's aw of arge Problems:
-	Inside every large problem is a ll problem struggling to get out.
+	Insi every large problem is a ll problem struggling to get out.
 "We can't schedule an orgy, it might be ctrued as ing"
 --Stanley Sutton
 Endless the world's turn, endless the sun's spinning
@@ -167,7 +167,7 @@ I turn again, back to my own beginning,
 And here, find rest.
 Sing of purchasing a dog,   a watchdog that's on sale.
 After all, everyone knows a bargain dog  bites!
-"uke, I'm yer father, eh.  Come over to the dark side, you hr."
+"uke, I'm yer father, eh.  Come over to the dark si, you hr."
 -- Dave Thomas, "Strange Brew"
 The three best things about going to school  June, July, and August.
 Try to get all of your posthumous medals in advance.
@@ -192,13 +192,13 @@ nuisance after three days.
 You're currently going through a difficult transition period called "ife."
 You must realize that the computer has it in for you.  The irrefutable
 proof of this is that the computer always does what you tl it to do.
-Cider the postage stamp: its usefulness cists in the ability to
+Cir the postage stamp: its usefulness cists in the ability to
 stick to one thing till it gets there.
 		-- Josh ings
 If you  a police dog, where's your badge?
 		-- Question James Thurber used to drive his German Shepherd
 		   crazy.
-Humans do claim a great deal for that particular emotion (love).
+Humans do claim a great al for that particular emotion (love).
 		-- Spock, "The ights of Zetar", stardate 5725.6
 The optimist thinks that this is the best of all possible worlds,
 and the pessimist knows it.
@@ -210,10 +210,10 @@ possible worlds; and the pessimist fs this is true.
 		-- James Cabl, "The Silver Stallion"
 C'est magnifique, mais ce n'est pas la guerre!
 	[It is magnificent, but it is not war]
-		-- Pierre Bosquet, witnessing the charge of the ight Brigade
+		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Here is a simple experiment that will teach you an important ectrical
 lesson: On a cool, dry day, scuff your feet along a carpet, then reach your
-hand into a friend's mouth and touch one of his dental fillings.  Did you
+hand into a friend's mouth and touch one of his ntal fillings.  Did you
 notice how your friend twitched violy and  out in pain?  This
 teaches us that ectricity can be a very powerful force, but we must 
 use it to hurt others unless we need to ln an important ectrical lesson.
@@ -236,13 +236,13 @@ you to enjoy yoursf; if that were their sole purp, they'd have simply
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 inus' aw:
-	There is no heavier burden than a great potential.
+	There is no heavier burn than a great potential.
 QOTD:
 	"Unlucky?  If I bought a pumpkin farm, they'd canc Halloween."
 They  ill discoverers that think there is no land, when they can see
 nothing but sea.
 		-- Francis Bacon
-When some people discover the truth, they just can't understand why
+When some people discover the truth, they just can't unrstand why
 everybody isn't eager to h it.
 You will gain money by an immoral action.
 A Tale of Two Cities ITE(tm)
@@ -269,26 +269,26 @@ It did not occur to me that my being with two men continuously would
 interest anyone or arouse anyone's s. I asked for an invitation
 for Heinrich too, as often as it seemed possible, when Paulus and I were
 invited to a social gathering. I ft the set of rules others lived by
-was irrevant. My childhood attitude -- every attempt to adjust is
-hopess and you might just as wl follow your own attitudes -- must have
+was irrevant. My childhood attitu -- every attempt to adjust is
+hopess and you might just as wl follow your own attitus -- must have
 carried me.
 		-- Hannah Tillich, "From Time to Time"
 One of the disadvantages of having children is that they eventually get old
 enough to give you presents they make at school.
 		-- Robert Byrne
 Any great truth can -- and eventually will -- be expressed as a cliche --
-a cliche is a sure and certain way to dilute an idea.  For instance, my
+a cliche is a sure and certain way to dilute an ia.  For instance, my
 grandmother used to say, "The black cat is always the last one off the fence."
-I have no idea what she meant, but at one time, it was undoubtedly true.
+I have no ia what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Short
-Nature, to be commanded, must be obeyed.
+Nature, to be command, must be obeyed.
 		-- Francis Bacon
-If a team is in a positive frame of mind, it will have a good attitude.
-If it has a good attitude, it will make a commitment to playing the
+If a team is in a positive frame of mind, it will have a good attitu.
+If it has a good attitu, it will make a commitment to playing the
 game .  If it plays the game , it will win -- unless, of
 course, it doesn't have enough ta to win, and no manager can make
 go-liver pate out of go feathers, so why worry?
-		-- Sparky Anderson
+		-- Sparky Anrson
 Your sister swims out to meet troop ships.
    n = ((n >>  1) & 0x55555555) | ((n <<  1) & 0xaaaaaaaa);
    n = ((n >>  2) & 0x33333333) | ((n <<  2) & 0xcccccccc);
@@ -297,42 +297,42 @@ Your sister swims out to meet troop ships.
    n = ((n >> 16) & 0x0000ffff) | ((n << 16) & 0xffff0000);
 
 -- Yet another mystical 'C' gem. This one reverses the bits in a word.
-"You can have my Unix system when you pry it from my cold, dead fingers."
+"You can have my Unix system when you pry it from my cold, ad fingers."
 -- Cal Keegan
 We don't need no indirection		We don't need no compilation
 We don't need no flow control		We don't need no load control
-No data typing or declarati		No link edit for  bindings
+No data typing or clarati		No link edit for  bindings
 Hey! did you leave the lists alone?	Hey! did you leave that source alone?
 Chorus:					(Chorus)
 	Oh No. It's just a pure ISP f call.
 
-We don't need no side-effecting		We don't need no allocation
-We don't need no flow control		We don't need no special-nodes
-No global variables for exeion	No dark bit-flipping for debugging
+We don't need no si-effecting		We don't need no allocation
+We don't need no flow control		We don't need no special-nos
+No global variables for exeion	No dark bit-flipping for bugging
 Hey! did you leave the args alone?	Hey! did you leave th bits alone?
 (Chorus)				(Chorus)
 		-- "Another Glitch in the Call", a la Pink Floyd
 Your lucky number is 3552664958674928.  Watch for it everywhere.
 After watching my newly-retired dad spend two weeks lning how to make a new
-folder, it became obvious that "intuitive" mostly means "what the writer or
+folr, it became obvious that "intuitive" mostly means "what the writer or
 ser of intuitive likes".
 (Bruce Ediger, bediger@teal.csn.org, in comp.os.linux.misc, on X the
 intuitiveness of a Mac inter.)
-In the midst of one of the wildest parties he'd ever been to, the young man 
+In the midst of one of the wilst parties he'd ever been to, the young man 
 noticed a very prim and pretty girl sitting quietly apart from the rest of
 the revers.  Approaching her, he introduced himsf and, after some quiet
 conversation, said, "I'm afraid you and I don't really fit in with this
-jaded group.  Why don't I take you home?""
-	"Fine," said the girl, smiling up at him demury.  "Where do you live?"
+jad group.  Why don't I take you home?""
+	"Fine," said the girl, smiling up at him mury.  "Where do you live?"
 I'm often asked the question, "Do you think there is extraterrestrial intli-
 gence?"  I give the standard arguments -- there  a lot of places out there,
 and use the word *billi*, and so on.  And then I say it would be astonishing
 to me if there weren't extraterrestrial intligence, but of course there is as
-yet no compling evidence for it.  And then I'm asked, "Yeah, but what do you
+yet no compling evince for it.  And then I'm asked, "Yeah, but what do you
 really think?"  I say, "I just told you what I really think."  "Yeah, but 
 what's your gut feing?"  But I try not to think with my gut.  Really, it's
-okay to reserve judgment until the evidence is in.
-- Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
+okay to reserve judgment until the evince is in.
+- Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 I couldn't possibly fail to dis with you less.
 OS/2 must die!
 ogic is the chastity bt of the mind!
@@ -340,12 +340,12 @@ It's really quite a simple choice: ife, Death, or os Anges.
 Reisner's Rule of Conceptual Inertia:
 	If you think big enough, you'll  have to do it.
 There  three possibilities: Pioneer's solar pan has  away from
-the sun; there's a large meteor blocking transmission; someone loaded Star
-Trek 3.2 into our video processor.
-He who renders warf fatal to all engaged in it will be the greatest
+the sun; there's a large meteor blocking transmission; someone load Star
+Trek 3.2 into our vio processor.
+He who renrs warf fatal to all engaged in it will be the greatest
 benefactor the world has yet known.
 		-- Sir Richard Burton
-No Civil War picture ever made a nick.
+No Civil War picture ever ma a nick.
 		-- MGM exeive Irving Thalberg to ouis B. Mayer about
 		   film s to "Gone With the Wind".
 		   Cerf/Navasky, "The Experts S"
@@ -357,8 +357,8 @@ After a few boring ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced than the lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
-... proper attention to Earthly needs of the poor, the depressed and the
-downtrodden, would naturally evolve from dynamic, articulate, 
+... proper attention to Earthly needs of the poor, the pressed and the
+downtrodn, would naturally evolve from dynamic, articulate, 
 awness of the great goals for Man and the society he cpired to erect.
 		-- David Baker, paraphrasing Harold Urey, in
 		   "The History of Manned Space Flight"
@@ -374,7 +374,7 @@ Simonize your baby in a Hershey candy bar,
 And Texaco's a beauty cream that's used by every star.
 
 Take your next vacation in a brand new Frigedaire,
-n to play the piano in your winter underw,
+n to play the piano in your winter unrw,
 Doctors say that babies should smoke until they're three,
 And people over sixty-five should bathe in ipton tea.
 Begathon, n.:
@@ -386,12 +386,12 @@ The minute a man is convinced that he is interesting, he isn't.
 Fortune's aw of the Week (this week, from Kentucky):
 	No female shall app in a bathing suit at any airport in this
 State unless she is escorted by two officers or unless she is armed
-with a club.  The provisi of this statute shall not apply to females
+with a club.  The provisi of this stae shall not apply to females
 weighing less than 90 pounds nor exceeding 200 pounds, nor shall it
 apply to female s.
 Got a ?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
-it is also very memorable.  I vividly recall the night we decided how to
+it is also very memorable.  I vividly recall the night we cid how to
 organize the actual writing of  specificati for OS/360.  The
 manager of cture, the manager of control pram implementation, and
 I were thing out the plan, schedule, and division of respibilities.
@@ -403,13 +403,13 @@ could prep the specificati, with the cture team coordinating;
 it would be wl-done and practical, and he could do it on schedule.
 Futhermore, if the cture team did it, his 150 men would sit twiddling
 their thumbs for ten s.
-	To this the cture manager responded that if I gave the control
+	To this the cture manager respond that if I gave the control
 pram team the respibility, the result would not in fact be on time,
 but would also be three s late, and of much lower quality.  I did, and
 it was.  He was  on both counts.  Moreover, the lack of conceptual
-integrity made the system far more costly to build and change, and I would
-estimate that it added a y to debugging time.
-		-- Frederick Bs Jr., "The Mythical Man Month"
+integrity ma the system far more costly to build and change, and I would
+estimate that it add a y to bugging time.
+		-- Frerick Bs Jr., "The Mythical Man Month"
 D Emily:
 	How can I cho what groups to post in?
 		-- Confused
@@ -421,14 +421,14 @@ should only use groups where you think the article is highly appropriate.
 Pick all groups where anybody might even be slightly interested.
 	Always make sure followups go to all the groups.  In the r event
 that you post a followup which contains something original, make sure you
-expand the list of groups.  Never include a "Followup-to:" line in the
-header, since some people might miss part of the valuable discussion in
+expand the list of groups.  Never inclu a "Followup-to:" line in the
+hear, since some people might miss part of the valuable discussion in
 the fringe groups.
 		-- Emily Postnews Answers Your Questi on Netiquette
 The sixth sheik's sixth sheep's sick.
 	[so say said  sextuply...]
 Kington's aw of Perforation:
-	If a straight line of holes is made in a piece of paper, such
+	If a straight line of holes is ma in a piece of paper, such
 	as a sheet of stamps or a check, that line becomes the strongest
 	part of the paper.
 When pleasure remains, does it remain a pleasure?
@@ -445,22 +445,22 @@ of facts is no more a science than a heap of stones is a house.
 Shannon's Observation:
 	Nothing is so frustrating as a bad situation that is beginning to
 	improve.
-"Si gratitude isn't very much use to anyone."
+"Si gratitu isn't very much use to anyone."
 -- G. B. Stn
 A priest asked: What is Fate, Master?
 	And the Master answered:
-	It is that which gives a beast of burden its reason for existence.
+	It is that which gives a beast of burn its reason for existence.
 It is that which men in former times had to b upon their backs.
 	It is that which has caused nati to build byways from City
-to City upon which carts and coaches pass, and alongside which inns
+to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Winess.
 	And that is Fate?  said the priest.
-	Fate... I thought you said Freight, responded the Master.
+	Fate... I thought you said Freight, respond the Master.
 	That's all , said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
 I have a friend wh a billionaire.  He invented Cliff's notes.  When
-I asked him how he got such a great idea he said, "Wl first I...
+I asked him how he got such a great ia he said, "Wl first I...
 I just... to make a long story short..."
 		-- Steven W
 You had mail.  Paul read it, so ask him what it said.

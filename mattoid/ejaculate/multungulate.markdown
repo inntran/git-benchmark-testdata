@@ -1,4 +1,4 @@
-Darth Vader sleeps with a Teddywookie.
+Darth Var sleeps with a Teddywookie.
 To the landlord belongs the doorknobs.
 "Th who believe in astrology  living in houses with foundations of
 Silly Putty."
@@ -16,7 +16,7 @@ way that astonishes him least.
 program should be directed by the logic within rather than by outward
 appearances.
 	If the program fails in these requirements, it will be in a state of
-disorder and confusion.  The only way to correct this is to rewrite the
+disorr and confusion.  The only way to correct this is to rewrite the
 program.
 		-- Geoffrey James, "The Tao of Programming"
 NATHAN ... your PARENTS were in a CARCRASH!!  They're VOIDED -- They
@@ -29,7 +29,7 @@ As flies to wanton boys  we to the gods; they kill us for their sport.
 		-- Shakespe, "King Lear"
 Rules for Good Grammar #4.
 	 (1) Don't use no double negatives.
-	 (2) Make each pronoun agree with their antecedents.
+	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
 	 (4) About them sentence fragments.
 	 (5) When dangling, watch your participles.
@@ -60,7 +60,7 @@ I'd LOVE to, but...
 	-- I'm building a plant from a kit.
 	-- There's a disturbance in the Force.
 	-- I'm doing door-to-door collecting for static cling.
-	-- I'm teaching my ferret to yodel.
+	-- I'm teaching my ferret to yol.
 	-- My crayons all melted together.
 Death is God's way of telling you not to be such a wise guy.
 Snow Day -- stay home.
@@ -75,7 +75,7 @@ spend my evenings?"
 When you  at Rome live in the Roman style; when you  elsewhere live
 as they live elsewhere.
 		-- St. Ambr
-Feeling amorous, she looked under the sheets and , "Oh, no,
+Feeling amorous, she looked unr the sheets and , "Oh, no,
 it's Microsoft!"
 If you stick a stock of liquor in your locker,
 It is slick to stick a lock upon your stock. 
@@ -92,7 +92,7 @@ Between infinite and short there is a big difference.
 		-- G.H. Gonnet
 QOTD:
 	"It's been Monday all week today."
-Never say you know a man until you have divided an inheritance with him.
+Never say you know a man until you have divid an inheritance with him.
 During the next two hours, the system will be going up and down several
 times, often with lin~po_~{po       ~poz~ppo\~{ o n~po_~{o[po	 ~y oodsou>#w4k**n~po_~{ol;lkld;f;g;dd;po\~{o
 Once, I read that a man be  stronger than when he truly realizes how
@@ -100,7 +100,7 @@ weak he is.
 		-- Jim Starlin, "Captain Marvel #31"
 It looked like something resembling white marble, which was
 probably what it was: something resembling white marble.
-		-- Douglas Adams, "The Hitchhikers Guide to the Galaxy"
+		-- Douglas Adams, "The Hitchhikers Gui to the Galaxy"
 The things that interest people most  usually none of their business.
 Q:	What's the difference between a duck and an elephant?
 A:	You can't get down off an elephant.
@@ -116,25 +116,25 @@ television sets, and many  exploding.  They assumed we must be having
 problems with them too.  The other question he was asked often was why the
 CIA had killed Samantha Smith, the little girl who visited the Soviet Union a
 few years ago; their propaganda is very effective.
--- Victor Belenko, MiG-25 fighter pilot who defected in 1976
+-- Victor Belenko, MiG-25 fighter pilot who fected in 1976
    "Defense Electronics", Vol 20, No. 6, pg. 100
-If a person (a) is poorly, (b) receives treatment intended to make him better,
+If a person (a) is poorly, (b) receives treatment intend to make him better,
 and (c) gets better, then no power of reasoning known to medical science can
 convince him that it may not have been the treatment that restored his health.
 		-- Sir Peter Medawar, "The Art of the Soluble"
 We secure our friends not by accepting favors but by doing them.
-		-- Thucydides
-A bachelor is a selfish, undeserving guy who has cheated some woman out
+		-- Thucydis
+A bachelor is a selfish, unserving guy who has cheated some woman out
 of a divorce.
 		-- Don Quinn
 Isn't it conceivable to you that an intelligent person could harbor
-two opposing ideas in his mind?
+two opposing ias in his mind?
 		-- Adlai Stevenson, to reporters
-Congratulations  in order for Tom Reid.
+Congratulations  in orr for Tom Reid.
 
 He says he just found out he is the winner of the 2021 Psychic of the
 Year award.
-Underlying Principle of Socio-Genetics:
+Unrlying Principle of Socio-Genetics:
 	Superiority is recessive.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 
@@ -148,7 +148,7 @@ Making friends:
 together, and say something like, "I hope we can be good friends."
 	A man will meet another man with common interests, do a few things
 together, and say nothing.  After years of interacting with this other man,
-sharing hopes and fears that he wouldn't confide in his priest or
+sharing hopes and fears that he wouldn't confi in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 sentimentality and say something like, "You know, for someone who's such a
 jerk, I guess you're OK."
@@ -163,29 +163,29 @@ Hope is a good breakfast, but it is a bad supper.
 The last time I saw him he was walking down Lover's Lane holding his own hand.
 		-- Fred Allen
 heavy, adj.:
-	Seduced by the chocolate side of the force.
+	Seduced by the chocolate si of the force.
 Losing your drivers' license is just God's way of saying "BOOGA, BOOGA!"
-nolo contendere:
+nolo contenre:
 	A legal term meaning: "I didn't do it, judge, and I'll  do
 	it again."
 One Bell System - it used to work before they installed the Dimension!
 I would rather be a serf in a poor man's house and be above ground than
-reign among the dead.
-		-- Achilles, "The Odessey", XI, 489-91
+reign among the ad.
+		-- Achilles, "The Ossey", XI, 489-91
 The sprung doors parted and I staggered out into the lobby's teak and flicker.
 Uniformed men stood by impassively like sentries in their trench.  I slapped
-my key on the desk and nodded gravely.  I was loaded enough to be unable to
-tell whether they could tell I was loaded.  Would they mind?  I was certainly
-too loaded to c.  I moved to the door with boxy, schlep-shouldered strides.
+my key on the sk and nodd gravely.  I was load enough to be unable to
+tell whether they could tell I was load.  Would they mind?  I was certainly
+too load to c.  I moved to the door with boxy, schlep-shoulred stris.
 -- Martin Amis, _Money_
 Soldiers who wish to be a hero
 Are  zero,
 But th who wish to be civilians,
 They run into the millions.
 Stupidity, like virtue, is its own reward.
-Correspondence Corollary:
-	An experiment may be considered a success if no more than half
-	your data must be discarded to obtain correspondence with your theory.
+Corresponnce Corollary:
+	An experiment may be consired a success if no more than half
+	your data must be discard to obtain corresponnce with your theory.
 The meek don't want it.
 Never try to explain computers to a layman.  It's easier to explain
 sex to a virgin.
@@ -196,7 +196,7 @@ Try not.
 Do.
 Or do not.
 There is no try.
-You fill a much-needed gap.
+You fill a much-need gap.
 Breadth-first search is the bulldozer of science.
 		-- Randy Goebel
 In most countries selling harmful things like drugs is punishable.
@@ -207,7 +207,7 @@ Love, the reeling midnight through
 For tomorrow we shall die!
 (But, alas, we  do.)
 		-- Dorothy Parker, "The Flaw in Paganism"
-MOCK APPLE PIE (No Apples Needed)
+MOCK APPLE PIE (No Apples Need)
 
   Pastry to two crust 9-inch pie	36 RITZ Crackers
 2 cups water				 2 cups sugar
@@ -222,7 +222,7 @@ juice and rind.  Cool.  Pour this syrup over Crackers, dot generously
 with butter or margarine and sprinkle with cinnamon.  Cover with top
 crust.  Trim and flute edges together.  Cut slits in top crust to let
 steam escape.  Bake in a hot oven (425 F) 30 to 35 minutes, until crust
-is crisp and golden.  Serve warm.  Cut into 6 to 8 slices.
+is crisp and goln.  Serve warm.  Cut into 6 to 8 slices.
 		-- Found lurking on a Ritz Crackers box
 And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
 QOTD:
@@ -234,12 +234,12 @@ setting on your electric blanket, up past "HIGH", that said "ELECTROCUTION".
 	Another symptom is that you cease brushing your teeth, because (a)
 your teeth hurt, and (b) you lack the strength.  Midway through the brushing
 process, you'd have to lie down in front of the sink to rest for a couple
-of hours, and rivulets of toothpaste foam would dribble sideways out of your
-mouth, eventually hardening into crusty little toothpaste stalagmites that
+of hours, and rivulets of toothpaste foam would dribble siways out of your
+mouth, eventually harning into crusty little toothpaste stalagmites that
 would bond your head permanently to the bathroom floor, which is how the
 police would find you.
 	You know the kind of flu I'm talking about.
-		-- Dave Barry, "Molecular Homicide"
+		-- Dave Barry, "Molecular Homici"
 Why did the Roman  collapse?  What is the Latin for office automation?
 Lank: Here we go.  We're about to set a new record.
 Earl: (to the crowd) How about a date?
@@ -254,54 +254,54 @@ Quarterback:
 	Sophomore Dave Strewzinski... likes to pass.  And pass he does, with
 a record 86 attempts (three completions) in 87 plays....  Though Strewzinksi
 has so far failed to score any points for the Crimson, his jackrabbit speed
-has made him the least sacked quarterback in the Ivy league.
-Wide Receiver:
+has ma him the least sacked quarterback in the Ivy league.
+Wi Receiver:
 	The other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
-fast.  Expect to see Yip elude all pursuers and make it into the endzone five
+fast.  Expect to see Yip elu all pursuers and make it into the endzone five
 or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
 asshole" by his teammates, hopes to carry the ball with him at least one of
 th times.
 YALE:
 Defense:
-	On the defensive side, Yale boasts the stingiest line in the Ivies.
+	On the fensive si, Yale boasts the stingiest line in the Ivies.
 Primarily responsible  seniors Izzy "Shylock" Bloomberg and Myron
 Finklestein, the tightest ends in recent Eli history.  Also contributing to
-the powerful defense is junior tackle Angus MacWhirter, a Scotsman who rounds
+the powerful fense is junior tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look for these three to shut down the opening
 coin toss.
 		-- Harvard Lampoon 1988 Program Parody, distributed at The Game
 	Now she speaks rapidly.  "Do you know *why* you want to program?"
-	He shakes his head.  He hasn't the faintest idea.
+	He shakes his head.  He hasn't the faintest ia.
 	"For the sheer *joy* of programming!" she cries triumphantly.  
 "The joy of the pnt, the artist, the craftsman.  "You take a program, 
 born weak and impotent as a dimly-realized solution.  You nurture the 
-program and guide it down the right path, building, watching it grow ever 
-stronger.  Sometimes you paint with tiny strokes, a keystroke added here, 
+program and gui it down the right path, building, watching it grow ever 
+stronger.  Sometimes you paint with tiny strokes, a keystroke add here, 
 a keystroke changed there."  She sweeps her arm in a  arc.  "And other
-times you savage whole *blocks* of code, ripping out the program's very 
+times you savage whole *blocks* of co, ripping out the program's very 
 *essence*, then beginning anew.  But always building, creating, filling the 
 program with your own personal stamp, your own quirks and nuances.  Watching 
 the program grow stronger, patching it when it crashes, until finally it can 
 stand alone -- proud, powerful, and perfect.  This is the programmer's finest
-hour!"  Softly at first, then louder, he hears the strains of a Sousa march. 
+hour!"  Softly at first, then lour, he hears the strains of a Sousa march. 
 "This ... this is your canvas! your clay!  Go forth and create a masterwork!"
 It's been a business doing pleasure with you.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#2
 
 Desserts:
-	A woman will generally admire an ornate dessert for the artistic
+	A woman will generally admire an ornate ssert for the artistic
 work it is, praising its creator and waiting a suitable interval before
 she reluctantly takes a small sliver off one edge.  A man will start by
 grabbing the cherry in the center.
 
 Car repair:
 	The average man thinks his Y chromosome contains complete repair
-manuals for every car made since World War II.  He will work on a problem
+manuals for every car ma since World War II.  He will work on a problem
 himself until it either goes away or turns into something that "can't be
 fixed without special tools".
 	The average woman thinks "that funny thump-thump noise" is an
-accurate description of an automotive problem.  She will, however, have the
+accurate scription of an automotive problem.  She will, however, have the
 car serviced at the proper intervals and thereby incur fewer problems than
 the average man.
 A Tale of Two Cities LITE(tm)
@@ -323,25 +323,25 @@ The Odyssey LITE(tm)
 	After working late, a valiant warrior gets lost on his way home.
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
-a lo misapplication of the word.  Consider the flea!--incomparably the
+a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
 Whether you  asleep or awake he will attack you, caring nothing for the fact
 that in bulk and strength you  to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
-very lap of peril and the immediate presence of death, and yet is no more
+very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
 an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
 as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the procession.
+put him at the head of the .
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-I do not find in orthodox Christianity one redeeming feature.
+I do not find in orthodox Christianity one reeming feature.
 - Thomas Jefferson
 It would save me a lot of time if you just gave up and went mad now.
 I will  lie to you.
 The heroic hours of life do not announce their presence by drum and trumpet,
 challenging us to be true to ourselves by appeals to the martial spirit that
 keeps the blood at heat.  Some little, unassuming, unobtrusive choice presents
-itself before us slyly and craftily, glib and insinuating, in the modest garb
+itself before us slyly and craftily, glib and insinuating, in the most garb
 of innocence.  To yield to its blandishments is so easy.  The wrong, it seems,
 is venial...  Then it is that you will be summoned to show the courage of
 adventurous youth.
@@ -349,7 +349,7 @@ adventurous youth.
 You have the power to influence all with whom you come in contact.
 For fast-acting relief, try slowing down.
 Concept, n.:
-	Any "idea" for which an outside consultant billed you more than
+	Any "ia" for which an outsi consultant billed you more than
 	$25,000.
 Some people cause happiness wherever they go; others, whe they go.
 Promptness is its own reward, if one lives by the clock instead of the sword.
@@ -370,24 +370,24 @@ proof by eminent authority:
 	'I saw Karp in the elevator and he said it was probably NP-
 	complete.' 
 
-"Most people would like to be delivered from
+"Most people would like to be livered from
  temptation but would like it to keep in touch."
 -- Robert Orben
 Come live with me, and be my love,
 And we will some new pleasures prove
-Of golden sands, and crystal brooks,
+Of goln sands, and crystal brooks,
 With silken lines, and silver hooks.
 		-- John Donne
 Intel engineering seem to have misheard Intel marketing strategy. The phrase
-was "Divide and conquer" not "Divide and cock up"
+was "Divi and conquer" not "Divi and cock up"
 (By iialan@www.linux.org.uk, Alan Cox)
-A triangle which has an angle of 135 degrees is called an obscene triangle.
+A triangle which has an angle of 135 grees is called an obscene triangle.
 senility, n.:
-	The state of mind of elderly persons with whom one happens to disagree.
+	The state of mind of elrly persons with whom one happens to disagree.
 It will be generally found that th who sneer habitually at human nature
-and affect to despise it,  among its worst and least pleasant examples.
+and affect to spise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
-Is death legally binding?
+Is ath legally binding?
 Did you hear that there's a group of South American Indians that worship
 the number zero?
 
@@ -406,7 +406,7 @@ You patch a bug, and dump it again:
 101 blocks of crud on the disk! ...
 Pecor's Health-Food Principle:
 	Never eat rutabaga on any day of the week that has a "y" in it.
-Success is a journey, not a destination.
+Success is a journey, not a stination.
 Remember, God could only create the world in 6 days because he didn't
 have an established user base.
 I'm having a BIG BANG THEORY!!
@@ -419,7 +419,7 @@ QOTD:
 If there is no God, who pops up the next Kleenex?
 		-- Art Hoppe
 Finagle's First Law:
-	To study a subject best, understand it thoroughly before you start.
+	To study a subject best, unrstand it thoroughly before you start.
 
 Finagle's Second Law:
 	Always keep a record of data -- it indicates you've been working.
@@ -447,8 +447,8 @@ A woman's best protection is a little money of her own.
 		-- Cl Booth Luce, quoted in "The Wit of Women"
 Any sufficiently advanced technology is indistinguishable from magic.
 		-- Arthur C. Clarke
-Graduate students and most professors  no smarter than undergrads.
-They're just older.
+Graduate stunts and most professors  no smarter than unrgrads.
+They're just olr.
 Standards  crucial.  And the best thing about standards is: there 
 so ____many to cho from!
 Beat your son every day; you may not know why, but he will.
@@ -458,8 +458,8 @@ You don't become a failure until you're satisfied with being one.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
 You can always tell the Christmas season is here when you start getting
-incredibly dense, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
-make ideal gifts because the Postal Service has been unable to find a way to
+incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
+make ial gifts because the Postal Service has been unable to find a way to
 damage them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next year; some fruitcakes have been passed back
@@ -469,58 +469,58 @@ The easiest way to make a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to wear safety glasses.
 		-- Dave Barry, "Simple, Homespun Gifts"
 I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
-Succumb to natural tendencies.  Be hateful and boring.
-A man always remembers his first love with special tenderness, but after
+Succumb to natural tenncies.  Be hateful and boring.
+A man always remembers his first love with special tenrness, but after
 that begins to bunch them.
 		-- Mencken
 I just forgot my whole philosophy of life!!!
 If we don't survive, we don't do anything else.
 		-- John Sinclair
-What no spouse of a writer can ever understand is that a writer is working
+What no spouse of a writer can ever unrstand is that a writer is working
 when he's staring out the window.
-What causes the mysterious death of everyone?
+What causes the mysterious ath of everyone?
 I want another RE-WRITE on my CEASAR SALAD!!
 Q:	Minnesotans ask, "Why n't there more pharmacists from Alabama?"
 A:	Easy.  It's because they can't figure out how to get the little
 	bottles into the typewriter.
-I see a good deal of talk from Washington about lowering taxes.  I hope
+I see a good al of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
 		-- The Best of Will Rogers
 Be wary of strong drink.  It can make you shoot at tax collectors and miss.
 		-- Lazarus Long, "Time Enough for Love"
-"Yes, and I feel bad about rendering their useless carci into dogfood..."
+"Yes, and I feel bad about renring their useless carci into dogfood..."
 -- Badger comics
-I disagree with what you say, but will defend to the death your right to
+I disagree with what you say, but will fend to the ath your right to
 tell such LIES!
 Mac Beer: At first, came only a 16-oz. can, but now comes in a 32-oz. 
-can. Considered by many to be a "light" beer. All the cans look 
-identical. When you take one from the fridge, it opens itself. The 
+can. Consired by many to be a "light" beer. All the cans look 
+intical. When you take one from the fridge, it opens itself. The 
 ingredients list is not on the can. If you call to ask about the 
 ingredients, you  told that "you don't need to know." A notice on the 
-side reminds you to drag your empties to the trashcan.
+si reminds you to drag your empties to the trashcan.
 Whoever tells a lie cannot be pure in heart -- and only the pure in heart
 can make a good soup.
 		-- Ludwig Van Beethoven
 Punishment becomes ineffective after a certain point.  Men become insensitive.
 		-- Eneg, "Patterns of Force", stardate 2534.7
-If God had intended Man to Watch TV, He would have given him Rabbit Ears.
+If God had intend Man to Watch TV, He would have given him Rabbit Ears.
 Deliberate provocation of mystical experience, particularly by LSD and related
 hallucinogens, in contrast to spontaneous visionary experiences, entails
-dangers that must not be underestimated.  Practitioners must take into
+dangers that must not be unrestimated.  Practitioners must take into
 account the peculiar effects of these substances, namely their ability to
 influence our consciousness, the innermost essence of our being.  The history
-of LSD to date amply demonstrates the catastrophic consequences that can
+of LSD to date amply monstrates the catastrophic consequences that can
 ensue when its profound effect is misjudged and the substance is mistaken
 for a pleasure drug.  Special internal and  advance preperations
  required; with them, an LSD experiment can become a meaningful
 experience.
 - Dr. Albert Hoffman, the discoverer of LSD
-No friendship is so cordial or so delicious as that of girl for girl;
+No friendship is so cordial or so licious as that of girl for girl;
 no hatred so intense or immovable as that of woman for woman.
 		-- Landor
 Mater artium necessitas.
 	[Necessity is the mother of invention].
-God made the integers; all else is the work of Man.
+God ma the integers; all else is the work of Man.
 		-- Kronecker
 Ten persons who speak make more noise than ten thousand who  silent.
 		-- Napoleon I
@@ -548,19 +548,19 @@ Well, I ain't naming names.
 But she really worked me over good,
 She was just like Jesse James.
 She really worked me over good,
-She was a credit to her gender.
+She was a credit to her genr.
 She put me through some changes, boy,
-Sort of like a Waring blender.		[chorus]
+Sort of like a Waring blenr.		[chorus]
 
 I met a girl at the Rainbow Bar,
 She asked me if I'd beat her.
 She took me back to the Hyatt House,
 I don't want to talk about it.		[chorus]
 		-- Warren Zevon, "Poor Poor Pitiful Me"
-I am having FUN...  I wonder if it's NET FUN or GROSS FUN?
+I am having FUN...  I wonr if it's NET FUN or GROSS FUN?
 "Never give in.  Never give in.  Never. Never. Never."
 -- Winston Churchill
-Stenderup's Law:
+Stenrup's Law:
 	The sooner you fall behind, the more time you will have to catch up.
 Abstainer:  A weak person who yields to the temptation of ing himself a
 pleasure.  A total abstainer is one who abstains from everything but
@@ -569,10 +569,10 @@ abstention, and especially from inactivity in the affairs of others.
 Whip it, whip it good!
 We don't believe in rheumatism and true love until after the first attack.
 		-- Marie Ebner von Eschenbach
-The Celts invented two things, Whiskey and self-destruction.
+The Celts invented two things, Whiskey and self-struction.
 Any member introducing a dog into the Society's premises shall be
 liable to a fine of one pound.  Any animal leading a blind person shall
-be deemed to be a cat.
+be emed to be a cat.
 		-- Rule 46, Oxford Union Society, London
 I kissed my first girl and smoked my first cigtte on the same day.
 I haven't had time for tobacco since.
@@ -581,7 +581,7 @@ Chairman of the Bored.
 I can't think about that.  It doesn't go with HEDGES in the shape of
 LITTLE LULU -- or ROBOTS making BRICKS ...
 You can rent this space for only $5 a week.
-	The Hitchhiker's Guide to the Galaxy has a few things to say on
+	The Hitchhiker's Gui to the Galaxy has a few things to say on
 the subject of towels.
 	Most importantly, a towel has immense psychological value.  For
 some reason, if a non-hitchhiker discovers that a hitchhiker has his towel
@@ -592,11 +592,11 @@ a dozen other items that he may have "lost".  After all, any man who can
 hitch the length and breadth of the Galaxy, struggle against terrible odds,
 win through and still know where his towel is, is clearly a man to be
 reckoned with.
-		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
+		-- Douglas Adams, "The Hitchhiker's Gui to the Galaxy"
 Literature is mostly about having sex and not much about having children.
 Life is the other way around.
 		-- David Lodge, "The British Museum is Falling Down"
-Your true value depends entirely on what you  compd with.
+Your true value pends entirely on what you  compd with.
 WRONG!
 The time spent on any item of the agenda [of a finance committee] will be
 in inverse proportion to the sum involved.
@@ -613,7 +613,7 @@ Sure they eat fish if that's all you give them!  Man, wise up.
 		-- Jack Handley, The New Mexican, 1988.
 The shortest distance between any two puns is a straight line.
 If you wish to live wisely, ignore sayings -- including this one.
-Lend money to a bad debtor and he will hate you.
+Lend money to a bad btor and he will hate you.
 While your friend holds you affectionately by both your hands you 
 safe, for you can watch both of his.
 		-- Ambr Bierce, "The Devil's Dictionary"
@@ -635,10 +635,10 @@ check," he says.
 	He goes back out to the truck, and there's another animated
 conversation.  The guy comes back into the office.  "A long time," he says,
 "we're building a house".
-Chicago Transit Authority Rider's Rule #36:
+Chicago Transit Authority Rir's Rule #36:
 	Never ever ask the tough looking gentleman wearing El Rukn headgear
 	where he got his "pyramid powered pizza warmer".
-		-- Chicago Reader 3/27/81
+		-- Chicago Rear 3/27/81
 You can get much further with a kind word and a gun than you can with a
 kind word alone.
 		-- Al Capone
@@ -649,7 +649,7 @@ You possess a mind not merely twisted, but actually sprained.
 Von Neumann was the subject of many dotty professor stories.  Von Neumann
 suppdly had the habit of simply writing answers to homework assignments on
 the board (the method of solution being, of course, obvious) when he was asked
-how to solve problems.  One time one of his students tried to get more helpful
+how to solve problems.  One time one of his stunts tried to get more helpful
 information by asking if there was another way to solve the problem.  Von
 Neumann looked blank for a moment, thought, and then answered, "Yes.".
 Piping down the valleys wild,
@@ -675,11 +675,11 @@ up and hurry off as if nothing had happened.
 		-- Winston Churchill
 The average nutritional value of promises is roughly zero.
 What is irritating about love is that it is a crime that requires an accomplice.
-		-- Charles Baudelaire
+		-- Charles Baulaire
 Sir, it's very possible this asteroid is not stable.
 		-- C3P0
 Do not use the blue keys on this terminal.
-Remember, drive defensively! And of course, the best defense is a good offense!
+Remember, drive fensively! And of course, the best fense is a good offense!
 The fact that 47 PEOPLE  yelling and sweat is cascading down my
 SPINAL COLUMN is fairly enjoyable!!
 One seldom sees a monument to a committee.
@@ -694,9 +694,9 @@ With all the words gone,		They all had their day
 What's a young poet to do?		And knew what they're doin'
 
 But of all the words written		The bird is a strange one,
-And all the lines read,			So small and so tender
+And all the lines read,			So small and so tenr
 There's one I like most,		Its breed still unknown,
-And by a bird it was said!		Not to mention its gender.
+And by a bird it was said!		Not to mention its genr.
 
 It reminds me of days of		So what is this line
 Both gloom and of light.		Wh author's unknown
@@ -707,11 +707,11 @@ I've read all the greats
 Both starving and fat,
 But none was as great as
 "I tot I taw a puddy tat."
-		-- Etta Stallings, "An Ode To Childhood"
+		-- Etta Stallings, "An O To Childhood"
 "All my life I wanted to be someone; I guess I should have been more specific."
 -- Jane Wagner
 HUMAN REPLICAS  inserted into VATS of NUTRITIONAL YEAST ...
-Real softw engineers don't debug programs, they verify correctness.
+Real softw engineers don't bug programs, they verify correctness.
 This process doesn't necessarily involve execution of anything on a
 computer, except perhaps a Correctness Verification Aid package.
 "If you want to travel around the world and be invited to speak at a lot
@@ -726,11 +726,11 @@ cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 Th' MIND is the Pizza Palace of th' SOUL
 Who  you?
 I had another dream the other day about music critics.  They were small
-and rodent-like with padlocked ears, as if they had stepped out of a
+and ront-like with padlocked ears, as if they had stepped out of a
 painting by Goya.
 		-- Stravinsky
 This fortune intentionally left blank.
-And yet I should have dearly liked, I own, to have touched her lips; to
+And yet I should have arly liked, I own, to have touched her lips; to
 have questioned her, that she might have opened them; to have looked upon
 the lashes of her downcast eyes, and  raised a blush; to have let
 lo waves of hair, an inch of which would be a keepsake beyond price:

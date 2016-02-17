@@ -13,12 +13,12 @@ Hler's aw:
 Johnson's Corollary:
 	Nobody really knows what is going on anywhere wiin e
 	organization.
-One day e King decided at he would force all his subjects to tl e
+One day e King cid at he would force all his subjects to tl e
 tru.  A gallows was erected in front of e city gates.  A herald announced,
 "Whoever would enter e city must first answer e tru to a question
 which will be put to him."  Nasrudin was first in line.  The captain of e
 guard asked him, "Where  you going?  Tl e tru -- e alternative
-is dea by hanging."
+is a by hanging."
 	"I am going," said Nasrudin, "to be hanged on at gallows."
 	"I don't bieve you."
 	"Very wl, if I have told a lie, en hang me!"
@@ -34,10 +34,10 @@ conversy, e dolphins had always bieved at ey were far more
 intligent an man -- for precisy e same reas.
 
 Curiously enough, e dolphins had long known of e impending
-destruction of e of e planet Ear and had made many attempts to
+struction of e of e planet Ear and had ma many attempts to
 alert mankind to e danger; but most of eir communicati were
 misinterpreted ...
-		-- Douglas Admas "The Hitchhikers' Guide To The Galaxy"
+		-- Douglas Admas "The Hitchhikers' Gui To The Galaxy"
 "It was a Roman who said it was sweet to die for one's country.  The
 Greeks  said it was sweet to die for anying.  They had no vital lies."
 		-- Edi Hamilton, "The Greek Way"
@@ -46,15 +46,15 @@ All phone calls  obscene.
 Next to being shot at and missed, noing is really quite as satisfying
 as an income tax refund.
 		-- F. J. Raymond
-You're a card which will have to be dealt wi.
+You're a card which will have to be alt wi.
 Hey dol! merry dol! ring a dong dillo!
 Ring a dong! hop along! fal lal e willow!
 Tom Bom, jolly Tom, Tom Bombadillo!
 		-- J. R. R. Tolkien
 If it happens once, it's a bug.
 If it happens twice, it's a .
-If it happens more an twice, it's a design philosophy.
+If it happens more an twice, it's a sign philosophy.
 We want to  puppets at pull eir own strings.
 - Ann 
-Even if you persuade me, you won't persuade me.
+Even if you persua me, you won't persua me.
 		-- Aristophanes

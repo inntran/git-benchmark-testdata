@@ -12,40 +12,40 @@ FE buckets of bits on the bus
 
 ad infinitum...
 Yow!  Are we laid back yet?
-"Let us condemn to hellfire all those who disagree with us."
+"Let us conmn to hellfire all those who disagree with us."
 -- militant religionists everywhere
-A father doesn't destroy his children.
+A father doesn't stroy his children.
 		-- Lt. Carolyn Palamas, "Who Mourns for Adonais?",
 		   stardate 3468.1.
 People who claim they don't let little things bother them have never
 slept in a room with a single mosquito.
 	"Many have seen Topaxci, God of the Red Mushroom, and they earn the
-name of shaman," he said.  Some have seen Skelde, spirit of the smoke, and
+name of shaman," he said.  Some have seen Skel, spirit of the smoke, and
 they are called sorcerers.  A few have been privileged to see Umcherrel, the
 soul of the forest, and they are known as spirit masters.  But none have
 seen a box with hundreds of legs that looked at them without eyes, and they
 are known as idio--"
-	The interruption was caused by a sudden screaming noise and a flurry
+	The interruption was caused by a sudn screaming noise and a flurry
 of snow and sparks that blew the fire across the dark hut; there was a brief
-blurred vision and then the opposite wall was blasted aside and the
+blurred vision and then the opposite wall was blasted asi and the
 apparition vanished.
 	There was a long silence.  Then a slightly shorter silence.  Then
 the old shaman said carefully, "You didn't just see two men go through
-upside down on a broomstick, shouting and screaming at each other, did you?"
+upsi down on a broomstick, shouting and screaming at each other, did you?"
 	The boy looked at him levelly.  "Certainly not," he said.
 	The old man heaved a sigh of relief.  "Thank goodness for that," he
 said.  "Neither did I."
 		-- Terry Pratchett, "The Light Fantastic"
-	Brian Kernighan has an automobile which he helped design.
+	Brian Kernighan has an automobile which he helped sign.
 Unlike most automobiles, it has neither speedometer, nor gas gauge, nor
-any of the numerous idiot lights which plague the modern driver.
+any of the numerous idiot lights which plague the morn driver.
 Rather, if the driver makes any mistake, a giant "?" lights up in the
 center of the dashboard.  "The experienced driver", he says, "will
 usually know what's wrong."
 Puns are little "plays on words" that a certain breed of person loves to
 spring on you and then look at you in a certain self-satisfied way to
 indicate that he thinks that you must think that he is by far the cleverest
-person on Earth now that Benjamin Franklin is dead, when in fact what you
+person on Earth now that Benjamin Franklin is ad, when in fact what you
 are thinking is that if this person ever ends up in a lifeboat, the other
 passengers will hurl him overboard by the end of the first day even if they
 have plenty of food and water.
@@ -63,30 +63,30 @@ The appetites they feed, but she makes hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
 Barth's Distinction:
-	There are two types of people: those who divide people into two
+	There are two types of people: those who divi people into two
 	types, and those who don't.
 People never lie so much as after a hunt, during a war, or before an election.
 		-- Otto Von Bismarck
-A platitude is simply a truth repeated till people get tired of hearing it.
+A platitu is simply a truth repeated till people get tired of hearing it.
 		-- Stanley Baldwin
 Bennett's Laws of Horticulture:
 	(1) Houses are for people to live in.
-	(2) Gardens are for plants to live in.
+	(2) Garns are for plants to live in.
 	(3) There is no such thing as a houseplant.
 I may not be totally perfect, but parts of me are excellent.
 		-- Ashleigh Brilliant
 "It's what you learn after you know it all that counts."
--- John Wooden
+-- John Woon
 Many are cold, but few are frozen.
 My opinions may have changed, but not the fact that I am right.
 He that is giddy thinks the world turns round.
 		-- William Shakespeare, "The Taming of the Shrew"
 I am very fond of the company of ladies.  I like their beauty,
-I like their delicacy, I like their vivacity, and I like their silence.
+I like their licacy, I like their vivacity, and I like their silence.
 		-- Samuel Johnson
 Chicago law prohibits eating in a place that is on fire.
 "In the face of entropy and nothingness, you kind of have to pretend it's not
-there if you want to keep writing good code."  -- Karl Lehenbauer
+there if you want to keep writing good co."  -- Karl Lehenbauer
 Miksch's Law:
 	If a string has one end, then it has another end.
 When this load is DONE I think I'll wash it AGAIN ...
@@ -99,7 +99,7 @@ It is more rational to sacrifice one life than six.
 		-- Spock, "The Galileo Seven", stardate 2822.3
 Whatever you want to do, you have to do something else first.
 VMS Beer: Requires minimal user interaction, except for popping the top 
-and sipping.  However cans have been known on occasion to explode, or 
+and sipping.  However cans have been known on occasion to explo, or 
 contain extremely un-beer-like contents.
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
@@ -113,20 +113,20 @@ Wagner's music is better than it sounds.
 Sacred cows make great hamburgers.
 Slang is language that takes off its coat, spits on its hands, and goes to work.
 "Gozer the Gozerian:  As the duly appointed representative of the city,
-county and state of New York, I hereby order you to cease all supernatural
+county and state of New York, I hereby orr you to cease all supernatural
 activities at once and proceed immediately to your place of origin or
 the nearest parallel dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 I've already told you more than I know.
 "The rotter who simpers that he sees no difference between a five-dollar bill 
-and a whip deserves to learn the difference on his own back -- as, I think, he 
+and a whip serves to learn the difference on his own back -- as, I think, he 
 will."
 -- Francisco d'Anconia, in Ayn Rand's _Atlas Shrugged_
 The more we disagree, the more chance there is that at least one of us is right.
-If a putt passes over the hole without dropping, it is deemed to have dropped.
+If a putt passes over the hole without dropping, it is emed to have dropped.
 The law of gravity holds that any object attempting to maintain a position
 in the atmosphere without something to support it must drop.  The law of
-gravity supercedes the law of golf.
+gravity superces the law of golf.
 		-- Donald A. Metz
 For thirty years a certain man went to spend every evening with Mme. ___.
 When his wife died his friends believed he would marry her, and urged
@@ -138,27 +138,27 @@ say no.
 		-- Marcus Valerius Martialis
 Those who believe that they believe in God, but without passion in their
 hearts, without anguish in mind, without uncertainty, without doubt,
-without an element of despair even in their consolation, believe only
-in the God idea, not God Himself.
-- Miguel de Unamuno, Spanish philosopher and writer
+without an element of spair even in their consolation, believe only
+in the God ia, not God Himself.
+- Miguel  Unamuno, Spanish philosopher and writer
 Happiness makes up in height what it lacks in length.
 The absence of labels [in ECL] is probably a good thing.
 		-- T. Cheatham
 	"You have heard me speak of Professor Moriarty?"
 	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"My blushes, Watson," Holmes murmured, in a precating voice.
 	"I was about to say 'as he is unknown to the public.'"
 		-- A. Conan Doyle, "The Valley of Fear"
 If you think before you speak the other guy gets his joke in first.
 A little retrospection shows that although many fine, useful software systems
-have been designed by committees and built as part of multipart projects,
+have been signed by committees and built as part of multipart projects,
 those software systems that have excited passionate fans are those that are
-the products of one or a few designing minds, great designers.  Consider Unix,
+the products of one or a few signing minds, great signers.  Consir Unix,
 APL, Pascal, Modula, the Smalltalk interface, even Fortran; and contrast them
 with Cobol, PL/I, Algol, MVS/370, and MS-DOS.
 		-- Fred Brooks
 Am I SHOPLIFTING?
-Do you have lysdexia?
+Do you have lysxia?
 The only "ism" Hollywood believes in is plagiarism.
 		-- Dorothy Parker
 Why won't sharks eat lawyers?   Professional courtesy.
@@ -176,15 +176,15 @@ A bird in the hand is worth two in the bush.
 		-- Cervantes
 As in certain cults it is possible to kill a process if you know its true name.
 		-- Ken Thompson and Dennis M. Ritchie
-"First things first -- but not necessarily in that order"
+"First things first -- but not necessarily in that orr"
 		-- The Doctor, "Doctor Who"
 Life is like a bowl of soup with hairs floating on it.  You have to
 eat it nevertheless.
 		-- Flaubert
 Did YOU find a DIGITAL WATCH in YOUR box of VELVEETA?
-By protracting life, we do not deduct one jot from the duration of death.
+By protracting life, we do not duct one jot from the duration of ath.
 		-- Titus Lucretius Carus
-I'm sick of being trodden on!  The Elder Gods say they can make me a man!
+I'm sick of being trodn on!  The Elr Gods say they can make me a man!
 All it costs is my soul!  I'll do it, cuz NOW I'M MAD!!!
 - Necronomicomics #1, Jack Herman & Jeff Dee
 If life is a stage, I want some better lighting.
@@ -202,7 +202,7 @@ Life is like a simile.
 "Of course power tools and alcohol don't mix.  Everyone knows power tools aren't
 soluble in alcohol..."
 -- Crazy Nigel
-"Today, of course, it is considered very poor taste to use the F-word
+"Today, of course, it is consired very poor taste to use the F-word
 except in major motion pictures."
 		-- Dave Barry, "$#$%#^%!^%&@%@!"
 And did those feet, in ancient times,
@@ -210,12 +210,12 @@ Walk upon England's mountains green?
 And was the Holy Lamb of God
 In England's pleasant pastures seen?
 And did the Countenance Divine
-Shine forth upon these crowded hills?
-And was Jerusalem builded here
+Shine forth upon these crowd hills?
+And was Jerusalem build here
 Among these dark satanic mills?
 
 Bring me my bow of burning gold!
-Bring me my arrows of desire!
+Bring me my arrows of sire!
 Bring me my spears!  O clouds unfold!
 Bring me my chariot of fire!
 I shall not cease from mental fight,
@@ -262,10 +262,10 @@ and end up with the atomic bomb.
 An ounce of mother is worth a ton of priest.
 		-- Spanish proverb
 interest, n.:
-	What borrowers pay, lenders receive, stockholders own, and
+	What borrowers pay, lenrs receive, stockholrs own, and
 	burned out employees must feign.
 It is difficult to legislate morality in the absence of moral legislators.
-Feeling amorous, she looked under the sheets and cried, "Oh, no,
+Feeling amorous, she looked unr the sheets and cried, "Oh, no,
 it's Microsoft!"
 There's no such thing as a free lunch.
 		-- Milton Friendman
@@ -288,15 +288,15 @@ Ingrate, n.:
 	indigestion.
 Our business is run on trust.  We trust you will pay in advance.
 Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
-The Tao doesn't take sides;
+The Tao doesn't take sis;
 it gives birth to both wins and losses.
-The Guru doesn't take sides;
+The Guru doesn't take sis;
 she welcomes both hackers and lusers.
 
 The Tao is like a stack:
 the data changes but not the structure.
-the more you use it, the deeper it becomes;
-the more you talk of it, the less you understand.
+the more you use it, the eper it becomes;
+the more you talk of it, the less you unrstand.
 
 Hold on to the root.
 Young men, hear an old man to whom old men hearkened when he was young.
@@ -304,7 +304,7 @@ Young men, hear an old man to whom old men hearkened when he was young.
 I truly wish I could be a great surgeon or philosopher or author or anything
 constructive, but in all honesty I'd rather turn up my amplifier full blast
 and drown myself in the noise.
-		-- Charles Schmid, the "Tucson Murderer"
+		-- Charles Schmid, the "Tucson Murrer"
 QOTD:
 	"If I could walk that way, I wouldn't need the cologne, now would I?"
 There's a whole WORLD in a mud puddle!
@@ -313,40 +313,40 @@ We have not inherited the earth from our parents, we've borrowed it from
 our children.
 A priest asked: What is Fate, Master?
 	And the Master answered:
-	It is that which gives a beast of burden its reason for existence.
+	It is that which gives a beast of burn its reason for existence.
 It is that which men in former times had to bear upon their backs.
 	It is that which has caused nations to build byways from City
-to City upon which carts and coaches pass, and alongside which inns
+to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And that is Fate?  said the priest.
-	Fate... I thought you said Freight, responded the Master.
+	Fate... I thought you said Freight, respond the Master.
 	That's all right, said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
-I have sacrificed time, health, and fortune, in the desire to complete these
-Calculating Engines.  I have also declined several offers of great personal
+I have sacrificed time, health, and fortune, in the sire to complete these
+Calculating Engines.  I have also clined several offers of great personal
 advantage to myself.  But, notwithstanding the sacrifice of these advantages
 for the purpose of maturing an engine of almost intellectual power, and after
 expending from my own private fortune a larger sum than the government of
 England has spent on that machine, the execution of which it only commenced,
 I have received neither an acknowledgement of my labors, not even the offer
 of those honors or rewards which are allowed to fall within the reach of men
-who devote themselves to purely scientific investigations...  
+who vote themselves to purely scientific investigations...  
 
 If the work upon which I have bestowed so much time and thought were a mere
 triumph over mechanical difficulties, or simply curious, or if the execution
 of such engines were of doubtful practicability or utility, some justification
 might be found for the course which has been taken; but I venture to assert
 that no mathematician who has a reputation to lose will ever publicly express
-an opinion that such a machine would be useless if made, and that no man
-distinguished as a civil engineer will venture to declare the construction of
+an opinion that such a machine would be useless if ma, and that no man
+distinguished as a civil engineer will venture to clare the construction of
 such machinery impracticable...
 
 And at a period when the progress of physical science is obstructed by that
 exhausting intellectual and manual labor, indispensable for its advancement,
 which it is the object of the Analytical Engine to relieve, I think the 
 application of machinery in aid of the most complicated and abtruse
-calculations can no longer be deemed unworthy of the attention of the country.
+calculations can no longer be emed unworthy of the attention of the country.
 In fact, there is no reason why mental as well as bodily labor should not
 be economized by the aid of machinery.
 - Charles Babbage, Passage from the Life of a Philosopher
@@ -365,13 +365,13 @@ Many of the characters are fools and they are always playing
 tricks on me and treating me badly.
 		-- Jorge Luis Borges, from "Writers on Writing" by Jon Winokur
 "An anthropologist at Tulane has just come back from a field trip to New 
-Guinea with reports of a tribe so primitive that they have Tide but not 
-new Tide with lemon-fresh Borax."
+Guinea with reports of a tribe so primitive that they have Ti but not 
+new Ti with lemon-fresh Borax."
 -- David Letterman
 Nature is by and large to be found out of doors, a location where,
 it cannot be argued, there are never enough comfortable chairs.
 		-- Fran Lebowitz
-Psychoanalysis??  I thought this was a nude rap session!!!
+Psychoanalysis??  I thought this was a nu rap session!!!
 When a man steals your wife, there is no better revenge than to let him
 keep her.
 		-- Sacha Guitry
@@ -380,19 +380,19 @@ kernel yet.  So if it works, you should be doubly impressed.
 (Linus Torvalds, announcing kernel 1.3.3 on the linux-kernel mailing list.)
 QOTD:
 	All I want is more than my fair share.
-I'm definitely not in Omaha!
+I'm finitely not in Omaha!
 If it ain't baroque, don't phiques it.
-A memorandum is written not to inform the reader, but to protect the writer.
+A memorandum is written not to inform the rear, but to protect the writer.
 		-- Dean Acheson
-Rhode's Law:
+Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
-	circuitously proven, derived, implied, inferred, induced, deducted,
+	circuitously proven, rived, implied, inferred, induced, ducted,
 	estimated, or scientifically guessed, it will always for the purpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
 	above, be unilaterally and unequivocally assumed, proclaimed, and
-	adhered to as absolute truth to be undeniably, universally, immutably,
+	adhered to as absolute truth to be unniably, universally, immutably,
 	and infinitely so, until such time as it becomes advantageous to
 	assume otherwise, maybe.
 I just asked myself... what would John DeLorean do?
@@ -409,11 +409,11 @@ You should never wear your best trousers when you go out to fight for
 freedom and liberty.
 		-- Henrik Ibsen
 enhance, v.:
-	To tamper with an image, usually to its detriment.
+	To tamper with an image, usually to its triment.
 BOO!  We changed Coke again!  BLEAH!  BLEAH! 
 Put your brain in gear before starting your mouth in motion.
 Torque is cheap.
-Educational television should be absolutely forbidden.  It can only lead
+Educational television should be absolutely forbidn.  It can only lead
 to unreasonable disappointment when your child discovers that the letters
 of the alphabet do not leap up out of books and dance around with
 royal-blue chickens.
@@ -443,7 +443,7 @@ Norm:  Like it caught me in bed with his wife.
 Coach: How's life, Norm?
 Norm:  Not for the squeamish, Coach.
 		-- Cheers, Friends, Romans, and Accountants
-You can measure a programmer's perspective by noting his attitude on
+You can measure a programmer's perspective by noting his attitu on
 the continuing viability of FORTRAN.
 		-- Alan Perlis
 Never play pool with anyone named "Fats".
@@ -451,7 +451,7 @@ In Boston, it is illegal to hold frog-jumping contests in nightclubs.
 Is something VIOLENT going to happen to a GARBAGE CAN?
 To know Edina is to reject it.
 		-- Dudley Riggs, "The Year the Grinch Stole the Election"
-"... all the modern inconveniences ..."
+"... all the morn inconveniences ..."
 		-- Mark Twain
 	One evening he spoke.  Sitting at her feet, his face raised to her,
 he allowed his soul to be heard.  "My darling, anything you wish, anything
@@ -462,13 +462,13 @@ that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
 Kelly?"
 	He got up.  He said nothing and walked out of the house.  He never
-saw that girl again.  Gail Wynand, who prided himself on never needing a
+saw that girl again.  Gail Wynand, who prid himself on never needing a
 lesson twice, did not fall in love again in the years that followed.
 		-- Ayn Rand, "The Fountainhead"
 Dull women have immaculate homes.
 Magary's Principle:
-	When there is a public outcry to cut deadwood and fat from any
-	government bureaucracy, it is the deadwood and the fat that do
+	When there is a public outcry to cut adwood and fat from any
+	government bureaucracy, it is the adwood and the fat that do
 	the cutting, and the public's services are cut.
 Nothing ever becomes real till it is experienced -- even a
 proverb is no proverb to you till your life has illustrated it.
@@ -479,15 +479,15 @@ Envy, n.:
 	Wishing you'd been born with an unfair advantage,
 	instead of having to try and acquire one.
 Atlanta:
-	An entire city surrounded by an airport.
+	An entire city surround by an airport.
 Conceit causes more conversation than wit.
 		-- LaRouchefoucauld
 The life of a repo man is always intense.
-The devil can cite Scripture for his purpose.
+The vil can cite Scripture for his purpose.
 		-- William Shakespeare, "The Merchant of Venice"
 On the night before her family moved from Kansas to California, the little
 girl knelt by her bed to say her prayers.  "God bless Mommy and Daddy and
-Keith and Kim," she said.  As she began to get up, she quickly added, "Oh,
+Keith and Kim," she said.  As she began to get up, she quickly add, "Oh,
 and God, this is goodbye.  We're moving to Hollywood."
 In the plot, people came to the land; the land loved them; they worked and
 struggled and had lots of children.  There was a Frenchman who talked funny
@@ -498,7 +498,7 @@ crunch he was all courage.  Those novels would make you retch.
 If you laid all of our laws end to end, there would be no end.
 		-- Mark Twain
 Humor in the Court:
-Q: What can you tell us about the truthfulness and veracity of this defendant?
+Q: What can you tell us about the truthfulness and veracity of this fendant?
 A: Oh, she will tell the truth. She said she'd kill that sonofabitch--and 
    she did!
 Running Windows on a Pentium is like having a brand new Porsche but only
@@ -513,7 +513,7 @@ Kludge, n.:
 With Congress, every time they make a joke it's a law; and every time
 they make a law it's a joke.
 		-- Will Rogers
-First law of debate:
+First law of bate:
 	Never argue with a fool.  People might not know the difference.
 	A MODERN FABLE
 
@@ -529,10 +529,10 @@ driving from his suburban bungalow to his job at a large brokerage house
 in his brand new 4x4.  He hated his manipulative boss, his conniving and
 unethical co-workers, his greedy wife, and his snivelling, spoiled
 children.  One day, the aardvark reflected on the meaning of his life and
-his career and on the unchecked, catastrophic decline of his nation, its
-pathetic excuse for leadership, and the complete ineffectiveness of any
+his career and on the unchecked, catastrophic cline of his nation, its
+pathetic excuse for learship, and the complete ineffectiveness of any
 personal effort he could make to change the status quo.  Overcome by a
-wave of utter depression and self-doubt, he decided to take the only
+wave of utter pression and self-doubt, he cid to take the only
 course of action that would bring him greater comfort and happiness: he
 drove to the mall and bought imported consumer electronics goods.
 
@@ -542,21 +542,21 @@ MORAL OF THE STORY:  Invest in foreign consumer electronics manufacturers.
 original joy his falling in love with Ada.
 		-- Nabokov
 "Bureaucracy is the enemy of innovation."
--- Mark Shepherd, former President and CEO of Texas Instruments
+-- Mark Shepherd, former Presint and CEO of Texas Instruments
 That feeling just came over me.
 		-- Albert DeSalvo, the "Boston Strangler"
 "I have recently been examining all the known superstitions of the world,
- and do not find in our particular superstition (Christianity) one redeeming
- feature.  They are all alike founded on fables and mythology."
+ and do not find in our particular superstition (Christianity) one reeming
+ feature.  They are all alike found on fables and mythology."
 -- Thomas Jefferson
 My doctorate's in Literature, but it seems like a pretty good pulse to me.
 Who needs friends when you can sit alone in your room and drink?
-Alimony is like buying oats for a dead horse.
+Alimony is like buying oats for a ad horse.
 		-- Arthur Baer
 union, n.:
 	A dues-paying club workers wield to strike management.
 "Pardon me for breathing, which I never do anyway so I don't know why I bother
- to say it, oh God, I'm so depressed.  Here's another of those self-satisfied
+ to say it, oh God, I'm so pressed.  Here's another of those self-satisfied
  doors.  Life!  Don't talk to me about life."
 -- Marvin the Paranoid Android
 Misery no longer loves company.  Nowadays it insists on it.
@@ -565,13 +565,13 @@ There is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
 discovered in the laboratory, and man may set up business as a creator
-on his own account.  The thing, indeed, is not only conceivable; it is
+on his own account.  The thing, ined, is not only conceivable; it is
 even highly probable.
 - H. L. Mencken, 1930
 "When people are least sure, they are often most dogmatic."
 -- John Kenneth Galbraith
-"The bad reputation UNIX has gotten is totally undeserved, laid on by people
-who don't understand, who have not gotten in there and tried anything."
+"The bad reputation UNIX has gotten is totally unserved, laid on by people
+who don't unrstand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
 Don't know what time I'll be back, Mom.  Probably soon after she throws me out.
 Economists are still trying to figure out why the girls with the least
@@ -586,7 +586,7 @@ have..."
 
    It screamed as the Gubru ship hit a cloud of drifting snowflakes.
 
-- Startide Rising, by David Brin
+- Starti Rising, by David Brin
 	"Yo, Mike!"
 	"Yeah, Gabe?"
 	"We got a problem down on Earth.  In Utah."
@@ -619,13 +619,13 @@ It's about Russia.
 "Laugh while you can, monkey-boy."
 -- Dr. Emilio Lizardo
 There are three possibilities: Pioneer's solar panel has turned away from
-the sun; there's a large meteor blocking transmission; someone loaded Star
-Trek 3.2 into our video processor.
+the sun; there's a large meteor blocking transmission; someone load Star
+Trek 3.2 into our vio processor.
 We can embody the truth, but we cannot know it.
 		-- Yates
 Philogyny recapitulates erogeny; erogeny recapitulates philogyny.
-You have an unusual understanding of the problems of human relationships.
-I've found my niche.  If you're wondering why I'm not there, there was
+You have an unusual unrstanding of the problems of human relationships.
+I've found my niche.  If you're wonring why I'm not there, there was
 this little hole in the bottom ...
 		-- John Croll
 "Don't come back until you have him", the Tick-Tock Man said quietly,
@@ -645,13 +645,13 @@ All most people want is a little more than they'll ever get.
 Azh nazg durbatal^uk, azh nazg gimbatul,
 Azh nazg thrakatal^uk agh burzum ishi krimpatul!
 		-- J. R. R. Tolkien
-For years a secret shame destroyed my peace--
-I'd not read Eliot, Auden or MacNiece.
+For years a secret shame stroyed my peace--
+I'd not read Eliot, Aun or MacNiece.
 But now I think a thought that brings me hope:
 Neither had Chaucer, Shakespeare, Milton, Pope.
 		-- Justin Richardson.
 Linus' Law:
-	There is no heavier burden than a great potential.
+	There is no heavier burn than a great potential.
 If you had any brains, you'd be dangerous.
 micro:
 	Thinker toys.
@@ -659,7 +659,7 @@ He who fights and runs away lives to fight another day.
 Why isn't there a special name for the tops of your feet?
 		-- Lily Tomlin
 Thus spake the master programmer:
-	"When you have learned to snatch the error code from
+	"When you have learned to snatch the error co from
 	the trap frame, it will be time for you to leave."
 		-- Geoffrey James, "The Tao of Programming"
 Any program which runs right is obsolete.
@@ -681,18 +681,18 @@ Watch him clean his long white whiskers (...)
 Of the blood of little critters (...)
 My theology, briefly, is that the universe was dictated but not signed.
 		-- Christopher Morley
-The so-called "desktop metaphor" of today's workstations is instead an
+The so-called "sktop metaphor" of today's workstations is instead an
 "airplane-seat" metaphor.  Anyone who has shuffled a lap full of papers
 while seated between two portly passengers will recognize the difference --
 one can see only a very few things at once.
 		-- Fred Brooks
 Oh yeah?  Well, I remember when sex was dirty and the air was clean.
-	The problem with engineers is that they tend to cheat in order to
+	The problem with engineers is that they tend to cheat in orr to
 get results.
 	The problem with mathematicians is that they tend to work on toy
-problems in order to get results.
+problems in orr to get results.
 	The problem with program verifiers is that they tend to cheat at
-toy problems in order to get results.
+toy problems in orr to get results.
 I have never seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 

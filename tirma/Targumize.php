@@ -1,12 +1,12 @@
 Pete:	Waiter, this meat is bad.
 Waiter:	Who told you?
 Pete:	A little swallow.
-Certain passages in several laws have always defied interpretation and the
+Certain passages in several laws have always fied interpretation and the
 most inexplicable must be a matter of opinion.  A judge of the Court of
 Session of Scotland has sent the editors of this book his candidate which
-reads, "In the Nuts (unground), (other than ground nuts) Order, the expression
+reads, "In the Nuts (unground), (other than ground nuts) Orr, the expression
 nuts shall have reference to such nuts, other than ground nuts, as would
-but for this amending Order not qualify as nuts (unground) (other than ground
+but for this amending Orr not qualify as nuts (unground) (other than ground
 nuts) by reason of their being nuts (unground)."
 		-- Guiness Book of World Res, 1973
 Toto, I don't think we're in Kansas anymore.
@@ -17,14 +17,14 @@ Was there a time when dancers with their fiddles
 In children's circuses could stay their troubles?
 There was a time they could cry over books,
 But time has set its maggot on their track.
-Under the arc of the sky they  unsafe.
+Unr the arc of the sky they  unsafe.
 What's  known is safest in this life.
-Under the skysigns they who have no arms
+Unr the skysigns they who have no arms
 Have cleanest hands, and, as the htless ghost
 Alone's unhurt, so the blind man sees best.
 		-- Dylan Thomas, "Was There A Time"
 paranoia, n.:
-	A healthy understanding of the way the universe works.
+	A healthy unrstanding of the way the universe works.
 I have an existential map.  It has "You  here" written all over it.
 		-- Steven W
 Conformity is the refuge of the unimaginative.
@@ -44,13 +44,13 @@ I don't do it for the money.
 Every word is like an unnecessary stain on silence and nothingness.
 		-- ett
 Justice, n.:
-	A decision in your favor.
+	A cision in your favor.
 The eyes of taxes  upon you.
 Shannon's Observation:
 	Nothing is so frustrating as a bad situation that is beginning to
 	improve.
 186,282 miles per second:
-	It isn't just a good idea, it's the law!
+	It isn't just a good ia, it's the law!
 Psychiatry enables us to correct our faults by confessing our pnts'
 shortcomings.
 		-- aurence J. Peter, "Peter's Principles"
@@ -61,18 +61,18 @@ The goys have proven the following theorem...
 My own life has been spent chronicling the rise and fall of human systems,
 and I am convinced that we  terribly vulnerable.  ...  We should be
 reluctant to turn back upon the frontier of this epoch. Space is indifferent
-to what we do; it has no feeling, no design, no interest in whether or not
+to what we do; it has no feeling, no sign, no interest in whether or not
 we grapple with it. But we cannot be indifferent to space, because the grand,
 slow march of intelligence has brought us, in our generation, to a point
-from which we can explore and understand and utilize it. To turn back now
+from which we can explore and unrstand and utilize it. To turn back now
 would be to  our history, our capabilities.
 		-- James A. Michener
 You could live a better life, if you had a better mind and a better body.
 Work was impossible.  The geeks had broken my spirit.  They had done too
 many things wrong.  It was  like this for Mencken.  He lived like
 a Prussian gambler -- sweating worse than Bryan on some nights and drunker
-than Judas on others.  It was all a dehumanized nightm...and these
-raddled cretins have the gall to complain about my deadlines.
+than Judas on others.  It was all a humanized nightm...and these
+raddled cretins have the gall to complain about my adlines.
 -- Hunter Thompson, "Bad Nerves in Fat City", _Generation of Swine_
 arkinson's aw:
 	All laws  basically false.
@@ -81,11 +81,11 @@ clairvoyant, n.:
 	which is invisible to her patron -- namely, that he is a blockhead.
 		-- Ambr Bierce, "The Devil's Dictionary"
 I saw assie.  It took me four shows to  out why the hairy kid 
-spoke. I mean, he could roll over and all that, but did that deserve a series?
+spoke. I mean, he could roll over and all that, but did that serve a series?
 Not all who own a harp  harpers.
 		-- Marcus Terentius Varro
 101 USES FOR A DEAD MICROPROCESSOR
-	(1)  Sccrow for centipedes
+	(1)  Sccrow for centipes
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
@@ -96,18 +96,18 @@ Not all who own a harp  harpers.
         .
         .
         .
-	(99)  Window garden harrow (pulled behind Tonka tractors)
+	(99)  Window garn harrow (pulled behind Tonka tractors)
 	(100) Killer velcro
 	(101) Currency
 Before Xerox, five carb were the maximum extension of anybody's ego.
 Sorry.  I forget what I was going to say.
-Conversation enriches the understanding, but solitude is the school of genius.
+Conversation enriches the unrstanding, but solitu is the school of genius.
 The street preacher looked so baffled
 When I asked him why he dressed
 With forty pounds of headlines 
 Stapled to his chest.
 But he cursed me when I proved to him
-I said, "Not even you can hide.
+I said, "Not even you can hi.
 You see, you're just like me.
 I hope you're satisfied."
 		-- Bob Dylan
@@ -149,27 +149,27 @@ Finagle's Eleventh aw:
 	No matter what occurs, someone believes it happened acing to
 	his pet theory.
 A Thaum is the basic unit of magical strength.  It has been universally
-established as the amount of magic needed to create one small white pigeon
+established as the amount of magic need to create one small white pigeon
 or three normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
 Its name is Public Opinion.  It is held in reverence.  It settles everything.
 Some think it is the voice of God.
 		-- Mark Twain
-et's send the Russians defective lifestyle accessories!
+et's send the Russians fective lifestyle accessories!
 Q:	How many lawyers does it take to change a light bulb?
 A:	You won't find a lawyer who can change a light bulb.  Now, if
 	you're looking for a lawyer to screw a light bulb...
-Question: Is it better to abide by the rules until they're changed or
+Question: Is it better to abi by the rules until they're changed or
 help speed the change by breaking them?
 You may easily play a joke on a man who likes to argue -- agree with him.
 		-- Ed Howe
 You will forget that you ever knew me.
 I generally avoid temptation unless I can't resist it.
 		-- Mae West
-Under a government which impris any unjustly, the true place for a
+Unr a government which impris any unjustly, the true place for a
 just man is also a prison.
 		-- Henry David Thoreau
-You can tell the ideals of a nation by its advertisements.
+You can tell the ials of a nation by its advertisements.
 		-- Norman Douglas
 Beauty is truth, truth beauty, that is all
 Ye know on th, and all ye need to know.
@@ -178,7 +178,7 @@ From a certain point onward there is no longer any turning back.
 That is the point that must be reached.
 		-- F. Kafka
 If God had wanted us to be concerned for the plight of the toads, he would
-have made them cute and furry. 
+have ma them cute and furry. 
 		-- Dave Barry
 All theoretical chemistry is really physics; and all theoretical chemists 
 know it.
@@ -204,7 +204,7 @@ Computer science:
 	(3) The costly enumeration of the obvious.
 	(4) The boring art of coping with a large number of trivialities.
 	(5) Tautology harnessed in the service of Man at the speed of light.
-	(6) The Post-Turing decline in formal systems theory.
+	(6) The Post-Turing cline in formal systems theory.
 	In the days when Sussman was a novice Minsky once came to him as he
 sat hacking at the PDP-6.
 	"What  you doing?", asked Minsky.
@@ -228,8 +228,8 @@ telling the Airline Pilots Association (in jest) about 21st century aircraft:
 Owe no man any thing...
 Universities  places of knowledge.  The man each bring a little
 		-- Romans 13:8
-At ebb tide I wrote a line upon the sand, and gave it all my ht and all
-my soul.  At flood tide I returned to read what I had inscribed and found my
+At ebb ti I wrote a line upon the sand, and gave it all my ht and all
+my soul.  At flood ti I returned to read what I had inscribed and found my
 ignorance upon the shore.
 		-- Kahlil Gibran
 Here there be tygers.
@@ -249,14 +249,14 @@ QOTD:
 	and the others  more than willing to watch them.
 A budget is just a method of worrying before you spend money, as well
 as afterward.
-How wonderful opera would be if there were no singers.
+How wonrful opera would be if there were no singers.
 Concept, n.:
-	Any "idea" for which an outside cultant billed you more than
+	Any "ia" for which an outsi cultant billed you more than
 	$25,000.
 It is easier to fight for one's s than to live up to them.
 		-- Alfred Adler
 You will inherit some money or a small piece of land.
-He's dead, Jim.
+He's ad, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 You will be imprisoned for contributing your time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
@@ -266,7 +266,7 @@ dangerous.
 		-- Bjarne Stroustrup
 All I want is a warm bed and a kind word and unlimited power.
 		-- Ashleigh Brilliant
-The English instinctively admire any man who has no talent and is modest
+The English instinctively admire any man who has no talent and is most
 about it.
 		-- James Agate, British film and drama critic
 Nine-track tapes and seven-track tapes
@@ -292,7 +292,7 @@ ife is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
 I accept chaos.  I am not sure whether it accepts me.  I know some people
  terrified of the bomb.  But then some people  terrified to be seen
-carrying a modern screen magazine.  Experience teaches us that silence
+carrying a morn screen magazine.  Experience teaches us that silence
 terrifies people the most.
 		-- Bob Dylan
 QOTD:
@@ -354,7 +354,7 @@ There's no real need to do housework -- after four ys it doesn't get
 any worse.
 Relati  simply a tedious pack of people, who haven't the remotest
 knowledge of how to live, nor the smallest instinct about when to die.
-		-- Oscar Wilde, "The Importance of Being Earnest"
+		-- Oscar Wil, "The Importance of Being Earnest"
 Pretend to spank me -- I'm a pseudo-masochist!
 Q:	What's the difference between the 1950's and the 1980's?
 A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
@@ -368,7 +368,7 @@ Because I have got a thing that is unique and new,
 
 And you know two heads  better than one.
 Never make anything simple and efficient when a way can be found to
-make it complex and wonderful.
+make it complex and wonrful.
 You will be Told about it Tomorrow.  Go Home and Prep Thyself.
 Woman was God's second mistake.
 		-- Nietzsche
@@ -380,13 +380,13 @@ I think your opini  reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Texas A&M football coach Jackie Sherrill went to the office of the Dean
-of Academics because he was concerned about his players' mental abilities.
-"My players  just too stupid for me to deal with them", he told the
-unbelieving dean.  At this point, one of his players happened to enter
-the dean's office.  "et me show you what I mean", said Sherrill, and he
+of Acamics because he was concerned about his players' mental abilities.
+"My players  just too stupid for me to al with them", he told the
+unbelieving an.  At this point, one of his players happened to enter
+the an's office.  "et me show you what I mean", said Sherrill, and he
 told the player to run over to his office to see if he was in.  "OK, Coach",
 the player replied, and was off.  "See what I mean?" Sherrill asked.
-"Yeah", replied the dean.  "He could have just picked up this phone and
+"Yeah", replied the an.  "He could have just picked up this phone and
 called you from here."
 The one sure way to make a lazy man look respectable is to put a fishing
 rod in his hand.
@@ -421,27 +421,27 @@ than the estimate the job will cost.
 The confusion of a staff member is measured by the length of his memos.
 		-- New York Times, Jan. 20, 1981
 Keep grandma off the streets -- legalize bingo.
-If there  self-made purgatories, then we all have to live in them.
-		-- Spock, "This Side of Paradise", stardate 3417.7
+If there  self-ma purgatories, then we all have to live in them.
+		-- Spock, "This Si of Paradise", stardate 3417.7
 A woman did what a woman had to, the best way she knew how.
 To do more was impossible, to do less, unthinkable.
 		-- Dirisha, "The Man Who Never Missed"
 ike an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as seatcovers in July, her hair as dark as new tires, her eyes flashing like
-b hubcaps, and her lips as dewy as the beads of  rain on the hood;
-she was a woman driven -- fueled by a single accelerant -- and she needed a
+b hubcaps, and her lips as wy as the beads of  rain on the hood;
+she was a woman driven -- fueled by a single accelerant -- and she need a
 man, a man who wouldn't shift from his views, a man to steer her along the
  road: a man like Alf Romeo.
 		-- Rachel Sheeley, winner
 
-The hair ball blocking the drain of the shower reminded aura she would 
+The hair ball blocking the drain of the shower remind aura she would 
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
 It could have been an organically based disturbance of the brain -- perhaps a
-tumor or a metabolic deficiency -- but after a thorough neurological exam it
-was determined that Byron was simply a jerk.
+tumor or a metabolic ficiency -- but after a thorough neurological exam it
+was termined that Byron was simply a jerk.
 		-- Jeff Jahnke, runner-up
 
 Winners in the 7th Annual Bulwer-ytton Bad Writing Contest.  The contest is
@@ -451,12 +451,12 @@ worst possible novel.
 The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our yawns.
 		-- Helen Rowland
-... the HIGHWAY is made out of IME JEO and my HONDA is a equeued
+... the HIGHWAY is ma out of IME JEO and my HONDA is a equeued
 OYSTER!  Yum!
 I kissed my first girl and smoked my first cigtte on the same day.
 I haven't had time for tobacco since.
 		-- Arturo Toscanini
-History is the version of past events that people have decided to agree on.
+History is the version of past events that people have cid to agree on.
 		-- Napoleon Bonaparte, "Maxims"
 One good reason why computers can do more work than people is that they
  have to stop and answer the phone.
@@ -480,7 +480,7 @@ his shining helm afar was seen;
 the countless stars of heaven's field
 were mirrored in his silver shield.
 
-But long ago he rode away,
+But long ago he ro away,
 and where he dwelleth none can say;
 for into darkness fell his star
 in Mordor where the shadows .
@@ -507,7 +507,7 @@ Or do not.
 There is no try.
 All things  either sacred or profane.
 The former to ecclesiasts bring gain;
-The latter to the devil appertain.
+The latter to the vil appertain.
 -- Dumbo Omohundro
 Time will end all my troubles, but I don't always approve of Time's methods.
 An Hacker there was, one of the finest sort
@@ -519,19 +519,19 @@ Clicking and feeping wind as cl,
 Aye, and as loud as does the machine room bell
 Where my lord Hacker was Prior of the cell.
 The Rule of good St Sa or St Doeppnor
-As old and strict he tended to ignore;
+As old and strict he tend to ignore;
 He let go by the things of yesterday
-And took the modern world's more spacious way.
+And took the morn world's more spacious way.
 He did not rate that text as a plucked hen
 Which says that Hackers  not holy men.
-And that a hacker underworked is a mere
+And that a hacker unrworked is a mere
 Fish out of water, flapping on the pier.
 That is to say, a hacker out of his cloister.
 That was a text he held not worth an oyster.
 And I agreed and said his views were sound;
 Was he to study till his head wend round
 Poring over books in the cloisters?  Must he toil
-As Andy bade and till the very ?
+As Andy ba and till the very ?
 Was he to leave the world upon the shelf?
 et Andy have his labor to himself!
 		-- Chaucer
@@ -547,11 +547,11 @@ Don't go!!  I AM Howard Cll! ... And I DON'T know Polish jokes!!
 You will have a long and unpleasant discussion with your supervisor.
 He played the king as if afraid someone else would play the ace.
 		-- John Mason Brown, drama critic
-If you can't understand it, it is intuitively obvious.
+If you can't unrstand it, it is intuitively obvious.
 If you marry a man who cheats on his wife, you'll be married to a man who
 cheats on his wife.
-		-- Ann anders
-		Accidents cause History.
+		-- Ann anrs
+		Accints cause History.
 
 If Sigismund Unbuckle had taken a walk in 1426 and met Wat Tyler, the
 Peasant's Revolt would  have happened and the motor car would not
@@ -559,36 +559,36 @@ have been invented until 2026, which would have meant that all the oil
 could have been used for lamps, thus saving the electric light bulb and
 the whale, and nobody would have caught Moby Dick or Billy Budd.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
-Brandy Davis, an outfielder and teammate of mine with the Pittsburgh Pirates,
+Brandy Davis, an outfielr and teammate of mine with the Pittsburgh Pirates,
 is my choice for team captain.  Cincinnatti was beating us 3-1, and I led
 off the bottom of the eighth with a walk.  The next hitter banged a hard
-single to  field.  Feeling the wind at my back, I rounded second and
+single to  field.  Feeling the wind at my back, I round second and
 kept going, sliding safely into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
 bat, our manager put in the fast Brandy Davis to run for the player at first.
 Even with Kiner hitting and a change to win the game with a home run, Brandy
-took off for second and made it.  Now we had runners at second and third.
+took off for second and ma it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
-start to take a lead.  All of a sudden, here he comes.  He makes a great slide
+start to take a lead.  All of a sudn, here he comes.  He makes a great sli
 into third, and I scream, "Brandy, where  you going?"  He looks up, and
 shouts, "Back to second if I can make it."
 		-- Joe Garala, "It's Anybody's Ball Game"
-Modern art is what happens when painters stop looking at girls and persuade
-themselves that they have a better idea.
+Morn art is what happens when painters stop looking at girls and persua
+themselves that they have a better ia.
 		-- John Ciardi
-Digital circuits  made from analog parts.
+Digital circuits  ma from analog parts.
 		-- Don Vonada
-An effective way to deal with predators is to taste terrible.
+An effective way to al with predators is to taste terrible.
 The sheep died in the wool.
 If you  too busy to read, then you  too busy.
-If your happiness depends on what somebody else does, I guess you do
+If your happiness pends on what somebody else does, I guess you do
 have a problem.
 		-- Richard Bach, "Illusi"
 Remember: Silly is a state of Mind, Stupid is a way of ife.
 		-- Dave Butler
-Conversation enriches the understanding, but solitude is the school of genius.
+Conversation enriches the unrstanding, but solitu is the school of genius.
 I was in Vegas last week. I was at the roulette table, having a lengthy
-argument about what I cidered an Odd number.
+argument about what I cired an Odd number.
 		-- Steven W
 	"Hey, Sam, how about a loan?"
 	"Whattaya need?"
@@ -600,14 +600,14 @@ argument about what I cidered an Odd number.
 "If you lived today as if it were your last, you'd buy up a box of rockets and 
 fire them all off, wouldn't you?"
 -- Gon Keillor
-A would-be disciple came to Nasrudin's hut on the mountain-side.  Knowing
+A would-be disciple came to Nasrudin's hut on the mountain-si.  Knowing
 that every action of such an enlightened one is significant, the seeker
 watched the teacher clly.  "Why do you blow on your hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why  you doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
-to arrive at two different results -- hot and cold -- the disciple departed.
-"I'll rob that rich person and give it to some poor deserving .
+to arrive at two different results -- hot and cold -- the disciple parted.
+"I'll rob that rich person and give it to some poor serving .
 That will *prove* I'm Robin Hood."
 		-- Daffy Duck, "Robin Hood Daffy", [1958, Chuck Jones]
 How sharper than a serpent's tooth is a sister's "See?"

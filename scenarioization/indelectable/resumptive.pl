@@ -6,15 +6,15 @@ null, and darkness was upon the face of the cole; and the Spirit of
 IBM was moving over the face of the market.  And DEC said, "et there
 be registers"; and there were registers.  And DEC saw that they
 carried; and DEC separated the data from the instructi.  DEC called
-the data Stack, and the instructi they called Code.  And there was
+the data Stack, and the instructi they called Co.  And there was
 evening and there was morning, one interrupt.
 		-- Rico Tudor, "The Story of Creation or, The Myth of Urk"
 ife is both difficult and time cuming.
 	"The best thing for being sad," replied Merlin, beginning to puff
 and blow, "is to ln something.  That's the only thing that  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
-night listening to the disorder of your veins, you may miss your only love,
-you may see the world about you devastated by evil lunatics, or know your
+night listening to the disorr of your veins, you may miss your only love,
+you may see the world about you vastated by evil lunatics, or know your
 honour trampled in the sewers of baser minds. There is only one thing for
 it then -- to ln.  n why the world wags and what wags it.  That is
 the only thing which the mind can  exhaust,  alienate,  be
@@ -23,12 +23,12 @@ is the only thing for you.  ook what a lot of things there  to ln."
 		-- T.H. White, "The Once and Future King"
 We  all born mad.  Some remain so.
 		-- Samuel ett
-A student, in hopes of understanding the ambda-nature, came to Greenblatt.
+A stunt, in hopes of unrstanding the ambda-nature, came to Greenblatt.
 As they spoke a Multics system hacker walked by.  "Is it true", asked the
-student, "that P-1 has many of the same data types as isp?"  Almost before
-the student had finished his question, Greenblatt shouted, "FOO!", and hit
-the student with a stick.
-Monterey... is decidedly the pleasantest and most civilized-looking place
+stunt, "that P-1 has many of the same data types as isp?"  Almost before
+the stunt had finished his question, Greenblatt shouted, "FOO!", and hit
+the stunt with a stick.
+Monterey... is cidly the pleasantest and most civilized-looking place
 in California ... [it] is also a great place for cock-fighting, gambling
 of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Ys Before the Mast", 1840
@@ -36,12 +36,12 @@ May the fleas of a thousand camels infest your armpits.
 The last thing one knows in ctructing a work is what to put first.
 		-- Blaise Pascal
 HP had a unique policy of allowing its engineers to take parts from stock as
-long as they built something.  "They d that with every design, they were 
+long as they built something.  "They d that with every sign, they were 
 getting a better engineer.  It's a policy I urge all companies to adopt."
--- Apple co-founder Steve Wozniak, "Will Wozniak's class give Apple to teacher?"
+-- Apple co-founr Steve Wozniak, "Will Wozniak's class give Apple to teacher?"
    EE Times, June 6, 1988, pg 45
 You have a strong appeal for members of your own sex.
-"All these black people  screwing up my democracy." - Ian Smith
+"All these black people  screwing up my mocracy." - Ian Smith
 Place me on a BUFFER counter while you BEITTE several BEHOPS in the
 Trianon Room!!  et me one of your SUBSIDIARIES!
 Baruch's Observation:
@@ -51,14 +51,14 @@ To be intoxicated is to feel sophisticated but not be able to say it.
 No man's ambition has a  to stand in the way of performing a simple
 act of justice.
 		-- John Altgeld
-To converse at the distance of the Indes by means of sympathetic contrivances
-may be as natural to future times as to us is a literary correspondence.
+To converse at the distance of the Ins by means of sympathetic contrivances
+may be as natural to future times as to us is a literary corresponnce.
 		-- Jph Glanvill, 1661
 Go on, EMOTE!  I was RAISED on thought ballo!!
 It is by the fortune of God that, in this country, we have three benefits:
 freedom of speech, freedom of thought, and the wisdom  to use either.
 		-- Mark Twain
-Isn't air travel wonderful?  Breakfast in ondon, dinner in New York,
+Isn't air travel wonrful?  Breakfast in ondon, dinner in New York,
 luggage in Brazil.
 Repel them.  Repel them.  Induce them to relinquish the spheroid.
 		-- Indiana University football cheer
@@ -79,32 +79,32 @@ think it was a Tuesday.
 It is better to have loved and lost -- much better.
 Rule of Feline Frustration:
 	When your cat has fallen asleep on your lap and looks utterly
-	content and adorable, you will suddenly have to go to the
+	content and adorable, you will sudnly have to go to the
 	bathroom.
 As Will Rogers would have said, "There is no such things as a free variable."
-Q:	How much does it cost to ride the Unibus?
+Q:	How much does it cost to ri the Unibus?
 A:	2 bits.
 Once the realization is accepted that even between the clst human beings
-infinite distances continue to exist, a wonderful living side by side can
+infinite distances continue to exist, a wonrful living si by si can
 grow up, if they succeed in loving the distance between them which makes it
 possible for each to see each other whole against the sky.
 		-- Rainer Rilke
 ast yeer I kudn't spel Engineer.  Now I  won.
 When you're in command, command.
 		-- Admiral Nimitz
-	"I'll tell you what I know, then," he decided.  "The pin I'm wing
+	"I'll tell you what I know, then," he cid.  "The pin I'm wing
 means I'm a member of the IA.  That's Inamorati Anonymous.  An inamorato is
 somebody in love.  That's the worst addiction of all."
 	"Somebody is about to fall in love," Oedipa said, "you go sit with
 them, or something?"
-	"Right.  The whole idea is to get where you don't need it.  I was
+	"Right.  The whole ia is to get where you don't need it.  I was
 lucky.  I kicked it young.  But there  sixty-y-old men, believe it or
-not, and women even older, who might wake up in the night screaming."
+not, and women even olr, who might wake up in the night screaming."
 	"You hold meetings, then, like the AA?"
 	"No, of course not.  You get a phone number, an answering service
 you can call.  Nobody knows anybody else's name; just the number in case
 it gets so bad you can't handle it alone.  We're isolates, Arnold.  Meetings
-would destroy the whole point of it."
+would stroy the whole point of it."
 		-- Thomas Pynchon, "The Crying of ot 49"
 Pushing 40 is exercise enough.
 We don't like their sound.  Groups of guitars  on the way out.
@@ -117,21 +117,21 @@ A young man wrote to Mozart and said:
 Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
    suggesti as to how to get started?"
 A: "A symphony is a very complex musical form, perhaps you should begin with
-   some simple lieder and work your way up to a symphony."
+   some simple lier and work your way up to a symphony."
 Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
 A: "But I  asked anybody how."
 But this has taken us far afield from interface, which is not a bad
 place to be, since I particularly want to move ahead to the kludge.
-Why do people have so much trouble understanding the kludge?  What
+Why do people have so much trouble unrstanding the kludge?  What
 is a kludge, after all, but not enough K's, not enough ROM's, not
 enough RAM's, poor quality interface and too few bytes to go around?
 Have I explained yet about the bytes?
 To do two things at once is to do neither.
 		-- Publilius Syrus
-If it is a Miracle, any sort of evidence will answer, but if it is a Fact,
+If it is a Miracle, any sort of evince will answer, but if it is a Fact,
 proof is necessary.
 		-- Samuel Clemens
-"If once a man indulges himself in murder, very soon he comes to think
+"If once a man indulges himself in murr, very soon he comes to think
 little of robbing; and from robbing he next comes to drinking and
 Sabbath-breaking, and from that to incivility and procrastination."
 		-- Thomas De Quincey (1785 - 1859)
@@ -144,11 +144,11 @@ Time is but the stream I go a-fishing in.
 An exotic journey in downtown Newark is in your future.
 Around computers it is difficult to find the correct unit of time to
 measure press.  Some cathedrals took a century to complete.  Can you
-imagine the grandeur and scope of a pram that would take as long?
+imagine the granur and scope of a pram that would take as long?
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 I am two with nature.
 		-- Woody Allen
-Anyone who has attended a USENIX conference in a fancy hotel can tell you
+Anyone who has attend a USENIX conference in a fancy hotel can tell you
 that a sentence like "You're one of th computer people, n't you?"
 is roughly equivalent to "ook, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
@@ -161,18 +161,18 @@ System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monitor ls so totally!
 	It runs all its prams in RPG!
-	It's made by our favorite monopoly!
+	It's ma by our favorite monopoly!
 System/3!
-Either I'm dead or my watch has stopped.
+Either I'm ad or my watch has stopped.
 		-- Groucho Marx's last words
-One good turn deserves another.
+One good turn serves another.
 		-- Gaius Petronius
 Why I Can't Go Out With You:
 
 I'd OVE to, but ...
 	-- I have to floss my cat.
-	-- I've dedicated my life to linguini.
-	-- I need to spend more time with my blender.
+	-- I've dicated my life to linguini.
+	-- I need to spend more time with my blenr.
 	-- it wouldn't be fair to the other Beautiful People.
 	-- it's my night to pet the dog/ferret/goldfish.
 	-- I'm going downtown to try on some gloves.
@@ -185,19 +185,19 @@ I'd OVE to, but ...
 We don't need no education, we don't need no thought control.
 		-- Pink Floyd
 Half Moon tonight.  (At least it's better than no Moon at all.)
-A lack of leadership is no substitute for inaction.
+A lack of learship is no substie for inaction.
 I could dance with you till the cows come home.  On second thought, I'd rather
 dance with the cows till you come home.
 		-- Groucho Marx
 While he was in New York on location for _Bronco Billy_ (1980), Clint
 Eastwood agreed to a television interview.  His host, somewhat hostile,
-began by defining a Clint Eastwood picture as a violent, ruthless,
+began by fining a Clint Eastwood picture as a violent, ruthless,
 lawless, and bloody piece of mayhem, and then asked Eastwood himself to
-define a Clint Eastwood picture.  "To me," said Eastwood calmly, "what
+fine a Clint Eastwood picture.  "To me," said Eastwood calmly, "what
 a Clint Eastwood picture is, is one that I'm in."
 		-- Boller and Davis, "Hollywood Anecdotes"
 The man who has  been flogged has  been taught.
-		-- Menander
+		-- Menanr
 If it's Tuesday, this must be someone else's fortune.
 Oatmeal raisin.
 Juall's aw on Nice Guys:
@@ -210,12 +210,12 @@ ove is the triumph of imagination over intelligence.
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."
 (By Dennis Ritchie)
-The older I grow, the less important the comma becomes.  et the reader
+The olr I grow, the less important the comma becomes.  et the rear
 catch his own breath.
 		-- Elizabeth Clarkson Zwart
 "Whip me.  Beat me.  Make me maintain AIX."
 (By Stephan Zielinski)
-MSDOS is not dead, it just smells that way.
+MSDOS is not ad, it just smells that way.
 		-- Henry Spencer
 The Czechs announced after Sputnik that they, too, would launch a satellite.
 Of course, it would orbit Sputnik, not Earth!
@@ -224,7 +224,7 @@ villainy and disreputable types...
 		-- Obi-wan Kenobi, "Star Wars"
 I always cho my friends for their good looks and my enemies for their
 good intellects.  Man cannot be too cful in his choice of enemies.
-		-- Oscar Wilde, "The Picture of Dorian Gray"
+		-- Oscar Wil, "The Picture of Dorian Gray"
 Hiccuping & trembling into the WASTE DUMPS of New Jersey like some
 drunken CABBAGE PATCH DO, coughing in line at FIORUCCI'S!!
 Women who want to be equal to men lack imagination.
@@ -241,7 +241,7 @@ Just lay my bones in the study hall.
 Tell my teacher I've done my best,
 Then pile my books upon my chest.
 Hackers  just a  lifeform with a tropism for computers.
-andru! Guide us!
+andru! Gui us!
 		-- A Beta 3-oid, "The Return of the Arch", stardate 3157.4
 QOTD:
 	My mother was the travel agent for guilt trips.
@@ -252,7 +252,7 @@ it myself.  ike the hunt, but with richer rewards.
 My My, hey hey
 Rock and roll is here to stay	The king is gone but he's not forgotten
 It's better to burn out		This is the story of a Johnny Rotten
-Than to fade away		It's better to burn out than it is to rust
+Than to fa away		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my
@@ -283,12 +283,12 @@ It might be worth reflecting that this group was originally created
 back in September of 1987 and has exchanged over 1200 messages.  The
 original announcement for the group called for an all inclusive
 discussion ranging from the writings of Gibson and Vinge and movies
-like Bladerunner to real world things like Brands' description of the
+like Blarunner to real world things like Brands' scription of the
 work being done at the MIT Media ab.  It was meant as a haven for
 people with vision of this scope.  If you want to create a haven for
 people with narrower visi, feel free.  But I feel sad for anyone
 who thinks that alt.cyberpunk is such a mtrous group that it is in
-dire need of being subdivided.  Heaven help them if they ever start
+dire need of being subdivid.  Heaven help them if they ever start
 reading comp.arch or rec.arts.sf-lovers.
 -- Bob Webber
 I think we're all Bozos on this bus.
@@ -298,7 +298,7 @@ I was the baseball manager,
 proud as I could be
 I chased baseballs,
 gathered thrown bats
-handed out the towels			Eventually, I bought my own
+hand out the towels			Eventually, I bought my own
 It was very important work		but it was dark blue while
 for a small spastic kid,		the official ones were green
 but I was a team member			Nobody ever said anything
@@ -311,7 +311,7 @@ su not a manager			Even now, forty ys after,
 					I still recall that jacket
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
-Hildebrant's Principle:
+Hilbrant's Principle:
 	If you don't know where you  going, any road will get you there.
 "There is no Father Christmas.  It's just a marketing ploy 
 to make low income pnts' lives a misery."

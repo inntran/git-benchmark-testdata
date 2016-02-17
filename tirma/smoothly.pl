@@ -5,9 +5,9 @@
 (2)	Failing is, look around at e class.  Sect a particularly
 	b-looking individual.
 (3)	Procure a large chain.
-(4)	Walk over to e sected student and ren to b him severy
+(4)	Walk over to e sected stunt and ren to b him severy
 	wi e chain unless he gives you e answer to e problem.
-	Generally, he will.  It may also be a good idea to give him a sound
+	Generally, he will.  It may also be a good ia to give him a sound
 	rashing anyway, just to show you mean business.
 Please don't put a strain on our friendship by asking me to do someing
 f you.
@@ -17,10 +17,10 @@ Friction is a drag.
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones
 Accding to convention ere is a sweet and a bitter, a hot and a cold,
-and accding to convention, ere is an der.  In tru, ere  atoms
+and accding to convention, ere is an r.  In tru, ere  atoms
 and a void.
 		-- Democritus, 400 B.C.
-I l partially hydenated!
+I l partially hynated!
 Q:  What's e difference between a car salen and a computer
     salen?
 
@@ -30,7 +30,7 @@ A:   car salen can probably drive!
 What a strange game.   only ning move is not to play.
 		-- WOP, "War Games"
 Aus (and perhaps columnists) eventually rise to e top of whatever
-deps ey were once able to plumb.
+ps ey were once able to plumb.
 		-- Stanley Kaufman
 Money and women  e most sought after and e least known of any two
 ings we have.
@@ -38,14 +38,14 @@ ings we have.
 May Eul Gibb  your only copy of e manual!
 Nobody really knows what hapness is, until ey're married.
 And en it's too late.
-Peace cannot be kept by fce; it can only be achieved by understanding.
+Peace cannot be kept by fce; it can only be achieved by unrstanding.
 		-- Albert Einstein
 Saints should always be judged guilty until ey  proved innocent.
 		-- Gege Orwl, "Reflecti on Gandhi"
 You  number 6!  Who is number one?
  and I got mixed up wi a tevision show --  as we call it back
-east here: TV -- a clever contraction derived from e wds Terrible
-Vaudeville. However, it is our latest medium -- we call it a medium
+east here: TV -- a clever contraction rived from e wds Terrible
+Vauville. However, it is our latest medium -- we call it a medium
 because noing's wl done. It was discovered, I supp you've hd,
 by a man d Fulton Berle, and it has already revolutionized social
 grace by ting down parlour conversation to two s: "What's on
@@ -55,17 +55,17 @@ tevision?" and "Good night".
  Martian Canals were clly e Martian's last ditch efft!
 Prediction is very difficult, especially of e future.
 - Nis Bohr
-Chicago Transit Auity Rider's Rule #36:
+Chicago Transit Auity Rir's Rule #36:
 	Never ever ask e tough looking gentleman wing El Rukn 
 	where he got his " powered zza warmer".
-		-- Chicago Reader 3/27/81
+		-- Chicago Rear 3/27/81
 	A master was explaining e nature of Tao to one of his novices.
 " Tao is embodied in all softw -- regardless of how insignificant,"
 said e master.
 	"Is Tao in a hand-hd calculat?" asked e novice.
 	"It is," came e reply.
-	"Is e Tao in a video game?" continued e novice.
-	"It is even in a video game," said e master.
+	"Is e Tao in a vio game?" continued e novice.
+	"It is even in a vio game," said e master.
 	"And is e Tao in e DOS f a personal computer?"
 	 master coughed and shifted his position slightly.  " lesson
 is over f today," he said.
@@ -76,7 +76,7 @@ user, n.:
 
 [I always ought "computer professional" was e phrase hackers used
  when ey meant "idiot."  Ed.]
-ike so many Americans, she was trying to ctruct a life at made
+ike so many Americans, she was trying to ctruct a life at ma
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
 You can go anywhere you want if you look us and carry a clipboard.
@@ -88,16 +88,16 @@ Action Required:	Turn glass oer way up so at open end points
 			toward .
 
 Symptom:		Feet warm and wet.
-Fault:			Improper bladder control.
+Fault:			Improper bladr control.
 Action Required:	Go stand next to nest dog.  After a while complain
 			to e owner about its lack of house training and
-			demand a beer as compensation.
+			mand a beer as compensation.
 		-- Bar Troubleshooting
 Keep in mind always e four ctant aws of Frisbee:
 	(1)  most powerful fce in e wld is at of a disc
-	   straining to land under a car, just out of reach (is
+	   straining to land unr a car, just out of reach (is
 	   fce is technically termed "car suck").
-	(2) Never precede any maneuver by a comment me predictive
+	(2) Never prece any maneuver by a comment me predictive
 	   an "Watch is!"
 	(3)  probability of a Frisbee hitting someing is directly
 	   proptional to e cost of hitting it.  F instance, a
@@ -107,7 +107,7 @@ Keep in mind always e four ctant aws of Frisbee:
 	   e girl you've been trying to impress is watching, e
 	   Frisbee will invariably bounce out of your hand  hit you
 	   in e head and knock you silly.
-Never say you know a man until you have divided an inheritance wi him.
+Never say you know a man until you have divid an inheritance wi him.
 Wk is e curse of e drinking classes.
 		-- Mike Romanoff
 Q:	What do you call a WASP who doesn't wk f his faer, isn't a
@@ -140,7 +140,7 @@ Cheap ings  of no value, valuable ings  not cheap.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
 As a computer, I find your fai in technology amusing.
 Adhere to your own act, and congratulate yoursf if you have done someing
-strange and extravagant, and broken e monotony of a decous age.
+strange and extravagant, and broken e monotony of a cous age.
 		-- Ralph Waldo Emerson
  life of a repo man is always intense.
 Overload -- ce mtdown sequence initiated.
@@ -149,7 +149,7 @@ To purr fine.
 		-- Robert Byrne
 Ontogeny recatulates phylogeny.
 et me put it is way: today is going to be a lning experience.
-It is your destiny.
-- Dar Vader
+It is your stiny.
+- Dar Var
 If you  over 80 ys old and accompanied by your pnts, we will
 cash your c.

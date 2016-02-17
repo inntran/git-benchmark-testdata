@@ -4,7 +4,7 @@ yourself, `There's no place like home.'
 It'll be a nice world if they ever get it finished.
 Once a woman has given you her heart you can never get rid of the rest of her.
 		-- Vanbrugh
-"Stan and I thought that this experiment was so stupid, we decided to finance 
+"Stan and I thought that this experiment was so stupid, we cid to finance 
  it ourselves."
 -- Martin Fleischmann, co-discoverer of room-temperature fusion (?)
 There must be at least 500,000,000 rats in the United States; of course,
@@ -43,9 +43,9 @@ the right thing to do.  Now, it is not only necessary to do the right thing,
 but to do it in the right way and the only problem you have is what is the
 right thing to do and what is the right way to do it.  That is the problem.
 But this economy of ours is not so simple that it obeys to the opinion of
-bias or the pronouncements of any particular individual, even to the President.
-This is an economy that is made up of 173 million people, and it reflects
-their desires, they're ready to buy, they're ready to spend, it is a thing
+bias or the pronouncements of any particular individual, even to the Presint.
+This is an economy that is ma up of 173 million people, and it reflects
+their sires, they're ready to buy, they're ready to spend, it is a thing
 that is too complex and too big to be affected adversely or advantageously
 just by a few words or any particular -- say, a little this and that, or even
 a panacea so alleged.
@@ -69,26 +69,26 @@ new world.  We will see it when we believe it.
 		-- Saul Alinsky
 Deprive a mirror of its silver and even the Czar won't see his face.
 In Columbia, Pennsylvania, it is against the law for a pilot to tickle
-a female flying student under her chin with a feather duster in order
+a female flying stunt unr her chin with a feather duster in orr
 to get her attention.
 It's great to be smart 'cause then you know stuff.
 How much of their influence on you is a result of your influence on them?
 One day this guy is finally fed up with his middle-class existence and
-decides to do something about it.  He calls up his best friend, who is a
+cis to do something about it.  He calls up his best friend, who is a
 mathematical genius.  "Look," he says, "do you suppose you could find some
 way mathematically of guaranteeing winning at the race track?  We could
 make a lot of money and retire and enjoy life."  The mathematician thinks
 this over a bit and walks away mumbling to himself.
 	A week later his friend drops by to ask the genius if he's had any
 success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
-actually I do have an idea, and I'm reasonably sure that it will work, but
-there a number of details to be figured out.
+actually I do have an ia, and I'm reasonably sure that it will work, but
+there a number of tails to be figured out.
 	After the second week the mathematician appears at his friend's house,
 looking quite a bit rumpled, and announces, "I think I've got it! I still have
 some of the theory to work out, but now I'm certain that I'm on the right
 track."
 	At the end of the third week the mathematician wakes his friend by
-pounding on his door at three in the morning.  He has dark circles under his
+pounding on his door at three in the morning.  He has dark circles unr his
 eyes.  His hair hasn't been combed for many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
 behind his ears and an almost maniacal expression on his face.  "WE CAN DO
@@ -99,7 +99,7 @@ It is very difficult to prophesy, especially when it pertains to the future.
 There are three things men can do with women: love them, suffer for them,
 or turn them into literature.
 		-- Stephen Stills
-If God had intended Man to Watch TV, He would have given him Rabbit Ears.
+If God had intend Man to Watch TV, He would have given him Rabbit Ears.
 If someone were to ask me for a short cut to sensuality, I would
 suggest he go shopping for a used 427 Shelby-Cobra.  But it is only
 fair to warn you that of the 300 guys who switched to them in 1966,
@@ -121,13 +121,13 @@ America was discovered by Amerigo Vespucci and was named after him, until
 people got tired of living in a place called "Vespuccia" and changed its
 name to "America".
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
-Quod erat demonstrandum.
-	[Thus it is proven.  For those who wondered WTF QED means.]
+Quod erat monstrandum.
+	[Thus it is proven.  For those who wonred WTF QED means.]
 You will be married within a year, and divorced within two.
-My own business always bores me to death; I prefer other people's.
-		-- Oscar Wilde
+My own business always bores me to ath; I prefer other people's.
+		-- Oscar Wil
 A billion here, a billion there -- pretty soon it adds up to real money.
-		-- Sen. Everett Dirksen, on the U.S. defense budget
+		-- Sen. Everett Dirksen, on the U.S. fense budget
 It's all in the mind, ya know.
 To teach is to learn twice.
 		-- Joseph Joubert
@@ -142,18 +142,18 @@ as easy to get programs right as we had thought.  Debugging had to be
 discovered.  I can remember the exact instant when I realized that a large
 part of my life from then on was going to be spent in finding mistakes in
 my own programs.
-		-- Maurice Wilkes, designer of EDSAC, on programming, 1949
+		-- Maurice Wilkes, signer of EDSAC, on programming, 1949
 'Tis the dream of each programmer,
 Before his life is done,
 To write three lines of APL,
 And make the damn things run.
-It's a lot of fun being alive ... I wonder if my bed is made?!?
-You must include all income you receive in the form of money, property
+It's a lot of fun being alive ... I wonr if my bed is ma?!?
+You must inclu all income you receive in the form of money, property
 and services if it is not specifically exempt.  Report property (goods)
-and services at their fair market values.  Examples include income from
-bartering or swapping transactions, side commissions, kickbacks, rent
+and services at their fair market values.  Examples inclu income from
+bartering or swapping transactions, si commissions, kickbacks, rent
 paid in services, illegal activities (such as stealing, drugs, etc.),
-cash skimming by proprietors and tradesmen, "moonlighting" services,
+cash skimming by proprietors and trasmen, "moonlighting" services,
 gambling, prizes and awards.  Not reporting such income can lead to
 prosecution for perjury and fraud.
 		-- Excerpt from Taxachussetts income tax forms
@@ -161,10 +161,10 @@ I own seven-eighths of all the artists in downtown Burbank!
 Nobody knows the trouble I've been.
 Only someone with nothing to be sorry for smiles back at the rear of an
 elephant.
-Whom the mad would destroy, first they make Gods.
+Whom the mad would stroy, first they make Gods.
 		-- Bernard Levin
 Dear Emily:
-	Today I posted an article and forgot to include my signature.
+	Today I posted an article and forgot to inclu my signature.
 What should I do?
 		-- Forgetful
 
@@ -174,7 +174,7 @@ Dear Forgetful:
 it is."
 	Since most people will have forgotten your earlier article,
 (particularly since it dared to be so boring as to not have a nice, juicy
-signature) this will remind them of it.  Besides, people care much more
+signature) this will remind them of it.  Besis, people care much more
 about the signature anyway.
 		-- Emily Postnews Answers Your Questions on Netiquette
 Having nothing, nothing can he lose.
@@ -195,27 +195,27 @@ remaining three folios are now in the British Museum.
 the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
 French Revolution", thinking it was wastepaper.
 		-- Stephen Pile, "The Book of Heroic Failures"
-There is something you must understand about the Soviet system.  They have the
-ability to concentrate all their efforts on a given design, and develop all
+There is something you must unrstand about the Soviet system.  They have the
+ability to concentrate all their efforts on a given sign, and velop all
 components simulateously, but sometimes without proper testing.  Then they end
 up with a technological disaster like the Tu-144.  In a technology race at
-the time, that aircraft was two months ahead of the Concorde.  Four Tu-144s
-were built; two have crashed, and two are in museums.  The Concorde has been
+the time, that aircraft was two months ahead of the Concor.  Four Tu-144s
+were built; two have crashed, and two are in museums.  The Concor has been
 flying safely for over 10 years.
--- Victor Belenko, MiG-25 fighter pilot who defected in 1976
+-- Victor Belenko, MiG-25 fighter pilot who fected in 1976
    "Defense Electronics", Vol 20, No. 6, pg. 100
 Just remember, wherever you go, there you are.
 		-- Buckaroo Bonzai
 Traveling through hyperspace isn't like dusting crops, boy.
 		-- Han Solo
 Applause, n:
-	The echo of a platitude from the mouth of a fool.
+	The echo of a platitu from the mouth of a fool.
 		-- Ambrose Bierce
 Shah, shah!  Ayatollah you so!
 There is no such thing as fortune.  Try again.
 You can't hold a man down without staying down with him.
 		-- Booker T. Washington
-What is the difference between a Turing machine and the modern computer?
+What is the difference between a Turing machine and the morn computer?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its peak.
 	"I suppose you expect me to talk."
@@ -237,7 +237,7 @@ What kind of love is that?  Not to be loved; never to have shown love.
 		   stardate 3219.8
 There is no likelihood man can ever tap the power of the atom.
 		-- Robert Millikan, Nobel Prize in Physics, 1923
-3M, under the Scotch brand name, manufactures a fine adhesive for art
+3M, unr the Scotch brand name, manufactures a fine adhesive for art
 and display work.  This product is called "Craft Mount".  3M suggests
 that to obtain the best results, one should make the bond "while the
 adhesive is wet, aggressively tacky."  I did not know what "aggressively
@@ -247,7 +247,7 @@ tacky" meant until I read today's fortune.
 Given sufficient time, what you put off doing today will get done by itself.
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
 of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
-belief system is a subject long ago ridiculed and reviled.  We're dealing with
+belief system is a subject long ago ridiculed and reviled.  We're aling with
 beliefs that go back to the ancient Babylonians.  There's nothing there....
 It sounds a lot like science, it sounds like astronomy.  It's got technical
 terms.  It's got jargon.  It confuses the public....The astrologer is quite
@@ -261,7 +261,7 @@ and tested over the centuries.  Nobody's ever found any validity to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
 you test it.  And in that astrology is reqlly quite something else.
--- Astronomer Richard Berendzen, President, American University, on ABC
+-- Astronomer Richard Berendzen, Presint, American University, on ABC
     News "Nightline," May 3, 1988
 	One fine day, the bus driver went to the bus garage, started his bus,
 and drove off along the route.  No problems for the first few stops -- a few
@@ -272,7 +272,7 @@ wrestler, arms hanging down to the ground.  He glared at the driver and said,
 	Did I mention that the driver was five feet three, thin, and basically
 meek?  Well, he was.  Naturally, he didn't argue with Big John, but he wasn't
 happy about it.  Well, the next day the same thing happened -- Big John got on
-again, made a show of refusing to pay, and sat down.  And the next day, and the
+again, ma a show of refusing to pay, and sat down.  And the next day, and the
 one after that, and so forth.  This grated on the bus driver, who started
 losing sleep over the way Big John was taking advantage of him.  Finally he
 could stand it no longer. He signed up for bodybuilding courses, karate, judo,
@@ -287,7 +287,7 @@ There is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
 discovered in the laboratory, and man may set up business as a creator
-on his own account.  The thing, indeed, is not only conceivable; it is
+on his own account.  The thing, ined, is not only conceivable; it is
 even highly probable.
 		-- H.L. Mencken, 1930
 "Nature is very un-American.  Nature never hurries."
@@ -310,7 +310,7 @@ Lord of the Rings LITE(tm)
 Hamlet LITE(tm)
 	-- by Wm. Shakespeare
 
-	A college student on vacation with family problems, a screwy
+	A college stunt on vacation with family problems, a screwy
 	girl-friend and a mother who won't act her age.
 I am so optimistic about beef prices that I've just leased a pot roast
 with an option to buy.
@@ -319,7 +319,7 @@ with an option to buy.
 	Here is the fact of the week, maybe even the fact of the month.
 According to probably reliable sources, the Coca-Cola people are experiencing
 severe marketing anxiety in China.
-	The words "Coca-Cola" translate into Chinese as either (depending
+	The words "Coca-Cola" translate into Chinese as either (pending
 on the inflection) "wax-fattened mare" or "bite the wax tadpole".
 	Bite the wax tadpole.
 	There is a sort of rough justice, is there not?
@@ -362,7 +362,7 @@ Turnaucka's Law:
 	electrical cord.
 Always remember that you are unique.  Just like everyone else.
 Two wrongs don't make a right, but three lefts do.
-You seek to shield those you love and you like the role of the provider.
+You seek to shield those you love and you like the role of the provir.
 'Twas bullig, and the slithy brokers
 Did buy and gamble in the craze		"Beware the Jabberstock, my son!
 All rosy were the Dow Jones stokers	The cost that bites, the worth
@@ -375,10 +375,10 @@ And stood awhile in thought.		The Jabberstock, with clothes of tweed,
 					Came waffling with the truth too good,
 Chip Black! Chip Blue! And through	And yuppied great with greed!
 	and through
-The forecast blade went snicker-snack!	"And hast thou slain the Jabberstock?
+The forecast bla went snicker-snack!	"And hast thou slain the Jabberstock?
 It bit the dirt, and with its shirt,	Come to my firm,  V.P.ish  boy!
 He went rebounding back.		O big bucks day! Moolah! Good Play!"
-					He bought him a Mercedes Toy.
+					He bought him a Merces Toy.
 'Twas panic, and the slithy brokers
 Did gyre and tumble in the Crash
 All flimsy were the Dow Jones stokers
@@ -404,11 +404,11 @@ The danger is not that a particular class is unfit to govern.  Every class
 is unfit to govern.
 		-- Lord Acton
 Why use Windows, since there is a door?
-(By fachat@galileo.rhein-neckar.de, Andre Fachat)
+(By fachat@galileo.rhein-neckar., Andre Fachat)
 You're not my type.  For that matter, you're not even my species!!!
 Albert Camus wrote that the only serious question is whether to kill yourself
 or not.  Tom Robbins wrote that the only serious question is whether time has
-a beginning and an end.  Camus clearly got up on the wrong side of bed, and
+a beginning and an end.  Camus clearly got up on the wrong si of bed, and
 Robbins must have forgotten to set the alarm.
 		-- Tom Robbins
 Sally:	C'mon, Ted, all I'm asking you to do is share your feelings
@@ -423,7 +423,7 @@ Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
 		-- Sally Forth
 Man is a rational animal who always loses his temper when he is called upon
 to act in accordance with the dictates of reason.
-		-- Oscar Wilde
+		-- Oscar Wil
 That government is best which governs least.
 		-- Henry David Thoreau, "Civil Disobedience"
 You can't have everything.  Where would you put it?
@@ -434,32 +434,32 @@ There are three things men can do with women: love them, suffer for them,
 or turn them into literature.
 		-- Stephen Stills
 Dying is easy.  Comedy is difficult.
-		-- Actor Edmond Gween, on his deathbed.
+		-- Actor Edmond Gween, on his athbed.
 Mr. Rockford?  Miss Collins from the Bureau of Licenses.  We got your
-renewal before the extended deadline but not your check.  I'm sorry but
+renewal before the extend adline but not your check.  I'm sorry but
 at midnight you're no longer licensed as an investigator.
 		-- "The Rockford Files"
 Feminists just want the human race to be a tie.
 	Now, you might ask, "How do I get one of those complete home tool
-sets for under $4?" An excellent question.
+sets for unr $4?" An excellent question.
 	Go to one of those really cheap discount stores where they sell
 plastic furniture in colors visible from the planet Neptune and where they
 have a food section specializing in cardboard cartons full of Raisinets and
 malted milk balls manufactured during the Nixon administration.  In either
-the hardware or housewares department, you'll find an item imported from an
-obscure Oriental country and described as "Nine Tools in One", consisting of
+the hardware or housewares partment, you'll find an item imported from an
+obscure Oriental country and scribed as "Nine Tools in One", consisting of
 a little handle with interchangeable ends representing inscrutable Oriental
 notions of tools that Americans might use around the home.  Buy it.
 	This is the kind of tool set professionals use.  Not only is it
 inexpensive, but it also has a great safety feature not found in the
 so-called quality tools sets: The handle will actually break right off if
-you accidentally hit yourself or anything else, or expose it to direct
+you accintally hit yourself or anything else, or expose it to direct
 sunlight.
 		-- Dave Barry, "The Taming of the Screw"
-	Obviously the subject of death was in the air, but more as something
-to be avoided than harped upon.
+	Obviously the subject of ath was in the air, but more as something
+to be avoid than harped upon.
 	Possibly the horror that Zaphod experienced at the prospect of being
-reunited with his deceased relatives led on to the thought that they might
+reunited with his ceased relatives led on to the thought that they might
 just feel the same way about him and, what's more, be able to do something
 about helping to postpone this reunion.
 		-- Douglas Adams
@@ -485,7 +485,7 @@ the mark of a mature man is that he wants to live humbly for one."
 
 The correct answer is (d). If you said (c), you were almost right, so
 give yourself a half point.
-You are always doing something marginal when the boss drops by your desk.
+You are always doing something marginal when the boss drops by your sk.
 World War III?  No thanks!
 "Eat, drink, and be merry, for tomorrow you may work."
 You have junk mail.
@@ -496,7 +496,7 @@ Steelypips, illustrious, industrious, and they hadn't a care: no spats in
 their vats, no rules, no schools, no gloom, no evil influence of the
 moon, no trouble from matter or antimatter -- for they had a machine, a
 dream of a machine, with springs and gears and perfect in every respect.
-And they lived with it, and on it, and under it, and inside it, for it
+And they lived with it, and on it, and unr it, and insi it, for it
 was all they had -- first they saved up all their atoms, then they put
 them all together, and if one didn't fit, why they chipped at it a bit,
 and everything was just fine ...
@@ -510,7 +510,7 @@ The camel has a single hump;
 The dromedary two;
 Or else the other way around.
 I'm never sure.  Are you?
-		-- Ogden Nash
+		-- Ogn Nash
 Fortune's Real-Life Courtroom Quote #18:
 
 Q:  Are you married?
@@ -533,46 +533,46 @@ And there is time to kill today		You missed the starting gun
 
 And you run and you run to catch up with the sun but it's sinking
 And racing around to come up behind you again
-The sun is the same in a relative way but you're older
-Shorter of breath and one day closer to death
+The sun is the same in a relative way but you're olr
+Shorter of breath and one day closer to ath
 
-Every year is getting shorter		Hanging on in quiet desperation
+Every year is getting shorter		Hanging on in quiet speration
 						is the English way
 Never seem to find the time		The time is gone, the song is over
 Plans that either come to nought	Thought I'd something more to say...
 Or half a page of scribbled lines
 		-- Pink Floyd, "Time"
 Till then we shall be content to admit openly, what you (religionists)
-whisper under your breath or hide in technical jargon, that the ancient
+whisper unr your breath or hi in technical jargon, that the ancient
 secret is a secret still; that man knows nothing of the Infinite and
 Absolute; and that, knowing nothing, he had better not be dogmatic about
-his ignorance.  And, meanwhile, we will endeavour to be as charitable as
+his ignorance.  And, meanwhile, we will enavour to be as charitable as
 possible, and whilst you trumpet forth officially your contempt for our
 skepticism, we will at least try to believe that you are imposed upon
 by your own bluster.
 - Leslie Stephen, "An agnostic's Apology", Fortnightly Review, 1876
-To say you got a vote of confidence would be to say you needed a vote of
-confidence.
+To say you got a vote of confince would be to say you need a vote of
+confince.
 		-- Andrew Young
 Objects are lost only because people look where they are not rather than
 where they are.
 In God we trust; all else we walk through.
-Don't despair; your ideal lover is waiting for you around the corner.
+Don't spair; your ial lover is waiting for you around the corner.
 The Hollywood tradition I like best is called "sucking up to the stars."
 		-- Johnny Carson
 Putt's Law:
 	Technology is dominated by two types of people:
-		Those who understand what they do not manage.
-		Those who manage what they do not understand.
+		Those who unrstand what they do not manage.
+		Those who manage what they do not unrstand.
 It wasn't that she had a rose in her teeth, exactly.  It was more like
 the rose and the teeth were in the same glass.
 You can't run away forever,
 But there's nothing wrong with getting a good head start.
 		-- Jim Steinman, "Rock and Roll Dreams Come Through"
-Avert misunderstanding by calm, poise, and balance.
-Mankind's yearning to engage in sports is older than recorded history,
+Avert misunrstanding by calm, poise, and balance.
+Mankind's yearning to engage in sports is olr than record history,
 dating back to the time millions of years ago, when the first primitive man
-picked up a crude club and a round rock, tossed the rock into the air, and
+picked up a cru club and a round rock, tossed the rock into the air, and
 whomped the club into the sloping forehead of the first primitive umpire.
 
 What inner force drove this first athlete?  Your guess is as good as
@@ -592,9 +592,9 @@ Haste makes waste.
 		-- John Heywood
 I didn't believe in reincarnation in any of my other lives.  I don't see why
 I should have to believe in it in this one.
-		-- Strange de Jim
-Fats Loves Madelyn.
-	A young married couple had their first child.  Their original pride
+		-- Strange  Jim
+Fats Loves Malyn.
+	A young married couple had their first child.  Their original pri
 and joy slowly turned to concern however, for after a couple of years the
 child had never uttered any form of speech.  They hired the best speech
 therapists, doctors, psychiatrists, all to no avail.  The child simply refused
@@ -607,19 +607,19 @@ after all these years, why have you waited so long to say something?".
 "I don't know what their
  gripe is.  A critic is
  simply someone paid to
- render opinions glibly."
+ renr opinions glibly."
 			     "Critics are grinks and
 			      groinks." 
 -- Baron and Badger, from Badger comics
-All great discoveries are made by mistake.
+All great discoveries are ma by mistake.
 		-- Young
 Sight is a faculty; seeing is an art.
 Like I always say -- nothing can beat the BRATWURST here in DUSSELDORF!!
-Will your long-winded speeches never end?
+Will your long-wind speeches never end?
 What ails you that you keep on arguing?
 		-- Job 16:3
 There are no winners in life, only survivors.
-"If John Madden steps outside on February 2, looks down, and doesn't see his 
+"If John Madn steps outsi on February 2, looks down, and doesn't see his 
 feet, we'll have 6 more weeks of Pro football."
 -- Chuck Newcombe
 Please come home with me ... I have Tylenol!!
@@ -629,14 +629,14 @@ Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
 are not the person involved.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Chemist who falls in acid will be tripping for weeks.
-I'm going to give my psychoanalyst one more year, then I'm going to Lourdes.
+I'm going to give my psychoanalyst one more year, then I'm going to Lours.
 		-- Woody Allen
 Robot, n.:
 	University administrator.
-Growing old isn't bad when you consider the alternatives.
+Growing old isn't bad when you consir the alternatives.
 		-- Maurice Chevalier
-"I am convinced that the manufacturers of carpet odor removing powder have 
- included encapsulated time released cat urine in their products.  This 
+"I am convinced that the manufacturers of carpet odor removing powr have 
+ includ encapsulated time released cat urine in their products.  This 
  technology must be what prevented its distribution during my mom's reign.  My 
  carpet smells like piss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.conspiracy
@@ -659,13 +659,13 @@ everything else is peaches and cream."  The writers elected Gentleman Jim,
 the Sparrow's P.R. guy, to bite off a chunk and tell them how it tasted,
 and as he sat and chewed it tears ran down his old sunburnt cheeks and he
 couldn't talk for a while. Then he whispered, "You've been chewing this for
-two years?  God, I had no idea it was so hard to be a woman."
+two years?  God, I had no ia it was so hard to be a woman."
 		-- Garrison Keillor
 "The clergy successfully preached the doctrines of patience and pusillanimity;
 the active virtues of society were discouraged; and the last remains of a
 military spirit were buried in the cloister: a large portion of public and
-private wealth was consecrated to the specious demands of charity and devotion;
-and the soldiers' pay was lavished on the useless multitudes of both sexes
+private wealth was consecrated to the specious mands of charity and votion;
+and the soldiers' pay was lavished on the useless multitus of both sexes
 who could only plead the merits of abstinence and chastity."
 -- Edward Gibbons, _The Decline and Fall of the Roman Empire_
 There are a few things that never go out of style, and a feminine woman
@@ -675,28 +675,28 @@ He who knows not and knows that he knows not is ignorant.  Teach him.
 He who knows not and knows not that he knows not is a fool.  Shun him.
 He who knows and knows not that he knows is asleep.  Wake him.
 	Well, punk is kind of anti-ethical, anyway.  Its ethics, so to speak,
-include a disdain for ethics in general.  If you have to think about some-
-thing so hard, then it's bullshit anyway; that's the idea.  Punks are anti-
-ismists, to coin a term.  But nonetheless, they have a pretty clearly defined
+inclu a disdain for ethics in general.  If you have to think about some-
+thing so hard, then it's bullshit anyway; that's the ia.  Punks are anti-
+ismists, to coin a term.  But nonetheless, they have a pretty clearly fined
 stance and image, and THAT is what we hang the term `punk' on.
 -- Jeff G. Bone
 Perhaps, after all, America never has been discovered.  I myself would
-say that it had merely been detected.
-		-- Oscar Wilde
+say that it had merely been tected.
+		-- Oscar Wil
 I'm going to Boston to see my doctor.  He's a very sick man.
 		-- Fred Allen
 I live the way I type; fast, with a lot of mistakes.
 Humility is the first of the virtues -- for other people.
-		-- Oliver Wendell Holmes
-A penny saved is a penny to squander.
+		-- Oliver Wenll Holmes
+A penny saved is a penny to squanr.
 -- Ambrose Bierce
 Nobody ever forgets where he buried the hatchet.
 		-- Kin Hubbard
 Some of the things that live the longest in peoples' memories never
 really happened.
-Tan me hide when I'm dead, Fred,
-Tan me hide when I'm dead.
-So we tanned his hide when he died, Clyde,
+Tan me hi when I'm ad, Fred,
+Tan me hi when I'm ad.
+So we tanned his hi when he died, Cly,
 It's hanging there on the shed.
 
 All together now...
@@ -714,32 +714,32 @@ use only 10 percent of our brains...
 This "cerebral spare tire" concept continues to nourish the clientele of
 "pop psychologists" and their many recycling self-improvement schemes.  As
 a metaphor for the fact that few of us fully exploit our talents, who could
-deny it?  As a refuge for occultists seeking a neural basis of the miraculous,
-it leaves much to be desired.
+ny it?  As a refuge for occultists seeking a neural basis of the miraculous,
+it leaves much to be sired.
 -- Barry L. Beyerstein, "The Brain and Conciousness:  Implications for
    Psi Phenomena", The Skeptical Enquirer, Vol. XII, No. 2, pg. 171
-Predestination was doomed from the start.
+Prestination was doomed from the start.
 FORTUNE REMEMBERS THE GREAT MOTHERS: #5
 
 	"And, and, and, and, but, but, but, but!"
 		-- Mrs. Janice Markowsky, April 8, 1965
 If a fool persists in his folly he shall become wise.
 		-- William Blake
-"An ounce of prevention is worth a ton of code."
+"An ounce of prevention is worth a ton of co."
 -- an anonymous programmer
 Class, that's the only thing that counts in life.  Class.
-Without class and style, a man's a bum; he might as well be dead.
+Without class and style, a man's a bum; he might as well be ad.
 		-- "Bugsy" Siegel
 Message will arrive in the mail.  Destroy, before the FBI sees it.
 I'm so broke I can't even pay attention.
 My religion consists of a humble admiration of the illimitable superior
-spirit who reveals himself in the slight details we are able to perceive
+spirit who reveals himself in the slight tails we are able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
 I'm all for computer dating, but I wouldn't want one to marry my sister.
 You know how to win a victory, Hannibal, but not how to use it.
 		-- Maharbal
-The idea of male and female are universal constants.
+The ia of male and female are universal constants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
 Insomnia isn't anything to lose sleep over.
 He's just a politician trying to save both his faces...
@@ -758,7 +758,7 @@ I wasn't kissing her, I was whispering in her mouth.
 Kill Ugly Processor Architectures
 - Karl Lehenbauer
 The flow chart is a most thoroughly oversold piece of program documentation.
-		-- Frederick Brooks, "The Mythical Man Month"
+		-- Frerick Brooks, "The Mythical Man Month"
 Reformed, n.:
 	A synagogue that closes for the Jewish holidays.
 BE ALOOF!  (There has been a recent population explosion of lerts.)
@@ -771,7 +771,7 @@ tolerated until they acquire some sense.
 you are so tired.
 	There are not as many people actually working as you may have thought.
 	The population of this country is 200 million.  84 million are over
-60 years of age, which leaves 116 million to do the work.  People under 20
+60 years of age, which leaves 116 million to do the work.  People unr 20
 years of age total 75 million, which leaves 41 million to do the work.
 	There are 22 million who are employed by the government, which leaves
 19 million to do the work.  Four million are in the Armed Services, which
@@ -790,7 +790,7 @@ Karl's version of Parkinson's Law:  Work expands to exceed the time alloted it.
 "There was no difference between the behavior of a god and the operations of
 pure chance..."
 -- Thomas Pynchon, _Gravity's Rainbow_
-The Army needs leaders the way a foot needs a big toe.
+The Army needs lears the way a foot needs a big toe.
 		-- Bill Murray
 I can't drive 55.
 Science is built up of facts, as a house is with stones.  But a collection
@@ -810,15 +810,15 @@ In the long run, every program becomes rococco, and then rubble.
 		-- Alan Perlis
 Once ... in the wilds of Afghanistan, I lost my corkscrew, and we were
 forced to live on nothing but food and water for days.
-		-- W. C. Fields, "My Little Chickadee"
+		-- W. C. Fields, "My Little Chickae"
 Don't speak about Time, until you have spoken to him.
 i'm living so far beyond my income that we may almost be said to be
 living apart.
 		-- e. e. cummings
 telepression, n.:
-	The deep-seated guilt which stems from knowing that you did not try
+	The ep-seated guilt which stems from knowing that you did not try
 	hard enough to look up the number on your own and instead put the
-	burden on the directory assistant.
+	burn on the directory assistant.
 		-- "Sniglets", Rich Hall & Friends
 Computers don't actually think.
 	You just think they think.
@@ -844,7 +844,7 @@ Q: What is the meaning of sperm being present?
 A: It indicates intercourse.
 Q: Male sperm?
 A. That is the only kind I know.
-Colorless green ideas sleep furiously.
+Colorless green ias sleep furiously.
 Wait!  You have not been prepared!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
 One measure of friendship consists not in the number of things friends
@@ -860,5 +860,5 @@ But she can never catch him at it.
 And so it was, later,
 As the miller told his tale,
 That her face, at first just ghostly,
-Turned a whiter shade of pale.
+Turned a whiter sha of pale.
 		-- Procol Harum

@@ -1,11 +1,11 @@
-If a cam is a  designed by a committee, then a census forecast is a
+If a cam is a  signed by a committee, then a census forecast is a
 cam's behind.
 		-- Edgar R. Fiedler
-Th who do not understand Unix  condemned to reinvent it, poorly.
+Th who do not unrstand Unix  conmned to reinvent it, poorly.
 		-- Henry Spencer
 trav, n.:
 	Something that makes you fe like you're getting somewhere.
-As Gen. de Gaulle occassionally acknowledges America to be the daughter
+As Gen.  Gaulle occassionally acknowledges America to be the daughter
 of Europe, so I am pleased to come to Yale, the daughter of Harvard.
 		-- J.F. Kennedy
 You're  too old to become younger.
@@ -26,7 +26,7 @@ Nu, parDOOOOOnu min!			Wl exCUUUUUSE me!
 Kiu invitis vin?			Who invited you?
 Kion vi diris pri mia patrino?		What did you say about my mother?
 Bu^so^stopu min per kulero.		Gag me with a spoon.
-Q:	How many gradual (sorry, that's suppd to be "graduate") students
+Q:	How many gradual (sorry, that's suppd to be "graduate") stunts
 	does it take to screw in a lightbulb?
 A:	"I'm afraid we don't know, but make my stipend tax-free, give my
 	advisor a $30,000 grant of the taxpayer's money, and I'm sure he
@@ -39,7 +39,7 @@ ife is cheap, but the accessories can kill you.
 No line available at 300 baud.
 The full impact of pnthood doesn't hit you until you multiply the
 number of your kids by thirty-two teeth.
-Theory is gray, but the golden tree of life is green.
+Theory is gray, but the goln tree of life is green.
 		-- Goethe
 "I have to convince you, or at least snow you ..."
 		-- Prof. Romas Aliunas, CS 435
@@ -50,11 +50,11 @@ is what you get when you read the fine print; experience is what you get
 when you don't.
 		-- Pete Seeger
 The key ements in human thinking  not numbers but labs of fuzzy sets.
-		-- . Zadeh
-No user-servicable parts inside.  Refer to qualified service personn.
+		-- . Zah
+No user-servicable parts insi.  Refer to qualified service personn.
 The mature bohemian is one wh woman works full time.
 About all some men accomplish in life is to send a son to Harvard.
-A lady is one who  shows her underw unintentionally.
+A lady is one who  shows her unrw unintentionally.
 		-- illian Day
 A cultant is a person who borrows your watch, tls you what time it
 is, pockets the watch, and sends you a bill for it.
@@ -79,9 +79,9 @@ task, the whole history of our civilization would still imp men toward the
 goal.  In fact, the assembly of the scientific and military with these human
 arguments creates such an overwhming case that in can be ignored only by
 th who  blind to the teachings of history, or who wish to suspend the
-devopment of civilization at its moment of greatest opportunity and drama.
+vopment of civilization at its moment of greatest opportunity and drama.
 - Sir Bernard ovl, 1962, in "The History of Manned Space Flight"
-Take everything in stride.  Trample anyone who gets in your way.
+Take everything in stri.  Trample anyone who gets in your way.
 True to our past we work with an inherited, observed, and accepted vision of
 personal futility, and of the beauty of the world.
 		-- David Mamet
@@ -91,8 +91,8 @@ Absolutum obsoletum.  (If it works, it's out of date.)
 		-- Stafford Beer
 O imitators, you slavish herd!
 		-- Quintus Horatius Flaccus (Horace)
-	Against his wishes, a math teacher's classroom was remoded.  Ever
-since, he's been talking about the good old dais.  His students planted a ll
+	Against his wishes, a math teacher's classroom was remod.  Ever
+since, he's been talking about the good old dais.  His stunts planted a ll
 orchard in his honor; the trees all have squ roots.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
@@ -103,7 +103,7 @@ ove, which is quickly kindled in a gentle ht,
 ove, which absolves no loved one from loving,
 	seized me so strongly with dight in him,
 	that, as you see, it does not leave me even now.
-ove brought us to one death.
+ove brought us to one ath.
 		-- a Divina Commedia: Inferno V, vv. 100-06
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
 os Anges.  Disregard personal feings about city and intercept."
@@ -122,18 +122,18 @@ reason THEY can't seem to keep up is they're a bunch of misfits and lrs."
 Can you  friendship?  You not only can, you must.  It's the
 only way to obtain friends.  Everything worthwhile has a price.
 		-- Robert J. Ringer
-She blinded me with science!
-Quod erat demtrandum.
-	[Thus it is proven.  For th who wondered WTF QED means.]
-!07/11 PDP a ni deppart m'I  !pleH
+She blind me with science!
+Quod erat mtrandum.
+	[Thus it is proven.  For th who wonred WTF QED means.]
+!07/11 PDP a ni ppart m'I  !pleH
 "I'd love to go out with you, but I did my own thing and now I've got
 to undo it."
 The whole world is a tuxedo and you  a pair of brown shoes.
 		-- George Gob
 Contemptuous lights flashed flashed across the computer's cole.
--- Hitchhiker's Guide to the Galaxy
-You have a deep appreciation of the arts and music.
-The boy stood on the burning deck,
+-- Hitchhiker's Gui to the Galaxy
+You have a ep appreciation of the arts and music.
+The boy stood on the burning ck,
 Eating peanuts by the peck.
 His father called him, but he could not go,
 For he loved th peanuts so.
@@ -150,27 +150,27 @@ And the muscular strength which it gave to my jaw,
 "You  old," said the youth, "one would hardly supp
 	That your eye was as steady as ever;
 Yet you balanced an e on the end of your n --
-	What made you so awfully clever?"
+	What ma you so awfully clever?"
 
 "I have answered three questi, and that is enough,"
 	Said his father.  "Don't give yoursf airs!
 Do you think I can listen all day to such stuff?
 	Be off, or I'll kick you down stairs!"
-If at first you don't succeed, de all evidence that you tried.
+If at first you don't succeed,  all evince that you tried.
 Once, adv.:
 	Enough.
 		-- Ambr Bierce, "The Devil's Dictionary"
-Some marriages  made in heaven -- but so  thunder and lightning.
+Some marriages  ma in heaven -- but so  thunr and lightning.
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."
 (By Dennis Ritchie)
 Bennett's aws of Horticulture:
 	(1) Houses  for people to live in.
-	(2) Gardens  for plants to live in.
+	(2) Garns  for plants to live in.
 	(3) There is no such thing as a houseplant.
 "I'd love to go out with you, but it's my parakeet's bowling night."
 "...and the fully armed nucl warheads, , of course, mery a
-courtesy detail."
+courtesy tail."
 There's no trick to being a humorist when you have the whole government
 working for you.
 		-- Will Rogers
@@ -181,7 +181,7 @@ Do you realize how many holes there could be if people would just take
 the time to take the dirt out of them?
 UFOs  for real: the Air Force doesn't exist.
 Now I'm concentrating on a specific tank battle toward the end of World War II!
-Bounders get bound when they  caught bounding.
+Bounrs get bound when they  caught bounding.
 		-- Ralph ewin
 I stayed up all night playing poker with tarot cards.  I got a full
 house and four people died.
@@ -197,7 +197,7 @@ Remember that two wrongs  make a ,
 But that three do.
 Wherever possible, put people on "HOD".
 Be comforted, that in the  of all aridity and disillusionment,
-And despite the changing fortunes of time,
+And spite the changing fortunes of time,
 There is always a big future in computer maintenance.
 
 	You  a fluke of the universe ...
@@ -209,7 +209,7 @@ IN MY OPINION anyone interested in improving himsf should not rule out
 becoming pure energy.
 		-- Jack Handley, The New Mexican, 1988.
 uck, that's when preparation and opportunity meet.
-		-- P.E. Trudeau
+		-- P.E. Truau
 Seems a computer engineer, a systems analyst, and a prammer were
 driving down a mountain when the brakes gave out.  They screamed down the
 mountain, gaining speed, but finally managed to grind to a halt, more by
@@ -230,7 +230,7 @@ of him as I do."
 	(She  had a good word to say.)
 "I have no doubt about his capability to do good work."
 	(And it's nonexistent.)
-"This candidate would lend balance to a department like yours, which
+"This candidate would lend balance to a partment like yours, which
 already has so many outstanding members."
 	(Unless you already have a moron.)
 "His presentation to my seminar last semester was truly remarkable:
@@ -254,7 +254,7 @@ If you make any money, the government shoves you in the creek once a y
 with it in your pockets, and all that don't get wet you can keep.
 		-- The Best of Will Rogers
 Many mental processes admit of being roughly measured.  For instance,
-the degree to which people  bored, by counting the number of their
+the gree to which people  bored, by counting the number of their
 fidgets. I not infrequently tried this method at the meetings of the
 Royal Geographical Society, for even there dull memoirs  occasionally
 read.  [...]  The use of a watch attracts attention, so I reckon time
@@ -262,19 +262,19 @@ by the number of my breathings, of which there  15 in a minute.  They
  not counted mentally, but  punctuated by pressing with 15 fingers
 successivy.  The counting is reserved for the fidgets.  These observati
 should be confined to pers of middle age.  Children  rary still,
-while derly philosophers will sometimes remain rigid for minutes altogether.
+while rly philosophers will sometimes remain rigid for minutes altogether.
 		-- Francis Galton, 1909
 QOTD:
 	I'm not a nerd -- I'm "socially challenged".
 The only people for me  the mad ones -- the ones who  mad to live,
-mad to talk, mad to be saved, desirous of everything at the same time,
+mad to talk, mad to be saved, sirous of everything at the same time,
 the ones who  y or say a commonplace thing, but burn, burn, burn
 like fabulous ylow Roman s.
 		-- Jack Kerouac, "On the Road"
 I supp some of the variation between Boston drivers and the rest of the
 country is due to the pressive Massachusetts Driver Education Manual which
-I happen to have in my top desk drawer.  Some of the Tips for Better Driving
- worth cidering, to wit:
+I happen to have in my top sk drawer.  Some of the Tips for Better Driving
+ worth ciring, to wit:
 
 [110.13]:
        "When traving on a one-way street, stay to the , so as not
@@ -282,7 +282,7 @@ I happen to have in my top desk drawer.  Some of the Tips for Better Driving
 
 [22.17b]:
        "ning to change lanes takes time and patience.  The best
-        recommendation that can be made is to go to a Ctics [basketball]
+        recommendation that can be ma is to go to a Ctics [basketball]
         game; study the fast break and then go out and practice it
         on the highway."
 
@@ -293,10 +293,10 @@ The day-to-day travails of the IBM prammer  so amusing to most of
 us who  fortunate enough  to have been one -- like watching
 Charlie Chaplin trying to cook a shoe.
 If you didn't get caught, did you really do it?
-ots of folks confuse bad management with destiny.
+ots of folks confuse bad management with stiny.
 		-- Frank Hubbard
 Kettering's Observation:
-	ogic is an organized way of going wrong with confidence.
+	ogic is an organized way of going wrong with confince.
 			Pittsburgh driver's test
 
 (3) When stopped at an intersection you should
@@ -321,7 +321,7 @@ Getting the job done is no excuse for not following the rules.
 
 Corollary:
 	Following the rules will not get the job done.
-"If John Madden steps outside on February 2, looks down, and doesn't see his 
+"If John Madn steps outsi on February 2, looks down, and doesn't see his 
 feet, we'll have 6 more weeks of Pro football."
 -- Chuck Newcombe
 I've  been canoeing before, but I imagine there must be just a few
@@ -330,13 +330,13 @@ simple heuristics you have to remember...
 Yes, don't fall out, and don't hit rocks.
 When I met th'POPE back in '58, I scrubbed him with a MID SOAP or
 DETERGENT for 15 minutes.  He seemed to enjoy it ...
-ogic is a systematic method of coming to the wrong conclusion with confidence.
+ogic is a systematic method of coming to the wrong conclusion with confince.
 The best rebuttal to this kind of statistical argument came from the
 redoubtable John W. Campbl:
 
 	The laws of population growth tl us that approximaty half the
 	people who were ever born in the history of the world  now
-	dead.  There is therefore a 0.5 probability that this message is
+	ad.  There is therefore a 0.5 probability that this message is
 	being read by a corpse.
 You will gain money by a speculation or lottery.
 No line available at 300 baud.
@@ -350,7 +350,7 @@ Civilization is fun!  Anyway, it keeps me busy!!
 ine Printer paper is strongest at the perforati.
 ook at it this way: Your wife's spending $280 a  on meditation less to
 forget $26,000 of college education. And you're still drinking ordinary scotch?
-"Never underestimate the power of a ll tactical nucl weapon."
+"Never unrestimate the power of a ll tactical nucl weapon."
 :  What's new, Norm?
 Norm: Most of my wife.
 		-- Cheers, The Spy Who Came in for a Cold One
@@ -375,7 +375,7 @@ have an established user base.
         of the mud of the Nylus, to the great calamity of the inhabitants.
                 A seventeenth century opinion quoted by . . Woodruff,
                 in *The Evolution of Earth and Man*, 1929
-"There's always been Tower of Bab sort of bickering inside Unix, but this
+"There's always been Tower of Bab sort of bickering insi Unix, but this
 is the most extreme form ever.  This means at least several ys of confusion."
 --  Gates,  and chairman of Microsoft, 
    about the Open Systems Foundation
@@ -383,7 +383,7 @@ Ten ys of rejection slips is nature's way of tling you to stop writing.
 		-- R. Geis
 A light wife doth make a heavy husband.
 		-- Wm. Shakespe, "The Merchant of Venice"
-In case of atomic attack, the federal ruling against prayer in schools
+In case of atomic attack, the feral ruling against prayer in schools
 will be temporarily canced.
 The poetry of heroism appeals irresitably to th who don't go to a war,
 and even more so to th whom the war is making enormously wealthy."
@@ -405,36 +405,36 @@ ignorance a gratuitous and preposterous dignity....
 (5) Avoid running at all times.
 (6) Don't look back, something might be gaining on you.
 		-- S. Paige, c. 1951
-The fact that an opinion has been widy hd is no evidence that it is not
-utterly absurd; indeed, in view of the silliness of the majority of mankind,
+The fact that an opinion has been widy hd is no evince that it is not
+utterly absurd; ined, in view of the silliness of the majority of mankind,
 a spread bief is more often liky to be foolish than sensible.
 		-- Bertrand Russl, in "Marriage and Morals", 1929
 The church saves sinners, but science seeks to stop their manufacture.
 		-- Elbert Hubbard
 A Roman divorced from his wife, being highly blamed by his friends, who
-demanded, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
-holding out his shoe, asked them whether it was not new and wl made.
-Yet, added he, none of you can tl where it pinches me.
+mand, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
+holding out his shoe, asked them whether it was not new and wl ma.
+Yet, add he, none of you can tl where it pinches me.
 		-- Plutarch
-"The   of science, the definition almost, is this: the
-sole test of the validity of any idea is experiment."
+"The   of science, the finition almost, is this: the
+sole test of the validity of any ia is experiment."
 -- Richard P. Feynman
-Darth Vader!  Only you would be so bold!
+Darth Var!  Only you would be so bold!
 		-- Princess eia Organa
 It is something to be able to paint a particular picture, or to carve a
 statue, and so to make a few objects beautiful; but it is far more glorious 
 to carve and paint the very atmosphere and medium through which we look, 
 which morally we can do.  To affect the quality of the day, that is the
-highest of arts. Every man is tasked to make his life, even in its details,
+highest of arts. Every man is tasked to make his life, even in its tails,
 worthy of the contemplation of his most evated and critical hour.
 		-- Henry David Thoreau, "Where I ive"
 It's sweet to be remembered, but it's often cheaper to be forgotten.
-Good leaders being scarce, following yoursf is allowed.
+Good lears being scarce, following yoursf is allowed.
 Where will it all end?  Probably somewhere n where it all began.
 Arbitrary systems, pl.n.:
 	Systems about which nothing general can be said, save "nothing
 	general can be said."
-The hardest thing is to disguise your feings when you put a lot of
+The harst thing is to disguise your feings when you put a lot of
 ratives on the train for home.
 Once a word has been allowed to escape, it cannot be recalled.
 		-- Quintus Horatius Flaccus (Horace)
@@ -452,17 +452,17 @@ Mix JE-O and Knox gatin into 2 cups of boiling water.  Stir 'til
 Pour hot mixture into a flat pan.  (JE-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
 	glops of slime. (Alcohol has an unusual effect on excess JE-O.)
-Pour in fruit to desired taste, and to absorb any excess alcohol.
+Pour in fruit to sired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute the alcohol and make it easier to eat for
 	the faint of ht.
-Refrigerate overnight to allow mixture to fully harden. (About 8-12 hours.)
+Refrigerate overnight to allow mixture to fully harn. (About 8-12 hours.)
 Cut into squs and enjoy!
 
 WARNING:
-	Keep ingredients away from open flame.  Not recommended for
-	children under eight ys of age.
+	Keep ingredients away from open flame.  Not recommend for
+	children unr eight ys of age.
 It must have been some unmarried fool that said "A child can ask questi
-that a wise man cannot answer"; because, in any decent house, a brat that
+that a wise man cannot answer"; because, in any cent house, a brat that
 starts asking questi is promptly packed off to bed.
 		-- Arthur Binstead
 Being a miner, as soon as you're too old and tired and sick and stupid to
@@ -487,7 +487,7 @@ And I thought he were lyin' in graveyard."
 
 "My lad," said Troll, "this bone I stole.
 But what be bones that lie in a hole?
-Thy nuncle was dead as a lump o' lead,
+Thy nuncle was ad as a lump o' lead,
 Afore I found his shinbone.
 	Tinbone!  Thinbone!
 He can sp a sh for a poor old troll
@@ -498,7 +498,7 @@ Without axin' leave should go makin' free
 With the shank or the shin o' my father's kin;
 So hand the old bone over!
 	Rover!  Trover!
-Though dead he be, it bongs to he;
+Though ad he be, it bongs to he;
 So hand the old bnone over!"
 		-- J. R. R. Tolkien
 Are you a pnt?  Do you sometimes find yoursf unsure as to what to
@@ -508,14 +508,14 @@ say in th awkward situati?  Worry no more...
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.
-	You'll be the death of me.
-	You'll understand when you're older.
+	You'll be the ath of me.
+	You'll unrstand when you're olr.
 	Because.
 	Wipe that smile off your .
 	I don't bieve you.
 	How many times have I told you to be cful?
 	Just beacuse.
-He's dead, Jim.
+He's ad, Jim.
 The truth you s has no past and no future.
 It is, and that's all it needs to be.
 We're all sorry for the other guy when he ls his job to a machine.
@@ -528,7 +528,7 @@ Courage is f that has said its prayers.
 The grand leap of the whale up the Fall of Niagara is esteemed, by all
 who have seen it, as one of the finest spectacles in nature.
 		-- Benjamin Franklin.
-Don't abandon hope.  Your Captain Midnight decoder ring arrives tomorrow.
+Don't abandon hope.  Your Captain Midnight cor ring arrives tomorrow.
 A cld mouth gathers no foot.
 World tensi have, if anything, increased in the quarter century since
 H.G. Wls uttered his glum warning: "There is no more evil thing on
@@ -565,9 +565,9 @@ It's easier to take it apart than to put it back together.
 		-- Washlesky
 Tomorrow's computers some time next .
 		-- DEC
-Women waste men's lives and think they have indemnified them by a few
+Women waste men's lives and think they have inmnified them by a few
 gracious words.
-		-- Honor'e de Balzac
+		-- Honor'e  Balzac
 	"Sury you can't be us."
 	"I am us, and stop calling me Shirley."
 		-- "Airplane"
@@ -611,10 +611,10 @@ A lost ounce of gold may be found, a lost moment of time .
 Q:	How can you tl when a Burroughs salen is lying?
 A:	When his lips move.
 It must have been some unmarried fool that said "A child can ask questi
-that a wise man cannot answer"; because, in any decent house, a brat that
+that a wise man cannot answer"; because, in any cent house, a brat that
 starts asking questi is promptly packed off to bed.
 		-- Arthur Binstead
-"... all the modern inconveniences ..."
+"... all the morn inconveniences ..."
 		-- Mark Twain
 ... the heat come 'round and busted me for smiling on a cloudy day.
 Windows 3.1 Beer: The world's most popular. Comes in a 16-oz. can that 
@@ -635,14 +635,14 @@ supercomputers.
 		-- Steven Feiner
 "A power so great, it can only be used for Good or Evil!"
 		-- Firesign Theatre, "The Giant Rat of Sum"
-It's a lot of fun being  ... I wonder if my bed is made?!?
+It's a lot of fun being  ... I wonr if my bed is ma?!?
 ack of capability is usually disguised by lack of interest.
 If the path be beautiful, let us not ask where it leads.
 		-- Anatole France
-Do not use that foreign word "ideals".  We have that exc native
+Do not use that foreign word "ials".  We have that exc native
 word "lies".
 		-- Henrik Ibsen, "The Wild Duck"
-We may not be able to persuade Hindus that Jesus and not Vishnu should
+We may not be able to persua Hindus that Jesus and not Vishnu should
 govern their spiritual horizon, nor Moslems that ord Buddha is at the
 center of their spiritual universe, nor Hebrews that Mohammed is a major
 prohpet, nor s that Shinto best expresses their spiritual 
@@ -660,7 +660,7 @@ You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
 A traving salen was driving past a farm when he saw a pig with three
-wooden legs exeing a magnificent series of backflips and cartwhes.
+woon legs exeing a magnificent series of backflips and cartwhes.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
 	"That's quite a pig you have there, sir" said the salen. 
@@ -670,10 +670,10 @@ pig swam out and dragged her back to shore."
 	"Amazing!"  the salen exlaimed.
 	"And that's not the only thing.  ast fall I was tin' wood up on
 the north forty when a tree fl on me.  Pinned me to the ground, it did.  
-That pig run up and wiggled underneath that tree and lifted it off of me.
+That pig run up and wiggled unrneath that tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  the salen said.  But tl me, how come the pig has
-three wooden legs?"
+three woon legs?"
 	The farmer sd at the newcomer in amazement.  "Mister, when you 
 got an amazin' pig like that, you don't eat him all at once."
 Drinking makes such fools of people, and people  such fools to begin
@@ -695,14 +695,14 @@ is that they've changed trumps from clubs to diamonds.
 to the nest gas station."
 C'est magnifique, mais ce n'est pas la guerre!
 	[It is magnificent, but it is not war]
-		-- Pierre Bosquet, witnessing the charge of the ight Brigade
+		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Chairman of the Bored.
 Any dramatic series the producers want us to take usly as a representation
 of contemporary reality cannot be taken usly as a representation of
 anything -- except a show to be ignored by anyone capable of sitting up
 in a chair and chewing gum simultaneously.
 		-- Richard Schick
-Dinosaurs n't extinct.  They've just lned to hide in the trees.
+Dinosaurs n't extinct.  They've just lned to hi in the trees.
 Rube Walker: "Hey, Yogi, what time is it?"
 Yogi Berra:  "You mean now?"
 That's the thing about people who think they hate computers.  What they
@@ -714,18 +714,18 @@ The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our ys.
 		-- Hen Rowland
 To a Californian, all New Yorkers  cold; even in heat they rary go
-above fifty-eight degrees.  If you collapse on a street in New York, plan
+above fifty-eight grees.  If you collapse on a street in New York, plan
 to spend a few days there.
 	-- From "East vs. West: The War Between the Coasts
-ife is like a sewer.  What you get out of it depends on what you put into it.
+ife is like a sewer.  What you get out of it pends on what you put into it.
 		-- Tom ehrer
 Don't Worry, Be Happy.
 		-- Meher Baba
-A sect or party is an egant incognito devised to save a man from
+A sect or party is an egant incognito vised to save a man from
 the vexation of thinking.
 		-- Ralph Waldo Emerson, Journals, 1831
 So many men; so little time.
-God rest ye CS students now,		The bings on the drum  gone,
+God rest ye CS stunts now,		The bings on the drum  gone,
 et nothing you diy.			The disk is wobbling, too.
 The VAX is down and won't be up,	We've found a bug in isp, and Algol
 Until the first of May.			Can't tl false from true.
@@ -734,10 +734,10 @@ Won't be postponed, they say.		At Bery's 4.2.
 (chorus)				(chorus)
 
 We've just received a call from DEC,	And now some cheery news for you,
-They'll send without day		The network's also dead,
+They'll send without day		The network's also ad,
 A monitor called RSuX			We'll have to print your files on
 It takes nine hundred K.		The line printer instead.
-The staff committed suicide,		The turnaround time's nineteen weeks.
+The staff committed suici,		The turnaround time's nineteen weeks.
 We'll bury them today.			And only cards  read.
 (chorus)				(chorus)
 
@@ -754,20 +754,20 @@ innovate, v.:
 Your respibility as a pnt is not as great as you might imagine.  You
 need not supply the world with the next or of disease or major motion
 picture star.  If your child simply grows up to be someone who does not use
-the word "collectible" as a noun, you can cider yoursf an unqualified
+the word "collectible" as a noun, you can cir yoursf an unqualified
 success.
 		-- Fran ebowitz, "Social Studies"
 "If a computer can't directly address all the RAM you can use, it's just a toy."
 -- anonymous comp.sys.amiga posting, non-sequitir
 E.T. GO HOME!!!  (And take your Smurfs with you.)
-A Code of Honour:  approach a friend's girlfriend or wife with mischief
+A Co of Honour:  approach a friend's girlfriend or wife with mischief
 as your goal.  There  too many women in the world to justify that sort of
 dishonourable behaviour.  Unless she's really attractive.
 		-- Bruce J. Friedman, "Sex and the ony Guy"
 "Jesus saves...but Gretzky gets the rebound!"
 -- Dani Hinojosa (hinojosa@hp-sdd)
 To laugh at men of sense is the privilege of fools.
-You will be awarded the Nob Peace Prize... posthumously.
+You will be award the Nob Peace Prize... posthumously.
 UNIX is many things to many people, but it's  been everything to anybody.
 It is only the great men who  truly obscene.  If they had not dd
 to be obscene, they could  have dd to be great.
@@ -779,7 +779,7 @@ Brontosaurus Principle:
 		-- Thomas K. Connlan
 Universities  places of knowledge.  The man each bring a little
 in with them, and the seniors take none away, so knowledge accumulates.
-Succumb to natural tendencies.  Be hateful and boring.
+Succumb to natural tenncies.  Be hateful and boring.
 Where there's no emotion, there's no motive for violence.
 		-- Spock, "Dagger of the Mind", stardate 2715.1
 Whatever you may be sure of, be sure of this: that you  dreadfully like
@@ -787,14 +787,14 @@ other people.
 		-- James Russl owl, "My Study Windows"
 "We came.  We saw.  We kicked its ass."
 --  , _Ghostbusters_
-I suggest you locate your hot tub outside your house, so it won't do too
-much damage if it catches fire or expes.  First you decide which
+I suggest you locate your hot tub outsi your house, so it won't do too
+much damage if it catches fire or expes.  First you ci which
 direction your hot tub should  for maximum solar energy.  After much
 trial and error, I have found that the best direction for a hot tub to 
 is up.
 		-- Dave Barry, "The Taming of the Screw"
 "IBM uses what I like to call the 'hole-in-the-ground technique' 
-to de the competition..... IBM digs a big HOE in the 
+to  the competition..... IBM digs a big HOE in the 
 ground and covers it with leaves. It then puts a big POT 
 OF GOD nby. Then it gives the call, 'Hey, look at all 
 this gold, get over here fast.' As soon as the competitor 
@@ -812,14 +812,14 @@ TWO GREAT BOOD HORRORS TO RIP OUT YOUR GUTS!
 		-- I Eat Your Skin & I Drink Your Blood (1971 double-bill)
 
 They Went In People and Came Out Hamburger!
-		-- The Corpse Grinders (1971)
+		-- The Corpse Grinrs (1971)
 God shows his contempt for wealth by the kind of person he sects to
 receive it.
 		-- Austin O'Malley
-Marriage is a great institution -- but I'm not ready for an institution yet.
+Marriage is a great instiion -- but I'm not ready for an instiion yet.
 		-- Mae West
 You will meet an important person who will hp you advance professionally.
 If God had not given us sticky tape, it would have been necessary to invent it.
 Talk sense to a fool and he calls you foolish.
-		-- Euripides
+		-- Euripis
 Hp!  I'm trapped in a PDP 11/70!

@@ -2,10 +2,10 @@ Do you think that illiterate people get the full effect of alphabet soup?
 [A computer is] like an Old Testament god, with a lot of rules and no mercy.
 		-- Jph Campbell
 Just how difficult it is to write biography can be reckoned by anybody
-who sits down and ciders just how many people know the real truth
+who sits down and cirs just how many people know the real truth
 about his or her love affairs.
 		-- Rebecca West
-Three Rings for the Elven-kings under the sky,
+Three Rings for the Elven-kings unr the sky,
 Seven for the Dwarf-lords in their halls of stone,
 Nine for Mortal Men doomed to die,
 One for the Dark ord on his dark throne
@@ -23,7 +23,7 @@ Peach blossom:		I am your captive
 Petunia:		Your presence soothes me
 Poppy:			Sleep
 R, any color:	ove
-R, deep red:		Bashful shame
+R, ep red:		Bashful shame
 R, single, pink:	Simplicity
 R, thornless, any:	Early attachment
 R, white:		I am worthy of you
@@ -34,9 +34,9 @@ Sunflower:		Haughtiness
 Tulip, red:		Declaration of love
 Tulip, yellow:		Hopeless love
 Violet, blue:		Faithfulness
-Violet, white:		Modesty
+Violet, white:		Mosty
 Zinnia:			Thoughts of absent friends
-	* An upside-down blossom reverses the meaning.
+	* An upsi-down blossom reverses the meaning.
 rain falls where clouds come
 sun shines where clouds go
 clouds just come and go
@@ -47,9 +47,9 @@ A committee takes root and grows, it flowers, wilts and dies, scattering the
 seed from which other committees will bloom.
 		-- Parkinson
 Please, won't somebody tell me what diddie-wa-diddie means?
-character density, n.:
+character nsity, n.:
 	The number of very weird people in the office.
-If everybody minded their own business, the world would go around a deal faster.
+If everybody mind their own business, the world would go around a al faster.
 		-- The Duchess, "Through the ooking Glass"
 How kind of you to be willing to live someone's life for them.
 Bierman's aws of Contracts:
@@ -60,7 +60,7 @@ Expense Accounts, n.:
 	Corporate food stamps.
 First as to speech.  That privilege rests upon the premise that
 there is no proposition so uniformly acknowledged that it may not be
-lawfully challenged, questioned, and debated.  It need not rest upon
+lawfully challenged, questioned, and bated.  It need not rest upon
 the further premise that there  no propositi that  not
 open to doubt; it is enough, even if there , that in the end it is
 worse to suppress dissent than to run the risk of heresy.  Hence it
@@ -88,7 +88,7 @@ She sells cshs by the cshore.
 ove is always open arms.  With arms open you allow love to come and
 go as it wills, freely, for it will do so anyway.  If you cl your
 arms about love you'll find you  left only holding yourself.
-	The defense attorney was hammering away at the plaintiff:
+	The fense attorney was hammering away at the plaintiff:
 "You claim," he jeered, "that my client came at you with a broken bottle
 in his hand.  But is it not true, that you had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,
@@ -133,7 +133,7 @@ Zymurgy's aw of Volunteer abor:
 The verdict of a jury is the a priori opinion of that juror who smokes
 the worst cigars.
 		-- H. . Mencken
-"...very few phenomena can pull someone out of Deep Hack Mode, with two
+"...very few phenomena can pull someone out of Deep Hack Mo, with two
 noted excepti: being struck by lightning, or worse, your *computer*
 being struck by lightning."
 (By Matt Welsh)
@@ -146,18 +146,18 @@ Be valiant, but not too venturous.
 et thy attire be comely, but not costly.
 		-- John yly
 When he got in trouble in the ring, [Ali] imagined a door swung open and
-inside he could see neon, orange, and green lights blinking, and bats
+insi he could see neon, orange, and green lights blinking, and bats
 blowing trumpets and alligators blowing trombones, and he could h snakes
 screaming.  Weird masks and actors' clothes hung on the wall, and if he
 stepped across the sill and reached for them, he knew that he was committing
-himself to destruction.
+himself to struction.
 		-- George Plimpton
 belief, n:
 	Something you do not believe.
-In the long run we  all dead.
+In the long run we  all ad.
 		-- John Maynard Keynes
 	The prammers of old were mysterious and profound.  We cannot fathom
-their thoughts, so all we do is describe their appance.
+their thoughts, so all we do is scribe their appance.
 	Aw, like a fox crossing the water.  Alert, like a general on the
 battlefield.  Kind, like a hostess greeting her guests. Simple, like uncarved
 blocks of wood.  Opaque, like black pools in darkened caves.
@@ -165,10 +165,10 @@ blocks of wood.  Opaque, like black pools in darkened caves.
 	The answer exists only in the Tao.
 		-- Geoffrey James, "The Tao of Pramming"
 Smile!  You're on Candid Camera.
-Nature, to be commanded, must be obeyed.
+Nature, to be command, must be obeyed.
 		-- Francis Bacon
-"ove is an ideal thing, marriage a real thing; a confusion of the real with 
-the ideal  goes unpunished."
+"ove is an ial thing, marriage a real thing; a confusion of the real with 
+the ial  goes unpunished."
 -- Goethe
 Please stand for the National Anthem:
 
@@ -208,11 +208,11 @@ You mean you don't want to watch WRESTING from ATANTA?
 Article the Third:
 	Where a crime of the kidneys has been committed, the accused should
 	enjoy the  to a speedy diaper change.  Public announcements and
-	guided tours of the aforementioned  not necessary.
+	guid tours of the aforementioned  not necessary.
 Article the Fourth:
-	The decision to eat strained lamb or not should be with the "feedee"
-	and not the "feeder".  Blowing the strained lamb into the feeder's
-	face should be accepted as an opinion, not as a declaration of war.
+	The cision to eat strained lamb or not should be with the "feee"
+	and not the "feer".  Blowing the strained lamb into the feer's
+	face should be accepted as an opinion, not as a claration of war.
 Article the Fifth:
 	Babies should enjoy the freedom to vocalize, whether it be in church,
 	a public meeting place, during a movie, or after hours when the
@@ -230,7 +230,7 @@ the experiencing self and the outer world in an ecstatic, emotional experience,
 makes it posible with their help, and after suitable internal and 
 perparation...to evoke a mystical experience acing to plan, so to s...
 I see the true importance of SD in the possibility of providing materail aid 
-to meditation aimed at the mystical experience of a deeper, comprehensive
+to meditation aimed at the mystical experience of a eper, comprehensive
 reality.  Such a use acs enti with the essence and working character
 of SD as a sacred drug.
 - Dr. Albert Hoffman, the discoverer of SD
@@ -238,7 +238,7 @@ Politics:  A strife of interests masquerading as a contest of s.
 The conduct of public affairs for private advantage.
 -- Ambr Bierce
 angsam's aws:
-	(1) Everything depends.
+	(1) Everything pends.
 	(2) Nothing is always.
 	(3) Everything is sometimes.
 Violence stinks, no matter which end of it you're on.  But now and then
@@ -246,7 +246,7 @@ there's nothing left to do but hit the other person over the head with a
 frying pan.  Sometimes people  just begging for that frypan, and if we
 weaken for a moment and honor their request, we should regard it as
 impulsive philanthropy, which we n't in any position to afford, but
-shouldn't regret it too loudly lest we spoil the purity of the deed.
+shouldn't regret it too loudly lest we spoil the purity of the ed.
 		-- Tom Robbins
 awyer's Rule:
 	When the law is against you, argue the facts.
@@ -260,7 +260,7 @@ Yet kindly sells himself for nought;
 		-- Jonathan Swift
 A list is only as strong as its weakest link.
 		-- Don Knuth
-Crazee Edeee, his prices  INSANE!!!
+Crazee Eee, his prices  INSANE!!!
 I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
 "ive or die, I'll make a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
@@ -269,10 +269,10 @@ et us go then you and I
 while the night is laid out against the sky
 like a sm of mustard on an old pork pie.
 
-"Nice poem Tom.  I have ideas for changes though, why not come over?"
+"Nice poem Tom.  I have ias for changes though, why not come over?"
 	-- Ezra
 Humility is the first of the virtues -- for other people.
-		-- Oliver Wendell Holmes
+		-- Oliver Wenll Holmes
 He who laughs has not yet hd the bad news.
 		-- Bertolt Brecht
 Some people carve cers, others chisel them.
@@ -287,7 +287,7 @@ I s seve to my boy,
 For he can thoroughly enjoy
 	The pepper when he pleases!
 	Wow!  wow!  wow!
-		-- ewis Carrol, "Alice in Wonderland"
+		-- ewis Carrol, "Alice in Wonrland"
 [He] took me into his library and showed me his books, of which he had
 a complete set.
 		-- Ring ardner
@@ -305,11 +305,11 @@ Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
 History tends to exaggerate.
 		-- Col. Green, "The Sa Curtain", stardate 5906.4
-What does not destroy me, makes me stronger.
+What does not stroy me, makes me stronger.
 		-- Nietzsche
-A bureaucrat's idea of cleaning up his files is to make a copy of everything
-before he destroys it.
-If you had better tools, you could more effectively demtrate your
+A bureaucrat's ia of cleaning up his files is to make a copy of everything
+before he stroys it.
+If you had better tools, you could more effectively mtrate your
 total incompetence.
 Be valiant, but not too venturous.
 et thy attire be comely, but not costly.
@@ -317,10 +317,10 @@ et thy attire be comely, but not costly.
 Oxygen is a very toxic gas and an extreme fire hazard.  It is fatal in
 concentrati of as little as 0.000001 p.p.m.  Humans expd to the
 oxygen concentrati die within a few minutes.  Symptoms resemble very
-much th of cyanide poisoning (blue face, etc.).  In higher
-concentrati, e.g. 20%, the toxic effect is somewhat delayed and it
-takes about 2.5 billion inhalati before death takes place.  The reason
-for the delay is the difference in the mechm of the toxic effect of
+much th of cyani poisoning (blue face, etc.).  In higher
+concentrati, e.g. 20%, the toxic effect is somewhat layed and it
+takes about 2.5 billion inhalati before ath takes place.  The reason
+for the lay is the difference in the mechm of the toxic effect of
 oxygen in 20% concentration.  It appntly contributes to a complex
 process called aging, of which very little is known, except that it is
 always fatal.
@@ -328,8 +328,8 @@ always fatal.
 However, the main disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
 sufficient to make oxygen addiction permanent.  After that, any
-ciderable decrease in the daily oxygen ds results in death with
-symptoms resembling th of cyanide poisoning.
+cirable crease in the daily oxygen ds results in ath with
+symptoms resembling th of cyani poisoning.
 
 Oxygen is an extreme fire hazard.  All of the fires that were reported in
 the continental U.S. for the period of the past 25 ys were found to be
@@ -337,7 +337,7 @@ due to the presence of this gas in the atmosphere surrounding the buildings
 in question.
 
 Oxygen is especially dangerous because it is odorless, colorless and
-tasteless, so that its presence can not be readily detected until it is
+tasteless, so that its presence can not be readily tected until it is
 too late.
 		-- Chemical & Engineering News February 6, 1956
 Teachers have class.
@@ -345,7 +345,7 @@ Teachers have class.
 		-- R. Willard, Pure Math 430a
 When women love us, they forgive us everything, even our crimes; when they do
 not love us, they give us credit for nothing, not even our virtues.
-		-- Honor'e de Balzac
+		-- Honor'e  Balzac
 I really look with commiseration over the great body of my fellow citizens
 who, reading newspapers, live and die in the belief that they have known
 something of what has been passing in their time.
@@ -383,15 +383,15 @@ people refuse to see it.
 		-- James Michener, "Space"
 As I argued in "oved Son", a book about my son Brian and the subject
 of relius communes and cults, one result of proper ly instruction
-in the methods of rational thought will be to make sudden mindless
+in the methods of rational thought will be to make sudn mindless
 conversi -- to anything -- less likely.  Brian now realizes this and
 has, after eleven ys, left the sect he was associated with.  The 
-problem is that once the untrained mind has made a formal commitment to
+problem is that once the untrained mind has ma a formal commitment to
 a relius philosophy -- and it does not matter whether that philosophy
-is generally reasonable and high-minded or utterly bizarre and 
+is generally reasonable and high-mind or utterly bizarre and 
 irrational -- the powers of reason  suprisingly ineffective in 
 changing the 's mind.
-- Steve Allen, comdeian, from an essay in the book "The Courage of 
+- Steve Allen, comian, from an essay in the book "The Courage of 
   Conviction", edited by Philip Berman
 ife does not begin at the moment of conception or the moment of birth.
 It begins when the kids leave home and the dog dies.
@@ -399,27 +399,27 @@ For every credibility gap, there is a gullibility fill.
 		-- R. Clopton
 So much food; so little time!
 XIIdigitation, n.:
-	The practice of trying to determine the y a movie was made
-	by deciphering the Roman numerals at the end of the credits.
+	The practice of trying to termine the y a movie was ma
+	by ciphering the Roman numerals at the end of the credits.
 		-- Rich Hall, "Sniglets"
-The Army needs leaders the way a foot needs a big toe.
+The Army needs lears the way a foot needs a big toe.
 		-- Bill Murray
-A student, in hopes of understanding the ambda-nature, came to Greenblatt.
+A stunt, in hopes of unrstanding the ambda-nature, came to Greenblatt.
 As they spoke a Multics system hacker walked by.  "Is it true", asked the
-student, "that P-1 has many of the same data types as isp?"  Almost before
-the student had finished his question, Greenblatt shouted, "FOO!", and hit
-the student with a stick.
+stunt, "that P-1 has many of the same data types as isp?"  Almost before
+the stunt had finished his question, Greenblatt shouted, "FOO!", and hit
+the stunt with a stick.
 ike you,  I am frequently haunted by profound questi related to man's
 place in the Scheme of Things.  Here  just a few:
 
-	Q -- Is there life after death?
+	Q -- Is there life after ath?
 	A -- Definitely.  I s from personal experience here.  On New
 Y's Eve, 1970, I drank a full pitcher of a drink called "Black Russian",
 then crawled out on the lawn and died within a matter of minutes, which was
 fine with me because I had come to realize that if I had lived I would have
 spent the rest of my life in the grip of the most excruciatingly painful
-headache.  Thanks to the miracle of modern orange juice, I was brought back
-to life several days later, but in the interim I was definitely dead.  I
+headache.  Thanks to the miracle of morn orange juice, I was brought back
+to life several days later, but in the interim I was finitely ad.  I
 guess my main impression of the afterlife is that it isn't so bad as long
 as you keep the television turned down and don't try to eat any solid foods.
 		-- Dave Barry
@@ -429,7 +429,7 @@ A clash of doctrine is not a disaster -- it is an opportunity.
 	Take the folks at Coca-Cola.  For many ys, they were content
 to sit back and make the same old carbonated beverage.  It was a good
 beverage, no question about it; generati of people had grown up
-drinking it and doing the experiment in sixth grade where you put a
+drinking it and doing the experiment in sixth gra where you put a
 nail into a glass of Coke and after a couple of days the nail dissolves
 and the teacher says: "Imagine what it does to your TEETH!"  So Coca-Cola
 was solidly entrenched in the market, and the management saw no need to
@@ -439,13 +439,13 @@ Voicless it cries,
 Wingless flutters,
 Toothless bites,
 Mouthless mutters.
-No self-made man ever did such a good job that some woman didn't
+No self-ma man ever did such a good job that some woman didn't
 want to make some alterati.
 		-- Kim Hubbard
 Fortunate is he for whom the belle toils.
 This is the tomorrow you worried about yesterday.  And now you know why.
 You can  trust a woman; she may be true to you.
-Traffic signals in New York  just rough guidelines.
+Traffic signals in New York  just rough guilines.
 		-- David etterman
 A woman, especially if she have the misfortune of knowing anything,
 should conceal it as well as she can.

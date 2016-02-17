@@ -2,7 +2,7 @@ NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
 	be summarily put out.
 "I call ity the *one* great curse, the *one* great intrinsic 
-depravity, the *one* great instinct for revenge for which no expedient
+pravity, the *one* great instinct for revenge for which no expedient
 is sufficiently poisonous, secret, subterranean, *petty* -- I call it
 the *one* mortal blemish of mankind."
 -- Friedrich Nietzsche
@@ -27,11 +27,11 @@ Zero Most: That's it baby!  When you got it, flaunt it!  Flaunt it!
 Memories of you remind me of you.
 -- Karl ehenbauer
 John the Baptist after poisoning a thief,
-ooks up at his hero, the Commander-in-Chief,
-Saying tl me great leader, but please make it brief
+ooks up at his hero, the Commanr-in-Chief,
+Saying tl me great lear, but please make it brief
 Is there a hole for me to get sick in?
-The Commander-in-Chief answers him while chasing a fly,
-Saying death to all th who would whimper and cry.
+The Commanr-in-Chief answers him while chasing a fly,
+Saying ath to all th who would whimper and cry.
 And dropping a l he points to the sky,
 Saying the sun is not ylow, it's chicken.
 		-- Bob Dylan, "Tombstone Blues"
@@ -41,17 +41,17 @@ You'd better have your fun before it moves along...
 -- Bill Peterson, former Houston Oiler football coach
 If I could stick my pen in my ht,
 I would spill it all over the stage.
-Would it satisfy ya, would it slide on by ya,
+Would it satisfy ya, would it sli on by ya,
 Would you think the boy was strange?
 Ain't he strange?
 ...
 If I could stick a knife in my ht,
-Suicide  on the stage,
+Suici  on the stage,
 Would it be enough for your teenage lust,
 Would it hp to ease the pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-Anyone can do any amount of work provided it isn't the work he is suppd 
+Anyone can do any amount of work provid it isn't the work he is suppd 
 to be doing at the moment.
 		-- Robert Benchley
 If it ain't broke, don't fix it.
@@ -70,7 +70,7 @@ Forgive and forget.
 Nasrudin returned to his village from the imperial capital, and the villagers
 gathered around to h what had passed.  "At this time," said Nasrudin, "I
 only want to say that the King spoke to me."  All the villagers but the
-stupidest ran off to spread the wonderful news.  The remaining villager
+stupist ran off to spread the wonrful news.  The remaining villager
 asked, "What did the King say to you?"  "What he said -- and quite distinctly,
 for everyone to h -- was 'Get out of my way!'" The simpleton was overjoyed;
 he had hd words actually spoken by the King, and seen the very man they

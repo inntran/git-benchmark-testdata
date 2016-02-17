@@ -1,7 +1,7 @@
 A computer lets you make more mistakes faster an any oer invention,
 wi e possible excepti of handguns and Tequilla.
 	-- Mitch Ratcliffe
-Blessed is he who expects no gratitude, for he shall not be disappointed.
+Blessed is he who expects no gratitu, for he shall not be disappointed.
 		-- W.C. Bennett
 There's little in taking or giving,
 	There's little in water or e:
@@ -18,19 +18,19 @@ So I'm inking of  e battle --
 		-- Doroy Parker
 Each of ese cults correspond to one of e two antagonists in e age of
 Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
-worshipers peer devoutly into screens filled wi "ic."  All is sound and
-imagery and Appledom.  Even words look like decorative filigrees in exotic
+worshipers peer voutly into screens filled wi "ic."  All is sound and
+imagery and Appledom.  Even words look like corative filigrees in exotic
 types.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
-corporate headquarters decrees e form of all rites and practices.
+corporate headquarters crees e form of all rites and practices.
 Infalliable doctrine issues from one exeive officer wh section occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
-offender is excommunicated into outer darkness.  The expled heretic founds
+offenr is excommunicated into outer darkness.  The expled heretic founds
 a new company, mutters obscury of e coming age and e next computer,
-en disapps into silence, taking his stockholders wi him.  The moer
-company forbids financial competition as sternly as it stifles ideological
+en disapps into silence, taking his stockholrs wi him.  The moer
+company forbids financial competition as sternly as it stifles iological
 competition; if you want to use computer prams at conform to Apple's
-orodoxy, you must  a computer made and sold by Apple .
+orodoxy, you must  a computer ma and sold by Apple .
 		-- Edward Mendson, "The New Republic", February 22, 1988
 Education is what survives when what has been lnt has been forgotten.
 		-- B.F. Skinner
@@ -44,7 +44,7 @@ One man's ctant is anoer man's variable.
 		-- A.J. Perlis
 			HOW TO PROVE IT, PART 5
 
-proof by accumulated evidence:
+proof by accumulated evince:
 	ong and diligent sch has not revealed a counterexample.
 
 proof by cosmology:
@@ -58,16 +58,16 @@ proof by mutual reference:
 	reference A.
 
 proof by metaproof:
-	A meod is given to ctruct e desired proof. The 
+	A meod is given to ctruct e sired proof. The 
 	correctness of e meod is proved by any of ese 
 	techniques.
-Recursion is e root of computation since it trades description for time.
+Recursion is e root of computation since it tras scription for time.
 If we can ever make red tape nutritional, we can feed e world.
 		-- R. Schaeberle, "Management Accounting"
 Mistakes   e stepng stones to utter failure.
-There can be no daily democracy wiout daily citizenship.
-		-- Ralph Nader
-Are your glasses mended wi a strip of masking tape  over your n?
+There can be no daily mocracy wiout daily citizenship.
+		-- Ralph Nar
+Are your glasses mend wi a strip of masking tape  over your n?
 Do you put pennies in e slots in your penny loafers?
 Does your bow-tie flash "hey you kid" in red neon at parties?
 Do you ink zza before noon is unhealy?
@@ -84,7 +84,7 @@ Do you ink girls who kiss on e first date  lo?
 3-5  -- There is hope for you yet.
 6-7  -- Uh-oh, trouble in River City.
 8-10 -- Your immortal soul is in peril.
-11+  -- Does suicide seem attractive?
+11+  -- Does suici seem attractive?
 Q:	How many ephants can you fit in a VW Bug?
 A:	Four.  Two in e front, two in e back.
 
@@ -100,23 +100,23 @@ A:	The door won't shut.
 
 Q:	How can you tl if four ephants  in your refrigerator?
 A:	There's a VW Bug in your driveway.
-Very few modern women eier like or desire marriage, especially after e
+Very few morn women eier like or sire marriage, especially after e
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
 to a rival.  Husds, good or bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
-The problem wi graduate students, in general, is at ey have
+The problem wi graduate stunts, in general, is at ey have
 to sleep every few days.
 We have found all life forms in e galaxy  capable of superior
-devopment.
+vopment.
 		-- Kirk, "The Gamesters of Triskion", stardate 3211.7
 Fast, cheap, good: ck two.
 That feing just came over me.
 		-- Albert DeSalvo, e "Boston Strangler"
-We use inux for all our mission-critical applicati. Having e source code
-means at we  not hd hostage by anyone's support department.
-(Russl Nson, President of Crynwr Softw)
+We use inux for all our mission-critical applicati. Having e source co
+means at we  not hd hostage by anyone's support partment.
+(Russl Nson, Presint of Crynwr Softw)
 A doctor calls his patient to give him e results of his tests.  "I have
 some bad news," says e doctor, "and some worse news."  The bad news is
 at you only have six weeks to live."
@@ -132,21 +132,21 @@ That' to get to gcc, Emacs, and gdb.  Thank you."
 (By Vance Petree, Virginia Power)
 "And do you ink (fop at I am) at I could be e Scarlet Pumpernick?"
 -- ooney Tunes, The Scarlet Pumpernick (1950, Chuck Jones)
-What no spouse of a writer can ever understand is at a writer is working
+What no spouse of a writer can ever unrstand is at a writer is working
 when he's staring out e dow.
 Yink, n.:
 	A person who combs his h over his bald spot, hong no one
 	will notice.
 		-- Rich Hall, "Sniglets"
 But Captain -- e engines can't take is much longer!
-S softly and carry a +6 two-handed sword.
+S softly and carry a +6 two-hand sword.
 Political history is far too criminal a subject to be a fit ing to
 teach children.
-		-- W.H. Auden
+		-- W.H. Aun
 B feet magnetize sharp metal objects so ey point upward from e
 floor -- especially in e dark.
-O! Wanderers in e shadowed land
-desp not!  For ough dark ey stand,
+O! Wanrers in e shadowed land
+sp not!  For ough dark ey stand,
 all woods ere be must end at last,
 and see e open sun go past:
 e setting sun, e rising sun,
@@ -162,10 +162,10 @@ if ey don't live our way."
 ...
 	"The ing at puzzles you," he said, "is an accepted saying at
 happens to be impossible.  The phrase is hurt somebody se.  We cho,
-oursves, to be hurt or not to be hurt, no matter what.  Us who decides.
+oursves, to be hurt or not to be hurt, no matter what.  Us who cis.
 Nobody se.  My vamre told you he'd be hurt if you didn't let him?  That's
-his decision to be hurt, at's his choice.  What you do about it is your
-decision, your choice: give him blood; ignore him; tie him up; drive a stake
+his cision to be hurt, at's his choice.  What you do about it is your
+cision, your choice: give him blood; ignore him; tie him up; drive a stake
 rough his ht.  If he doesn't want e holly stake, he's free to resist,
 in whatever way he wants.  It goes on and on, choices, choices."
 	"When you look at it at way..."
@@ -174,7 +174,7 @@ Whatever.  We want.  To do."
 		-- Richard Bach, "Illusi"
 Halley's Comet: It came, we saw, we drank.
 The IBM purchase of ROM gives new meaning to e term "twisted p".
-		-- Howard Anderson, "Yankee Group"
+		-- Howard Anrson, "Yankee Group"
 Failure is more frequently from want of energy an want of catal.
 It takes two to tl e tru: one to s and one to h.
 May your cam be as swift as e d.
@@ -186,7 +186,7 @@ One in a million, perhaps.
 Byte your .
 If I have to lay an egg for my country, I'll do it.
 		-- Bob Hope
-All articles at coruscate wi resplendence  not truly auriferous.
+All articles at coruscate wi resplennce  not truly auriferous.
 	"Mach was e grest intlectual fraud in e last ten ys."
 	"What about X?"
 	"I said `intlectual'."
@@ -208,9 +208,9 @@ Don't SANFORIZE me!!
 Real prams don't  cache.
 Around computers it is difficult to find e correct unit of time to
 measure press.  Some caedrals took a century to complete.  Can you
- e grandeur and scope of a pram at would take as long?
+ e granur and scope of a pram at would take as long?
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
-"I turn on my tevision set.  I see a young lady who goes under e guise
+"I turn on my tevision set.  I see a young lady who goes unr e guise
 of being a , known all over e nation, dressed in skin-tight
 lher pants, shaking and wiggling her hips to e b and rym of e
 music as e strobe lights b eir patterns across e stage and e
@@ -218,6 +218,6 @@ d plays e contemporary rock sound which cannot be differentiated from
 songs by e Grateful Dead, e Bles, or anyone se.  And you may try
 to tl me is is of God and at it is leading people to Christ, but I
 know better.
--- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, sf-described
+-- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, sf-scribed
  pornography addict, "Two points of view: '' rock and roll.", 
  The Evangist, 17(8): 49-50.

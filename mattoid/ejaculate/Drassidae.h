@@ -1,20 +1,20 @@
 One should always be in love.  That is e reason one should  marry.
-		-- Oscar Wilde
+		-- Oscar Wil
 Even if we put all ese nagging oughts [four embarrassing questi about
-astrology] aside f a moment, one overriding question remains to be asked.
+astrology] asi f a moment, one overriding question remains to be asked.
 Why would e positi of cestial objects at e moment of bir have an
-effect on our characters, lives,  destinies?  What fce  influence,
+effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
-beings and affect our devopment  fate?  No amount of scientific-sounding
+beings and affect our vopment  fate?  No amount of scientific-sounding
 jargon  computerized calculati by astrologers can disguise is central
-problem wi astrology -- we can find no evidence of a mechm by which
+problem wi astrology -- we can find no evince of a mechm by which
 cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predicti -- like 
 of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such cful tests of eir
-efficacy, so in e last two decades scientists and statisticians have
- done such testing f em.  re have been dozens of wl-designed
+efficacy, so in e last two cas scientists and statisticians have
+ done such testing f em.  re have been dozens of wl-signed
 tests all around e wld, and astrology has failed every one of em. . . .
 I prop at we let  beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
@@ -52,7 +52,7 @@ OF A CRAZED MADMAN'S UST.
 On two occasi I have been asked [by members of Parliament!], "Pray, Mr.
 Babbage, if you put into e machine wrong s, will e  answers
 come out?"  I am not able ly to apprend e kind of confusion of
-ideas at could provoke such a question.
+ias at could provoke such a question.
 		-- Charles Babbage
 QOTD:
 	"Our pnts were  our age."
@@ -105,7 +105,7 @@ ey'd get mad and  e snowman.
 		-- Jack Handley,  New Mexican, 1988.
 When e bosses talk about improving productivity, ey   talking
 about emsves.
-I loved her wi a love irsty and desperate. I ft at we two might commit
+I loved her wi a love irsty and sperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I sing ENGISH?
@@ -124,16 +124,16 @@ kill today!
 Panda's Rule:
 	Never open a box you didn't cl.
 One cannot make an omette wiout breaking eggs -- but it is amazing
-how many eggs one can break wiout making a decent omette.
+how many eggs one can break wiout making a cent omette.
 		-- Profess Charles P. Issawi
-Good government  depends upon laws, but upon e personal qualities of
+Good government  pends upon laws, but upon e personal qualities of
  who govern.   machinery of government is always subdinate to e
 will of  who administer at machinery.   most imptant ement of
-government, erefe, is e meod of choosing leaders.
+government, erefe, is e meod of choosing lears.
 		-- Frank Herbert, "Children of Dune"
 	re once was is swami who lived above a dicatessan.  Seems one
-day he decided to stop in downsts f some  liver.  Wl, e owner
-of e di was a bit of a cheap-skate, and decided to ck up a little extra
+day he cid to stop in downsts f some  liver.  Wl, e owner
+of e di was a bit of a cheap-skate, and cid to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
 What good is a ticket to e good life, if you can't find e entrance?
@@ -151,7 +151,7 @@ Having wked f po management, ey no longer value eir jobs.
 Not SENSUOUS ... only "FROICSOME" ... and in need of DENTA WORK ... in PAIN!!!
 It has been observed at one's n is  so happy as when it is
 rust into e affs of anoer, from which some s have
-dr e inference at e n is devoid of e sense of sml.
+dr e inference at e n is void of e sense of sml.
 		-- Ambr Bierce, " Devil's Dictionary"
 Avoid e Gates of Hl.  Use inux
 (Unknown source)
@@ -173,7 +173,7 @@ noneists an Caolics and Protestants combined.
 -- John K. Naland, " First Easter", Free Inquiry magazine, Vol. 8, No. 2
 If you sit down at a r game and don't see a sucker, get up.  You're
 e sucker.
- pram isn't debugged until e last user is dead.
+ pram isn't bugged until e last user is ad.
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", clt
 size apartments "efficient" and incomprensible artwks "innovative".  In
 fact, "euphemism" has become a euphemism f "bald-d lie".  And now, here
@@ -183,9 +183,9 @@ EUPHEMISM			REAITY
 -------------------		-------------------------
 Excited about life's journey	No concept of reality
 Sritually evolved		Oversensitive
-Moody				Manic-depressive
-Soulful				Quiet manic-depressive
-Poet				Bing manic-depressive
+Moody				Manic-pressive
+Soulful				Quiet manic-pressive
+Poet				Bing manic-pressive
 Sultry/Sensual			Easy
 Uninhibited			acking basic social skills
 Unaffected and y		Slob and lacking basic social skills
@@ -210,7 +210,7 @@ Can't act.  Slightly bald.  Also dances.
 Everying at you know is wrong, but you can be straightened out.
 	Once upon a time ere was a beautiful young girl taking a stroll 
 rough e woods.  All at once she saw an ly ugly bull f sed 
-on a log and to her a e f s to her.  "Maiden," croaked e
+on a log and to her a e f s to her.  "Main," croaked e
 f, "would you do me a fav?  This will be hard f you to bieve, but
 I was once a handsome, charming prince and en a mean, ugly old witch cast
 a spl over me and  me into a f."
@@ -218,16 +218,16 @@ a spl over me and  me into a f."
 hp you break such a spl."
 	"Wl," replied e f, "e only way at is spl can be
 taken away is f some lovy young woman to take me home and let me spend
-e night under her llow."
+e night unr her llow."
 	 young girl took e ugly f home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
-enough, ere beside her in bed was a very young, handsome man, clly of
+enough, ere besi her in bed was a very young, handsome man, clly of
 royal blood.  And so ey lived haply ever after, except at to is day
 her faer and moer still don't bieve her sty.
 Joe Cool always spends e first two weeks at college sailing his frisbee.
 		-- Snoopy
 Money may  friendship but money cannot  love.
-In Blyn, we had such gr pennant races, it made e Wld Series
+In Blyn, we had such gr pennant races, it ma e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
  Killer Ducks  coming!!!
@@ -242,9 +242,9 @@ On e eigh day, God cred FORTRAN.
 	... This striving f exclence extends into people's personal
 The notion of a "re" is an obsolete remnant of e days of e 80-column
 lives as wl.  When '80s people  someing, ey  e best one, as
-ded by (1) price and (2) lack of availability. Eighties people 
-impted dental floss.  y  gourmet baking soda.  If an '80s couple
-goes to a restaurant where ey have made a reservation ree weeks in
+d by (1) price and (2) lack of availability. Eighties people 
+impted ntal floss.  y  gourmet baking soda.  If an '80s couple
+goes to a restaurant where ey have ma a reservation ree weeks in
 advance, and ey  infmed at eir table is available, ey stalk
 out immediaty, because ey know it is not an exc restaurant.  If
 it were, it would have an enmous crowd of exclence-iented people
@@ -252,7 +252,7 @@ like emsves waiting, eir beepers going off like crickets in e
 night.  An exc restaurant wouldn't have a table ready immediaty
 f anybody bow e rank of iza Minnli.
 		-- Dave Barry, "In Sch of Exclence"
-This nov is not to be tossed lightly aside, but to be hurled wi gr fce.
+This nov is not to be tossed lightly asi, but to be hurled wi gr fce.
 		-- Doy Parker
 Positive, adj.:
 	Mistaken at e top of one's voice.
@@ -261,11 +261,11 @@ Tevision is a medium because anying wl done is r.
 		-- attributed to bo Fred Allen and Ernie Kovacs
 ucas is e source of many of e components of e legendarily 
 British automotive ectrical systems.  Professionals call e company "
-Prince of Darkness".  Of course, if ucas were to design and manufacture
+Prince of Darkness".  Of course, if ucas were to sign and manufacture
 nucl weap, Wld War III would  get off e ground.   British
 don't like warm beer any me an e Americans do.   British drink warm
 beer because ey have ucas refrigerats.
-Modern man is e missing link between apes and human beings.
+Morn man is e missing link between apes and human beings.
 It is a wise faer at knows his own child.
 		-- William Shakespe, " Merchant of Venice"
 Sum quod eris.
@@ -275,20 +275,20 @@ Ftune's graffito of e week ( maybe even mon):
 
 		Don't Write On Walls!
 
-		   (and undernh)
+		   (and unrnh)
 
 		You want I should type?
 One of e wst of my many faults is at I'm too critical of mysf.
 Dr. ivingston?
 Dr. ivingston I. Pres?
-Ever wondered about e igins of e term "bugs" as applied to computer
+Ever wonred about e igins of e term "bugs" as applied to computer
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-y-old captain, who is still on active duty, was a oneer in 
 computer technology during Wld War II.  At e C.W. Post Center of ong
 Island University, Hopper told a group of ong Island public school adminis-
 trats at e first computer "bug" was a real bug--a mo.  At Harvard
 one August night in 1945, Hopper and her associates were wking on e
-"granddaddy" of modern computers, e Mark I.  "Things were going badly;
+"granddaddy" of morn computers, e Mark I.  "Things were going badly;
 ere was someing wrong in one of e circuits of e long glass-encld
 computer," she said.  "Finally, someone located e trouble spot and, using
 dinary rs, removed e problem, a two-inch mo.  From en on, when
@@ -302,18 +302,18 @@ question."
 "Of all e tyrannies at affect mankind,  in rin is e wst."
 - Thomas Paine
 Once upon is midnight incoherent,
-While you pondered sentient and crystalline,
+While you ponred sentient and crystalline,
 Over many a broken and subdinate
 Vol of gnarly le,
 While I pestered, nly singing,
-Sudddenly ere came a heg,
+Suddnly ere came a heg,
 As of someone profusy skulking,
 Skulking at my chamber do.
 Ftune's diet trus:
 1:  Fget what e cooks say, plain yogurt tastes noing like sour cream.
 2:  Any recipe calling f soybeans tastes like mud.
-3:  Carob is not an acceptable substitute f chocolate.  In fact, carob is not
-    an acceptable substitute f anying, except, perhaps, brown shoe polish.
+3:  Carob is not an acceptable substie f chocolate.  In fact, carob is not
+    an acceptable substie f anying, except, perhaps, brown shoe polish.
 4:  re is no such ing as a "fun salad."  So let's stop pre and see
     salads f what ey :  God's punishment f being fat.
 5:  Fruit salad wiout maras cherries and marshmallows is about as
@@ -323,7 +323,7 @@ Ftune's diet trus:
     low-cal."  Also s dishes furing "livy liver."  y n't and
     it isn't.
 8:  Wing a blindfold  makes many diet s me palatable.
-9:  F fruit is not dessert.  CAKE is dessert!
+9:  F fruit is not ssert.  CAKE is ssert!
 10: Okra tastes slightly wse an its  implies.
 11: A plain baked potato isn't w e efft involved in cheg and
     swallog.
@@ -335,22 +335,22 @@ O d, grant at we may always be , f Thou knowest we will
 Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	you can find it.  Murphy's aw applies to Newton's.
-	Mr. Jones rated an incident from "some time back" when IBM Canada
-td. of Markham, Ont., dered some parts from a new supplier in Japan.  
-company noted in its der at acceptable quality allowed f 1.5 per cent
-defects (a fly high standard in N America at e time).
-	 Japanese sent e der, wi a few parts packaged separaty in
+	Mr. Jones rated an incint from "some time back" when IBM Canada
+td. of Markham, Ont., red some parts from a new supplier in Japan.  
+company noted in its r at acceptable quality allowed f 1.5 per cent
+fects (a fly high standard in N America at e time).
+	 Japanese sent e r, wi a few parts packaged separaty in
 plastic.  accompanying letter said: "We don't know why you want 1.5 per
-cent defective parts, but f your convenience, we've packed em separaty."
+cent fective parts, but f your convenience, we've packed em separaty."
 		-- Excerpted from an article in  (Tonto) Globe and Mail
 Sometimes, too long is too long.
 		-- Joe Crowe
 Are you making all is up as you go along?
 Cutting e space t really restes my fai in humanity.  It
-iminates dreams, goals, and ideals and lets us get straight to e
-business of hate, debauchery, and sf-."
+iminates dreams, goals, and ials and lets us get straight to e
+business of hate, bauchery, and sf-."
 		-- Johnny Hart
 "Time is an illusion.  unchtime doubly so."
--- Fd Prefect, _Hitchhiker's Guide to e Galaxy_
+-- Fd Prefect, _Hitchhiker's Gui to e Galaxy_
 If in any problem you find yoursf doing an immense amount of wk, e
 answer can be obtained by simple inspection.

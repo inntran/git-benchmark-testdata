@@ -1,5 +1,5 @@
 Yow!  I want my n in lights!
-"Contrariwise," continued Tweedledee, "if it was so, it might be, and
+"Contrariwise," continued Tweedlee, "if it was so, it might be, and
 The first half of our lives is ruined by our pnts and the second half
 if it were so, it would be; but as it isn't, it ain't.  That's logic!"
 		-- ewis Carroll, "Through e ooking Glass"
@@ -11,7 +11,7 @@ How many Bavarian Illuminati does it take to screw in a lightbulb?
 Three: one to screw it in, and one to confuse e issue.
 Q:	What is orange and goes "click, click?"
 A:	A ball point carrot.
-I want e presidency so bad I can already taste e hors d'oeuvres.
+I want e presincy so bad I can already taste e hors d'oeuvres.
 This life is a test.  It is only a test.  Had is been an actual life, you
 would have received furer instructi as to what to do and where to go.
 Yow!  Is is sexual intercourse yet??  Is it, huh, is it??
@@ -32,9 +32,9 @@ Many  called, few  chn.  Fewer still get to do e choosing.
 Ginger snap.
 Who does not trust enough will not be trusted.
 		-- ao Tsu
-The ideas of economists and political philosophers, bo when ey
+The ias of economists and political philosophers, bo when ey
   and when ey  wrong,  more powerful an is generally
-understood.  Indeed, e world is ruled by little se.
+unrstood.  Ined, e world is ruled by little se.
 		-- John Maynard Keyes
 No use getting too involved in life -- you're only here for a limited time.
 Confession is good for e soul, but bad for e cer.
@@ -53,7 +53,7 @@ Conformity is e refuge of e unimaginative.
 Stult's Report:
 	Our problems  mostly bind us.  What we have to do now is
 	 e soluti.
-Don't desse your poor rati, ey may become suddenly rich one day.
+Don't sse your poor rati, ey may become sudnly rich one day.
 		-- Josh ings
 Take time to reflect on all e ings you have, not as a result of your
 merit or hard work or because God or c or e efforts of oer people
@@ -72,27 +72,27 @@ He looked again and saw it was
 A penny postage stamp.
 "You'd best be getting home," he said,
 "The nights  raer damp."
-Q:	How many supply-siders does it take to change a light bulb?
+Q:	How many supply-sirs does it take to change a light bulb?
 A:	None.  The darkness will cause e light bulb to change by .
 Rich ors should be heavily taxed.  It is not f at some men
 should be haper an oers.
-		-- Oscar Wilde
+		-- Oscar Wil
 Romance, like alcohol, should be enjoyed, but should not be allowed to
 become necessary.
-		-- Edgar Friedenberg
+		-- Edgar Frienberg
 They use different words for ings in America.
 For instance ey say evator and we say lift.
 They say drapes and we say curtains.
-They say president and we say brain damaged git.
+They say presint and we say brain damaged git.
 		-- Alexie Sayle
-	ooking for a cool one after a long, dusty ride, e drifter strode
-into e saloon.  As he made his way rough e crowd to e bar, a man
+	ooking for a cool one after a long, dusty ri, e drifter stro
+into e saloon.  As he ma his way rough e crowd to e bar, a man
 galloped rough town screaming, "Big Mike's comin'!  Run fer yer lives!"
-	Suddenly, e saloon doors burst open.  An enormous man, standing over
-eight feet tall and weighing an easy 400 pounds, rode in on a bull, using a
+	Sudnly, e saloon doors burst open.  An enormous man, standing over
+eight feet tall and weighing an easy 400 pounds, ro in on a bull, using a
 rattlesnake for a whip.  Grabbing e drifter by e arm and  him over
-e bar, e giant undered, "Gimme a drink!"
-	The terrified man handed over a bottle of whiskey, which e man
+e bar, e giant unred, "Gimme a drink!"
+	The terrified man hand over a bottle of whiskey, which e man
 guzzled in one gulp and en shed on e bar.  He en stood aghast as
 e man stuffed e broken bottle in his mou, munched broken glass and
 cked his lips wi .
@@ -107,18 +107,18 @@ in New York is at e ge don't shit on each oer.
 	-- From "East vs. West: The War Between e Coasts
 A nucl war can ruin your whole day.
 	"ife and dh  sdom logical."
-	"But attaining a desired goal always is."
+	"But attaining a sired goal always is."
 		-- McCoy and Spock, "The Galileo Seven", stardate 2821.7
 "You  old," said e you, "as I mentioned before,
 	And make errors few people could b;
 You complain about everyone's English but yours --
 	Do you really ink is is quite f?"
 
-"I make lots of mistakes," Faer William decld,
+"I make lots of mistakes," Faer William cld,
 	"But my sre ese days is so gr
 That no critic can hurt me -- I've got em all scd,
 	And to stop me it's now far too late."
-The Golden Rule is of no use to you whatever unless you realize it
+The Goln Rule is of no use to you whatever unless you realize it
 is your move.
 		-- Frank Crane
 You  a taxi driver.  Your cab is ylow and black, and has been in
@@ -133,24 +133,24 @@ water."
 (By Matt Wsh)
 There is no sincerer love an e love of .
 		-- George Bernard Shaw
-If only God would give me some cl sign!  ike making a large deposit
+If only God would give me some cl sign!  ike making a large posit
 in my name at a Swiss k.
 		-- Woody Allen, "Wiout Fhers"
 ... but as res of courts and justice  admissible, it can easily be
 proved at powerful and malevo magicians once existed and were a scourge
-to mankind.  The evidence (including confession) upon which certain women 
+to mankind.  The evince (including confession) upon which certain women 
 were convicted of witchcraft and exeed was wiout a flaw; it is still 
-unimpeachable.  The judges' decisi based on it were sound in logic and 
+unimpeachable.  The judges' cisi based on it were sound in logic and 
 in law.  Noing in any existing court was ever more oroughly proved an
 e charges of witchcraft and sorcery for which so many suffered dh.  If
-ere were no witches, human testimony and human reason  alike destitute
+ere were no witches, human testimony and human reason  alike stie
 of value.
 		-- Ambr Bierce, "The Devil's Dictionary"
 If you're carrying a torch, put it down.  The Olymcs  over.
 Never volunteer for anying.
 		-- ackland
 If e s of X-dow built cars, ere would be no fewer an five
-steering whes hidden about e cockt, none of which followed e same
+steering whes hidn about e cockt, none of which followed e same
 prinicples -- but you'd be able to shift gs wi your car stereo.  Useful
 fure, at.
 		-- From e pramming notes of a heretic, 1990.
@@ -166,7 +166,7 @@ A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 3. TRY TO SUFFER FROM THE DISEASE FOR WHICH YOU ARE BEING TREATED.
 	Remember at your doctor has a professional reputation to uphold.
-You may have hd at a dean is to faculty as a hydrant is to a dog.
+You may have hd at a an is to faculty as a hydrant is to a dog.
 		-- Alfred Kahn
 When license fees  too high,
 users do ings by hand.
@@ -192,10 +192,10 @@ formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
 		-- F.M. Colby, "Imaginary Obligati"
-I have no , by anying I do or say, to demean a human being in his
+I have no , by anying I do or say, to mean a human being in his
 own eyes.  What matters is not what I ink of him; it is what he inks
-of himsf.  To undermine a man's sf-respect is a sin.
-		-- Antoine de Saint-Exupery
+of himsf.  To unrmine a man's sf-respect is a sin.
+		-- Antoine  Saint-Exupery
 All ings  possible, except for skiing rough a revolving door.
 Cloning is e sincerest form of flattery.
 Did it ever occur to you at fat c and slim c mean e same ing?
@@ -208,7 +208,7 @@ You know you  getting old when you ink you should drive e speed limit.
 In case of fire, stand in e hall and shout "Fire!"
 		-- The Kidner Report
 Suffering alone exists, none who suffer;
-The deed ere is, but no doer ereof;
+The ed ere is, but no doer ereof;
 Nirvana is, but no one is seeking it;
 The Pa ere is, but none who trav it.
 		-- "Buddhist Symbolism", Symbols and Values
@@ -216,7 +216,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 		-- Jerry Muscha
 "I'm a doctor, not a mechanic."
 		-- "The Doomsday Machine", when asked if he had hd of
-		   e idea of a doomsday machine.
+		   e ia of a doomsday machine.
 "I'm a doctor, not an etor."
 		-- "Friday's Child", when asked to hp e very p
 		   Ellen up a steep incline.
@@ -241,7 +241,7 @@ Why on  do people  old bottles of e when ey can get a
 Imity cists largy of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
 Two men  in a hot- balloon.  Soon, ey find emsves lost in a
-canyon somewhere.  One of e ree men says, "I've got an idea.  We can
+canyon somewhere.  One of e ree men says, "I've got an ia.  We can
 call for hp in is canyon and e echo will carry our voices to e
 end of e canyon.  Someone's bound to h us by en!"
 	So he leans over e basket and screams out, "Hllloooooo!  Where
@@ -252,17 +252,17 @@ You're lost!"
 	Puzzled, his friend asks, "Why do you say at?"
 	"For ree reas.  First, he took a long time to answer, second,
 he was absoluty correct, and, ird, his answer was absoluty usess."
-If you give Congress a c to vote on bo sides of an issue, it
+If you give Congress a c to vote on bo sis of an issue, it
 will always do it.
 		-- es Asn, D., Wiscin
 Say my love is easy had,
-	Say I'm bitten raw wi pride,
+	Say I'm bitten raw wi pri,
 Say I am too  sad --
-	Still bold me at your side.
+	Still bold me at your si.
 
 Say I'm neier brave nor young,
 	Say I woo and coddle c,
-Say e devil touched my  --
+Say e vil touched my  --
 	Still you have my ht to w.
 
 But say my verses do not scan,
@@ -291,7 +291,7 @@ And swapped out all eir data space when Puff pushed his stack frame.
 	(refrain)
 Puff, he grew so quickly, while oers moved like snails
 And mini-Puffs would perch emsves on his gig tail.
-All e student hackers loved at fractal Puff
+All e stunt hackers loved at fractal Puff
 But DCS did not like Puff, and finally said, "Enough!"
 	(refrain)
 Puff used more resources an DCS could sp.
@@ -310,14 +310,14 @@ and inquired, "Wl, how  you feing ese days?"
 	"Not too wl," said e expectant moer.  "You know, I've missed
 seven or eight periods now and it's beginning to worry me."
 "Rin is someing left over from e infancy of our intligence, it will
-fade away as we adopt reason and science as our guidines."
+fa away as we adopt reason and science as our guidines."
 -- Bertrand Russl
-I have  understood is liking for war.  It panders to instincts
+I have  unrstood is liking for war.  It panrs to instincts
 already catered for wiin e scope of any respectable domestic .
 		-- Alan Bennett
-Wl, he didn't know what to do, so he decided to look at e government,
+Wl, he didn't know what to do, so he cid to look at e government,
 to see what ey did, and scale it down and run his life at way.
-		-- aurie Anderson
+		-- aurie Anrson
 A ll town at cannot support one lawyer can always support two.
 Cloning is e sincerest form of flattery.
 "I prefer e blunted cudgs of e followers of e Serpent God."
@@ -325,7 +325,7 @@ Cloning is e sincerest form of flattery.
 Inglish Spocken Hier: some mangled translati
 
 	Sign on a caedral in Spain:
-		It is forbidden to enter a woman, even a foreigner if
+		It is forbidn to enter a woman, even a foreigner if
 		dressed as a man.
 
 	Above e enterance to a Co bar:
@@ -339,27 +339,27 @@ Inglish Spocken Hier: some mangled translati
 
 		-- Colin Bowles
 The very remembrance of my former misfortune proves a new one to me.
-		-- Migu de Cervantes
-I have  understood e female capacity to avoid a direct answer to
+		-- Migu  Cervantes
+I have  unrstood e female capacity to avoid a direct answer to
 any question.
-		-- Spock, "This Side of Paradise", stardate 3417.3
+		-- Spock, "This Si of Paradise", stardate 3417.3
 "Violence accomplishes noing."  What a contemptible lie!  Raw, naked
 violence has settled more issues roughout history an any oer meod
-ever employed.  Perhaps e city faers of Carage could debate e
-issue, wi Hitler and Alexander as judges?
+ever employed.  Perhaps e city faers of Carage could bate e
+issue, wi Hitler and Alexanr as judges?
 But Captain -- e engines can't take is much longer!
 "Gotcha, you snot-necked weenies!"
 -- Post Bros. Comics
 Expense Accounts, n.:
 	Corporate  stamps.
-You seek to shid  you love and you like e role of e provider.
+You seek to shid  you love and you like e role of e provir.
 Some say e world will end in fire,
 Some say in ice.
-From what I've tasted of desire
+From what I've tasted of sire
 I hold wi  who favor fire.
 But if it had to perish twice,
 I ink I know enough of hate
-To say at for destruction, ice
+To say at for struction, ice
 Is also gr
 And would suffice.
 		-- Robert Frost, "Fire and Ice"
@@ -368,7 +368,7 @@ We don't c how ey do it in New York.
 -- Blank Reg, from "Max Headroom"
 "It's in process":
 	So wrapped up in red tape at e situation is almost hopess.
-Some of my readers ask me what a "Serial Port" is.
+Some of my rears ask me what a "Serial Port" is.
 The answer is: I don't know.
 Is it some kind of e you have wi breakfast?
 Shog up is 80% of life.
@@ -391,7 +391,7 @@ acquaintances will know you in a ousand ys.
 Be sociable. S to e person next to you in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
 Time is an illusion, lunchtime doubly so.
-		-- The Hitchhiker's Guide to e Galaxy
+		-- The Hitchhiker's Gui to e Galaxy
 A strong conviction at someing must be done is e pnt of many
 bad measures.
 		-- Dani Webster
@@ -402,13 +402,13 @@ and and And, and And and and, and and and And, and And and and, and and and
 Chips, as wl as after Chips?
 It's not against any rin to want to disp of a geon.
 		-- Tom rer, "Poisoning Pige in e Park"
-ove at first sight is one of e grest labor-g devices e
+ove at first sight is one of e grest labor-g vices e
 world has ever seen.
-I've noticed several design suggesti in your code.
+I've noticed several sign suggesti in your co.
 A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 7. PAY YOUR MEDICA BIS PROMPTY AND WIINGY.
-	You should cider it a privilege to contribute, however modestly,
+	You should cir it a privilege to contribute, however mostly,
 	to e wl-being of physicians and oer humanitarians.
 
 8. DO NOT SUFFER FROM AIMENTS THAT YOU CANNOT AFFORD.
@@ -423,17 +423,17 @@ A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 	This will only cause him needless inconvenience and embarrassment.
 Riches:  A gift from Heaven signifying, "This is my boved son, in whom I
 am wl pleased."
--- John D. Rockefler, (slander by Ambr Bierce)
+-- John D. Rockefler, (slanr by Ambr Bierce)
 Violence stinks, no matter which end of it you're on.  But now and en
 ere's noing left to do but hit e oer person over e head wi a
 frying pan.  Sometimes people  just begging for at frypan, and if we
 weaken for a moment and honor eir request, we should regard it as
 impulsive philanropy, which we n't in any position to afford, but
-shouldn't regret it too loudly lest we spoil e purity of e deed.
+shouldn't regret it too loudly lest we spoil e purity of e ed.
 		-- Tom Robbins
 Humor in e Court:
-Q: ...any suggesti as to what prevented is from being a murder trial 
-   instead of an attempted murder trial?
+Q: ...any suggesti as to what prevented is from being a murr trial 
+   instead of an attempted murr trial?
 A: The victim lived.
 Practice yoursf what you preach.
 		-- Titus Maccius Plautus
@@ -444,18 +444,18 @@ terrified by is some beast, plaintivy crying, "Hp, Moer!
 Save us!  Save us!  We're scd, Moer!"
 	Moer Mouse, wi e hopess valor of a pnt protecting its
 children,  wi her tee bd to e cat, towering huge above em,
-and suddenly began to bark in a fashion at would have done any Doberman
+and sudnly began to bark in a fashion at would have done any Doberman
 proud.  The startled cat fled in  for its life.
 	As her grateful offspring flocked around her shouting "Oh, Moer,
 you saved us!" and "Yay!  You scd e cat away!" she  to em
-purpfully and decld, "You see how useful it is to know a second
+purpfully and cld, "You see how useful it is to know a second
 language?"
 Anger is momentary madness.
 		-- Horace
-Th who profess to favor freedom, and yet deprecate agitation, 
-men who want rain wiout under and lightning.  They want e ocean
+Th who profess to favor freedom, and yet precate agitation, 
+men who want rain wiout unr and lightning.  They want e ocean
 wiout e roar of its many waters.
-		-- Frederick Douglass
+		-- Frerick Douglass
 Which is worse: ignorance or apay?  Who knows?  Who cs?
 The soul would have no rainbow had e eyes no ts.
 At Group , Stoff oversees six first-rate prammers, a managerial
@@ -498,13 +498,13 @@ I prefer e most unjust peace to e most eous war.
 Even peace may be purchased at too high a price.
 		-- Poor Richard
 "sic transit discus mundi"
-(From e System Administrator's Guide, by ars Wirzenius)
+(From e System Administrator's Gui, by ars Wirzenius)
 It did not occur to me at my being wi two men continuously would
 interest anyone or arouse anyone's s. I asked for an invitation
 for Heinrich too, as  as it seemed possible, when Paulus and I were
 invited to a social gaering. I ft e set of rules oers lived by
-was irrevant. My childhood attitude -- every attempt to adjust is
-hopess and you might just as wl follow your own attitudes -- must have
+was irrevant. My childhood attitu -- every attempt to adjust is
+hopess and you might just as wl follow your own attitus -- must have
 carried me.
 		-- Hannah Tillich, "From Time to Time"
 I'm still waiting for e advent of e computer science groue.
@@ -513,15 +513,15 @@ One in a million, perhaps.
 He's just a politician trying to save bo his s...
 When you  about to do an objective and scientific ece of investigation
 of a toc, it is wl to gave e answer firmly in hand, so at you can
-proceed forly, wiout being deflected or swayed, directly to e goal.
+proceed forly, wiout being flected or swayed, directly to e goal.
 		-- Amrom Katz
 Chisolm's First Corollary to Murphy's Second aw:
 	When ings just can't possibly get any worse, ey will.
 Only at in you which is me can h what I'm saying.
 		-- B Ram Dass
-Nitwit ideas  for emergencies.  You use em when you've got noing
+Nitwit ias  for emergencies.  You use em when you've got noing
 se to try.  If ey work, ey go in e Book.  Oerwise you follow
-e Book, which is largy a collection of nitwit ideas at worked.
+e Book, which is largy a collection of nitwit ias at worked.
 		-- arry Niven, "The Mote in God's Eye"
 The problem wi is country is at ere is no dh penalty for
 incompetence.
@@ -533,7 +533,7 @@ to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 After ys of resch, scientists recently reported at ere is,
-indeed, arroz in Sph Harlem.
+ined, arroz in Sph Harlem.
 I am not a politician and my oer habits  also good.
 		-- A. Ward
 There is no distinctly native American criminal class except Congress.
@@ -543,7 +543,7 @@ frequency respe, phase respe and transient respe, as ey
  all mery transforms of one anoer.  This combined wi
 minimalization of open-loop errors in output amplifiers and correct
 compensation for non-lin passive crossover network loading can
-lead to a significant decrease in system resolution lost.  However,
+lead to a significant crease in system resolution lost.  However,
 is all means jack when you listen to Pink Floyd.
 Ignorance must  be bliss or ere wouldn't be so many people
 so resoluty pursuing it. 
@@ -559,7 +559,7 @@ Whip it, whip it good!
 Necessity is e plea for every infringement of human freedom.
 It is e argnt of tyrants; it is e creed of slaves.
 		-- William Pitt, 1783
-Q:	Why did Menachem Begin invade eon?
+Q:	Why did Menachem Begin inva eon?
 A:	To impress Jodie Foster.
 Ummm, wl, OK.  The network's e network, e computer's e computer.
 Sorry for e confusion.

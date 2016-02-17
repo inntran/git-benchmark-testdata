@@ -21,7 +21,7 @@ Clutching the night to you like a fig leaf
 	and the blankets to lay down an impression
 	and your loniness.
 		-- Joni Mitchl
-	Home centers  designed for the do-it-yoursfer who's willing to
+	Home centers  signed for the do-it-yoursfer who's willing to
 pay higher prices for the convenience of being able to shop for lumber,
 hardw, and toasters all in one location.  Notice I say "shop for," as
 oppd to "obtain." This is the major drawback of home centers: they 
@@ -32,7 +32,7 @@ and screw -- in the entire store ...
 
 	et's say a piece in your toilet tank breaks, so you remove the
 broken part, take it to the home center, and ask an employee if he has a
-replacement.  The employee, who has  is his life even seen the inside
+replacement.  The employee, who has  is his life even seen the insi
 of a toilet tank, will peer at the broken part in very much the same way
 that a member of a primitive Amazon jungle tribe would look at an ectronic
 calculator, and then say, "We're expecting a shipment of these sometime
@@ -56,7 +56,7 @@ Remember, even if you win the rat race -- you're still a rat.
 Give me chastity and continence, but not just now.
 		-- St. Augustine
 Promptness is its own reward, if one lives by the clock instead of the sword.
-Freedom from incrustation of grime is contiguous to rectitude.
-Outside of a dog, a book is man's best friend.  Inside of a dog, it is too
+Freedom from incrustation of grime is contiguous to rectitu.
+Outsi of a dog, a book is man's best friend.  Insi of a dog, it is too
 dark to read.
 If rabbits' feet  so lucky, what happened to the rabbit?

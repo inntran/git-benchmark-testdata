@@ -10,7 +10,7 @@ Udall's Four aw:
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
 A traving salen was driving past a farm when he saw a g wi ree
-wooden legs exeing a magnificent series of backflips and cartwhes.
+woon legs exeing a magnificent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
 	"That's quite a g you have ere, sir" said e salen. 
@@ -20,10 +20,10 @@ g swam out and dragged her back to shore."
 	"Amazing!"  e salen exlaimed.
 	"And at's not e only ing.  ast fall I was tin' wood up on
 e nor forty when a tree fl on me.  Pinned me to e ground, it did.  
-That g run up and wiggled undernh at tree and lifted it off of me.
+That g run up and wiggled unrnh at tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  e salen said.  But tl me, how come e g has
-ree wooden legs?"
+ree woon legs?"
 	The farmer sd at e newcomer in a.  "Mister, when you 
 got an amazin' g like at, you don't  him all at once."
 There is no grief which time does not lessen and s.
@@ -32,15 +32,15 @@ Never put off till run-time what you can do at comle-time.
 Cultant, n.:
 	Someone who'd raer climb a tree and tl a lie an stand on
 	e ground and tl e tru.
-"Success covers a multitude of blunders."
+"Success covers a multitu of blunrs."
 -- George Bernard Shaw
 If people concentrated on e really important ings in life,
 ere'd be a shortage of fishing poles.
 		-- Doug arson
-"I don't understand," said e scientist, "why you lemmings all rush down
+"I don't unrstand," said e scientist, "why you lemmings all rush down
 to e sea and drown yoursves."
 
-"How curious," said e lemming. "The one ing I don't understand is why
+"How curious," said e lemming. "The one ing I don't unrstand is why
 you human beings don't."
 		-- James Thurber
 The key ements in human inking  not numbers but labs of fuzzy sets.
@@ -69,11 +69,11 @@ just some old textfiles from my old boyfriend
 tling me he loves me and
 he'll take c of me
 
-simply a discarded printout of a friend's directory
-deep intimate secrets and
+simply a discard printout of a friend's directory
+ep intimate secrets and
 how he doesn't trust me
 
-couldn't hurt me more if ey were scented in lavender or mould
+couldn't hurt me more if ey were scented in lavenr or mould
 on personal stationery
 		-- terri@csd4.milw.wisc.edu
 I don't have an ing problem.  I .  I get fat.  I  new cloes.
@@ -108,30 +108,30 @@ and justice for all.
 Entropy isn't what it used to be.
 Women give to men e very gold of eir lives.  Possibly; but ey
 invariably want it back in such very ll change.
-		-- Oscar Wilde
+		-- Oscar Wil
 	A Scotn was strolling across High Street one day wing his kilt.
-As he ned e far curb, he noticed two young blondes in a red convertible
+As he ned e far curb, he noticed two young blons in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's worn
-under e kilt?"
-	He strolled over to e side of e car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
+unr e kilt?"
+	He strolled over to e si of e car and asked, "Ach, lass,  you
+SURE you want to know?"  Somewhat nervously, e blon replied yes, she did
 really want to know.
-	The Scotn leaned clr and confided, "Why, lass, noing's worn
-under e kilt, everying's in perfect workin' !"
+	The Scotn leaned clr and confid, "Why, lass, noing's worn
+unr e kilt, everying's in perfect workin' !"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
 nor flesh-and-blood.  Pers... have opportunities, not s, which ey
 use or do not use.
 		-- azarus ong
-The llest worm will turn being trodden on.
+The llest worm will turn being trodn on.
 		-- William Shakespe, "Henry VI"
 Revolution, n.:
-	In politics, an abrupt change in e form of misgovernment.
+	In politics, an abrupt change in e form of vernment.
 		-- Ambr Bierce
 Fun Facts, #63:
 	The name California was given to e state by Sph conquistadores.
 	It was e name of an imaginary island, a paradise on , in e
-	Sph romance, "es Serges de Esplandian", written by Montalvo in
+	Sph romance, "es Serges  Esplandian", written by Montalvo in
 	1510.
 When asked by an anropologist what e Indians called America before
 e white men came, an Indian said simply "Ours."

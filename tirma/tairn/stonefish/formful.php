@@ -2,10 +2,10 @@ When you're dining out and you suspect someing's wrong, you're probably .
 Resch is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
 Till en we shall be content to admit openly, what you (rinists)
-whisper under your brh  hide in technical jargon, at e ancient
+whisper unr your brh  hi in technical jargon, at e ancient
 secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about
-his ignance.  And, meanwhile, we will endeavour to be as charitable as
+his ignance.  And, meanwhile, we will enavour to be as charitable as
 possible, and whilst you trumpet f officially your contempt f our
 skepticism, we will at least try to bieve at you  impd upon
 by your own bluster.
@@ -17,31 +17,31 @@ Ftune's graffito of e week ( maybe even mon):
 
 		Don't Write On Walls!
 
-		   (and undernh)
+		   (and unrnh)
 
 		You want I should type?
 Everywhere I look I see NEGATIVITY and ASPHAT ...
 You know you have a ll apartment when Rice Krises echo.
 		-- S. Rickly 
 It is not necessary to inquire wheer a woman would like someing f
-dessert.   answer is yes, she would like someing f dessert, but
-she would like you to der it so she can ck at it wi your fk.  She
+ssert.   answer is yes, she would like someing f ssert, but
+she would like you to r it so she can ck at it wi your fk.  She
 does not want you to call attention to is by saying, 'If you wanted a
-dessert, why didn't you der one?'  You must understand, she has e
-dessert she wants.   dessert she wants is contained wiin yours.
-		-- Merrill Marcoe, "An Insider's Guide to e American Woman"
+ssert, why didn't you r one?'  You must unrstand, she has e
+ssert she wants.   ssert she wants is contained wiin yours.
+		-- Merrill Marcoe, "An Insir's Gui to e American Woman"
 re's a way out of any cage.
 		-- Captain Christopher Pike, " Menagerie" (" Cage"),
 		   stardate unknown.
- human mind trs a new idea e way e body trs a strange
+ human mind trs a new ia e way e body trs a strange
 protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
-He who desps over an event is a , but he who holds hopes f
+He who sps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
-"Not only is God dead, but just try to find a plumber on weekends."
+"Not only is God ad, but just try to find a plumber on weekends."
 --Woody Allen
 Now ere's ree ings you can do in a baseball game: you can 
  you can l  it can rain.
@@ -57,11 +57,11 @@ To find a friend one must cl one eye; to keep him -- two.
 as a joke.  Being a natural prankster, he acquired a fleet of b-up
 shabby, wreckages waiting f e scrap heap in Califnia.
 	He put on a cap and looked fward to watching people's s as he
-con em round e choice of bumperless, dented junkmobiles.
-	To his lasting surprise ere was an insatiable demand f em and
+con em round e choice of bumperless, nted junkmobiles.
+	To his lasting surprise ere was an insatiable mand f em and
 he now has 26 riving branches all over America.  "People like driving
 round in e wst cars available," he said.  Of course ey do.
-	"If a driver damages e side of a car and is honest enough to
+	"If a driver damages e si of a car and is honest enough to
 admit it, I tl him, `Fget it'.  If ey bring a car back late we
 overlook it.  If ey've had a crash and it doesn't involve anoer vicle
 we might overlook at too."

@@ -6,7 +6,7 @@ Walking on water wasn't built in a day.
 		-- Jack Kerouac
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
 of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
-belief system is a subject long ago ridiculed and reviled.  We're dealing with
+belief system is a subject long ago ridiculed and reviled.  We're aling with
 beliefs that go back to the ancient Babylonians.  There's nothing there....
 It sounds a lot like science, it sounds like astronomy.  It's got technical
 terms.  It's got jargon.  It confuses the public....The astrologer is quite
@@ -20,7 +20,7 @@ and tested over the centuries.  Nobody's ever found any validity to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
 you test it.  And in that astrology is reqlly quite something else.
--- Astronomer Richard Berendzen, President, American University, on ABC
+-- Astronomer Richard Berendzen, Presint, American University, on ABC
     News "Nightline," May 3, 1988
 Tact in audacity is knowing how far you can go without going too far.
 		-- Jean Cocteau
@@ -41,7 +41,7 @@ neither think nor feel, she thought, where is one?
 (3) When stopped at an intersection you should
 
 	(a) watch the traffic light for your lane.
-	(b) watch for pedestrians crossing the street.
+	(b) watch for pestrians crossing the street.
 	(c) blow the horn.
 	(d) watch the traffic light for the intersecting street.
 
@@ -54,7 +54,7 @@ because you might not get there.
 The Least Successful Executions
 	History has furnished us with two executioners worthy of attention.
 The first performed in Sydney in Australia.  In 1803 three attempts were
-made to hang a Mr. Joseph Samuels.  On the first two of these the rope
+ma to hang a Mr. Joseph Samuels.  On the first two of these the rope
 snapped, while on the third Mr. Samuels just hung there peacefully until he
 and everyone else got bored.  Since he had proved unsusceptible to capital
 punishment, he was reprieved.
@@ -79,7 +79,7 @@ I'd LOVE to, but...
 	-- I'm building a plant from a kit.
 	-- There's a disturbance in the Force.
 	-- I'm doing door-to-door collecting for static cling.
-	-- I'm teaching my ferret to yodel.
+	-- I'm teaching my ferret to yol.
 	-- My crayons all melted together.
 You will be successful in love.
 "Inquiry is fatal to certainty."
@@ -90,20 +90,20 @@ Then howcome people can sell Microsoft software and go unpunished?
 	In the beginning there was only one kind of Mathematician, created by
 the Great Mathamatical Spirit form the Book: the Topologist.  And they grew to
 large numbers and prospered.
-	One day they looked up in the heavens and desired to reach up as far
+	One day they looked up in the heavens and sired to reach up as far
 as the eye could see.  So they set out in building a Mathematical edifice that
 was to reach up as far as "up" went.  Further and further up they went ...
-until one night the edifice collapsed under the weight of paradox.
+until one night the edifice collapsed unr the weight of paradox.
 	The following morning saw only rubble where there once was a huge
 structure reaching to the heavens.  One by one, the Mathematicians climbed
-out from under the rubble.  It was a miracle that nobody was killed; but when
+out from unr the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
-understand each other.  They all spoke different languages.  They all fought
+unrstand each other.  They all spoke different languages.  They all fought
 amongst themselves and each went about their own way.  To this day the
 Topologists remain the original Mathematicians.
 		-- The Story of Babel
 If ever the pleasure of one has to be bought by the pain of the other, there
-better be no trade.  A trade by which one gains and the other loses is a fraud.
+better be no tra.  A tra by which one gains and the other loses is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
 Your present plans will be successful.
 The first marriage is the triumph of imagination over intelligence,
@@ -112,12 +112,12 @@ Q:	Why did the chicken cross the road?
 A:	To see his friend Gregory peck.
 
 Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+A:	To get to the other sli.
 I know things about TROY DONAHUE that can't even be PRINTED!!
-"There is no statute of limitations on stupidity."
+"There is no stae of limitations on stupidity."
 -- Randomly produced by a computer program called Markov3.
 It does not do to leave a live dragon out of your calculations.
-Did you hear about the model who sat on a broken bottle and cut a nice figure?
+Did you hear about the mol who sat on a broken bottle and cut a nice figure?
 I like young girls.  Their stories are shorter.
 		-- Tom McGuane
 Two is company, three is an orgy.
@@ -125,7 +125,7 @@ I love you, not only for what you are, but for what I am when I am with you.
 		-- Roy Croft
 All my friends and I are crazy.  That's the only thing that keeps us sane.
 I'm continually AMAZED at th'breathtaking effects of WIND EROSION!!
-A dead man cannot bite.
+A ad man cannot bite.
 		-- Gnaeus Pompeius (Pompey)
 Play Rogue, visit exotic locations, meet strange creatures and kill them.
 job interview, n.:
@@ -139,15 +139,15 @@ The star of riches is shining upon you.
 At the hospital, a doctor is training an intern on how to announce bad news
 to the patients.  The doctor tells the intern "This man in 305 is going to
 die in six months.  Go in and tell him."  The intern boldly walks into the
-room, over to the man's bedisde and tells him "Seems like you're gonna die!"
+room, over to the man's bedis and tells him "Seems like you're gonna die!"
 The man has a heart attack and is rushed into surgery on the spot.  The doctor
 grabs the intern and screams at him, "What!?!? are you some kind of moron?
 You've got to take it easy, work your way up to the subject.  Now this man in
 213 has about a week to live.  Go in and tell him, but, gently, you hear me,
 gently!"
 	The intern goes softly into the room, humming to himself, cheerily
-opens the drapes to let the sun in, walks over to the man's bedside, fluffs
-his pillow and wishes him a "Good morning!"  "Wonderful day, no?  Say...
+opens the drapes to let the sun in, walks over to the man's bedsi, fluffs
+his pillow and wishes him a "Good morning!"  "Wonrful day, no?  Say...
 guess who's going to die soon!"
 One man's constant is another man's variable.
 		-- A.J. Perlis
@@ -161,8 +161,8 @@ Cats, no less liquid than their shadows, offer no angles to the wind.
 Receiving a million dollars tax free will make you feel better than
 being flat broke and having a stomach ache.
 		-- Dolph Sharp, "I'm O.K., You're Not So Hot"
-A day for firm decisions!!!!!  Or is it?
-It is easier to write an incorrect program than understand a correct one.
+A day for firm cisions!!!!!  Or is it?
+It is easier to write an incorrect program than unrstand a correct one.
 Live from New York ... It's Saturday Night!
 Truth is free, but information costs.
 The King and his advisor are overlooking the battle field:
@@ -171,7 +171,7 @@ King:		"How goes the battle plan?"
 Advisor:	"See those little black specks running to the right?"
 K:	"Yes."
 A:	"Those are their guys. And all those little red specks running
-	to the left are our guys. Then when they collide we wait till
+	to the left are our guys. Then when they colli we wait till
 	the dust clears."
 K:	"And?"
 A:	"If there are more red specks left than black specks, we win."
@@ -188,9 +188,9 @@ Here is a letter, read it at your leisure.
 It's not reality that's important, but how you perceive things.
 Armor's Axiom:
 	Virtue is the failure to achieve vice.
-Succumb to natural tendencies.  Be hateful and boring.
+Succumb to natural tenncies.  Be hateful and boring.
 Stealing a rhinoceros should not be attempted lightly.
-I have a box of telephone rings under my bed.  Whenever I get lonely, I
+I have a box of telephone rings unr my bed.  Whenever I get lonely, I
 open it up a little bit, and I get a phone call.  One day I dropped the
 box all over the floor.  The phone wouldn't stop ringing.  I had to get
 it disconnected.  So I got a new phone.  I didn't have much money, so I
@@ -204,11 +204,11 @@ Iowa State -- the high school after high school!
 		-- Crow T. Robot
 Research is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
-Presidency:  The greased pig in the field game of American politics.
+Presincy:  The greased pig in the field game of American politics.
 -- Ambrose Bierce
 This life is a test.  It is only a test.  Had this been an actual life, you
 would have received further instructions as to what to do and where to go.
-It is impossible to experience one's death objectively and still carry a tune.
+It is impossible to experience one's ath objectively and still carry a tune.
 		-- Woody Allen
 Sometimes I get the feeling that I went to a party on Perry Lane in 1962, and
 the party spilled out of the house, and came down the street, and covered the
@@ -216,10 +216,10 @@ world.
 		-- Robert Stone
 Burnt Sienna.  That's the best thing that ever happened to Crayolas.
 		-- Ken Weaver
-	Obviously the subject of death was in the air, but more as something
-to be avoided than harped upon.
+	Obviously the subject of ath was in the air, but more as something
+to be avoid than harped upon.
 	Possibly the horror that Zaphod experienced at the prospect of being
-reunited with his deceased relatives led on to the thought that they might
+reunited with his ceased relatives led on to the thought that they might
 just feel the same way about him and, what's more, be able to do something
 about helping to postpone this reunion.
 		-- Douglas Adams
@@ -233,7 +233,7 @@ Overall, the philosophy is to attack the availability problem from two
 complementary directions:  to reduce the number of software errors through
 rigorous testing of running systems, and to reduce the effect of the remaining
 errors by providing for recovery from them.  An interesting footnote to this
-design is that now a system failure can usually be considered to be the
+sign is that now a system failure can usually be consired to be the
 result of two program errors:  the first, in the program that started the
 problem; the second, in the recovery routine that could not protect the
 system.
@@ -257,7 +257,7 @@ Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
 that think they are truffles.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 The more things change, the more they stay insane.
-All the really good ideas I ever had came to me while I was milking a cow.
+All the really good ias I ever had came to me while I was milking a cow.
 		-- Grant Wood
 Since I hurt my pendulum
 My life is all erratic.
@@ -282,7 +282,7 @@ Onward through the fog.
 Nearly every complex solution to a programming problem that I
 have looked at carefully has turned out to be wrong.
 		-- Brent Welch
-We lie loudest when we lie to ourselves.
+We lie loust when we lie to ourselves.
 	-- Eric Hoffer
 Dignity is like a flag.  It flaps in a storm.
 		-- Roy Mengot
@@ -292,18 +292,18 @@ They finally got King Midas, I hear.  Gild by association.
 When a fly lands on the ceiling, does it do a half roll or a half loop?
 Lucas is the source of many of the components of the legendarily reliable
 British automotive electrical systems.  Professionals call the company "The
-Prince of Darkness".  Of course, if Lucas were to design and manufacture
+Prince of Darkness".  Of course, if Lucas were to sign and manufacture
 nuclear weapons, World War III would never get off the ground.  The British
 don't like warm beer any more than the Americans do.  The British drink warm
 beer because they have Lucas refrigerators.
 Caution: Keep out of reach of children.
 One seldom sees a monument to a committee.
 Mac Beer: At first, came only a 16-oz. can, but now comes in a 32-oz. 
-can. Considered by many to be a "light" beer. All the cans look 
-identical. When you take one from the fridge, it opens itself. The 
+can. Consired by many to be a "light" beer. All the cans look 
+intical. When you take one from the fridge, it opens itself. The 
 ingredients list is not on the can. If you call to ask about the 
 ingredients, you are told that "you don't need to know." A notice on the 
-side reminds you to drag your empties to the trashcan.
+si reminds you to drag your empties to the trashcan.
 It's recently come to Fortune's attention that scientists have stopped
 using laboratory rats in favor of attorneys.  Seems that there are not
 only more of them, but you don't get so emotionally attached.  The only
@@ -313,7 +313,7 @@ results to humans.
 	[Also, there are some things even a rat won't do.  Ed.]
 You never get a second chance to make a first impression.
 You will forget that you ever knew me.
-"For three days after death hair and fingernails continue to grow but
+"For three days after ath hair and fingernails continue to grow but
 phone calls taper off."
 		-- Johnny Carson
 Dreams are free, but there's a small charge for alterations.
@@ -347,10 +347,10 @@ you can always change the channel.
 		-- Jim Ignatowski
 Comparing software engineering to classical engineering assumes that software
 has the ability to wear out.  Software typically behaves, or it does not.  It
-either works, or it does not.  Software generally does not degrade, abrade,
+either works, or it does not.  Software generally does not gra, abra,
 stretch, twist, or ablate.  To treat it as a physical entity, therefore, is
-misapplication of our engineering skills.  Classical engineering deals with
-the characteristics of hardware; software engineering should deal with the
+misapplication of our engineering skills.  Classical engineering als with
+the characteristics of hardware; software engineering should al with the
 characteristics of *software*, and not with hardware or management.
 		-- Dan Klein
 Canada Post doesn't really charge 32 cents for a stamp.  It's 2 cents
@@ -359,13 +359,13 @@ for postage and 30 cents for storage.
 Q:	Why do mountain climbers rope themselves together?
 A:	To prevent the sensible ones from going home.
 Philogyny recapitulates erogeny; erogeny recapitulates philogyny.
-Parts that positively cannot be assembled in improper order will be.
+Parts that positively cannot be assembled in improper orr will be.
 	It seems these two guys, George and Harry, set out in a Hot Air
 balloon to cross the United States.  After forty hours in the air, George
 turned to Harry, and said, "Harry, I think we've drifted off course!  We
 need to find out where we are."
-	Harry cools the air in the balloon, and they descend to below the
-cloud cover.  Slowly drifting over the countryside, George spots a man
+	Harry cools the air in the balloon, and they scend to below the
+cloud cover.  Slowly drifting over the countrysi, George spots a man
 standing below them and yells out, "Excuse me!  Can you please tell me
 where we are?"
 	The man on the ground yells back, "You're in a balloon, approximately
@@ -378,24 +378,24 @@ useless!"
 That's the end of The Joke, but for you people who are still worried about
 George and Harry: they end up in the drink, and make the front page of the
 New York Times: "Balloonists Soaked by Lawyer".
-A student who changes the course of history is probably taking an exam.
+A stunt who changes the course of history is probably taking an exam.
 For the first time we have a weapon that nobody has used for thirty years.
 This gives me great hope for the human race.
 		-- Harlan Ellison
-taxidermist, n.:
+taxirmist, n.:
 	A man who mounts animals.
 MMM-MM!!  So THIS is BIO-NEBULATION! 
 "Morality is one thing.  Ratings are everything."
 - A Network 23 executive on "Max Headroom"
-Indecision is the true basis for flexibility.
+Incision is the true basis for flexibility.
 	A musician of more ambition than talent composed an elegy at
-the death of composer Edward MacDowell.  She played the elegy for the
+the ath of composer Edward MacDowell.  She played the elegy for the
 pianist Josef Hoffman, then asked his opinion.  "Well, it's quite
 nice," he replied, but don't you think it would be better if..."
 	"If what?" asked the composer.
 	"If ... if you had died and MacDowell had written the elegy?"
 Brooke's Law:
-	Whenever a system becomes completely defined, some damn fool
+	Whenever a system becomes completely fined, some damn fool
 	discovers something which either abolishes the system or
 	expands it beyond recognition.
 It's interesting to think that many quite distinguished people have
@@ -414,10 +414,10 @@ An artist should be fit for the best society and keep out of it.
 "Your butt is mine."
 -- Michael Jackson, Bad
 What a misfortune to be a woman!  And yet, the worst misfortune is not to
-understand what a misfortune it is.
+unrstand what a misfortune it is.
 		-- Kierkegaard, 1813-1855.
 Brooke's Law:
-	Whenever a system becomes completely defined, some damn fool
+	Whenever a system becomes completely fined, some damn fool
 	discovers something which either abolishes the system or
 	expands it beyond recognition.
 Who's on first?
@@ -426,20 +426,20 @@ Like some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
 		-- The Birthday Party, "Sonny's Burning"
-If God had really intended men to fly, he'd make it easier to get to the
+If God had really intend men to fly, he'd make it easier to get to the
 airport.
 		-- George Winters
 QOTD:
 	Talent does what it can, genius what it must.
 	I do what I get paid to do.
-To err is human; to admit it, a blunder.
-What we see depends on mainly what we look for.
+To err is human; to admit it, a blunr.
+What we see pends on mainly what we look for.
 		-- John Lubbock
-Conceptual integrity in turn dictates that the design must proceed from one
+Conceptual integrity in turn dictates that the sign must proceed from one
 mind, or from a very small number of agreeing resonant minds.
-- Frederick Brooks Jr., "The Mythical Man Month" 
+- Frerick Brooks Jr., "The Mythical Man Month" 
 Of course you have a purpose -- to find a purpose.
-I wonder if I could ever get started in the credit world?
+I wonr if I could ever get started in the credit world?
 I came home the other night and tried to open the door with my car keys...and 
 the building started up.  So I took it out for a drive.  A cop pulled me over 
 for speeding.  He asked me where I live... "Right here".
@@ -457,14 +457,14 @@ And get the maximum pleasure from a minimum of love.
 		-- Mac Macinelli, "Minimum Love"
 "An honest god is the noblest work of man.  ... God has always resembled his
 creators.  He hated and loved what they hated and loved and he was invariably
-found on the side of those in power. ... Most of the gods were pleased with
-sacrifice, and the smell of innocent blood has ever been considered a divine
+found on the si of those in power. ... Most of the gods were pleased with
+sacrifice, and the smell of innocent blood has ever been consired a divine
 perfume."
 -- Robert G. Ingersoll
 feature, n:
 	A surprising property of a program.  Occasionaly documented.  To
 	call a property a feature sometimes means the author did not
-	consider that case, and the program makes an unexpected, though
+	consir that case, and the program makes an unexpected, though
 	not necessarily wrong response.  See BUG.  "That's not a bug, it's
 	a feature!"  A bug can be changed to a feature by documenting it.
 Alimony is the curse of the writing classes.
@@ -472,15 +472,15 @@ Alimony is the curse of the writing classes.
 Weinberg's Principle:
 	An expert is a person who avoids the small errors while
 	sweeping on to the grand fallacy.
-You can destroy your now by worrying about tomorrow.
+You can stroy your now by worrying about tomorrow.
 		-- Janis Joplin
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
 A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+Q:	What is the name of the world's olst kamikaze pilot?
 What if nothing exists and we're all in somebody's dream?  Or what's worse,
 what if only that fat guy in the third row exists?
 		-- Woody Allen, "Without Feathers"
-Living on Earth may be expensive, but it includes an annual free trip
+Living on Earth may be expensive, but it inclus an annual free trip
 around the Sun.
 On a clear disk you can seek forever.
 		-- P. Denning
@@ -502,7 +502,7 @@ Where all are fools, and all are knaves,
 Where every knave and fool is bought, 
 Yet kindly sells himself for nought;
 		-- Jonathan Swift
-aquadextrous, adj.:
+aquaxtrous, adj.:
 	Possessing the ability to turn the bathtub faucet on and off
 	with your toes.
 		-- Rich Hall, "Sniglets"

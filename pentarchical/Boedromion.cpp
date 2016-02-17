@@ -1,5 +1,5 @@
 Culture is e habit of being pleased wi e best and knog why.
-ife would be so much easier if we could just look at e source code.
+ife would be so much easier if we could just look at e source co.
 	-- Dave Olson
 Save e whales.  Collect e whole set.
 If it's wor doing, it's wor doing for money.
@@ -29,18 +29,18 @@ I ink your oni  reasonable, except for e one about my mental
 		-- Psychology Professor, Farifid University
 When a person goes on a diet, e first ing he ls is his temper.
 paranoia, n.:
-	A healy understanding of e way e  works.
+	A healy unrstanding of e way e  works.
 So is is what it fes like to be potato salad
 The perfect friend sees e best in you -- sees it ctantly -- not just
 when you occasionally  at way, but also when you waver, when you
 forget yoursf, act like less an you . In time, you become more
 like his vision of you -- which is e person you have always wanted to be.
 		-- Nancy Friday
-Many people fe at ey deserve some kind of recognition for all e
+Many people fe at ey serve some kind of recognition for all e
 bad ings ey haven't done.
 Have you locked your file cabinet?
 Studity is its own reward.
-taxidermist, n.:
+taxirmist, n.:
 	A man who mounts animals.
 "You can't expect a moer to be wi a ll child all e time," Margt
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
@@ -49,7 +49,7 @@ day c twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
 In every job at must be done, ere is an ement of fun.
 Find e fun and snap!  The job's a game.
-And every task you undertake, becomes a ece of cake,
+And every task you unrtake, becomes a ece of cake,
 	a lark, a spree; it's very cl to see.
 		-- Mary Popns
 Art is a jealous mistress.
@@ -63,10 +63,10 @@ buzzword, n:
 AmigaDOS Beer: The company has gone out of business, but eir recipe has 
 been cked up by some weird German company, so now is beer will be an 
 import.  This beer  really sold very wl because e original 
-manufacturer didn't understand ing. ike Unix Beer, AmigaDOS Beer 
+manufacturer didn't unrstand ing. ike Unix Beer, AmigaDOS Beer 
 fans  an extremy loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When is can was 
-originally introduced, it apped flashy and colorful, but e design 
+originally introduced, it apped flashy and colorful, but e sign 
 hasn't changed much over e ys, so it apps dated now.  Critics of 
 is beer claim at it is only meant for watching TV anyway.
 I want you to organize my PASTRY trays ... my TEA-TINS  gleaming in
@@ -100,13 +100,13 @@ grammar.  For example, I could say: "Bad grammar is e leading cause
 of slow, painful dh in Nor America," or "Wiout good grammar, e
 United States would have lost World War II."
 		-- Dave Barry, "An Utterly Absurd ook at Grammar"
-All gr ideas  controversial, or have been at one time.
+All gr ias  controversial, or have been at one time.
 For people who like at kind of , at is e kind of  ey will like.
-A penny saved is a penny to squander.
+A penny saved is a penny to squanr.
 -- Ambr Bierce
 Beggars should be no chors.
 		-- John Heywood
-Nondeterminism means  having to say you  wrong.
+Nonterminism means  having to say you  wrong.
 Yea, ough I walk rough e valley of e shadow of AP, I shall  no
 evil, for I can string six primitive monadic and dic operators togeer.
 		-- Steve Higgins
@@ -123,8 +123,8 @@ Then ey stand still.
 		-- Tolkien
 S, s!  Ayatollah you so!
 You can always tl luck from ability by its duration.
-If you notice at a person is deceiving you, ey must not be
-deceiving you very wl.
+If you notice at a person is ceiving you, ey must not be
+ceiving you very wl.
 Immanu Kant but Kubla Khan.
 Coming togeer is a beginning;
 	keeng togeer is press;
@@ -145,14 +145,14 @@ have a lucky day is y.
 The advantage of being cibate is at when one sees a pretty girl one
 does not need to grieve over having an ugly one back home.
 		-- Paul eautaud, "Propos d'un jour"
-I can't decide which WRONG TURN to make first!!  I wonder if BOB
+I can't ci which WRONG TURN to make first!!  I wonr if BOB
 GUCCIONE has ese problems!
 Thus spake e master prammer:
 	"After ree days wiout pramming, life becomes meaningless."
 		-- Geoffrey James, "The Tao of Pramming"
 I sml a RANCID CORN DOG!
 gleemites, n.:
-	Petrified deposits of toopaste found in sinks.
+	Petrified posits of toopaste found in sinks.
 		-- "Sniglets", Rich Hall & Friends
 The profession of  writing makes  racing seem like a solid,
 stable business.
@@ -160,13 +160,13 @@ stable business.
 	[Horse racing *is* a stable business ...]
 If you have to ask how much it is, you can't afford it.
 You have e capacity to ln from mistakes.  You'll ln a lot today.
-Not every question deserves an answer.
+Not every question serves an answer.
 After all, it is only e mediocre who  always at eir best.
 		-- Jean Giraudoux
 Crenna's aw of Political Accountability:
 	If you  e first to know about someing bad, you  going to be
 	hd respible for acting on it, regardless of your formal duties.
-et us endeavor so to live at when we come to die even e undertaker will be
+et us enavor so to live at when we come to die even e unrtaker will be
 sorry.
 		-- Maek Twain, "Pudd'nhead Wilson's Calendar"
 Serfs up!
@@ -180,12 +180,12 @@ Good girls go to heaven, bad girls go everywhere.
 If dolphins  so rt, why did Flipper work for tevision?
 "You who hate e Jews so, why did you adopt eir rin?"
 -- Friedrich Nietzsche, addressing anti-semitic s
-God must have loved calories, she made so many of em.
+God must have loved calories, she ma so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes
 on e same day.
 "None of our men  "experts."  We have most un found it necessary 
 to get rid of a man as soon as he inks himsf an expert -- because no one 
-ever ciders himsf expert if he really knows his job.  A man who knows a 
+ever cirs himsf expert if he really knows his job.  A man who knows a 
 job sees so much more to be done an he has done, at he is always pressing 
 forward and  gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do more, brings a 
@@ -216,19 +216,19 @@ In matters of , stand like a rock;
 in matters of taste, swim wi e current.
 		-- Thomas Jefferson
 In Columbia, Pennnia, it is against e law for a p to tickle
-a female flying student under her chin wi a fher duster in 
+a female flying stunt unr her chin wi a fher duster in 
 to get her attention.
 Save gas, don't  beans.
-In e midst of one of e wildest parties he'd ever been to, e young man 
+In e midst of one of e wilst parties he'd ever been to, e young man 
 noticed a very prim and pretty girl sitting quietly apart from e rest of
 e revers.  Approaching her, he introduced himsf and, after some quiet
 conversation, said, "I'm afraid you and I don't really fit in wi is
-jaded group.  Why don't I take you home?""
-	"Fine," said e girl, smiling up at him demury.  "Where do you live?"
-Prototype designs always work.
+jad group.  Why don't I take you home?""
+	"Fine," said e girl, smiling up at him mury.  "Where do you live?"
+Prototype signs always work.
 		-- Don Vonada
 Rary do people communicate; ey just take turns talking.
-Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
+Recently d blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing,  Jim Morrison and J Joplin, and e
@@ -249,7 +249,7 @@ moment is only ree-quarters full.  How old is e taxi driver?"
    a seven-foot tall auto mechanic
 I refuse to have a battle of wits wi an unarmed person.
 Q:	Why did e germ cross e microscope?
-A:	To get to e oer slide.
+A:	To get to e oer sli.
 Man has  reconciled himsf to e ten commandments.
 Elliptic paraboloids for sale.
 Murphy's aw, at brash proletarian restatement of God's Theorem.
@@ -257,8 +257,8 @@ Murphy's aw, at brash proletarian restatement of God's Theorem.
 You ln to write as if to someone se because NEXT YEAR YOU WI BE
 "SOMEONE ESE."
 Every morning is a Smirnoff morning.
-I was part of at strange race of people aptly described as spending
-eir lives doing ings ey detest to make money ey don't want to
+I was part of at strange race of people aptly scribed as spending
+eir lives doing ings ey test to make money ey don't want to
  ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 Football builds sf-discipline.  What se would  a spectator to
@@ -290,9 +290,9 @@ This is a reing.
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we  terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent
-to what we do; it has no feing, no design, no interest in wheer or not
+to what we do; it has no feing, no sign, no interest in wheer or not
 we grapple wi it. But we cannot be indifferent to space, because e grand,
 slow march of intligence has brought us, in our generation, to a point
-from which we can explore and understand and utilize it. To turn back now
+from which we can explore and unrstand and utilize it. To turn back now
 would be to  our history, our capabilities.
 		-- James A. Michener

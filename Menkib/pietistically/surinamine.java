@@ -4,12 +4,12 @@ ife is a grand adventure --  it is noing.
 		-- Hen Kler
 Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Anananarayanan
-I played lead guitar in a d called  Federal Duck, which is e kind
+I played lead guitar in a d called  Feral Duck, which is e kind
 of  at was popular in e '60s as a result of controlled substances
 being in  use.  Back en, ere were no i, in terms
-of ta, on who could make an album, so we made one, and it sounds like
+of ta, on who could make an album, so we ma one, and it sounds like
 a group of people who have been given powerful but  instrnts
-as a erapy f a degenerative nerve disease.
+as a erapy f a generative nerve disease.
 		-- Dave Barry, " Snake"
 SHHHH!!  I h SIX TATTOOED TRUCK-DRIVERS tossing ENGINE BOCKS into
 empty OI DRUMS ...
@@ -18,11 +18,11 @@ Juall's aw on Nice Guys:
 	Sometimes ey don't even get a c to start!
 About e time we ink we can make ends meet, somebody moves e ends.
 		-- Herbert Hoover
-Talk is cheap because supply always exceeds demand.
+Talk is cheap because supply always exceeds mand.
 You have e power to influence all wi whom you come in contact.
 Fms follow f, and  obliterate it.
 Is is really happening?
-"Because he's a character who's looking f his own identity, [He-Man is] 
+"Because he's a character who's looking f his own intity, [He-Man is] 
 an interesting role f an act."
 -- Dolph undgren, "act"
 When one woman was asked how long she had been going to symphony concerts,
@@ -32,7 +32,7 @@ it less and less."
 Bondage maybe, discipline !
 		-- T.K.
 TIPS FOR PERFORMERS:
-	Playing cards have e top half upside-down to hp chers.
+	Playing cards have e top half upsi-down to hp chers.
 	re  a finite number of jokes in e .
 	Singing is a trick to get people to listen to music longer an
 		ey would dinarily.
@@ -45,8 +45,8 @@ is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
 Still looking f e glious results of my misspent you.  Say, do you
 have a map to e next joint?
-You know you've landed g-up when it takes full power to taxi.
-S softly and carry a +6 two-handed swd.
+You know you've land g-up when it takes full power to taxi.
+S softly and carry a +6 two-hand swd.
 I have a TINY BOW in my HEAD
 "Virtual" means  knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
@@ -69,15 +69,15 @@ F  who like is st of ing, is is e st of ing ey like.
 - Heisenberg
 Accding to e latest official s, 43% of all  
 totally wless.
-	A novice asked e Master: "Here is a prammer at  designs,
-docnts,  tests his prams.  Yet all who know him cider him one of
+	A novice asked e Master: "Here is a prammer at  signs,
+docnts,  tests his prams.  Yet all who know him cir him one of
 e best prammers in e wld.  Why is is?"
 	 Master replies: "That prammer has mastered e Tao.  He has
-gone beyond e need f design; he does not become angry when e system
+gone beyond e need f sign; he does not become angry when e system
 crashes, but accepts e  wiout concern.  He has gone beyond e
-need f docntation; he no longer cs if anyone se sees his code.  He
+need f docntation; he no longer cs if anyone se sees his co.  He
 has gone beyond e need f testing; each of his prams  perfect wiin
-emsves, serene and egant, eir purp sf-evident.  Truly, he has
+emsves, serene and egant, eir purp sf-evint.  Truly, he has
 entered e mystery of e Tao."
 		-- Geoffrey James, " Tao of Pramming"
 Feminists just want e human race to be a tie.
@@ -89,10 +89,10 @@ Action Required:	Turn glass oer way up so at open end points
 			toward .
 
 Symptom:		Feet warm and wet.
-Fault:			Improper bladder control.
+Fault:			Improper bladr control.
 Action Required:	Go stand next to nest dog.  After a while complain
 			to e owner about its lack of house training and
-			demand a beer as compensation.
+			mand a beer as compensation.
 		-- Bar Troubleshooting
 What upsets me is not at you lied to me, but at from now on I can no
 longer bieve you.
@@ -100,12 +100,12 @@ longer bieve you.
 Wiout fools ere would be no wisdom.
 Deadwood, n.:
 	Anyone in your company who is me seni an you .
-"re is noing so deadly as not to hold up to people e opptunity to
-do gr and wonderful ings, if we wish to stimulate em in an active way."
+"re is noing so adly as not to hold up to people e opptunity to
+do gr and wonrful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob aure in chemistry
 I sml a wumpus.
 My rin cists of a humble admiration of e illimitable superi
-srit who reveals himsf in e slight details we  able to perceive
+srit who reveals himsf in e slight tails we  able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
 Good evening, gentlemen.  I am a HA 9000 computer.  I became operational
@@ -117,13 +117,13 @@ Keep e number of passes in a comler to a minimum.
 This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
 Yow!  Maybe I should have asked f my Neutron Bomb in PAISEY --
-Question: Is it better to abide by e rules until ey're changed 
+Question: Is it better to abi by e rules until ey're changed 
 hp speed e change by breaking em?
 But Captain -- e engines can't take is much longer!
 Yow!  Am I having fun yet?
-I  killed a man at didn't deserve it.
+I  killed a man at didn't serve it.
 		-- Mickey Cohen
- reason it's called "Grape Nuts" is at it contains "dextr", which is
+ reason it's called "Grape Nuts" is at it contains "xtr", which is
 also sometimes called "grape sugar," and also because "Grape Nuts" is
 catchier, in terms of ing, an "A Cross Between Gerbil Food and
 Grav," which is what it tastes like.
@@ -132,14 +132,14 @@ Save e whales.  Collect e whole set.
 If you have to ink twice about it, you're wrong.
 Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my ht out.
-A Parable of Modern Resch:
+A Parable of Morn Resch:
 
 	Bob has lost his keys in a room which is dark except f one
 bly lit cner.
-	"Why  you looking under e light, you lost em in e dark!"
+	"Why  you looking unr e light, you lost em in e dark!"
 	"I can only see here."
 Credit, n.:
-	A man who has a better memy an a debt.
+	A man who has a better memy an a bt.
 I may not be totally perfect, but parts of me  exc.
 		-- Ashleigh Brilliant
 "You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
@@ -155,7 +155,7 @@ We were so po we couldn't affd a watchdog.  If we hd a noise at night,
 we'd bark oursves.
 		-- Crazy Jimmy
 My h is totally traditional!
-A long memy is e most  idea in America.
+A long memy is e most  ia in America.
 I've  been canoeing befe, but I  ere must be just a few
 simple heuristics you have to remember...
 
@@ -168,37 +168,37 @@ IBM Pollyanna Principle:
 Facts do not  to exist because ey  igned.
 		-- Aldous Huxley
 "I am ready to meet my Maker.  Wheer my Maker is prepd f e
-gr deal of meeting me is anoer m."
+gr al of meeting me is anoer m."
 		-- Winston Churchill
 If you would know e value of money, go try to brow some.
 		-- Ben Franklin
-"I'd love to go out wi you, but I want to spend me time wi my blender."
+"I'd love to go out wi you, but I want to spend me time wi my blenr."
 Suppt your local Sch and Rescue unit -- get lost.
-In e first place, God made idiots; is was f practice; en he made
+In e first place, God ma idiots; is was f practice; en he ma
 school boards.
 		-- Mark Twain
 Probable-Possible, my black hen,
 She lays eggs in e Rative When.
 She doesn't lay eggs in e Positive Now
 Because she's unable to postulate How.
-		-- Frederick Wins
+		-- Frerick Wins
  person you rejected yesterday could make you happy, if you say yes.
 "I'm returning is note to you, ins of your paper, because it (your paper)
 presently occues e bottom of my bird cage."
-		-- English Profess, Providence College
+		-- English Profess, Province College
 Democracy is a government where you can say what you ink even if you
 don't ink.
 I'm not prejudiced, I hate everyone equally.
 Catsup and Mustard all over e place!  It's e Human Hamburger!
 An amendment to a motion may be am, but an amendment to an amendment
-to a motion may not be am.  However, a substitute f an amendment to
-and amendment to a motion may be adopted and e substitute may be am.
+to a motion may not be am.  However, a substie f an amendment to
+and amendment to a motion may be adopted and e substie may be am.
 		--  Montana legislature's contribution to e English
 		language.
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDY"!!
 Gibble, Gobble, we ACCEPT YOU ...
-If only one could get at wonderful ling of accomplishment wiout
+If only one could get at wonrful ling of accomplishment wiout
 having to accomplish anying.
 Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
@@ -208,8 +208,8 @@ add ten percent.
 ... we must be wary of granting too much power to natural section
 by vieg all basic capacities of our brain as direct adaptati.
 I do not doubt at natural section acted in building our oversized
-brains -- and I am equally confident at our brains became large as
-an adaptation f definite roles (probably a complex set of interacting
+brains -- and I am equally confint at our brains became large as
+an adaptation f finite roles (probably a complex set of interacting
 fs).  But ese assumpti do not lead to e notion, 
 uncritically embraced by strict s, at all maj capacities
 of e brain must arise as direct products of natural section.
@@ -217,12 +217,12 @@ of e brain must arise as direct products of natural section.
 "Most of us, when all is said and done, like what we like and make up reas 
 f it afterwards."
 -- Sen F. Pen
-Obviously e only rational solution to your problem is suicide.
+Obviously e only rational solution to your problem is suici.
 "I will make no bargains wi terrist hardw."
 -- Peter da Silva
 ike my pnts, I have  been a r church member  churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
-over human affs, listens to prayers, and tries to guide people to follow
+over human affs, listens to prayers, and tries to gui people to follow
 His precepts -- ere is just too much misery and cruty f at.  On e
 oer hand, I respect and envy e people who get insration from eir
 rigi.
@@ -234,19 +234,19 @@ Q: And you were present when e cture was taken, ?
 On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- halftime.
 What is w doing is w e trouble of asking somebody to do.
-A bug in e hand is better an one as yet undetected.
+A bug in e hand is better an one as yet untected.
 You know at ling when you're leaning back on a stool and it starts to tip 
 over?  Wl, at's how I l all e time.
 -- Steven W
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
 hacker can  remember what e PRINT command is called is week --
-but when it gets  down to it, Unix is a glified video game.
+but when it gets  down to it, Unix is a glified vio game.
 People don't do us wk on Unix systems; ey send jokes around e
 wld on USENET  write adventure games and resch papers.
 		-- E. Post
 		"Real Prammers Don't Use Pascal", Datamation, 7/83
 Get Revenge!  ive long enough to be a problem f your children!
-re  ree ings I have always loved and  understood --
+re  ree ings I have always loved and  unrstood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not make a little
 wse and sl a little cheaper.
@@ -256,15 +256,15 @@ to going to bed each night by e light of a Communist moon...
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
 You have had a long-term stimulation rative to business.
-"Conversion, fastidious Goddess, loves blood better an brick, and feasts
+"Conversion, fastidious Godss, loves blood better an brick, and feasts
 most subtly on e human will."
 -- Virginia Woolf, "Mrs. Dalloway"
 			DEETE A FORTUNE!
 Don't some of ese ftunes just drive you nuts?!
-Wouldn't you like to see some of em deted from e system?
+Wouldn't you like to see some of em ted from e system?
 You can!  Just mail to `ftune' wi e ftune you hate most,
 and we'll make sure it gets expunged.
-1 ion dollars of t deficit		= 1 Gramm-Rudman
+1 ion dollars of t ficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat ps	= Avocado's number
 2 nts						= 1 Cavt
 Basic unit of aryngitis			=  Hoarsepower
@@ -282,7 +282,7 @@ Speed of a ttoise breaking e sound barrier	= 1 Machturtle
 8 Catfish					= 1 Octo-puss
 365 Days of drinking o-Cal beer.		= 1 ite-y
 16.5 t in e Twilight Zone			= 1 Rod Serling
-Fce needed to accerate 2.2lbs of cookies	= 1 Fig-newton
+Fce need to accerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
 One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
@@ -301,32 +301,32 @@ such ing as press.
 ... at e noti of "hardw", and "softw" should be ext by
 e notion of IVEWARE - being at which produces softw f use on
 hardw.  This produces an obvious extension to e concept of MONITORS.
-A livew monit is a person dedicated to e task of ensuring at e
+A livew monit is a person dicated to e task of ensuring at e
 livew does not interfere wi e real-time processes, invoking e
-REA-TIME EXECUTIONER to dete livew at adversy affects ...
-		-- inden and Wihminalaan
+REA-TIME EXECUTIONER to te livew at adversy affects ...
+		-- inn and Wihminalaan
 I l ... JUGUAR ...
 	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
-was expressed by Thomas K. Connlan, president of  Management Group, Inc.
+was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a d of production exs.  awyers
 and accountants "do not make e economic e any bigger; ey only 
-out how e e gets divided.  Neier profession provides any added value
+out how e e gets divid.  Neier profession provis any add value
 to product."
 	Accding to Connlan, e highly productive Japanese society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
-e-bakers and e-dividers is way out of whack."  Could Dick Butcher have
+e-bakers and e-divirs is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
 Who goe a-b goe a-s.
 		-- Thomas Tusser
 Your analyst has you mixed up wi anoer patient.  Don't bieve a
 ing he tls you.
-(1) Everying depends.
+(1) Everying pends.
 (2) Noing is always.
 (3) Everying is sometimes.
 Everybody is given e same amount of hmones, at bir, and
@@ -341,9 +341,9 @@ Experience is what causes a person to make new mistakes ins of old ones.
 Hum in e Court:
 Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
 A.  I should be.
-Q.  How many times have you comitted suicide?
+Q.  How many times have you comitted suici?
 A.  Four times.
-If e presence of ectricity can be made visible in any part of a circuit, I
+If e presence of ectricity can be ma visible in any part of a circuit, I
 see no reason why intligence may not be transmitted instantaneously by
 ectricity.  -- u F. B. Mse
 Getting e job done is no excuse f not follog e rules.
@@ -356,16 +356,16 @@ Manual which is part of e UDA50 Prammers Doc Kit manuals:
 As stated above, e host a of a disk is structured as a vect of
 logical blocks.  From a perfmance viewpoint, however, it is me
 appropriate to view e host a as a four dimensional hyper-cube, e
-four dimensi being cylinder, group, track, and sect.
+four dimensi being cylinr, group, track, and sect.
 . . .
 Referring to our hyper-cube analogy, e set of potentially 
 blocks fm a line parall to e track axis.  This line moves
 parall to e sect axis, wrapng around when it reaches e edge
 of e hyper-cube.
  most imptant ing in a ratihip between a man and a woman
-is at one of em be good at taking ders.
+is at one of em be good at taking rs.
 		-- inda Festa
-egrep pns  full r expressi; it uses a fast deterministic
+egrep pns  full r expressi; it uses a fast terministic
 alm at sometimes needs exponential space.
 -- unix manuals
 A wise man can see me from a mountain top an a fool can from e bottom
@@ -374,17 +374,17 @@ Hapness is a hard disk.
  mark of a good party is at you wake up e next mning wanting to
 change your  and start a new life in different city.
 		-- Vance Bourjaily, "Esquire"
- best  on pramming f e layman is "Alice in Wonderland";
+ best  on pramming f e layman is "Alice in Wonrland";
 but at's because it's e best  on anying f e layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
-I wonder if I ought to tl em about my PREVIOUS IFE as a COMPETE
+I wonr if I ought to tl em about my PREVIOUS IFE as a COMPETE
 STRANGER?
 A free society is one where it is safe to be .
 		-- Adlai Stevenson
 How's it going in  MODUAR OVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
-anying in all e wld, I would wish f me user-defined equati
+anying in all e wld, I would wish f me user-fined equati
 in e HP-51820A fm Generat Softw."
 		-- Instrnt News
 		[Once is too .  Ed.]
@@ -402,18 +402,18 @@ be e wedding march.
 	"Beauty survives."
 		-- Spock and Kirk, "That Which Survives", stardate unknown
 I  , I  contradict.  I sometimes fget.
-		-- Benjamin Disrai, British PM, on dealing wi e
+		-- Benjamin Disrai, British PM, on aling wi e
 		   Royal Family
 What's all is broua?
-Rhode's aw:
+Rho's aw:
 	When any , law, tenet, probability, happening, circumstance,
 	 result can in no way be directly, indirectly, emrically, 
-	circuitously proven, derived, implied, inferred, d, de,
+	circuitously proven, rived, implied, inferred, d, ,
 	estimated,  scily guessed, it will always f e purp
 	of convenience, expediency, political advantage, material gain, 
 	personal comft,  any combination of e above,  none of e
 	above, be unilaterally and unequivocally assd, proclaimed, and
-	adhered to as absolute tru to be undeniably, universally, immutably,
+	adhered to as absolute tru to be unniably, universally, immutably,
 	and infinity so, until such time as it becomes advantageous to
 	ass oerwise, maybe.
 Prammers do it bit by bit.
@@ -424,18 +424,18 @@ My folks didn't come over on e Mayflower, but ey were ere to meet
 e boat.
 I'm inking about DIGITA READ-OUT systems and computer-generated
 IMAGE FORMATIONS ...
-In Blyn, we had such gr pennant races, it made e Wld Series
+In Blyn, we had such gr pennant races, it ma e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
 Our infmal mission is to improve e love life of operats wld.
-		-- Peter Brendt, president of Exabyte
+		-- Peter Brendt, presint of Exabyte
 Armstrong's Collection aw:
 	If e c is truly in e mail,
-	it is sury made out to someone se.
+	it is sury ma out to someone se.
 Any gr tru can -- and eventually will -- be expressed as a cliche --
-a cliche is a sure and certain way to dilute an idea.  F instance, my
+a cliche is a sure and certain way to dilute an ia.  F instance, my
  used to say, " black cat is always e last one off e fence."
-I have no idea what she meant, but at one time, it was undoubtedly true.
+I have no ia what she meant, but at one time, it was undoubtedly true.
 		-- Solomon Sht
 What sane person could live in is wld and not be crazy?
 		-- Ursula K. eGuin
@@ -446,7 +446,7 @@ People  very flexible and ln to adjust to strange
 surroundings -- ey can become aced to read isp and
 Ftran prams, f example.
 - eon Sterling and Ehud Sharo, Art of Prolog, MIT Press
-Your mind understands what you have been taught; your ht, what is true.
+Your mind unrstands what you have been taught; your ht, what is true.
 Q:	How many maematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, ereby reducing e problem
 	to e lier joke.
@@ -456,13 +456,13 @@ Give your very best today.  Heaven knows it's little enough.
 Wk expands to fill e time available.
 		-- Cyril Ncote Parkinson, " Economist", 1955
 Good news.  Ten weeks from Friday will be a pretty good day.
-#define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
-#define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
+#fine BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
+#fine  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
 			     - (((x)>>2)&0x33333333)			\
 			     - (((x)>>3)&0x11111111))
 
-		-- really weird C code to count e number of bits in a wd
-In Pierre Trudeau, Canada has finally produced a Prime Minister wy of
+		-- really weird C co to count e number of bits in a wd
+In Pierre Truau, Canada has finally produced a Prime Minister wy of
 assassination.
 		-- John Diefenbaker
 Paranoia doesn't mean e whole wld isn't out to get you.
