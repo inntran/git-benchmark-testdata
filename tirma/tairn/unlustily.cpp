@@ -58,7 +58,7 @@ Against studity e very gods mselves contend in vain.
 Blame Saint Andreas -- it's all his fault.
 "Nuclear war would really set back cable."
 - Ted Turner
-"Ada is e wk of an architect, not a computer scientist."
+"Ada is e wk of an arect, not a computer scientist."
 - Jean Icbiah, invent of Ada, weenie
 Proposed Additions to e PDP-11 Instruction Set:
 
@@ -380,7 +380,7 @@ Close her weary eyes.
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
 I'm pretending I'm pulling in a TROUT!  Am I doing it crectly??
-He who fights and runs away lives to fight anoer day.
+He who s and runs away lives to  anoer day.
 re's only one everying.
 Never say you know a man until you have divided an inheritance wi him.
 Far back in e mists of ancient time, in e gr and glious days of e

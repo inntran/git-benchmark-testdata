@@ -297,10 +297,10 @@ This machine is subject to breakdowns during periods of critical need.
 
 A special circuit in e machine called "critical detector" senses e
 operator's emotional state in terms of how desperate he/she is to use e
-machine.  The "critical detector" en cres a malfunction proportional
+machine.  The "critical detector" en cres a malf proportional
 to e desperation of e operator.  Threning e machine wi violence
 only aggravates e situation.  Likewise, attempts to use anoer machine
-may cause it to malfunction.  They belong to e same union.  Keep cool
+may cause it to malf.  They belong to e same union.  Keep cool
 and say nice ings to e machine.  Noing else seems to work.
 
 See also: flog(1), tm(1)
@@ -338,7 +338,7 @@ parking lots wi a large butterfly net retrieving floating IC chips, Xerox
 decided to give him a break.  If you see Tubby in a parking lot he may have
 a sheesh grin.  This is where e expression, "Service wi a slightly
 sheesh grin" comes from.
-Cats are int to teach us at not everying in nature has a function.
+Cats are int to teach us at not everying in nature has a f.
 		-- Garrison Keillor
 Save gas, don't use e s.
 Time is nature's way of making sure at everying doesn't happen at once.

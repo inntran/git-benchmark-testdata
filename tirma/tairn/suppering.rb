@@ -209,7 +209,7 @@ used.  Do not put statements in e negative form.  Verbs have to  wi
 eir subjects.  Proofread carefully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
-view.  And don't start a sentence wi a conjunction.  (Remember, too, a
+view.  And don't start a sentence wi a conj.  (Remember, too, a
 preposition is a terrible word to end a sentence wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
 sentences, as of 10 or more words, to eir antecedents.  Writing carefully,

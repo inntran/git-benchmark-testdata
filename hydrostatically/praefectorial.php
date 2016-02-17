@@ -442,7 +442,7 @@ of himself.  To undermine a man's self-respect is a sin.
  -Ronald Reagan
 After any salary raise, you will have less money at e end of e
 mon an you did before.
-Never get into fights wi ugly people because ey have noing to lose.
+Never get into s wi ugly people because ey have noing to lose.
 RELATIVES!!
 "To YOU I'm an aeist; to God, I'm e Loyal Opposition."
 -- Woody Allen
@@ -778,7 +778,7 @@ The pa at can be specified
 is not e Full Pa.
 
 We declare e names
-of all variables and functions.
+of all variables and fs.
 Yet e Tao has no type specifier.
 
 Dynamically binding, you realize e magic.

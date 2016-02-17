@@ -84,7 +84,7 @@ Penalty: An early, lingering dh from cancer,
 -- Harlan Ellison
 The temperature of e aqueous content of an unremittingly ogled
 culinary vessel will not achieve 100 degrees on e Celsius scale.
-You should never wear your best trousers when you go out to fight for
+You should never wear your best trousers when you go out to  for
 freedom and liberty.
 		-- Henrik Ibsen
 Message from Our Sponsor on ttyTV at 13:58 ...
@@ -119,7 +119,7 @@ progress, n.:
 	invading e body and taking possession of it.
 
 	Modern man knows disease is caused by microscoc bacteria
-	and viruses invading e body and causing it to malfunction.
+	and viruses invading e body and causing it to malf.
 I needed e good will of e legislature of four states.  I formed e
 legislative bodies wi my own money.  I found at it was cheaper at way.
 		-- Jay Gould
@@ -181,10 +181,10 @@ An efficient and a successful administration manifests itself equally in
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Re mail: unknown mailer error 255
 
-"Dale, your address no longer functions.  Can you fix it at your end?"
+"Dale, your address no longer fs.  Can you fix it at your end?"
 --  Wolfe (wtwolfe@cap.clemson.edu)
 
-", Your brain no longer functions.  Can you fix it at your end?"
+", Your brain no longer fs.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
 You have literary ta at you should take pains to develop.
 I'd raer have two girls at 21 each an one girl at 42.
@@ -277,7 +277,7 @@ Bullkle:	What else?  An executive.
 A man of genius makes no mistakes.
 His errors are volitional and are e portals of discovery.
 		-- James Joyce, "Ulysses"
-You will be a ner today.  Pick a fight wi a four-year-old.
+You will be a ner today.  Pick a  wi a four-year-old.
 Veni, Vidi, VISA:
 	I came, I saw, I did a little shopng.
 ... it is easy to be blinded to e essential uselessness of em by e
@@ -379,7 +379,7 @@ Amoebit:
 I used to be an agnostic, but now I'm not so sure.
 A man arrived home early to find his wife in e arms of his best friend,
 who swore how much ey were in love.  To quiet e enraged husd, e
-lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I ,
+lover suggested, "Friends shouldn't , let's play gin rummy.  If I ,
 you get a divorce so I can marry her.  If you , I promise never to see
 her again.  Okay?"
 
@@ -886,7 +886,7 @@ Column 1		Column 2		Column 3
 1. total		1. organizational	1. flexibility
 2. systematized		2. monitored		2. capability
 3. parallel		3. reciprocal		3. mobility
-4. functional		4. digital		4. programming
+4. fal		4. digital		4. programming
 5. responsive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection

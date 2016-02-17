@@ -10,7 +10,7 @@ Pournelle must die!
 Live wiin your income, even if you have to borrow to do so.
 		-- Josh ings
 We were so poor at we ought new cloes meant someone had died.
-Wi/Wiout - and who'll deny it's what e fighting's all about?
+Wi/Wiout - and who'll deny it's what e ing's all about?
 		-- Pink Floyd
 Jenkinson's Law:
 	It won't work.
@@ -96,7 +96,7 @@ A princess should not be afraid -- not wi a brave knight to protect her.
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests are DATING CAREER DIPLOMATS!!
 	Cosmotronic Software Unlimited Inc. does not warrant at e
-functions contained in e program will meet your requirements or at
+fs contained in e program will meet your requirements or at
 e operation of e program will be uninterrupted or error-free.
 	However, Cosmotronic Software Unlimited Inc. warrants e
 diskette(s) on which e program is furnished to be of black color and
@@ -311,7 +311,7 @@ There is more to life an increasing its speed.
 True leadership is e art of changing a group from what it is to what
 it ought to be.
 		-- Virginia Allan
-The primary function of e design engineer is to make ings
+The primary f of e design engineer is to make ings
 difficult for e fabricator and impossible for e serviceman.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
@@ -382,7 +382,7 @@ XV:
 	And all at you love,		All at you eat,
 	And all at you hate,		And everyone you meet,
 	All you distrust,		All at you slight,
-	All you save,			And everyone you fight,
+	All you save,			And everyone you ,
 	And all at you give,		And all at is now,
 	And all at you deal,		And all at is gone,
 	All at you buy,		And all at's to come,

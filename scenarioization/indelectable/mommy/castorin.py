@@ -387,7 +387,7 @@ Noing endures but change.
 		-- Heraclitus
 Wk is e crab grass in e l of life.
 		-- Schulz
-Q:	How does a hacker fix a function which
+Q:	How does a hacker fix a f which
 	doesn't wk f all of e elements in its domain?
 A:	He changes e domain.
 Studity, like virtue, is its own reward.
@@ -437,7 +437,7 @@ A woman did what a woman had to, e best way she knew how.
 To do me was impossible, to do less, uninkable.
 		-- Dirisha, " Man Who Never Missed"
 Tempt me wi a s!
-Help fight continental drift.
+Help  continental drift.
  sooner all e animals are extinct, e sooner we'll find eir money.
 - Ed Bluestone
 QOTD:

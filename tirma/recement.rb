@@ -17,9 +17,9 @@ We were young and our happiness dazzled us with its strength.  But there was
 also a terrible betrayal that lay within me like a Merle Haggard song at a
 French restaurant. [...]
 	I could not tell the girl about the woman of the tollway, of her milk
-white BMW and her Jordache smile.  There had been a fight.  I had punched her
+white BMW and her Jordache smile.  There had been a .  I had punched her
 boyfriend, who fought the mechanical bulls.  Everyone told him, "You ride the
-bull, senor.  You do not fight it."  But he was lean and tough like a bad
+bull, senor.  You do not  it."  But he was lean and tough like a bad
 rib-eye and he fought the bull.  And then he fought me.  And when we finished
 there were no winners, just men doing what men must do. [...]
 	"Stop the car," the girl said.
@@ -159,7 +159,7 @@ WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
 Hoare's Law of Large Problems:
 	Inside every large problem is a small problem struggling to get out.
-"We can't schedule an orgy, it might be construed as fighting"
+"We can't schedule an orgy, it might be construed as ing"
 --Stanley Sutton
 Endless the world's turn, endless the sun's spinning
 Endless the quest;
@@ -304,7 +304,7 @@ We don't need no flow control		We don't need no load control
 No data typing or declarations		No link edit for external bindings
 Hey! did you leave the lists alone?	Hey! did you leave that source alone?
 Chorus:					(Chorus)
-	Oh No. It's just a pure LISP function call.
+	Oh No. It's just a pure LISP f call.
 
 We don't need no side-effecting		We don't need no allocation
 We don't need no flow control		We don't need no special-nodes
@@ -393,17 +393,17 @@ Got a dictionary?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
 organize the actual writing of external specifications for OS/360.  The
-manager of architecture, the manager of control program implementation, and
+manager of arecture, the manager of control program implementation, and
 I were threshing out the plan, schedule, and division of responsibilities.
-	The architecture manager had 10 good men.  He asserted that they
+	The arecture manager had 10 good men.  He asserted that they
 could write the specifications and do it right.  It would take ten s,
 three more than the schedule allowed.
 	The control program manager had 150 men.  He asserted that they
-could prepare the specifications, with the architecture team coordinating;
+could prepare the specifications, with the arecture team coordinating;
 it would be well-done and practical, and he could do it on schedule.
-Futhermore, if the architecture team did it, his 150 men would sit twiddling
+Futhermore, if the arecture team did it, his 150 men would sit twiddling
 their thumbs for ten s.
-	To this the architecture manager responded that if I gave the control
+	To this the arecture manager responded that if I gave the control
 program team the responsibility, the result would not in fact be on time,
 but would also be three s late, and of much lower quality.  I did, and
 it was.  He was right on both counts.  Moreover, the lack of conceptual

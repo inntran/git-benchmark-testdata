@@ -384,10 +384,10 @@ History is curious stuff
 	You'd think by now we had enough
 Yet the fact remains I fear
 	They make more of it every year.
-A musician, an artist, an architect:
+A musician, an artist, an arect:
 	the man or woman who is not one of these is not a Christian.
 		-- William Blake
-You are fighting for survival in your own sweet and gentle way.
+You are ing for survival in your own sweet and gentle way.
 Alcoholics Anonymous is when you get to drink under someone else's name.
 Getting the job done is no excuse for not following the rules.
 

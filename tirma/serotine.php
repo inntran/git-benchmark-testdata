@@ -95,7 +95,7 @@ Allen Gn:	"Yours is."
 Q:	How many maematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, ereby reducing e problem
 	to e earlier joke.
-She is not refined.  She is not unrefined.  She keeps a parrot.
+She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 	Catching his children wi eir hands in e new, still wet, patio,
 e faer spanked em.  His wife asked, "Don't you love your children?"

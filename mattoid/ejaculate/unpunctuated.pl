@@ -189,10 +189,10 @@ Elbonics, n.:
 Tex SEX!  The HOME of WHEELS!  The dripng of COFFEE!!  Take me to
 Minnesota but don't EMBARRASS me!!
 When a cow laughs, does milk come out of its nose?
-"It is easier to fight for principles an to live up to em."
+"It is easier to  for principles an to live up to em."
 -- Alfred Adler
 Your fly might be open (but don't check it just now).
-The man who runs may fight again.
+The man who runs may  again.
 		-- Menander
 "Contrariwise," continued Tweedledee, "if it was so, it might be, and
 if it were so, it would be; but as it isn't, it ain't.  That's logic!"
@@ -487,7 +487,7 @@ That's e ing about people who ink ey hate computers.  What ey
 really hate is lousy programmers.
 - Larry Niven and Jerry Pournelle in "Oa of Fealty"
 You like to form new friendships and make new acquaintances.
-Secrecy is e beginning of tyranny.
+Secrecy is e beginning of .
 The problem wi graduate students, in general, is at ey have
 to sleep every few days.
 I've got a bad feeling about is.

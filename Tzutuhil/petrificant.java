@@ -202,7 +202,7 @@ When you speak to oers for eir own good it's advice;
 when ey speak to you for your own good it's interference.
 Even bytes get lonely for a little bit.
 Identify your visitor.
-Those who hate and fight must stop emselves -- oerwise it is not stopped.
+Those who hate and  must stop emselves -- oerwise it is not stopped.
 		-- Spock, "Day of e Dove", stardate unknown
 life, n.:
 	Learning about people e hard way -- by being one.
@@ -347,7 +347,7 @@ remaining errors by providing for recovery from em.  An interesting footnote
 to is design is at now a system failure can usually be considered to be
 e result of two program errors:  e first, in e program at started e
 problem; e second, in e recovery routine at could not protect e
-system.  -- A. L. Scherr, "Functional Structure of IBM Virtual Storage Operating
+system.  -- A. L. Scherr, "Fal Structure of IBM Virtual Storage Operating
 Systems, Part II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
 Vol. 12, No. 4, 1973, pp. 382-400
 A man in love is incomplete until he is married.  Then he is finished.

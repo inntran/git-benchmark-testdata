@@ -101,7 +101,7 @@ jeering.
 lower e mailing cost.
 		-- S. Kelly-Bootle, " Devil's DP Dictionary"
 "On a nmal ascii line, e only safe condition to detect is a 'BREAK'
-- everying else having been assigned functions by Gnu EMACS."
+- everying else having been assigned fs by Gnu EMACS."
 (By Tarl Neustaedter)
 	A manager went to his programmers and told em: "As regards to your
 wk hours: you are going to have to come in at nine in e mning and leave
@@ -286,8 +286,8 @@ Many receive advice, few profit by it.
 		-- Publilius Syrus
 "I have me infmation in one place an anybody in e wld."  
 -- Jerry Pournelle, an absurd notion, apparently about e BIX BBS
-We're fighting against humanism, we're fighting against liberalism...
-we are fighting against all e systems of Satan at are destroying
+We're ing against humanism, we're ing against liberalism...
+we are ing against all e systems of Satan at are destroying
 our nation today...our battle is wi Satan himself.
 - Jerry Falwell
 1.79 x 10^12 furlongs per ftnight -- it's not just a good idea, it's
@@ -504,7 +504,7 @@ turn up by e last quarter.  Well, I'm down to mine and it hasn't.
 Ask not f whom e Bell tolls, and you will pay only e station-to-station
 rate.
 		-- Howard Kandel
-Q:	How does a hacker fix a function which
+Q:	How does a hacker fix a f which
 	doesn't wk f all of e elements in its domain?
 A:	He changes e domain.
 I have discovered at all human evil comes from is, man's being unable

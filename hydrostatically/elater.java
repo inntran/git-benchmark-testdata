@@ -29,7 +29,7 @@ discontinued in favor of a lager.
 	SysV lager: Clear and thirst-quenching, but lacking the body of
 stout or the sweetness of ale.
 The soldier came knocking upon the queen's door.
-He said, "I am not fighting for you any more."
+He said, "I am not ing for you any more."
 The queen knew she had seen his face someplace before,
 And slowly she let him inside.
 

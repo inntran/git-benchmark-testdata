@@ -23,7 +23,7 @@ The shifts of Fortune test the reliability of friends.
 		-- Marcus Tullius Cicero
 No, my friend, the way to have good and safe government, is not to trust it
 all to one, but to divide it among the many, distributing to every one exactly
-the functions he is competent to.  It is by dividing and subdividing these
+the fs he is competent to.  It is by dividing and subdividing these
 republics from the national one down through all its subordinations, until it
 ends in the administration of every man's farm by himself; by placing under
 every one what his own eye may superintend, that all will be done for the best.
@@ -144,7 +144,7 @@ Please stand for the National Anthem:
 
 	Oh, say can you see by dawn's early light
 	What so proudly we hailed at the twilight's last gleaming?
-	Whose broad stripes and bright stars through the perilous fight
+	Whose broad stripes and bright stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
 	And the rockets' red glare, the bombs bursting in air,
 	Gave proof through the night that our flag was still there.
@@ -254,7 +254,7 @@ too dangerous for university folks to run with their heads in the sand."
 -- Peter G. Neumann, RISKS moderator, about the Internet virus
 A man arrived home early to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husband, the
-lover suggested, "Friends shouldn't fight, let's play gin rummy.  If I win,
+lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
 you get a divorce so I can marry her.  If you win, I promise never to see
 her again.  Okay?"
 
@@ -319,8 +319,8 @@ IX:
 	Acronyms and abbreviations should be used to the maximum extent
 	possible to make trivial ideas profound.  Q.E.D.
 X:
-	Bulls do not win bull fights; people do.
-	People do not win people fights; lawyers do.
+	Bulls do not win bull s; people do.
+	People do not win people s; lawyers do.
 		-- Norman Augustine
 Due to lack of disk space, this fortune database has been discontinued.
 The human mind ordinarily operates at only ten percent of its capacity
@@ -417,7 +417,7 @@ A Law of Computer Programming:
 When you're dining out and you suspect something's wrong, you're probably right.
 All we know is the phenomenon: we spend our time sending messages to each
 other, talking and trying to listen at the same time, exchanging information.
-This seems to be our most urgent biological function; it is what we do with
+This seems to be our most urgent biological f; it is what we do with
 our lives."
 		-- Lewis Thomas, "The Lives of a Cell"
 Proof techniques #2: Proof by Oddity.

@@ -593,7 +593,7 @@ design is that now a system failure can usually be considered to be the
 result of two program errors:  the first, in the program that started the
 problem; the second, in the recovery routine that could not protect the
 system.
-		-- A.L. Scherr, "Functional Structure of IBM Virtual Storage
+		-- A.L. Scherr, "Fal Structure of IBM Virtual Storage
 		   Operating Systems, Part II: OS/VS-2 Concepts and
 		   Philosophies," IBM Systems Journal, Vol. 12, No. 4.
 Them as has, gets.
@@ -833,7 +833,7 @@ what if only that fat guy in the third row exists?
 "You claim," he jeered, "that my client came at you with a broken bottle
 in his hand.  But is it not true, that you had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,
-but not much good in a fight."
+but not much good in a ."
 I never said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
 When the going gets weird, the weird turn pro.

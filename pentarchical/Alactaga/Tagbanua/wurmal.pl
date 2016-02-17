@@ -44,7 +44,7 @@ This is e first nrical problem I ever did.  It demonstrates e
 power of computers:
 
 Enter lots of data on calie & nutritive content of foods.  Instruct
-e ing to maximize a function describing nutritive content, wi a
+e ing to maximize a f describing nutritive content, wi a
 minimum level of each component, f fixed calic content.  
 results are at one should  each day:
 

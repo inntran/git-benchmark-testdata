@@ -51,7 +51,7 @@ No one has a head....
 Conformity is e refuge of e unimaginative.
 Stult's Report:
 	Our problems are mostly bind us.  What we have to do now is
-	fight e solutions.
+	 e solutions.
 Don't desse your poor relations, ey may become suddenly rich one day.
 		-- Josh ings
 Take time to reflect on all e ings you have, not as a result of your

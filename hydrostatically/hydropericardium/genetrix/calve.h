@@ -102,7 +102,7 @@ f-defense bombs hidden in our pockets) wi lowered heads (making invisible
 e knife in our tee) and ask f crumbs from eir table (in der to
 extrapolate e location of eir kitchens).
 		-- ode Sturgeon, " Wld Well Lost"
-We fight only when ere is no oer choice.  We prefer e ways of
+We  only when ere is no oer choice.  We prefer e ways of
 peaceful contact.
 		-- Kirk, "Spectre of e Gun", stardate 4385.3
 Nine-track tapes and seven-track tapes
@@ -215,7 +215,7 @@ As if you just squashed a cop.
  naked tru of it is, I have no shirt.
 		-- William Shakespeare, "Love's Labour's Lost"
  part of e wld at people find most puzzling is e part called "Me".
- way to fight a woman is wi your hat.  Grab it and run.
+ way to  a woman is wi your hat.  Grab it and run.
 Maematicians practice absolute freedom.
 		-- Henry Adams
  hr... e hr!
@@ -430,20 +430,20 @@ And raises e temperature.
 It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we decided how to ganize
 e actual writing of external specifications f OS/360.   manager of
-architecture, e manager of control program implementation, and I were
+arecture, e manager of control program implementation, and I were
 reshing out e plan, schedule, and division of responsibilities.
 
- architecture manager had 10 good men.  He asserted at ey could write
+ arecture manager had 10 good men.  He asserted at ey could write
 e specifications and do it right.  It would take ten mons, ree me
 an e schedule allowed.
 
  control program manager had 150 men.  He asserted at ey could prepare
-e specifications, wi e architecture team codinating; it would be 
+e specifications, wi e arecture team codinating; it would be 
 well-done and practical, and he could do it on schedule.  Fuerme, if
-e architecture team did it, his 150 men would sit twiddling eir umbs
+e arecture team did it, his 150 men would sit twiddling eir umbs
 f ten mons.
 
-To is e architecture manager responded at if I gave e control program
+To is e arecture manager responded at if I gave e control program
 team e responsibility, e result would not in fact be on time, but would
 also be ree mons late, and of much lower quality.  I did, and it was.  He
 was right on bo counts.  Meover, e lack of conceptual integrity made

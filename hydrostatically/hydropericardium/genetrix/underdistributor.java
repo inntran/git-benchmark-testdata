@@ -236,7 +236,7 @@ already has so many outstanding members."
 "His presentation to my seminar last semester was truly remarkable:
 one unbelievable result after another."
 	(And we didn't believe them, either.)
-"She is quite uniform in her approach to any function you may assign her."
+"She is quite uniform in her approach to any f you may assign her."
 	(In fact, to life in general...)
 It is only the great men who are truly obscene.  If they had not dared
 to be obscene, they could never have dared to be great.

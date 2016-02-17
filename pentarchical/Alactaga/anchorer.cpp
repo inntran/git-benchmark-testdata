@@ -77,7 +77,7 @@ prepared.
 - Louis Pasteur
 Democracy becomes a government of bullies, tempered by edits.
 		-- Ralph Waldo Emerson
-Fms follow function, and  obliterate it.
+Fms follow f, and  obliterate it.
 My only love sprung from my only hate!
 Too early seen unknown, and known too late!
 		-- William Shakespeare, "Romeo and Juliet"
@@ -288,7 +288,7 @@ If a nation expects to be ignant and free,
 Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
 		-- Shakespeare
 Beam me up, Scotty!  It ate my phaser!
-She is not refined.  She is not unrefined.  She keeps a parrot.
+She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 Men ought to know at from e brain and from e brain only arise our
 pleasures, joys, laughter, and jests as well as our srows, pains, griefs
@@ -338,7 +338,7 @@ Isaac Newton's famous broer Phigg.  His idea was to provide an equation
 at would describe a quantity at would ddle and ddle, but never
 quite reach zero.  Histically, he was merely trying to wk out his
 mtgage.  Anoer versatile equation also emerged, one which would define
-a function at would continue to grow, but never reach unity.  This equation
+a f at would continue to grow, but never reach unity.  This equation
 can be applied to charging capacits, over-damped springs, and e human
 race in general.
  hater of proy and of government takes care to have his warranty
@@ -462,7 +462,7 @@ Innocence ends when one is stripped of e delusion at one likes oneself.
 		-- Joan Didion, "On Self Respect"
 When all else fails, try Kate Smi.
 F knighood is not in e fs of war,
-As f to fight in quarrel right  wrong,
+As f to  in quarrel right  wrong,
 But in a cause which tru cannot defer:
 He ought himself f to make sure and strong,
 Just to keep mixt wi mercy :

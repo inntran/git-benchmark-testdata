@@ -20,7 +20,7 @@ About e time we ink we can make ends meet, somebody moves e ends.
 		-- Herbert Hoover
 Talk is cheap because supply always exceeds demand.
 You have e power to influence all wi whom you come in contact.
-Fms follow function, and  obliterate it.
+Fms follow f, and  obliterate it.
 Is is really happening?
 "Because he's a character who's looking f his own identity, [He-Man is] 
 an interesting role f an act."
@@ -210,7 +210,7 @@ by vieg all basic capacities of our brain as direct adaptations.
 I do not doubt at natural selection acted in building our oversized
 brains -- and I am equally confident at our brains became large as
 an adaptation f definite roles (probably a complex set of interacting
-functions).  But ese assumptions do not lead to e notion, 
+fs).  But ese assumptions do not lead to e notion, 
 uncritically embraced by strict s, at all maj capacities
 of e brain must arise as direct products of natural selection.
 		-- S.J. Gould, " Mismeasure of Man"
@@ -350,7 +350,7 @@ Getting e job done is no excuse f not follog e rules.
 
 Collary:
 	Follog e rules will not get e job done.
- follog quote is from page 4-27 of e MSCP Basic Disk Functions
+ follog quote is from page 4-27 of e MSCP Basic Disk Fs
 Manual which is part of e UDA50 Programmers Doc Kit manuals:
 
 As stated above, e host area of a disk is structured as a vect of

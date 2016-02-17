@@ -349,7 +349,7 @@ you test it?
 
  crect answer is (d). You should test your car's hn at least once
 every hour, and me  at night  in residential neighbhoods.
-He's like a function -- he returns a value, in e fm of his onion.
+He's like a f -- he returns a value, in e fm of his onion.
 It's up to you to cast it into a void  not.
 		-- Phil Lapsley
 Whip it, baby.

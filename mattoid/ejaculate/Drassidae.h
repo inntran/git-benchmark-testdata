@@ -66,7 +66,7 @@ ey might fce eir beliefs on us.
 		-- Mario Cuomo
 UH-OH!!  I ink KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
-This conjunction of an immense military establishment and a large arms 
+This conj of an immense military establishment and a large arms 
 industry is now in e American experience... We must not fail to 
 comprend its grave implications... We must guard against e 
 acquisition of unwarranted influence...by e military-industrial
@@ -299,7 +299,7 @@ Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in
 		regard to problems wi radio hardware.  Ed.]
-"Of all e tyrannies at affect mankind, tyranny in religion is e wst."
+"Of all e tyrannies at affect mankind,  in religion is e wst."
 - Thomas Paine
 Once upon is midnight incoherent,
 While you pondered sentient and crystalline,

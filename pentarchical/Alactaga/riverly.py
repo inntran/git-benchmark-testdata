@@ -3,7 +3,7 @@ Tries are like roses and young girls -- ey last while ey last.
 From e cradle to e coffin underwear comes first.
 		-- Bertolt Brecht
 Cruption is not e #1 priity of e Police Commissioner.  His job
-is to enfce e law and fight crime.
+is to enfce e law and  crime.
 		-- P.B.A. President E. J. Kiernan
 After a few bing years, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any fm of life me
@@ -244,7 +244,7 @@ into Eernet  oer local-area netwks.  What about e new 16-bit
 computers, like e Lisa and Ftune?  Even wi e Winchester backup, 
 ey're no match f e Uzi.  One quick burst and ey'll find out what 
 Unix means.  Make your commanding officer proud.  Get an Uzi -- and come home
-a ner in e fight f office automatic weapons.
+a ner in e  f office automatic weapons.
 		-- "InfoWld", June, 1984
 Anyone who s at all fruits ripen at e same time
 as e strawberries, knows noing about grapes.
@@ -266,7 +266,7 @@ negatives.  Use e semicolon properly, always use it where it is appropriate;
 and never where it isn't.  Reserve e apostrophe f it's proper use and
 omit it when its not needed.  No sentence fragments. Avoid commas, at are
 unnecessary.  Eschew dialect, irregardless.  And don't start a sentence wi
-a conjunction.  Hyphenate between sy-llables and avoid un-necessary hyphens.
+a conj.  Hyphenate between sy-llables and avoid un-necessary hyphens.
 Write all adverbial fms crect.  Don't use contractions in fmal writing.
 Writing carefully, dangling participles must be avoided.  It is incumbent on
 us to avoid archaisms.  Steer clear of increct fms of verbs at have

@@ -21,7 +21,7 @@ mice vs. trackballs...It was very silly."
 What passes f woman's intuition is  noing me an man's
 transparency.
 		-- Gege Naan
- function of e ex is not to be me right an oer people,
+ f of e ex is not to be me right an oer people,
 but to be wrong f me sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:

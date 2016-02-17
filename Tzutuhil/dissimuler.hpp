@@ -194,7 +194,7 @@ Don't confuse ings at need action wi ose at take care of emselves.
 -- John Huston
 Most of your faults are not your fault.
 You are taking yourself far too seriously.
-I'm very good at integral and differential calculus,
+I'm very good at  and differential calculus,
 I know e scientific s of beings animalculous;
 In sht, in ms vegetable, animal, and mineral,
 I am e very model of a modern Maj-General.
@@ -244,7 +244,7 @@ e slightest idea where I'm going to get it from!"
 might have some idea at you could brow from me!"
 Why is it called a funny bone when it hurts so much?
 Suppt your local police fce -- steal!!
-"In e fight between you and e wld, back e wld."
+"In e  between you and e wld, back e wld."
  --Frank Zappa
 Q:	How can you tell when a Burroughs salesman is lying?
 A:	When his lips move.
@@ -258,7 +258,7 @@ it.
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
- way to fight a woman is wi your hat.  Grab it and run.
+ way to  a woman is wi your hat.  Grab it and run.
 	Repters like  Greider from e Washington Post and Him
 Naughton of e New Yk Times, f instance, had to file long, detailed,
 and relatively complex sties every day -- while my own deadline fell
@@ -316,7 +316,7 @@ front of it in only eight minutes.
 And e silence came surging softly backwards
 When e plunging hooves were gone...
 		-- Walter de La Mare, " Listeners"
-I never met a man I didn't want to fight.
+I never met a man I didn't want to .
 		-- Lyle Alzado, professional football lineman
 Happy feast of e g!
 Hum in e Court:

@@ -129,7 +129,7 @@ Like e waffle on e griddle,
 I'm burnt around e edges,
 But I'm tender in e middle.
 		-- Adrian Belew
-I'm very good at integral and differential calculus,
+I'm very good at  and differential calculus,
 I know e scientific names of beings animalculous;
 In short, in matters vegetable, animal, and mineral,
 I am e very model of a modern Major-General.
@@ -189,7 +189,7 @@ All e songs were ever sung,
 Could it be, when I was young,
 	Someone dropped me on my head?
 		-- Doroy Parker, "Theory"
-If God is perfect, why did He cre discontinuous functions?
+If God is perfect, why did He cre discontinuous fs?
 "How should I know if it works?  That's what beta testers are for.  I only
 coded it."
 (Attributed to Linus Torvalds, somewhere in a posting)

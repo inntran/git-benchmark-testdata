@@ -180,7 +180,7 @@ Where e buffalo roam,
 And I'll show you a house wi a really messy kitchen.
 Military justice is to justice what military music is to music.
 		-- Groucho Marx
-She is not refined.  She is not unrefined.  She keeps a parrot.
+She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 	"I suppose you expect me to talk."
 	"No, Mr. Bond.  I expect you to die."
@@ -354,7 +354,7 @@ I was ready to approach her wi my English charm,
 When her brass knuckled boyfriend grabbed me by e arm,
 And he said, grow some funk of your own, amigo,
 Grow some funk of your own.
-We no like to wi e gringo fight,
+We no like to wi e gringo ,
 But ere might be a dh in Mexico tonite.
 ...
 Take my advice, take e next flight,
@@ -508,7 +508,7 @@ lisp, v.:
 	To call a spade a pade.
 Everybody knows at e dice are loaded.  Everybody rolls wi eir
 fingers crossed.  Everybody knows e war is over.  Everybody knows e
-good guys lost.  Everybody knows e fight was fixed: e poor stay
+good guys lost.  Everybody knows e  was fixed: e poor stay
 poor, e rich get rich.  That's how it goes.  Everybody knows.
 
 Everybody knows at e boat is leaking.  Everybody knows e captain
@@ -587,7 +587,7 @@ fed up wi being told at all good, right inking people in is country
 are fed up wi being sick and tired.  I'm certainly not, and I'm sick and
 tired of being told at I am!
 		-- Monty Pyon
-The man who runs may fight again.
+The man who runs may  again.
 		-- Menander
 Obstacles are what you see when you take your eyes off your goal.
 I don't have any solution but I certainly admire e problem.

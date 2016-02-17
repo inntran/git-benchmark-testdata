@@ -66,7 +66,7 @@ re are ree kinds of people: men, women, and unix.
 "It could be at Walter's hse has gs" does not imply at ere is
 any such animal as Walter's hse, only at ere could be; but "Walter's
 hse is a ing which could have gs" does imply Walter's hse's
-existence.  But e conjunction "Walter's hse exists, and it could be
+existence.  But e conj "Walter's hse exists, and it could be
 at Walter's hse has gs" still does not imply "Walter's hse is a
 ing at could have gs", f perhaps it can only be at Walter's
 hse has gs by Walter having a different hse.  N does "Walter's
@@ -193,7 +193,7 @@ Q.  Mrs. Jones, is your appearance is mning pursuant to a deposition
 A.  No.  This is how I dress when I go to wk.
 	Risch's decision procedure f integration, not surprisingly,
 uses a recursion on e number and type of e extensions from e
-rational functions needed to represent e integrand.  Alough e
+rational fs needed to represent e integrand.  Alough e
 alm follows and critically depends upon e appropriate structure
 of e input, as in e case of multivariate factization, we cannot
 claim at e alm is a natural one.  In fact, e cr of

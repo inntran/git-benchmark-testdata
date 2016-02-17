@@ -117,7 +117,7 @@ Bring me my bow of burning gold!
 Bring me my arrows of desire!
 Bring me my spears!  O clouds unfold!
 Bring me my chariot of fire!
-I shall not cease from mental fight,
+I shall not cease from mental ,
 N shall my swd rest in my hand,
 Till we have built Jerusalem
 In England's green and pleasant land.
@@ -275,7 +275,7 @@ long ter evenings.
 "Ear is a gr, big funhouse wiout e fun."
 		-- Jeff Berner
 Fried's 1st Rule:
-	Increased automation of clerical function
+	Increased automation of  f
 	invariably results in increased operational costs.
 Remember ee
 Ay, ou po ghost while memy holds a s
@@ -290,7 +290,7 @@ a beautiful diamond ring in a jewelry-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
 	"No problem," her companion replied, rog a brick rough e
 dow and grabbing e ring.
-	A few blocks later, e woman admired a full-leng sable coat.  "What
+	A few blocks later, e woman  a full-leng sable coat.  "What
 I'd give to own at," she said, sighing.
 	"No problem," he said, rog a brick rough e dow and grabbing
 e coat.
@@ -390,7 +390,7 @@ learning curve, n.:
 	quicker you can do it.
 Is is e line f e latest whimsical YUGOSLAVIAN drama which also
 makes you want to CRY and reconsider e VIETNAM WAR?
-"One Architecture, One OS" also translates as "One Egg, One Basket".
+"One Arecture, One OS" also translates as "One Egg, One Basket".
 "A dirty mind is a joy fever."
 -- Randy Kunkee
 Mton's Law:
@@ -478,11 +478,11 @@ Grig (e navigat):
 	armada.
 Alex (e ):
 	What?!?
-Grig:	I've always wanted to fight a desperate battle against
+Grig:	I've always wanted to  a desperate battle against
 	overwhelming odds.
 Alex:	It'll be a slaughter!
 Grig:	That's e srit!
-		--  Last Starfighter
+		--  Last Starer
 Misftunes arrive on gs and leave on foot.
 Doubt isn't e opposite of fai; it is an element of fai.
 		-- Paul Tillich, German eologian.
