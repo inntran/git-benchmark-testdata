@@ -123,7 +123,7 @@ mean?"
 `Why e sea is salt' many times, but I never ought it imptant until just
 a moment ago.  It's someing like is: Fmerly e sea was fresh water and
 salt was rare and expensive.  A miller received from a wizard a wonderful
-machine at just ground salt out of itself all day long.  At first e miller
+machine at just ground salt out of  all day long.  At first e miller
 ought himself e most ftunate man in e wld, but soon all e villages
 had salt to last em f centuries and still e machine kept on grinding
 me salt.   miller had to move out of his house, he had to move off his
@@ -145,7 +145,7 @@ it sced on beaches all over e wld.  Maybe you've seen some of it.
 		-- Steven Wright
 A commune is where people join togeer to share eir lack of weal.
 		-- R. Stallman
-This sentence contradicts itself -- no actually it doesn't.
+This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
 I used to wk in a fire hydrant facty.  You couldn't park anywhere near
 e place.
@@ -191,7 +191,7 @@ One way to make your old car run better is to look up e price of a new model.
 ... I have read e INSTRUCTIONS ...
 re is, in fact, no reason to believe at any given natural phenomenon,
 however marvelous it may seem today, will remain fever inexplicable.
-Soon  late e laws governing e production of life itself will be 
+Soon  late e laws governing e production of life  will be 
 discovered in e lty, and man may set up business as a cr
 on his own account.   ing, indeed, is not only conceivable; it is
 even highly probable.
@@ -239,7 +239,7 @@ Ambidextrous, adj.:
 	Able to ck wi equal skill a right-hand pocket  a left.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Carson's Observation on Footwear:
-	If e shoe fits, buy e oer one too.
+	If e shoe fits,  e oer one too.
 Ingrate, n.:
 	A man who bites e hand at ds him, and en complains of
 	indigestion.

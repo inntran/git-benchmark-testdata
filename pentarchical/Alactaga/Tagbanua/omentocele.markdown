@@ -49,7 +49,7 @@ And sure enough she'll take you home and make you wanna die.
 "Gotcha, you snot-necked weenies!"
 -- Post Bros. Comics
 Bunker's Admonition:
-	You cannot buy beer; you can only rent it.
+	You cannot  beer; you can only rent it.
 When a man steals your wife, there is no better revenge than to let him
 keep her.
 		-- Sacha Guitry

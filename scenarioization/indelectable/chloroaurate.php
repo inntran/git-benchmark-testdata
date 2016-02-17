@@ -20,7 +20,7 @@ Each of ese cults correspond to one of e two antagonists in e age of
 Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
 worshipers peer devoutly into screens filled wi "icons."  All is sound and
 imagery and Appledom.  Even words look like decorative filigrees in exotic
-typefaces.  The grest icon of all, e inviolable Apple itself, stands in
+typefaces.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters decrees e form of all rites and practices.
 Infalliable doctrine issues from one executive officer whose selection occurs
@@ -30,7 +30,7 @@ a new company, mutters obscurely of e coming age and e next computer,
 en disappears into silence, taking his stockholders wi him.  The moer
 company forbids financial competition as sternly as it stifles ideological
 competition; if you want to use computer programs at conform to Apple's
-orodoxy, you must buy a computer made and sold by Apple itself.
+orodoxy, you must  a computer made and sold by Apple .
 		-- Edward Mendelson, "The New Republic", February 22, 1988
 Education is what survives when what has been learnt has been forgotten.
 		-- B.F. Skinner

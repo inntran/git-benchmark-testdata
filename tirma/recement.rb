@@ -165,7 +165,7 @@ Endless the world's turn, endless the sun's spinning
 Endless the quest;
 I turn again, back to my own beginning,
 And here, find rest.
-Speaking of purchasing a dog, never buy a watchdog that's on sale.
+Speaking of purchasing a dog, never  a watchdog that's on sale.
 After all, everyone knows a bargain dog never bites!
 "Luke, I'm yer father, eh.  Come over to the dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
@@ -426,7 +426,7 @@ header, since some people might miss part of the valuable discussion in
 the fringe groups.
 		-- Emily Postnews Answers Your Questions on Netiquette
 The sixth sheik's sixth sheep's sick.
-	[so say said sentence sextuply...]
+	[so say said  sextuply...]
 Kington's Law of Perforation:
 	If a straight line of holes is made in a piece of paper, such
 	as a sheet of stamps or a check, that line becomes the strongest

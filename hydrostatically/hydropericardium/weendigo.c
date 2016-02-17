@@ -208,11 +208,11 @@ a ousand years ago.  Why not, en, e last step of doing away wi
 computers altogeer?"
 		-- Jan Shuman
 Alough it is still a truism in industry at "no one was ever fired f
-buying IBM,"  O'Neil, e chief technology officer at Drexel Burnham
+ing IBM,"  O'Neil, e chief technology officer at Drexel Burnham
 Lambert, says he knows f a fact at someone has been fired f just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Well, I
-bought it because I figured it was safe to buy IBM,'"  Mr. O'Neil says.
+bought it because I figured it was safe to  IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
 		--  Wall Street Journal, December 6, 1989
 I am very fond of e company of ladies.  I like eir beauty,

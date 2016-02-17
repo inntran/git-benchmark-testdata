@@ -114,7 +114,7 @@ ninety-five.  My supervis was Mr. Langley, and he taught me to sing a
 song.  If you would like, I could sing it f you.
 Keep e number of passes in a comler to a minimum.
 		-- D. Gries
-This sentence contradicts itself -- no actually it doesn't.
+This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
 Yow!  Maybe I should have asked f my Neutron Bomb in PAISLEY --
 Question: Is it better to abide by e rules until ey're changed 
@@ -195,7 +195,7 @@ to a motion may not be am.  However, a substitute f an amendment to
 and amendment to a motion may be adopted and e substitute may be am.
 		--  Montana legislature's contribution to e English
 		language.
-I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
+I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
 Gibble, Gobble, we ACCEPT YOU ...
 If only one could get at wonderful ling of accomplishment wiout
@@ -250,7 +250,7 @@ re are ree ings I have always loved and never understood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not make a little
 wse and sell a little cheaper.
-I do not believe at is generation of Americans is willing to resign itself
+I do not believe at is generation of Americans is willing to resign 
 to going to bed each night by e light of a Communist moon...
 - Lyndon B. Johnson
  first duty of a revolutionary is to get away wi it.

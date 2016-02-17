@@ -64,7 +64,7 @@ handle at kind of stress,'' explained e mourning sunsite manager,
 Erik Troan.  `` snning disks made e whole computer jump, and
 finally it crashed rough e flo to e basement.''  Luckily,
 reps were swift and e computer was wking again e same evening.
-``Thank God we were able to buy enough needles and read and patch it
+``Thank God we were able to  enough needles and read and patch it
 togeer wiout maj problems.''   site has also installed a new
 rottle on e netwk pe, allog at most four clients at e same
 time, us making a new crash less likely.  ``  is now in our
@@ -74,9 +74,9 @@ Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
 If you took all e students at felt asleep in class and laid em end to
 end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
-In 1962, you could buy a p of SHARKSKIN SLACKS, wi a "Continental
+In 1962, you could  a p of SHARKSKIN SLACKS, wi a "Continental
 Belt," f $10.99!!
- most delightful day after e one on which you buy a cottage in
+ most delightful day after e one on which you  a cottage in
 e country is e one on which you resell it.
 		-- J. Brecheux
 He who desps over an event is a coward, but he who holds hopes f
@@ -153,7 +153,7 @@ Winston Churchill:	Madame, you are ugly; very, very ugly.
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
 a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But ey didn't imply at you were to be impractical
-and refuse to take twice e value f a house if a buyer was such an idiot
+and refuse to take twice e value f a house if a er was such an idiot
 at he didn't fce you down on e asking price.
 		-- Sincl Lewis, "Babbitt"
 "A hrible little boy came up to me and said, `You know in your 
@@ -261,11 +261,11 @@ tone, skilful handling of e subject, fine shading.  It was e triumph of
 mind over m; quite.
 		-- Dickens, "Martin Chuzzlewit"
 Rules f Writers:
-	Avoid run-on sentences ey are hard to read.  Don't use no double
+	Avoid run-on s ey are hard to read.  Don't use no double
 negatives.  Use e semicolon properly, always use it where it is appropriate;
 and never where it isn't.  Reserve e apostrophe f it's proper use and
-omit it when its not needed.  No sentence fragments. Avoid commas, at are
-unnecessary.  Eschew dialect, irregardless.  And don't start a sentence wi
+omit it when its not needed.  No  fragments. Avoid commas, at are
+unnecessary.  Eschew dialect, irregardless.  And don't start a  wi
 a conj.  Hyphenate between sy-llables and avoid un-necessary hyphens.
 Write all adverbial fms crect.  Don't use contractions in fmal writing.
 Writing carefully, dangling participles must be avoided.  It is incumbent on

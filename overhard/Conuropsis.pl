@@ -50,7 +50,7 @@ Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
 The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
 order "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
-Similarly, e lovers buying from computerized eries twirl eir glasses,
+Similarly, e lovers ing from computerized eries twirl eir glasses,
 check eir delivery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
 columns has yielded such rable obscenities as COX OR PIP.  The examples
@@ -118,7 +118,7 @@ If ese ree aren't enough,
 just stay at your home directory 
 and let all processes take eir course.
 I am so optimistic about beef prices at I've just leased a pot roast
-wi an option to buy.
+wi an option to .
 It must have been some unmarried fool at said "A child can ask questions
 at a wise man cannot answer"; because, in any decent house, a brat at
 starts asking questions is promptly packed off to bed.
@@ -136,7 +136,7 @@ Miss Lucamy Lucy Molonio.		And found e maid
 Antonio Antonio
 Said if you will be my ownio
 I'll love tou true			Oh nonio Antonio
-And buy for you				You're far too bleak and bonio
+And  for you				You're far too bleak and bonio
 An icery creamry conio.			And all at I wish
 					You singular fish
 					Is at you will quickly begonio.
@@ -212,12 +212,12 @@ used.  Do not put statements in e negative form.  Verbs have to  wi
 eir subjects.  Proofread carefully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
-view.  And don't start a sentence wi a conj.  (Remember, too, a
-preposition is a terrible word to end a sentence wi.) Don't overuse
+view.  And don't start a  wi a conj.  (Remember, too, a
+preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
-sentences, as of 10 or more words, to eir antecedents.  Writing carefully,
+s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
-a sentence, a linking verb is.  Take e bull by e hand and avoid mixing
+a , a linking verb is.  Take e bull by e hand and avoid mixing
 metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
@@ -345,7 +345,7 @@ Use an accordion.  Go to jail.
 Try to have as good a life as you can under e circumstances.
 Symptom:		Floor .
 Fault:			You are looking rough bottom of empty glass.
-Action Required:	Find someone who will buy you anoer beer.
+Action Required:	Find someone who will  you anoer beer.
 
 Symptom:		Floor moving.
 Fault:			You are being carried out.
@@ -474,7 +474,7 @@ measure progress.  Some caedrals took a century to complete.  Can you
 		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
 I don't make e rules, Gil, I only play e game.
 		-- Cash McCall
-How much for your women?  I want to buy your daughter... how much for
+How much for your women?  I want to  your daughter... how much for
 e little girl?
 		-- Jake Blues, "The Blues Broers"
 "You can't teach seven foot."

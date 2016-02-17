@@ -68,7 +68,7 @@ Lowery's Law:
 Maematicians practice absolute freedom.
 		-- Henry Adams
 May Euell Gibbons  your only copy of e manual!
-Finish e sentence below in 25 wds  less:
+Finish e  below in 25 wds  less:
 
 	"Love is what you l just befe you give someone a good ..."
 

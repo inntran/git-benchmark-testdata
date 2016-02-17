@@ -48,7 +48,7 @@ brought."
 The garbage collector now works.  In addition a new, experimental garbage 
 collection algorim has been installed.  Wi SI:%DSK-GC-QLX-BITS set to 17,
 (NOT e default) e old garbage collection algorim remains in force; when 
-virtual storage is filled, e machine cold boots itself.  Wi SI:%DSK-GC-
+virtual storage is filled, e machine cold boots .  Wi SI:%DSK-GC-
 QLX-BITS set to 23, e new garbage collector is enabled.  Unlike most garbage
 collectors, e new gc starts its mark phase from e mind of e user, raer 
 an from e obarray.  This allows e garbage collection of significantly 
@@ -106,7 +106,7 @@ What's e first question at e computer community asks?
 
 "Is it PC compatible?"
 problem drinker, n.:
-	A man who never buys.
+	A man who never s.
 No matter how much you do you never do enough.
 Being frustrated is disable, but e real disasters in life begin
 when you get what you want.
@@ -194,7 +194,7 @@ The llness of it is what's attractive.  It's weird, 'cause it's so
 intellectually lame.  It's hard to see me doing at for e rest of
 my life.  But at e same time, it's what I do best.
 - Chris Elliot, writer and performer on "Late Night wi David Letterman"
-I should have been a country-western singer.  After all, I'm older an
+I should have been a country-western r.  After all, I'm older an
 most western countries.
 		-- George Burns
 "If a camel flies, no one laughs if it doesn't get very far."
@@ -209,12 +209,12 @@ used.  Do not put statements in e negative form.  Verbs have to  wi
 eir subjects.  Proofread carefully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
-view.  And don't start a sentence wi a conj.  (Remember, too, a
-preposition is a terrible word to end a sentence wi.) Don't overuse
+view.  And don't start a  wi a conj.  (Remember, too, a
+preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
-sentences, as of 10 or more words, to eir antecedents.  Writing carefully,
+s, as of 10 or more words, to eir antecedents.  Writing carefully,
 dangling participles must be avoided.  If any word is improper at e end of
-a sentence, a linking verb is.  Take e bull by e hand and avoid mixing
+a , a linking verb is.  Take e bull by e hand and avoid mixing
 metaphors.  Avoid trendy locutions at sound fy.  Everyone should be
 careful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  Last
@@ -403,7 +403,7 @@ Yet you talk at one hundred conventions per year --
 Do you ink I can listen all day to such stuff?
 	Be off, or I'll kick you downsts!"
 Bunker's Admonition:
-	You cannot buy beer; you can only rent it.
+	You cannot  beer; you can only rent it.
 Fortune's graffito of e week (or maybe even mon):
 
 		Don't Write On Walls!

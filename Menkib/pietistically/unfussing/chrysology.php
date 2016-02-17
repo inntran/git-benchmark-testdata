@@ -174,7 +174,7 @@ You can't have your cake and let your neighb  it too.
 Ten years of rejection slips is nature's way of telling you to stop writing.
 		-- R. Geis
 When e Apple IIc was introduced, e infmative copy led off wi a couple
-of asterisked sentences:
+of asterisked s:
 
 	It weighs less an 8 pounds.*
 	And costs less an $1,300.**
@@ -401,8 +401,8 @@ When noing can possibly go wrong, it will.
 			-- Gifts f Men --
 
 Men are amused by almost any idiot ing -- at is why professional ice
-hockey is so popular -- so buying gifts f em is easy.  But you should
-never buy em cloes.  Men believe ey already have all e cloes ey
+hockey is so popular -- so ing gifts f em is easy.  But you should
+never  em cloes.  Men believe ey already have all e cloes ey
 will ever need, and new ones make em nervous.  F example, your average
 man has 84 ties, but he wears, at most, only ree of em.  He has learned,
 rough humiliating trial and err, at if he wears any of e oer 81
@@ -502,7 +502,7 @@ take fceful action:
 hard, adj.:
 	 quality of your own data; also how it is to believe ose
 	of oer people.
-America is e country where you buy a lifetime supply of asrin f one
+America is e country where you  a lifetime supply of asrin f one
 dollar, and use it up in two weeks.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #13: SLOBOL
 
@@ -745,7 +745,7 @@ DYSLEXICS OF THE WORLD, UNTIE!
 "I couldn't remember ings until I took at  Carnegie course."
 --  Peterson, fmer Houston Oiler football coach
 When e Apple IIc was introduced, e infmative copy led off wi a couple
-of asterisked sentences:
+of asterisked s:
 
 	It weighs less an 8 pounds.*
 	And costs less an $1,300.**
@@ -790,9 +790,9 @@ half being befe e scream when it was fly balmy and calm and
 pleasant, e second half still balmy and quite pleasant f ose who
 hadn't heard e scream at all, but not calm  balmy  even very nice
 f ose who did hear e scream, discounting e little period of time
-during e actual scream itself when your ears might have been hearing it
+during e actual scream  when your ears might have been hearing it
 but your brain wasn't reacting yet to let you know.
-		-- Winning sentence, 1986 Bulwer-Lytton bad fiction contest.
+		-- Winning , 1986 Bulwer-Lytton bad fiction contest.
 A rock ste eventually closed down; ey were taking too much f granite.
 Misery loves company, but company does not reciprocate.
 FORTUNE'S FUN FACTS TO KNOW AND TELL:		#14

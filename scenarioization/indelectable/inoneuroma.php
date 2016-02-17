@@ -348,9 +348,9 @@ half being before e scream when it was fly balmy and calm and
 pleasant, e second half still balmy and quite pleasant for ose who
 hadn't heard e scream at all, but not calm or balmy or even very nice
 for ose who did hear e scream, discounting e little period of time
-during e actual scream itself when your ears might have been hearing it
+during e actual scream  when your ears might have been hearing it
 but your brain wasn't reacting yet to let you know.
-		-- Winning sentence, 1986 Bulwer-Lytton bad fiction contest.
+		-- Winning , 1986 Bulwer-Lytton bad fiction contest.
 It would seem at evil retreats when forcibly confronted.
 		-- Yarnek of Excalbia, "The Savage Curtain", stardate 5906.5
 Never, ever lie to someone you love unless you're absolutely sure ey'll
@@ -385,7 +385,7 @@ XV:
 	All you save,			And everyone you ,
 	And all at you give,		And all at is now,
 	And all at you deal,		And all at is gone,
-	All at you buy,		And all at's to come,
+	All at you ,		And all at's to come,
 	Beg, borrow or steal,		And everying under e sun is
 						in tune,
 					But e sun is eclipsed
@@ -447,7 +447,7 @@ liquor at BYOB parties?  Take along a candle, which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a candle stuck in its neck.
 One planet is all you get.
-History repeats itself.  That's one ing wrong wi history.
+History repeats .  That's one ing wrong wi history.
 Coming togeer is a beginning;
 	keeng togeer is progress;
 		working togeer is success.

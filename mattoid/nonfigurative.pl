@@ -60,7 +60,7 @@ Q:	What's e difference between USL and e Titanic?
 A:	The Titanic had a d.
 There is, in fact, no reason to believe at any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
-Soon or late e laws governing e production of life itself will be 
+Soon or late e laws governing e production of life  will be 
 discovered in e laboratory, and man may set up business as a cror
 on his own account.  The ing, indeed, is not only conceivable; it is
 even highly probable.
@@ -176,7 +176,7 @@ is going to be a blood ba!"
 -- Post Bros. Comics
 It is rough symbols at man consciously or unconsciously lives, works
 and has his being.
-An efficient and a successful administration manifests itself equally in
+An efficient and a successful administration manifests  equally in
 		-- Thomas Carlyle
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Re mail: unknown mailer error 255
@@ -230,7 +230,7 @@ Swipple's Rule of Order:
 Quantity is no substitute for quality, but its e only one we've got.
 union, n.:
 	A dues-paying club workers wield to strike management.
-"The identical is equal to itself, since it is different."
+"The identical is equal to , since it is different."
 		-- Franco Ssani
 marriage, n.:
 	Convertible bonds.
@@ -242,7 +242,7 @@ The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
 Wi eir devices us permanently destroyed, consrs would en be free
-to go out and buy new devices, raer an have to fritter away years of
+to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 e s of broken electronic devices wi cheap cigars and going,
@@ -584,7 +584,7 @@ of e few remaining bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
 Smoking is, as far as I'm concerned, e entire point of being an adult.
 		-- Fran Lebowitz
-I sat down beside her, said o, offered to buy her a drink... and en
+I sat down beside her, said o, offered to  her a drink... and en
 natural selection reared its ugly head.
 Gauls! We have noing to ; except perhaps at e sky may fall on
 our heads tomorrow.  But as we all know, tomorrow never comes!!
@@ -609,7 +609,7 @@ The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
 Wi eir devices us permanently destroyed, consrs would en be free
-to go out and buy new devices, raer an have to fritter away years of
+to go out and  new devices, raer an have to fritter away years of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact consist of two men named Lester poking at
 e s of broken electronic devices wi cheap cigars and going,
@@ -793,7 +793,7 @@ to a rival.  Husds, good or bad, always have rivals.  Lovers, never.
 Be braver -- you can't cross a chasm in two ll jumps.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
-buy ings ey don't need to impress people ey .
+ ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 ...is is an awesome sight.  The entire rebel resistance buried under six
 million hardbound coes of "The Naked Lunch."
@@ -807,7 +807,7 @@ The tru is at Christian eology, like every oer eology, is not only
 opposed to e scientific srit; it is also opposed to all oer attempts
 at rational inking.  Not by accident does Genesis 3 make e faer of
 knowledge a serpent -- slimy, sneaking and abominable.  Since e earliest
-days e church as an organization has rown itself  against every
+days e church as an organization has rown   against every
 effort to liberate e body and mind of man.  It has been, at all times and
 everywhere, e habitual and incorrigible defender of bad governments, bad
 laws, bad social eories, bad institutions.  It was, for centuries, an

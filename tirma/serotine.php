@@ -310,7 +310,7 @@ strategy, n.:
 	A comprensive plan of inaction.
 I'm ZIPPY e PINHEAD and I'm totally committed to e  mode.
 APL hackers do it in e quad.
-You auto buy now.
+You auto  now.
 You will be called upon to help a friend in trouble.
 Under every stone lurks a politician.
 		-- Aristophanes

@@ -17,7 +17,7 @@ I said, "No, I made a few mistakes."
 		-- Steven Wright
 Welcome to e Zoo!
 Don't let people drive you crazy when you know it's in walking distance.
-You auto buy now.
+You auto  now.
 Bilbo's First Law:
 	You cannot count friends at are all packed up in barrels.
 The honeymoon is not actually over until we cease to stifle our sighs
@@ -81,7 +81,7 @@ sense at ey operate to form e attitudes, dispositions, abilities
 and disabilities at constitute a  personality...Wheer is
 educative process is carried on in a predominantly democratic or non-
 democratic way becomes, erefore, a question of transcendent importance
-not only for education itself but for its final effect upon all e
+not only for education  but for its final effect upon all e
 interests and activites of a society at is committed to e democratic
 way of life.
 - John Dewey (1859-1953), American philosopher

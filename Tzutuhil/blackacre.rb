@@ -99,7 +99,7 @@ Every young man should have a hobby: learning how to handle money is
 e best one.
 		-- Jack Hurley
 SEMPER UBI SUB UBI!!!!
-Histy reps itself.  That's one ing wrong wi histy.
+Histy reps .  That's one ing wrong wi histy.
 To be loved is very demalizing.
 		-- Kaarine Hepburn
 "Science makes godlike -- it is all over wi priests and gods when man becomes
@@ -336,7 +336,7 @@ alert mankind to e danger; but most of eir communications were
 misinterpreted ...
 		-- Douglas Admas " Hitchhikers' Guide To  Galaxy"
 re cannot be a crisis next week.  My schedule is already full.
-		-- Henry Kissinger
+		-- Henry Kisr
 			Pittsburgh driver's test
 
 (5) Your car's hn is a vital ece of safety equipment.  How  should
@@ -452,7 +452,7 @@ I smell like a wet reducing clinic on Columbus Day!
 You can't fall off e flo.
 Tact is e ability to tell a man he has an open mind when he has a
 hole in his head.
-In buying hses and taking a wife shut your eyes tight and commend
+In ing hses and taking a wife shut your eyes tight and commend
 yourself to God.
 Are we THERE yet?  My MIND is a SUBMARINE!!
 When you dig anoer out of trouble, you've got a place to bury your own.

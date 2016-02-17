@@ -233,7 +233,7 @@ it cannot be argued, ere are never enough comftable chs.
 		-- Fran Lebowitz
 "A dirty mind is a joy fever."
 -- Randy Kunkee
- most delightful day after e one on which you buy a cottage in
+ most delightful day after e one on which you  a cottage in
 e country is e one on which you  it.
 		-- J. Brecheux
 Robot, n.:

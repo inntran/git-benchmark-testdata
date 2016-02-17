@@ -415,7 +415,7 @@ All things, those previously trivial as well as those once thought important,
 became absolutely equal by acquiring an absolute value, revealing relationships
 not evident to ordinary vision.  Like beads strung on a string of their own
 meaning, each thing pointed to its own common ground of existence, shared by
-all.  Finally, each began to melt into each, staying itself while becoming
+all.  Finally, each began to melt into each, staying  while becoming
 all others.  And Mind no longer contemplated Problem, but became Problem,
 destroying Subject-Object by becoming them.
 	Time passed, unheeded.
@@ -508,7 +508,7 @@ to become a Royal Knight.  This required an interview with the bear.  If
 the bear liked you, you were knighted on the spot.  If not, the bear would
 just as likely remove your head with one swat of a paw.  However, the family
 of these unfortunate would-be knights was compensated with a beautiful
-sheepdog from the royal kennels, which was itself a fairly valuable
+sheepdog from the royal kennels, which was  a fairly valuable
 possession.  And the moral of the story is:
  
 The mourning after a terrible knight, nothing beats the dog of the bear that

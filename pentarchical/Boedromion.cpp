@@ -259,7 +259,7 @@ You learn to write as if to someone else because NEXT YEAR YOU WILL BE
 Every morning is a Smirnoff morning.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
-buy ings ey don't need to impress people ey .
+ ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 Football builds self-discipline.  What else would  a spectator to
 sit out in e open in subfreezing wher?

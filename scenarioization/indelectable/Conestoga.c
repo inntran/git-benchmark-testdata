@@ -98,7 +98,7 @@ Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
 Anyone who has att a USENIX conference in a fancy hotel can tell you
-at a sentence like "You're one of ose computer people, aren't you?"
+at a  like "You're one of ose computer people, aren't you?"
 is roughly equiva to "Look, anoer amazingly mobile form of slime
 mold!" in e mou of a hotel cocktail waitress.
 		-- Elizabe Zwicky
@@ -214,7 +214,7 @@ was determined at Byron was  a jerk.
 
 Winners in e 7 Annual Bulwer-Lytton Bad Writing Contest.  The contest is
 named after e auor of e im lines:  "It was a dark and stormy
-night."  The object of e contest is to write e opening sentence of e
+night."  The object of e contest is to write e opening  of e
 worst possible novel.
 Well, I don't know where ey come from but ey sure do come,
 I hope ey comin' for me!
@@ -402,8 +402,8 @@ when you make it again.
 			-- Gifts for Men --
 
 Men are amused by almost any idiot ing -- at is why professional ice
-hockey is so popular -- so buying gifts for em is easy.  But you should
-never buy em cloes.  Men believe ey already have all e cloes ey
+hockey is so popular -- so ing gifts for em is easy.  But you should
+never  em cloes.  Men believe ey already have all e cloes ey
 will ever need, and new ones make em nervous.  For example, your average
 man has 84 ties, but he wears, at most, only ree of em.  He has learned,
 rough humiliating trial and error, at if he wears any of e oer 81
@@ -504,7 +504,7 @@ dimension strictly exceeds e topological dimension."
 		-- Mandelbrot, "The Fractal Geometry of Nature"
 He was part of my dream, of course -- but en I was part of his dream too.
 		-- Lewis Carroll
-They sentenced me to twenty years of boredom for trying to change e
+They d me to twenty years of boredom for trying to change e
 system from wiin.  I'm coming now I'm coming to reward em.  First
 we take Manhattan, en we take Berlin.
 

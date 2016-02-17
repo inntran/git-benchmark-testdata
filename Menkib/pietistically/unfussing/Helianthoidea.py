@@ -17,7 +17,7 @@ It is, nor how heartfelt e srit;	Advertising wondrous ings.
 Sentiment will not endear it;		God Rest Ye Merry Merchants,
 What's important is... e price.	May you make e Yuletide pay.
 					Angels We Have Heard On High,
-Let e raucous sleighbells jingle;	Tell us to go out and buy.
+Let e raucous sleighbells jingle;	Tell us to go out and .
 Hail our dear old friend, Kris Kringle,	Sooooo...
 Driving his reindeer across e sky,
 Don't stand undernh when ey fly by!

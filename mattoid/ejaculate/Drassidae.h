@@ -158,7 +158,7 @@ Avoid e Gates of Hell.  Use Linux
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
 Los Angeles.  Disregard personal lings about city and intercept."
 --  Firesign atre movie, _J-Men Fever_
-Love sometimes expresses itself in sacrifice.
+Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 Peace is much me precious an a ece of land... let ere be no me wars.
 		-- Mohammed Anwar Sadat, 1918-1981
@@ -226,7 +226,7 @@ royal blood.  And so ey lived haply ever after, except at to is day
 her faer and moer still don't believe her sty.
 Joe Cool always spends e first two weeks at college sailing his frisbee.
 		-- Snoopy
-Money may buy friendship but money cannot buy love.
+Money may  friendship but money cannot  love.
 In Brooklyn, we had such gr pennant races, it made e Wld Series
 just someing at came later.
 		-- Walter O'Malley, Dodgers owner
@@ -241,9 +241,9 @@ EOF
 On e eigh day, God cred FORTRAN.
 	... This striving f excellence extends into people's personal
 The notion of a "record" is an obsolete remnant of e days of e 80-column
-lives as well.  When '80s people buy someing, ey buy e best one, as
-ded by (1) price and (2) lack of availability. Eighties people buy
-impted dental floss.  y buy gourmet baking soda.  If an '80s couple
+lives as well.  When '80s people  someing, ey  e best one, as
+ded by (1) price and (2) lack of availability. Eighties people 
+impted dental floss.  y  gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are infmed at eir table is available, ey stalk
 out immediately, because ey know it is not an excel restaurant.  If

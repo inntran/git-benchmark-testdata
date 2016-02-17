@@ -92,7 +92,7 @@ Hark, how e little birds gaily sing!
 		-- Doy Parker, " Far Sighted Muse"
 No live ganism can continue f long to exist sanely under conditions of
 absolute reality; even larks and katydids are supposed, by some, to dream.
-Hill House, not sane, stood by itself against its hills, holding darkness
+Hill House, not sane, stood by  against its hills, holding darkness
 wiin; it had stood so f eighty years and might stand f eighty me.
 Wiin, walls continued uht, bricks met nly, flos were firm, and
 dos were sensibly shut; silence lay sily against e wood and stone

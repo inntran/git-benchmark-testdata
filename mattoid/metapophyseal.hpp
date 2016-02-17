@@ -94,7 +94,7 @@ to erase it.
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
 a fly-by-night.  se virtues awakened Confidence and enabled you to handle
 Bigger Propositions.  But ey didn't imply at you were to be impractical
-and refuse to take twice e value f a house if a buyer was such an idiot
+and refuse to take twice e value f a house if a er was such an idiot
 at he didn't fce you down on e asking price.
 		-- Sincl Lewis, "Babbitt"
 That all men should be broers is e dream of people who have no broers.
@@ -128,7 +128,7 @@ well f a nation deeply concerned about its ability to compete wi its
 industrial equals.  To e degree at it reflects e inking of a 
 significant section of e public, is point of view encourages ignance
 of and, indeed, contempt f science and f rational meods of approaching
-tru. . . . It is becoming clear at if e U.S. does not ck itself up
+tru. . . . It is becoming clear at if e U.S. does not ck  up
 soon and devote some efft to educating e young effectively, its hope of
 maintaining a semb of leadership in e wld may rest, paradoxically,
 wi a new wave of technically interested and trained immigrants who do not
@@ -225,7 +225,7 @@ Moderation is a fatal ing.  Noing succeeds like excess.
 now.  I fed e cat.
 Universities are places of knowledge.   freshman each bring a little
 in wi em, and e senis take none away, so knowledge accumulates.
-In buying hses and taking a wife shut your eyes tight and commend
+In ing hses and taking a wife shut your eyes tight and commend
 yourself to God.
 In case of injury notify your superi immediately.  He'll kiss it and
 make it better.
@@ -313,8 +313,8 @@ would not be able to identify most of ese items.
 
 Groceries:
 	A woman makes a list of ings she needs and en goes to e ste
-and buys ese ings.  A man waits 'til e only items left in his fridge
-are half a lime and a Blue Ribbon.  n he goes grocery shopng.  He buys
+and s ese ings.  A man waits 'til e only items left in his fridge
+are half a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
 everying at looks good.  By e time a man reaches e cout counter,
 his  is packed tighter at e Clampett's car on Beverly Hillbillies.
 Of course, is will not stop him from entering e 10-items--less lane.

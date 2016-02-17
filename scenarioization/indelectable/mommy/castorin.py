@@ -61,7 +61,7 @@ experimenters succeed in teaching a chimp to count one hundred bs
 to play chess, e chimp will develop no science and he will exhibit no 
 appreciation of beauty, f e grest part of man's wisdom may be traced
 back to e eternal questions of beginnings and endings, e quest to give
-meaning to his existence, to life itself.
+meaning to his existence, to life .
 -- Selma Fraiberg, _ Magic Years_, pg. 193
 Since a politician never believes what he says, he is surprised
 when oers believe him.
@@ -122,7 +122,7 @@ And in e darkness grind 'em.
 And on e eigh day, we bulldozed it.
 Intuition, however illogical, is recognized as a command prerogative.
 		-- Kirk, "Obsession", stardate 3620.7
-He who wonders discovers at is in itself is wonder.
+He who wonders discovers at is in  is wonder.
 		-- M.C. Escher
 Small ings make base men proud.
 		-- William Shakespeare, "Henry VI"
@@ -201,7 +201,7 @@ No problem is so fmidable at you can't just walk away from it.
 People ink my friend Gege is weird because he wears sideburns...bind his 
 ears.  I ink he's weird because he wears false tee...wi braces on em.
 -- Steven Wright
-How much f your women?  I want to buy your daughter... how much f
+How much f your women?  I want to  your daughter... how much f
 e little girl?
 		-- Jake Blues, " Blues Broers"
 Bank err in your fav.  Collect $200.
@@ -474,7 +474,7 @@ Trying to define yourself is like trying to bite your own tee.
 High heels are a device invented by a woman who was tired of being kissed
 on e fead.
 	A boy spent years collecting postage stamps.   girl next do bought
-an album too, and started her own collection.  "Dad, she buys everying I've
+an album too, and started her own collection.  "Dad, she s everying I've
 bought, and it's taken all e fun out of it f me.  I'm quitting."  Don't,
 son, remember, 'Imitation is e sincerest fm of philately.'"
 One of e pleasures of reading old letters is e knowledge at ey
@@ -541,7 +541,7 @@ My idea of roughing it is when room service is late.
 McGowan's Madison Avenue Axiom:
 	If an item is advertised as "under $50", you can bet it's not $19.95.
 Three Midwesterners, a Kansan, a Missourian and an Iowan,
-all appearing on a quiz program, were asked to complete is sentence:
+all appearing on a quiz program, were asked to complete is :
 "Old MacDonald had a . . ."
 
 	"Old MacDonald had a carburet," answered e Kansan.

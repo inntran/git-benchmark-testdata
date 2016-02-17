@@ -59,7 +59,7 @@ side of e cube will now be e iginal col of e plastic undernh
 I'm always looking f a new idea at will be me productive an its cost.
 		-- David Rockefeller
 Unftunately, most programmers like to play wi new toys.  I have many
-friends who, immediately upon buying a snakebite kit, would be tempted to
+friends who, immediately upon ing a snakebite kit, would be tempted to
 row e first person ey see to e ground, tie e tourniquet on him,
 slash him wi e knife, and apply suction to e wound.
 		-- Jon Bentley

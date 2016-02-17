@@ -119,7 +119,7 @@ reason THEY can't seem to keep up is they're a bunch of misfits and losers."
 -- an analysis of neo-Nazis and such, Badger comics
 "Everyone's head is a cheap movie show."
 -- Jeff G. Bone
-Can you buy friendship?  You not only can, you must.  It's the
+Can you  friendship?  You not only can, you must.  It's the
 only way to obtain friends.  Everything worthwhile has a price.
 		-- Robert J. Ringer
 She blinded me with science!
@@ -388,8 +388,8 @@ will be temporarily canceled.
 The poetry of heroism appeals irresitably to those who don't go to a war,
 and even more so to those whom the war is making enormously wealthy."
 		-- Celine
-The notion that science does not concern itself with first causes -- that it
-leaves the field to theology or metaphysics, and confines itself to mere 
+The notion that science does not concern  with first causes -- that it
+leaves the field to theology or metaphysics, and confines  to mere 
 effects -- this notion has no support in the plain facts.  If it could,
 science would explain the origin of life on earth at once--and there is 
 every reason to believe that it will do so on some not too remote tomorrow.
@@ -600,7 +600,7 @@ Eat as much as you like -- just don't swallow it.
 A new supply of round tuits has arrived and are available from Mary.
 Anyone who has been putting off work until they got a round tuit now
 has no excuse for further procrastination.
-Psychoanalysis is that mental illness for which it regards itself a therapy.
+Psychoanalysis is that mental illness for which it regards  a therapy.
 		-- Karl Kraus
 
 Psychiatry is the care of the id by the odd.
@@ -709,7 +709,7 @@ That's the thing about people who think they hate computers.  What they
 really hate is lousy programmers.
 		-- Larry Niven and Jerry Pournelle in "Oath of Fealty"
 Carson's Observation on Footwear:
-	If the shoe fits, buy the other one too.
+	If the shoe fits,  the other one too.
 The honeymoon is not actually over until we cease to stifle our sighs
 and begin to stifle our ys.
 		-- Helen Rowland

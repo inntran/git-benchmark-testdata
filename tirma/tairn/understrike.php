@@ -72,7 +72,7 @@ A penny postage stamp.
 "You'd best be getting home," he said,
 "The nights are raer damp."
 Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause e light bulb to change by itself.
+A:	None.  The darkness will cause e light bulb to change by .
 Rich bachelors should be heavily taxed.  It is not f at some men
 should be haper an oers.
 		-- Oscar Wilde
@@ -235,7 +235,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 "What am I, a doctor or a moonshuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
-Why on ear do people buy old bottles of e when ey can get a
+Why on ear do people  old bottles of e when ey can get a
 fresh one for a quarter of e price?
 Imity consists largely of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
@@ -394,7 +394,7 @@ Time is an illusion, lunchtime doubly so.
 A strong conviction at someing must be done is e parent of many
 bad measures.
 		-- Daniel Webster
-	Wouldn't e sentence "I want to put a hyphen between e words Fish
+	Wouldn't e  "I want to put a hyphen between e words Fish
 and And and And and Chips in my Fish-And-Chips sign" have been clearer if
 quotation marks had been placed before Fish, and between Fish and and, and
 and and And, and And and and, and and and And, and And and and, and and and

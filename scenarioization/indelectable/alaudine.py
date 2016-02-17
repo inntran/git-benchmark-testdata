@@ -52,7 +52,7 @@ A man does not look behind the door unless he has stood there himself.
 I believe a little incompatibility is the spice of life, particularly if he
 has income and she is pattable.
 		-- Ogden Nash
-Here I am at the flea market but nobody is buying my urine sample bottles ...
+Here I am at the flea market but nobody is ing my urine sample bottles ...
 Fame may be fleeting but obscurity is forever.
 "Remember, extremism in the nondefense of moderation is not a virtue."
 -- Peter Neumann, about usenet
@@ -290,7 +290,7 @@ one which cannot be justified on any other grounds."
 		-- J. Finnegan, USC.
 Let us, then, fellow citizens, unite with one heart and one mind.  Let us
 restore to social intercourse that harmony and affection without which
-liberty and even life itself are but dreary things.  And let us reflect
+liberty and even life  are but dreary things.  And let us reflect
 that having banished from our land that religious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and

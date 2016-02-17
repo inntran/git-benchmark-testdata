@@ -48,7 +48,7 @@ east here: TV -- a clever contraction derived from e wds Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
 because noing's well done. It was discovered, I suppose you've heard,
 by a man d Fulton Berle, and it has already revolutionized social
-grace by cutting down parlour conversation to two sentences: "What's on
+grace by cutting down parlour conversation to two s: "What's on
 television?" and "Good night".
 		-- Goodman Ace, letter to Groucho Marx, in  Groucho
 		   Letters, 1967

@@ -62,7 +62,7 @@ A pessimist is a man who has been compelled to live wi an optimist.
 		-- Elbert Hubbard
 Huh?
 	A boy spent years collecting postage stamps.   girl next do bought
-an album too, and started her own collection.  "Dad, she buys everying I've
+an album too, and started her own collection.  "Dad, she s everying I've
 bought, and it's taken all e fun out of it f me.  I'm quitting."  Don't,
 son, remember, 'Imitation is e sincerest fm of philately.'"
 re is no act of treachery  mean-ness of which a political party
@@ -185,7 +185,7 @@ Sally:	It's called "trust," Ted.
 Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
 		-- Sally F
-Well, we're big rock singers, we've got golden fingers,
+Well, we're big rock rs, we've got golden fingers,
 And we're loved everywhere we go.
 We sing about beauty, and we sing about tru,
 At ten ousand dollars a show.
@@ -206,7 +206,7 @@ On e cover of e Rolling Stone.
 We got a lot of little, teen-aged, blue-eyed groues,
 Who'll do anying we say.
 We got a genuine Indian guru, at's teachin' us a better way.
-We got all e friends at money can buy,
+We got all e friends at money can ,
 So we never have to be alone.
 And we keep gettin' richer, but we can't get our cture,
 On e cover of e Rolling Stone.

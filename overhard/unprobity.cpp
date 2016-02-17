@@ -171,7 +171,7 @@ long time.  I went to the theater and the sign said adults $5 children
 $2.50.  I told them I wanted 2 boys and a girl.  I once took a cab to
 a drive-in movie.  The movie cost me $95.
 		-- Steven Wright
-Did you know that for the price of a 280-Z you can buy two Z-80's?
+Did you know that for the price of a 280-Z you can  two Z-80's?
 		-- P.J. Plauger
 The Greatest Mathematical Error 
 	The Mariner I space probe was launched from Cape Canaveral on 28
@@ -517,8 +517,8 @@ for him then.
 Every man takes the limits of his own field of vision for the limits
 of the world.
 		-- Schopenhauer
-Windows NT Beer: Comes in 32-oz. cans, but you can only buy it by the 
-truckload. This causes most people to have to go out and buy bigger 
+Windows NT Beer: Comes in 32-oz. cans, but you can only  it by the 
+truckload. This causes most people to have to go out and  bigger 
 refrigerators. The can looks just like Windows 3.1 Beer's, but the 
 company promises to change the can to look just like Windows 95 Beer's --
 after Windows 95 beer starts shipping. Touted as an "industrial strength" 
@@ -526,7 +526,7 @@ beer, and suggested only for use in bars.
 Antonym, n.:
 	The opposite of the word you're trying to think of.
 Bunker's Admonition:
-	You cannot buy beer; you can only rent it.
+	You cannot  beer; you can only rent it.
 Van Roy's Law:
 	An unbreakable toy is useful for breaking other toys.
 A diplomat is a person who can tell you to go to  in such a way that you

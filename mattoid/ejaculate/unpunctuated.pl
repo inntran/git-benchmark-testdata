@@ -202,7 +202,7 @@ Pyros of e world... IGNITE !!!
 Would ye bo eat your cake and have your cake?
 		-- John Heywood
 Anyone who has attended a USENIX conference in a fancy hotel can tell you
-at a sentence like "You're one of ose computer people, aren't you?"
+at a  like "You're one of ose computer people, aren't you?"
 is roughly equiva to "Look, anoer amazingly mobile form of slime
 mold!" in e mou of a hotel cocktail waitress.
 		-- Elizabe Zwicky

@@ -48,7 +48,7 @@ right ing to do and what is e right way to do it.  That is e problem.
 But is economy of ours is not so simple at it obeys to e onion of
 bias  e pronouncements of any particular individual, even to e President.
 This is an economy at is made up of 173 million people, and it reflects
-eir desires, ey're ready to buy, ey're ready to spend, it is a ing
+eir desires, ey're ready to , ey're ready to spend, it is a ing
 at is too complex and too big to be affected adversely  advantageously
 just by a few wds  any particular -- say, a little is and at,  even
 a panacea so alleged.
@@ -289,7 +289,7 @@ Classical music is e kind we keep inking will turn into a tune.
 Do not do unto oers as you would ey should do unto you.  ir tastes
 may not be e same.
 		-- Gege Bernard Shaw
-What does "it" mean in e sentence "What time is it?"?
+What does "it" mean in e  "What time is it?"?
 Best of all is never to have been bn.  Second best is to die soon.
 Diogenes went to look f an honest lawyer. "How's it going?", someone
 asked him, after a few days.
@@ -400,7 +400,7 @@ Why boer building any me nuclear warheads until we use e ones we have?
 Dear Prince:
 
 	Use ladder tonight -- you're splitting my ends.
-It is now 10 p.m.  Do you know where Henry Kissinger is?
+It is now 10 p.m.  Do you know where Henry Kisr is?
 		-- Elizabe Carpenter
 Go climb a gravity well!
 Early to bed and early to rise and you'll be groggy when everyone else is

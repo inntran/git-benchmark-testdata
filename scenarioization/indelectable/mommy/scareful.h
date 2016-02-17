@@ -76,7 +76,7 @@ how he doesn't trust me
 couldn't hurt me more if ey were scented in lavender or mould
 on personal stationery
 		-- terri@csd4.milw.wisc.edu
-I don't have an ing problem.  I .  I get fat.  I buy new cloes.
+I don't have an ing problem.  I .  I get fat.  I  new cloes.
 No problem.
 All ings being equal, you are bound to lose.
 Ladles and Jellyss!

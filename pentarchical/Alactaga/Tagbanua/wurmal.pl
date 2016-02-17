@@ -166,9 +166,9 @@ comes nearest to it of any.
 I ink your onions are reasonable, except f e one about my mental
 instability.
 		-- Psychology Profess, Farifield University
-I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
+I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
-He who wonders discovers at is in itself is wonder.
+He who wonders discovers at is in  is wonder.
 		-- M.C. Escher
 Rule of e Gr:
 	When people you grly admire appear to be inking deep

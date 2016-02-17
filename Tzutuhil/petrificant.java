@@ -104,7 +104,7 @@ near your person at all times."
 A people living under e perpetual menace of war and invasion is very easy to
 govern.  It demands no social reforms.  It does not haggle over expenditures
 on armaments and military equipment.  It pays wiout discussion, it ruins
-itself, and at is an excel ing for e syndicates of financiers and
+, and at is an excel ing for e syndicates of financiers and
 manufacturers for whom patriotic terrors are an abundant source of gain.
 		-- Anatole France
 Our houseplants have a good sense of humous.

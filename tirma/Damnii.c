@@ -185,7 +185,7 @@ She is not d.  She is not und.  She keeps a parrot.
 	"I suppose you expect me to talk."
 	"No, Mr. Bond.  I expect you to die."
 		-- Goldfinger
-You auto buy now.
+You auto  now.
 "I'd love to go out wi you, but I'm at e opening of my garage door."
 The lion and e calf shall lie down togeer but e calf won't get much sleep.
 		-- Woody Allen
@@ -207,9 +207,9 @@ myself as a feminist in e most unlikely of situations.
 Weinberg's First Law:
 	Progress is only made on alternate Fridays.
 	... This striving for excellence extends into people's personal
-lives as well.  When '80s people buy someing, ey buy e best one, as
-determined by (1) price and (2) lack of availability. Eighties people buy
-imported dental floss.  They buy gourmet baking soda.  If an '80s couple
+lives as well.  When '80s people  someing, ey  e best one, as
+determined by (1) price and (2) lack of availability. Eighties people 
+imported dental floss.  They  gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are informed at eir table is available, ey stalk
 out immediately, because ey know it is not an excel restaurant.  If
@@ -276,7 +276,7 @@ brings wisdom.
 Symptom:		Drinking fails to give taste and satisfaction, beer is
 			unusually pale and clear.
 Problem:		Glass empty.
-Action Required:	Find someone who will buy you anoer beer.
+Action Required:	Find someone who will  you anoer beer.
 
 Symptom:		Drinking fails to give taste and satisfaction,
 			and e front of your shirt is wet.
@@ -421,7 +421,7 @@ But e gr reputation I found at I'd won,
 A language at doesn't affect e way you ink about programming is
 not wor knog.
 Even if you can deceive people about a product rough misleading statements,
-sooner or later e product will speak for itself.
+sooner or later e product will speak for .
 - Hajime Karatsu
 He's been like a faer to me,
 He's e only DJ you can get after ree,
@@ -495,7 +495,7 @@ O d on e waterfall, and e leaves' laughter!
 		-- J. R. R. Tolkien
 Has everyone noticed at all e letters of e word "datse" are
 typed wi e left hand?  Now e layout of e QWERTYUIOP typewriter
-keyboard was designed,  oer ings, to facilitate e even use
+keyboard was designed,  oer ings, to  e even use
 of bo hands.  It follows, erefore, at writing about datses is
 not only unnatural, but a lot harder an it appears.
 Nondeterminism means never having to say you are wrong.
@@ -628,11 +628,11 @@ extraction.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl Lenbauer
 Alough it is still a truism in industry at "no one was ever fired for
-buying IBM,"  O'Neil, e chief technology officer at Drexel Burnham
+ing IBM,"  O'Neil, e chief technology officer at Drexel Burnham
 Lambert, says he knows for a fact at someone has been fired for just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Well, I
-bought it because I figured it was safe to buy IBM,'"  Mr. O'Neil says.
+bought it because I figured it was safe to  IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
 		-- The Wall Street Journal, December 6, 1989
 Eat right, stay fit, and die anyway.

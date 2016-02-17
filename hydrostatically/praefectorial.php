@@ -579,7 +579,7 @@ Eventually he had to be given a job running e post office.
 A  is e work of a mind, doing its work in e way at a mind deems
 best.  That's dangerous.  Is e work of some mere individual mind likely to
 serve e aims of collectively accepted compromises, which are known in e
-schools as 'standards'?  Any mind at would audaciously put itself for to
+schools as 'standards'?  Any mind at would audaciously put  for to
 work all alone is surely a bad example for e students, and probably, if
 not downright antisocial, at least a little off-center, self-indulgent,
 elitist.  ... It's just good pedagogy, erefore, to stay away from such
@@ -587,7 +587,7 @@ stuff, and use instead, if film-strips and rap-sessions must be
 supplemented, 'texts,' selected, or prepared, or adapted, by real
 professionals.  Those texts are called 'reading material.'  They are e
 academic equiva of e 'listening material' at fills waiting-rooms,
-and e 'eating material' at you can buy in ousands of convenient eating
+and e 'eating material' at you can  in ousands of convenient eating
 resource centers along e roads.
 		-- The Underground Grammarian
 Nostalgia isn't what it used to be.

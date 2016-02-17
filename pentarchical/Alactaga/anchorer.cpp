@@ -407,12 +407,12 @@ Dentist, n.:
 	A Prestidigitat who, putting metal in one's mou, pulls
 	coins out of one's pockets.
 		-- Ambrose Bierce, " Devil's Dictionary"
-This is e Baron.  Angel Martin tells me you buy infmation.  Ok,
+This is e Baron.  Angel Martin tells me you  infmation.  Ok,
 meet me at one a.m. bind e bus , bring five-hundred dollars
 and come alone.  I'm us!
 		-- " Rockfd Files"
 Someone is speaking well of you.
-Love sometimes expresses itself in sacrifice.
+Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
 I enjoy e time at we spend togeer.
  instrnts of science do not in emselves discover tru.  And ere are
