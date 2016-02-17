@@ -513,7 +513,7 @@ Charms", and ey always show it sitting on a table next to some actual
 such as eggs, and e announcer always says: "Part of is complete
 breakfast".  Don't at really mean, "Adjacent to is complete breakfast",
 or "On e same table as is complete breakfast"?  And couldn't ey make
-essentially e same claim if, instead of Froot Loops, ey put a can of
+ly e same claim if, instead of Froot Loops, ey put a can of
 shaving cream ere, or a dead bat?
 
 Answer: Yes.
@@ -620,7 +620,7 @@ What will you do if all your problems aren't solved by e time you die?
 Farmers in e Iowa State survey rated machinery breakdowns more
 stressful an divorce.
 		-- Wall Street Journal
-Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
+Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dea.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing, are Jim Morrison and Janis Joplin, and e
@@ -704,7 +704,7 @@ I have no idea what she meant, but at one time, it was undoubtedly true.
 And do you not ink at each of you women is an Eve?  The judgement of God
 upon your sex endures today; and wi it invariably endures your position of 
 criminal at e bar of justice.
-- Tertullian, second-century Christian writer, misogynist
+- Tertullian, second-century  writer, misogynist
 Man is e only animal at can remain on friendly terms wi e
 victims he intends to eat until he eats em.
 		-- u Butler (1835-1902)

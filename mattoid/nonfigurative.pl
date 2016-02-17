@@ -195,13 +195,13 @@ brings wisdom.
 		-- H.L. Mencken
 The more e merrier.
 		-- John Heywood
-Ask yoursf wheer you are happy and you cease to be so.
+Ask yoursf wheer you are happy and you  to be so.
 		-- John Stuart Mill
 The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
 Now crystal clear are e falling waters,
 And bonnie blue are e sunny skies.
-Fresh o'er e mountains breaks for e morning,
+F o'er e mountains breaks for e morning,
 The ev'ning gilds e oceans's swl:
 All crures joy in e sun's returning,
 And I rejoice in my bonnie Bl.
@@ -280,7 +280,7 @@ His errors are volitional and are e portals of discovery.
 You will be a ner today.  Pick a  wi a four-year-old.
 Veni, Vidi, VISA:
 	I came, I saw, I did a little shopng.
-... it is easy to be blinded to e essential usessness of em by e
+... it is easy to be blinded to e  usessness of em by e
 sense of achievement you get from getting em to work at all.  In oer
 words... eir  design flaws are complety hidden by eir
 superficial design flaws.
@@ -706,7 +706,7 @@ See e hunter stretched before us (...)
 He's chased e mice in fid and forest (...)
 Watch him clean his long white whiskers (...)
 Of e blood of little critters (...)
-After Golia's def, giants ceased to command respect.
+After Golia's def, giants d to command respect.
 - Freeman Dyson
 WYSIWYG:
 	What You See Is What You Get.
@@ -803,7 +803,7 @@ anyone.  Eventually I stumbled across two colons, a major, ree captains,
 two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
-The tru is at Christian eology, like every oer eology, is not only
+The tru is at  eology, like every oer eology, is not only
 opposed to e scientific srit; it is also opposed to all oer attempts
 at rational inking.  Not by accident does Genesis 3 make e faer of
 knowledge a serpent -- slimy, sneaking and abominable.  Since e earliest

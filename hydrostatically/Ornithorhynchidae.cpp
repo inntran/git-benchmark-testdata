@@ -107,7 +107,7 @@ QOTD:
 	"It's hard to tl wheer he has an ace up his sleeve  if
 	e ace is missing from his deck altogeer."
 If God wanted us to have a President, He would have sent us a candidate.
-		-- Jerry Dreshfid
+		-- Jerry Dfid
 If all se fails, immtality can always be assured by spectacular err.
 		-- John Kenne Galbrai
 Perilous to all of us are e devices of an art deeper an we oursves
@@ -446,7 +446,7 @@ He who has but four and spends five has no need f a wallet.
  divinity of Jesus is made a convenient cover f absurdity.  Nowhere
 in e Gosps do we find a precept f Creeds, Confessions, Oas,
 Doctrines, and whole carloads of oer foolish trumpery at we find in
-Christianity.
+ity.
 - John Adams
 	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
  difference between is place and yogurt is at yogurt has a live culture.

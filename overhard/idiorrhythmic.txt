@@ -283,7 +283,7 @@ Computers will not be perfected until they can compute how much more
 than the estimate the job will cost.
 If you have a procedure with 10 parameters, you probably missed some.
 A musician, an artist, an architect:
-	the man or woman who is not one of these is not a Christian.
+	the man or woman who is not one of these is not a .
 		-- William Blake
 Every time I lose weight, it finds me again!
 Accident, n.:

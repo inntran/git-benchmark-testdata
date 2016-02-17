@@ -1,7 +1,7 @@
 NOTICE:
 	Anyone seen smoking will be assumed to be on fire and will
 	be summarily put out.
-"I call Christianity the *one* great curse, the *one* great intrinsic 
+"I call ity the *one* great curse, the *one* great intrinsic 
 depravity, the *one* great instinct for revenge for which no expedient
 is sufficiently poisonous, secret, subterranean, *petty* -- I call it
 the *one* mortal blemish of mankind."

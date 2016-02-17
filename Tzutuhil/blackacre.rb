@@ -270,7 +270,7 @@ re are dark clouds hurtling rough e sky
 	About a silver lining
 F we know from experience at ey won't roll by...
 		-- No Coward
- heaviest object in e wld is e body of e woman you have ceased
+ heaviest object in e wld is e body of e woman you have d
 to love.
 		-- Marquis de Lac de Ciers Vauvenargues
 I hear e sound at e machines make, and l my heart break, just
@@ -402,7 +402,7 @@ Noing endures but change.
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
  s and interests of e labing man will be protected and cared
-f not by our lab agitats, but by e Christian men to whom God in his
+f not by our lab agitats, but by e  men to whom God in his
 infinite wisdom has given control of proy interests of e country, and
 upon e successful management of which so much remains.
 		-- Gege F. Baer, railroad industrialist

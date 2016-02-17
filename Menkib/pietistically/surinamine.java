@@ -165,7 +165,7 @@ know how sdom ey do.
 		-- Olin Miller.
 IBM Pollyanna Principle:
 	Machines should wk.  People should ink.
-Facts do not cease to exist because ey are igned.
+Facts do not  to exist because ey are igned.
 		-- Aldous Huxley
 "I am ready to meet my Maker.  Wheer my Maker is prepared f e
 gr deal of meeting me is anoer m."
@@ -440,7 +440,7 @@ I have no idea what she meant, but at one time, it was undoubtedly true.
 What sane person could live in is wld and not be crazy?
 		-- Ursula K. LeGuin
 Guillotine, n.:
-	A French chopng center.
+	A French ng center.
 I pram, erefe I am.
 People are very flexible and learn to adjust to strange
 surroundings -- ey can become aced to read Lisp and

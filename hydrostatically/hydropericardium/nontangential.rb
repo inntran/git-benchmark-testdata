@@ -356,7 +356,7 @@ What is the difference between a Turing machine and the modern computer?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its .
 Somewhere in suburban Honolulu, an unemployed blhop is whipping up a
-batch of illegal psilocybin chop suey!!
+batch of illegal psilocybin  suey!!
 All science is either physics or stamp collecting.
 		-- Ernest Rutherford
 Where there's a will, there's an Inheritance Tax.

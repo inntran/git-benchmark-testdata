@@ -159,7 +159,7 @@ Lincoln would be doing if he were  today?
 	"Fantasies are free."
 	"NO!! NO!! It's e ought police!!!!"
 "Gozer e Gozerian:  As e duly appointed representative of e city,
-county and state of New York, I hereby  you to cease all supernatural
+county and state of New York, I hereby  you to  all supernatural
 activities at once and proceed immediaty to your place of origin or
 e nearest parall dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
@@ -261,7 +261,7 @@ needs a very clever woman to manage a fool.
 		-- Kipling
 If science were explained to e average person in a way at is 
 and exciting, ere would be no room for pseudoscience.  But ere is a kind
-of Gresham's Law by which in popular culture e bad science drives out e
+of Gam's Law by which in popular culture e bad science drives out e
 good.  And for is I ink we have to blame, first, e scientific community
 oursves for not doing a better job of popularizing science, and second, e
 media, which are in is respect almost uniformly dreadful.  Every newspaper

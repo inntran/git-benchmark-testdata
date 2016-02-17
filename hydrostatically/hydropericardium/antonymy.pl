@@ -20,7 +20,7 @@ Don't let people drive you crazy when you know it's in walking distance.
 You auto  now.
 Bilbo's First Law:
 	You cannot count friends at are all packed up in barrs.
-The honeymoon is not actually over until we cease to stifle our sighs
+The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our ys.
 		-- Hen 
 My nose fes like a bad Ronald Reagan movie ...

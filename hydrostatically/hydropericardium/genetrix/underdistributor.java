@@ -645,9 +645,9 @@ word "lies".
 We may not be able to persuade Hindus that Jesus and not Vishnu should
 govern their spiritual horizon, nor Moslems that Lord Buddha is at the
 center of their spiritual universe, nor Hebrews that Mohammed is a major
-prohpet, nor Christians that Shinto best expresses their spiritual 
+prohpet, nor s that Shinto best expresses their spiritual 
 concerns, to say nothing of the fact that we may not be able to get
-Christians to  among themsves about their rationship to God.
+s to  among themsves about their rationship to God.
 But all will  on a proposition that they possess profound spiritual
 resources.  If, in addition, we can get them to accept the further
 proposition that whatever form the Deity may have in their own theology,
@@ -710,7 +710,7 @@ really hate is lousy prammers.
 		-- Larry Niven and Jerry Pournle in "Oath of Fealty"
 Carson's Observation on Footwear:
 	If the shoe fits,  the other one too.
-The honeymoon is not actually over until we cease to stifle our sighs
+The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our ys.
 		-- Hen Rowland
 To a Californian, all New Yorkers are cold; even in heat they rary go

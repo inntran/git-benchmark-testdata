@@ -163,7 +163,7 @@ Love sometimes expresses  in sacrifice.
 Peace is much me  an a ece of land... let ere be no me wars.
 		-- Mohammed Anwar Sadat, 1918-1981
 Most people have a mind at's open by ap only.
- histy of e rise of Christianity has everying to do wi politics,
+ histy of e rise of ity has everying to do wi politics,
 culture, and human frailties and noing to do wi supernatural manipulation
 I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
 of events.  Had divine intervention been e guiding fce, sury two
@@ -323,7 +323,7 @@ Ftune's diet trus:
     low-cal."  Also s dishes furing "livy liver."  y aren't and
     it isn't.
 8:  Wearing a blindfold  makes many diet s me palatable.
-9:  Fresh fruit is not dessert.  CAKE is dessert!
+9:  F fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly wse an its  implies.
 11: A plain baked potato isn't w e efft involved in cheg and
     swallog.

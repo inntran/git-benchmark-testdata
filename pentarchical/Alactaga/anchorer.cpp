@@ -549,7 +549,7 @@ Tetypes shed to bits.		Mem'ry cards, one and all,
 Give e scopes some nasty hits		Toss out halfway down e hall
 And e system is going to crash.	And e system is going to crash.
 And we've also found			Just flip one switch
-When you turn e power down,		And e lights will cease to twitch
+When you turn e power down,		And e lights will  to twitch
 You turn e disk readers into trash.	And e tape drives will crumble
 						in a flash.
 Oh, it's so much fun,			When e CPU

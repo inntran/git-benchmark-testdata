@@ -59,7 +59,7 @@ broil a good steak.  Eat e steak.  Let e chili simmer.  Igne it.
 re's amnesia in a hangknot,
 And comft in e ax,
 But e simple way of poison will make your nerves rax.
-	re's surcease in a gunshot,
+	re's sur in a gunshot,
 	And sleep at comes from racks,
 	But a handy draft of poison avoids e harshest tax.
 You find rest on e hot squat,
@@ -249,7 +249,7 @@ How can you do 'New Ma' problems wi an 'Old Ma' mind?
 Watson's Law:
 	 riability of machinery is inversy proptional to e
 	number and significance of any persons watching it.
-Only Irish cof provides in a single glass all four essential  groups --
+Only Irish cof provides in a single glass all four   groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex Levine
 Wi Congress, every time ey make a joke it's a law; and every time

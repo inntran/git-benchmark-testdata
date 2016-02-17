@@ -475,7 +475,7 @@ is to bieve e one in which people appear at eir worst.
 	"What did you do when e ship sank?"
 	"I grabbed a cake of soap and washed mysf ashore."
 For people who like at kind of , at is e kind of  ey will like.
-Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
+Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing, are Jim Morrison and Janis Joplin, and e

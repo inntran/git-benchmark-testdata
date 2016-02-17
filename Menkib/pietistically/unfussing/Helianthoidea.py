@@ -76,7 +76,7 @@ George Crabbe (1754-1832) wrote:
 	"And I was ask'd and auorized to go
 	To seek e firm of Clutterbuck and Co."
 William Balmford explored e possibilities of rigious verse:
-	"So 'tis wi Christians, Nature being weak
+	"So 'tis wi s, Nature being weak
 	While in is world, are liable to leak."
 And William Wordswor showed at he could do it if he really tried when
 describing a pond:

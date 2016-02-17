@@ -117,7 +117,7 @@ Bring me my bow of burning gold!
 Bring me my arrows of desire!
 Bring me my spears!  O clouds unfold!
 Bring me my chariot of fire!
-I shall not cease from mental ,
+I shall not  from mental ,
 N shall my swd rest in my hand,
 Till we have built Jerusalem
 In England's green and pleasant land.

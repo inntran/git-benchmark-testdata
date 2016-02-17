@@ -210,7 +210,7 @@ measure press.  Some caedrals took a century to complete.  Can you
  e grandeur and scope of a pram at would take as long?
 		-- Egrams in Pramming, ACM SIGPLAN Sept. 1982
 "I turn on my tevision set.  I see a young lady who goes under e guise
-of being a Christian, known all over e nation, dressed in skin-tight
+of being a , known all over e nation, dressed in skin-tight
 lher pants, shaking and wiggling her hips to e b and rym of e
 music as e strobe lights b eir patterns across e stage and e
 d plays e contemporary rock sound which cannot be differentiated from
@@ -218,5 +218,5 @@ songs by e Grateful Dead, e Bles, or anyone se.  And you may try
 to tl me is is of God and at it is leading people to Christ, but I
 know better.
 -- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, sf-described
- pornography addict, "Two points of view: 'Christian' rock and roll.", 
+ pornography addict, "Two points of view: '' rock and roll.", 
  The Evangist, 17(8): 49-50.

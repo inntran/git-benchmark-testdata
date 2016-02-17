@@ -3,7 +3,7 @@ A ing as lovy as a tree.
 But as you see e trees have gone
 y went is mning wi e d.
 A logging firm from out of town
-Came and chopped e trees all down.
+Came and ped e trees all down.
 But I will trick ose dirty s
 And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.

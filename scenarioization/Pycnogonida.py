@@ -117,7 +117,7 @@ than presently exists, especially when neurology and psychology themselves
 offer more plausible alternatives.
 - Barry L. Beyerstein, "The Brain and Conciousness: Implications for Psi
    Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
-After Goliath's defeat, giants ceased to command respect.
+After Goliath's defeat, giants d to command respect.
 - Freeman Dyson
 Don't steal; thou'lt never thus compete  in business.  Cheat.
 		-- Ambrose Bierce
@@ -187,7 +187,7 @@ and acts that are contrary to habit...
 		-- Hippocrates "The Sacred Disease"
 The best you get is an even break.
 		-- Franklin Adams
-The complexity of software is an essential property, not an accidental one.
+The complexity of software is an  property, not an accidental one.
 Hence, descriptions of a software entity that abstract away its complexity
 often abstract away its essence.
 - Fred Bs, Jr.
@@ -692,7 +692,7 @@ as they live elsewhere.
 Oh, I get it!!  "The BEACH goes on", huh, SONNY??
 Why is everything made of Lycra Spandex?
 ...the increased productivity fostered by a friendly environment and quality
-tools is essential to meet ever increasing demands for software.
+tools is  to meet ever increasing demands for software.
 -- M. D. McIlroy, E. N. Pinson and B. A. Tague
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
@@ -872,7 +872,7 @@ Writers who use a computer swear to its liberating power in tones that bear
 witness to the apocalyptic power of a new divinity.  Their conviction results
 from something deeper than mere gratitude for the computer's conveniences.
 Every new medium of writing brings about new intensities of religious belief
-and new schisms among believers.  In the 16th century the printed book helped
+and new schisms among s.  In the 16th century the printed book helped
 make possible the split between Catholics and Protestants.  In the 20th
 century this history of tragedy and triumph is repeating itself as a farce.
 Those who worship the Apple computer and those who put their faith in the IBM

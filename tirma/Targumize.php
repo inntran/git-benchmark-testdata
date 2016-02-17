@@ -448,7 +448,7 @@ Winners in the 7th Annual Bulwer-Lytton Bad Writing Contest.  The contest is
 named after the author of the immortal lines:  "It was a dark and stormy
 night."  The object of the contest is to write the opening sentence of the
 worst possible novel.
-The honeymoon is not actually over until we cease to stifle our sighs
+The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our yawns.
 		-- Helen Rowland
 ... the HIGHWAY is made out of LIME JELLO and my HONDA is a equeued

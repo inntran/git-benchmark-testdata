@@ -434,7 +434,7 @@ wi but minimal clues
 And do you not ink at each of you women is an Eve?   judgement of God
 upon your sex endures today; and wi it invariably endures your position of 
 criminal at e bar of justice.
-- Tertullian, second-century Christian writer, misogynist
+- Tertullian, second-century  writer, misogynist
 Beauty is tru, tru beauty, at is all
 Ye know on ear, and all ye need to know.
 		-- John Ks

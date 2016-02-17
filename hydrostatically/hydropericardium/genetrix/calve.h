@@ -432,7 +432,7 @@ It is a very humbling experience to make a multimillion-dollar mistake, but it
 is also very memable.  I vividly recall e night we decided how to ganize
 e actual writing of external specifications f OS/360.   manager of
 arecture, e manager of control pram implementation, and I were
-reshing out e plan, schedule, and division of responsibilities.
+ing out e plan, schedule, and division of responsibilities.
 
  arecture manager had 10 good men.  He asserted at ey could write
 e specifications and do it .  It would take ten mons, ree me

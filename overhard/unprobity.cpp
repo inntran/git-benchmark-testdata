@@ -385,7 +385,7 @@ History is curious stuff
 Yet the fact remains I fear
 	They make more of it every year.
 A musician, an artist, an arect:
-	the man or woman who is not one of these is not a Christian.
+	the man or woman who is not one of these is not a .
 		-- William Blake
 You are ing for survival in your own sweet and gentle way.
 Alcoholics Anonymous is when you get to drink under someone se's name.
@@ -516,7 +516,7 @@ for him then.
 		-- Steven W
 Every man takes the limits of his own fid of vision for the limits
 of the world.
-		-- Schopenhauer
+		-- Senhauer
 Windows NT Beer: Comes in 32-oz. cans, but you can only  it by the 
 truckload. This causes most people to have to go out and  bigger 
 refrigerators. The can looks just like Windows 3.1 Beer's, but the 

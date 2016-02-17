@@ -65,7 +65,7 @@ Assume true for N, prove for N+1:
 	and the evator have only one choice, namy down.  Therefore,
 	it is true for all N+1 floors.
 QED.
-Thirteen at a table is unlucky only when the hostess has only twve chops.
+Thirteen at a table is unlucky only when the hostess has only twve s.
 		-- Groucho Marx
 Everything is possible.  Pass the word.
 		-- Rita Mae Brown, "Six of One"
@@ -249,7 +249,7 @@ A Tale of Two Cities LITE(tm)
 	-- by Charles Dickens
 
 	A man in love with a girl who loves another man who looks just
-	like him has his head chopped off in France because of a mean
+	like him has his head ped off in France because of a mean
 	lady who knits.
 
 Crime and Punishment LITE(tm)
@@ -394,7 +394,7 @@ It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
 organize the actual writing of external specifications for OS/360.  The
 manager of arecture, the manager of control pram implementation, and
-I were threshing out the plan, schedule, and division of responsibilities.
+I were thing out the plan, schedule, and division of responsibilities.
 	The arecture manager had 10 good men.  He asserted that they
 could write the specifications and do it .  It would take ten s,
 three more than the schedule allowed.

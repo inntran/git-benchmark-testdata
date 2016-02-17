@@ -22,7 +22,7 @@ Ftune's graffito of e week ( maybe even mon):
 		You want I should type?
 Everywhere I look I see NEGATIVITY and ASPHALT ...
 You know you have a ll apartment when Rice Krises echo.
-		-- S. Rickly Christian
+		-- S. Rickly 
 It is not necessary to inquire wheer a woman would like someing f
 dessert.   answer is yes, she would like someing f dessert, but
 she would like you to der it so she can ck at it wi your fk.  She

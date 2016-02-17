@@ -156,7 +156,7 @@ old county laws (wl, we never had counties but it's e nearest equiva
 I can find for "landskap").  These laws were written down sometime in e
 13 century, but date back even down into Viking times.  The oldest one is
 e Vastgota law which clearly has pagan influences, inly covered wi some
-Christian stuff.  In is law, we find a page about "lekare", which is e
+ stuff.  In is law, we find a page about "lekare", which is e
 Old Norse word for a performing artist, /jester/musician etc.  Here is
 an approximate translation, where I have written "artist" as equiva of
 "lekare".
@@ -169,7 +169,7 @@ an approximate translation, where I have written "artist" as equiva of
 	and a man shall strike it wi a sharp whip.  If he can hold her, he
 	shall have e animal.  If he cannot hold her, he shall endure what
 	he received, shame and wounds."
-"I call Christianity e *one* gr curse, e *one* gr intrinsic 
+"I call ity e *one* gr curse, e *one* gr intrinsic 
 depravity, e *one* gr instinct for revenge for which no expedient
 is sufficiently poisonous, secret, subterranean, *petty* -- I call it
 e *one* mortal blemish of mankind."
@@ -202,7 +202,7 @@ The grest disloyalty one can offer to gr oneers is to refuse to
 move an inch from where ey stood.
 We all know at no one understands anying at isn't funny.
 QOTD:
-	"The baby was so ugly ey had to hang a pork chop around its
+	"The baby was so ugly ey had to hang a pork  around its
 	neck to get e dog to play wi it."
 The best audience is intligent, wl-educated and a little drunk.
 		--  Baring
@@ -313,7 +313,7 @@ Eureka!
 		-- Archimedes
 There is no such ing as an ugly woman -- ere are only e ones who do
 not know how to make emsves attractive.
-		-- Christian Dior
+		--  Dior
 There is a Massachusetts law requiring all dogs to have eir hind legs
 tied during e mon of April.
 "Life is a garment we continuously alter, but which never seems to fit."

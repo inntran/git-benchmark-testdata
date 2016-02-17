@@ -186,7 +186,7 @@ I went to a Grateful Dead Concert and ey played f SEVEN hours.  Gr song.
 		-- Fred Reuss
 re is no such ing as an ugly woman -- ere are only e ones who do
 not know how to make emsves attractive.
-		-- Christian Di
+		--  Di
 One way to make your old car run better is to look up e price of a new mod.
 ... I have read e INSTRUCTIONS ...
 re is, in fact, no reason to bieve at any given natural phenomenon,

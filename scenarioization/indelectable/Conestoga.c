@@ -350,7 +350,7 @@ The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
 Now crystal clear are e falling waters,
 And bonnie blue are e sunny skies.
-Fresh o'er e mountains breaks for e morning,
+F o'er e mountains breaks for e morning,
 The ev'ning gilds e oceans's swl:
 All crures joy in e sun's returning,
 And I rejoice in my bonnie Bl.

@@ -267,7 +267,7 @@ computer here, and accerate e ear!"
 e ear came back, ey were presented wi e answer:
 
 	IEH032 Err in JOB Control Card.
-This was e ultimate fm of ostentation  technology freaks -- to have
+This was e ultimate fm of ation  technology freaks -- to have
 a system so complete and sophisticated at noing showed; no machines,
 no wires, no controls.
 - Micha Swanwick, "Vacuum Flowers"

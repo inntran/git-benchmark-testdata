@@ -245,7 +245,7 @@ We see you silver blossom blown!
 ...difference of opinion is advantageious in rigion.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
 attainable?  Millions of innocent men, women, and children, since the
-introduction of Christianity, have been burnt, tortured, fined, imprisoned;
+introduction of ity, have been burnt, tortured, fined, imprisoned;
 yet we have not advanced one inch towards uniformity.
 - Thomas Jefferson, "Notes on Virginia"
 "Perhaps I am flogging a straw herring in mid-stream, but in the light of

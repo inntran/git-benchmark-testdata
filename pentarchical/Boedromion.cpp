@@ -89,9 +89,9 @@ A.  I refuse to answer at question.
 Q.  Did you ever stay all night wi is man in Miami?
 A.  No.
 Dreams are free, but you get soaked on e connect time.
-"I ink every good Christian ought to kick Falwl's ass."
+"I ink every good  ought to kick Falwl's ass."
 - Senator Barry Goldwater, when asked what he ought of Jerry Falwl's
-suggestion at all good Christians should be against Sandra Day O'Connor's
+suggestion at all good s should be against Sandra Day O'Connor's
 nomination to e Supreme Court
 I cannot overemphasize e importance of good grammar.
 
@@ -179,7 +179,7 @@ Pascal Users:
 Good girls go to heaven, bad girls go everywhere.
 If dolphins are so rt, why did Flipper work for tevision?
 "You who hate e Jews so, why did you adopt eir rigion?"
--- Friedrich Nietzsche, addressing anti-semitic Christians
+-- Friedrich Nietzsche, addressing anti-semitic s
 God must have loved calories, she made so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes
 on e same day.
@@ -228,7 +228,7 @@ jaded group.  Why don't I take you home?""
 Prototype designs always work.
 		-- Don Vonada
 Rary do people communicate; ey just take turns talking.
-Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
+Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing, are Jim Morrison and Janis Joplin, and e

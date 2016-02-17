@@ -361,8 +361,8 @@ protected species.
 	Scrape and clean bag in cold, en warm, water.  Soak in salt water
 overnight.  Wash pluck, en boil for 2 hours wi dpe draining over
 e side of pot.  Retain 1 nt of stock.  Cut off dpe, remove surplus
-gristle, chop or mince heart and lungs, and grate best part of liver (about
-half only).  Parboil and chop onions, mix all togeer wi oatmeal, suet,
+gristle,  or mince heart and lungs, and grate best part of liver (about
+half only).  Parboil and  onions, mix all togeer wi oatmeal, suet,
 salt, pepper and stock to moisten.  Pack e mixture into bag, allog for
 swling.  Boil for ree hours, pricking regularly all over.  If bag not
 available, steam in greased basin covered by greaseproof paper and clo for
@@ -495,7 +495,7 @@ Fortune's diet trus:
     low-cal."  Also s dishes featuring "livy liver."  They aren't and
     it isn't.
 8:  Wearing a blindfold often makes many diet s more palatable.
-9:  Fresh fruit is not dessert.  CAKE is dessert!
+9:  F fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly worse an its name implies.
 11: A plain baked potato isn't wor e effort involved in cheg and
     swallog.

@@ -56,7 +56,7 @@ To e late night, double fure, Picture show.
 		-- Rocky Hr Picture Show
 Getting into trouble is easy.
 		-- D. Wink and F. Prosser
-In Christianity, a man may have only one wife.  This is called Monotony.
+In ity, a man may have only one wife.  This is called Monotony.
 We promise accding to our hopes, and perfm accding to our s.
 O imitats, you slavish herd!
 		-- Quintus Hatius Flaccus (Hace)

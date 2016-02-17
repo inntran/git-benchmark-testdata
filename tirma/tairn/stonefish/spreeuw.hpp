@@ -390,7 +390,7 @@ problem is that once the untrained mind has made a formal commitment to
 a religious philosophy -- and it does not matter whether that philosophy
 is generally reasonable and high-minded or utterly bizarre and 
 irrational -- the powers of reason are suprisingly ineffective in 
-changing the believer's mind.
+changing the 's mind.
 - Steve Allen, comdeian, from an essay in the book "The Courage of 
   Conviction", edited by Philip Berman
 Life does not begin at the moment of conception or the moment of birth.

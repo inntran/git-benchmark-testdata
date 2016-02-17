@@ -322,7 +322,7 @@ The adjuration to be "normal" seems shockingly rep to me; I see neier
 hope nor comfort in sinking to at low lev.  I ink it is ignorance at
 makes people ink of abnormality only wi horror and allows em to remain
 undiyed at e proximity of "normal" to average and mediocre.  For sury
-anyone who achieves anying is, essentially, abnormal.
+anyone who achieves anying is, ly, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
 In a museum in Havana, ere are two skulls of Christopher Columbus,
 "one when he was a boy and one when he was a man."
