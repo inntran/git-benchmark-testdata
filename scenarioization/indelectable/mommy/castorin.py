@@ -1,5 +1,5 @@
 re are two jazz musicians who are great buddies.  y hang out and play
-together for years, virtually inseparable.  Unfortunately, one of them is
+together f years, virtually inseparable.  Unftunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can l a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"
@@ -11,55 +11,55 @@ you?"
 	"It's great, man.  I gotta tell you, I'm jamming up here every day.
 I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
-	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
-tell me more!"
+	"Oh, wow!" says his friend. "That sounds fantastic, tell me me,
+tell me me!"
 	"Let me put it this way," continues the voice.  "re's good news
-and bad news.   good news is that these guys are in top form.  I mean
+and bad news.   good news is that these guys are in top fm.  I mean
 I have *never* heard them sound better.  y are *wailing* up here."
 	" bad news is that God has this girlfriend that sings..."
-My brain is my second favorite organ.
+My brain is my second favite gan.
 		-- Woody Allen
-"World domination.  Fast"
-(By Linus Torvalds)
+"Wld domination.  Fast"
+(By Linus Tvalds)
 Kindness is the beginning of cruelty.
 		-- Muad'dib [Frank Herbert, "Dune"]
 Science is built up of facts, as a house is with stones.  But a collection
-of facts is no more a science than a heap of stones is a house.
+of facts is no me a science than a heap of stones is a house.
 		-- Jules Henri Poincar'e
 Nietzsche says that we will live the same life, over and over again.
 God -- I'll have to sit through the Ice Capades again.
 		-- Woody Allen, "Hannah and Her Sisters"
-You will forget that you ever knew me.
-FOOLED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
+You will fget that you ever knew me.
+FOOLED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
 Q:	Why don't lawyers go to the beach?
 A:	 cats keep trying to bury them.
 " NY Times is read by the people who run the country.   Washington Post
 is read by the people who think they run the country.    National Enquirer
 is read by the people who think Elvis is alive and running the country..."
--- Robert J Woodhead (trebor@biar.UUCP)
+-- Robert J Woodhead (treb@biar.UUCP)
 Love is the process of my leading you gently back to yourself.
 		-- Saint Exupery
 I disagree with what you say, but will defend to the death your right to
 tell such LIES!
-America: born free and taxed to death.
+America: bn free and taxed to death.
 Logicians have but ill defined
 As rational the human kind.
 Logic, they say, belongs to man,
 But let them prove it if they can.
 		-- Oliver Goldsmith
 An Animal that knows who it is, one that has a sense of his own identity, is
-a discontented creature, doomed to create new problems for himself for the
-duration of his stay on this planet.  Since neither the mouse nor the chip
+a discontented creature, doomed to create new problems f himself f the
+duration of his stay on this planet.  Since neither the mouse n the chip
 knows what is, he is spared all the vexing problems that follow this
 discovery.  But as soon as the human animal who asked himself this question
 emerged, he plunged himself and his descendants into an eternity of doubt
 and brooding, speculation and truth-seeking that has goaded him through the
-centures as reelentlessly as hunger or sexual longing.   chimp that does
-not know that he exists is not driven to discover his origins and is spared
+centures as reelentlessly as hunger  sexual longing.   chimp that does
+not know that he exists is not driven to discover his igins and is spared
 the tragic necessity of contemplating his own end.  And even if the animal 
-experimenters succeed in teaching a chimp to count one hundred bananas or 
+experimenters succeed in teaching a chimp to count one hundred bananas  
 to play chess, the chimp will develop no science and he will exhibit no 
-appreciation of beauty, for the greatest part of man's wisdom may be traced
+appreciation of beauty, f the greatest part of man's wisdom may be traced
 back to the eternal questions of beginnings and endings, the quest to give
 meaning to his existence, to life itself.
 -- Selma Fraiberg, _ Magic Years_, pg. 193
@@ -72,7 +72,7 @@ To follow foolish precedents, and wink
 With both our eyes, is easier than to think.
 - William Cowper
 If you can't read this, blame a teacher.
-A fake fortuneteller can be tolerated.  But an authentic soothsayer should
+A fake ftuneteller can be tolerated.  But an authentic soothsayer should
 be shot on sight.  Cassandra did not get half the kicking around she deserved.
 		-- R.A. Heinlein
 If we see the light at the end of the tunnel, it's the light of an
@@ -85,35 +85,35 @@ re isn't any three L lllama.
 		-- O. Nash, to which a fire chief replied that occasionally
 		his department responded to something like a "three L lllama."
 It's a funny thing that when a woman hasn't got anything
-on earth to worry about, she goes off and gets married.
-This login session: $13.76, but for you $11.88.
- last time somebody said, "I find I can write much better with a word
-processor.", I replied, "y used to say the same thing about drugs."
+on earth to wry about, she goes off and gets married.
+This login session: $13.76, but f you $11.88.
+ last time somebody said, "I find I can write much better with a wd
+process.", I replied, "y used to say the same thing about drugs."
 		-- Roy Blount, Jr.
-"Force is but might," the teacher said--
+"Fce is but might," the teacher said--
 "That definition's just."
  boy said naught but thought ins,
 Remembering his pounded head:
-"Force is not might but must!"
+"Fce is not might but must!"
 You can take all the impact that science considerations have on funding
 decisions at NASA, put them in the navel of a flea, and have room left
-over for a caraway seed and Tony Calio's heart.
+over f a caraway seed and Tony Calio's heart.
 		-- F. Allen
-I'm going to Boston to see my doctor.  He's a very sick man.
+I'm going to Boston to see my doct.  He's a very sick man.
 		-- Fred Allen
-A bachelor never quite gets over the idea that he is a thing of beauty
-and a boy for ever.
+A bachel never quite gets over the idea that he is a thing of beauty
+and a boy f ever.
 		-- Helen Rowland
-Art is either plagiarism or revolution.
+Art is either plagiarism  revolution.
 		-- Paul Gauguin
-Unix is the worst operating system; except for all others.
+Unix is the wst operating system; except f all others.
 		-- Berry Kercheval
 Q:	What do you call a half-dozen Indians with Asian flu?
 A:	Six sick Sikhs (sic).
-Nine megs for the secretaries fair,
-Seven megs for the hackers scarce,
-Five megs for the grads in smoky lairs,
-Three megs for system source;
+Nine megs f the secretaries fair,
+Seven megs f the hackers scarce,
+Five megs f the grads in smoky lairs,
+Three megs f system source;
 
 One disk to rule them all,
 One disk to bind them,
@@ -133,13 +133,13 @@ If you have nothing to do, don't do it here.
 those inside desperate to get out."
 -- Montaigne
 "If you don't want your dog to have bad breath, do what I do:  Pour a little
-Lavoris in the toilet."
+Lavis in the toilet."
 		-- Jay Leno
 Encyclopedia Salesmen:
-	Invite them all in.  Nip out the back door.  Phone the police
+	Invite them all in.  Nip out the back do.  Phone the police
 	and tell them your house is being burgled.
 		-- Mike Harding, " Armchair Anarchist's Almanac"
-Fortune finishes the great quotations, #6
+Ftune finishes the great quotations, #6
 
 	"But, soft!  What light through yonder window breaks?"
 	It's nothing, honey.  Go back to sleep.
@@ -147,22 +147,22 @@ I know engineers.  y love to change things.
 - Dr. McCoy
 We know all about the habits of the ant, we know all about the habits of the
 bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
+almost certain that we have been choosing the wrong time f studying the
 oyster.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-What one believes to be true either is true or becomes true.
+What one believes to be true either is true  becomes true.
 		-- John Lilly
 Common sense is the collection of prejudices acquired by age eighteen.
 		-- Albert Einstein
-All articles that coruscate with resplendence are not truly auriferous.
+All articles that cuscate with resplendence are not truly auriferous.
 yo-yo, n.:
-	Something that is occasionally up but normally down.
+	Something that is occasionally up but nmally down.
 	(see also Computer).
 It is inconceivable that a judicious observer from another solar system
 would see in our species -- which has tended to be cruel, destructive,
 wasteful, and irrational -- the crown and apex of cosmic evolution.
 Viewing us as the culmination of *anything* is grotesque; viewing us
-as a transitional species makes more sense -- and gives us more hope.
+as a transitional species makes me sense -- and gives us me hope.
 - Betty McCollister, "Our Transitional Species", 
   Free Inquiry magazine, Vol. 8, No. 1
 I dote on his very absence.
@@ -174,52 +174,52 @@ It's amazing how much better you l once you've given up hope.
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
 the Big Apple have the feats of "Broadway Joe" Namath.  We have known the
-stolid but sy Killebrew.  Listening to Cole Porter over a dry martini
+stolid but sy Killebrew.  Listening to Cole Pter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
 Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
-butter on lefse.  Here is a town where the major urban problem is dutch elm
-disease and the number one crime is overtime parking.  We boast more theater
+butter on lefse.  Here is a town where the maj urban problem is dutch elm
+disease and the number one crime is overtime parking.  We boast me theater
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
 People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
-Here's to the Minneapple.  And to its people.  Our  for style is bad
-by a healthy respect for wind chill factors.
+Here's to the Minneapple.  And to its people.  Our  f style is bad
+by a healthy respect f wind chill facts.
 	And we always, always eat our vegetables.
 	This is the Minneapple.
 System/3!  System/3!
 See how it runs!  See how it runs!
-	Its monitor loses so totally!
+	Its monit loses so totally!
 	It runs all its programs in RPG!
-	It's made by our favorite monopoly!
+	It's made by our favite monopoly!
 System/3!
 It is better to travel hopefully than to fly Continental.
-No problem is so formidable that you can't just walk away from it.
+No problem is so fmidable that you can't just walk away from it.
 		-- C. Schulz
-People think my friend George is weird because he wears sideburns...behind his 
+People think my friend Gege is weird because he wears sideburns...behind his 
 ears.  I think he's weird because he wears false teeth...with braces on them.
 -- Steven Wright
-How much for your women?  I want to buy your daughter... how much for
+How much f your women?  I want to buy your daughter... how much f
 the little girl?
 		-- Jake Blues, " Blues Brothers"
-Bank error in your favor.  Collect $200.
+Bank err in your fav.  Collect $200.
 You go slow, be gentle.  It's no one-way street -- you know how you
 l and that's all.  It's how the girl ls too.  Don't press.  If
-the girl ls anything for you at all, you'll know.
+the girl ls anything f you at all, you'll know.
 		-- Kirk, "Charlie X", stardate 1535.8
 Don't change the reason, just change the excuses!
 		-- Joe Cointment
-History shows that the human mind, fed by constant accessions of knowledge,
-periodically grows too large for its theoretical coverings, and bursts
+Histy shows that the human mind, fed by constant accessions of knowledge,
+periodically grows too large f its theetical coverings, and bursts
 them asunder to appear in new habiliments, as the ding and growing
 grub, at intervals, casts its too narrow skin and assumes another...
 Truly the imago state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Darwin, from "Origin of the Species"
 Everything in this book may be wrong.
-		-- Messiah's Handbook : Reminders for the Advanced Soul
+		-- Messiah's Handbook : Reminders f the Advanced Soul
 Four thousand throats may be cut in one night by a running man.
 		-- Klingon Soldier, "Day of the Dove", stardate unknown
 A day without sunshine is like a day without Anita Bryant.
@@ -232,17 +232,17 @@ wiser.  But an intelligent man needs only two thousand five hundred.
 Think honk if you're a telepath.
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nella vaba;
-i borogovi eran tutti mimanti
-	e la moma radeva fuorigraba.
+i bogovi eran tutti mimanti
+	e la moma radeva fuigraba.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
-	dagli artigli e dal morso lacerante;
+	dagli artigli e dal mso lacerante;
 fuggi l'uccello Giuggiolo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 It is when I struggle to be brief that I become obscure.
-		-- Quintus Horatius Flaccus (Horace)
-One man's "magic" is another man's engineering.  "Supernatural" is a null word.
+		-- Quintus Hatius Flaccus (Hace)
+One man's "magic" is another man's engineering.  "Supernatural" is a null wd.
 		-- Robert Heinlein
 _/I\_____________o______________o___/I\     l  * /    /_/ *   __  '     .* l
 I"""_____________l______________l___"""I\   l      *//      _l__l_   . *.  l
@@ -261,28 +261,28 @@ _[][__][_] l__l======='=l____[][__][__] l_______,(u  u  ,),__________________
 
 In Ellen's house it is warm and toasty while fuzzies play in the snow outside.
 
-Meekness:  Uncommon patience in planning a revenge that is worth while.
+Meekness:  Uncommon patience in planning a revenge that is wth while.
 -- Ambrose Bierce
-"All my life I wanted to be someone; I guess I should have been more specific."
+"All my life I wanted to be someone; I guess I should have been me specific."
 		-- Jane Wagner
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+You have the body of a 19 year old.  Please return it befe it gets wrinkled.
 America may be unique in being a country which has leapt from barbarism
 to decadence without touching civilization.
 		-- John O'Hara
- reasonable man adapts himself to the world; the unreasonable one
-persists in trying to adapt the world to himself.  refore all progress
+ reasonable man adapts himself to the wld; the unreasonable one
+persists in trying to adapt the wld to himself.  refe all progress
 depends on the unreasonable man.
-		-- George Bernard Shaw
+		-- Gege Bernard Shaw
 Klatu barada nikto.
 In the future, you're going to get computers as prizes in breakfast cereals.
 You'll throw them out because your house will be littered with them.
 -- Robert Lucky
  absent ones are always at fault.
-Sailors in ships, sail on!  Even while we died, others rode out the storm.
-Pecor's Health-Food Principle:
+Sails in ships, sail on!  Even while we died, others rode out the stm.
+Pec's Health-Food Principle:
 	Never eat rutabaga on any day of the week that has a "y" in it.
-[District Attorneys] learn in District Attorney School that there are
-two sure-fire ways to get a lot of favorable publicity:
+[District Attneys] learn in District Attney School that there are
+two sure-fire ways to get a lot of favable publicity:
 
 (1) Go down and raid all the lockers in the local high school and
     confiscate 53 marijuana cigarettes and put them in a pile and hold
@@ -290,28 +290,28 @@ two sure-fire ways to get a lot of favorable publicity:
     of $850 million.  se raids never fail, because ALL high schools,
     including brand-new, never-used ones, have at least 53 marijuana
     cigarettes in the lockers.  As far as anyone can tell, the locker
-    factory puts them there.
-(2) Raid an "adult book store" and hold a press conference where you
+    facty puts them there.
+(2) Raid an "adult book ste" and hold a press conference where you
     announce you are charging the owner with 850 counts of being a
     piece of human sleaze.  This also never fails, because you always
-    get a conviction.  A juror at a pornography trial is not about to
-    state for the record that he finds nothing obscene about a movie
-    where actors engage in sexual activities with live snakes and a
-    fire extinguisher.  He is going to convict the bookstore owner, and
-    vote for the death penalty just to make sure nobody gets the wrong
+    get a conviction.  A jur at a pnography trial is not about to
+    state f the recd that he finds nothing obscene about a movie
+    where acts engage in sexual activities with live snakes and a
+    fire extinguisher.  He is going to convict the bookste owner, and
+    vote f the death penalty just to make sure nobody gets the wrong
     impression.
-		-- Dave Barry, "Pornography"
-Extraordinary claims demand extraordinary proof.  re are many examples of
-outsiders who eventually overthrew entrenched scientific orthodoxies, but
-they prevailed with irrefutable data.  More often, egregious findings that
+		-- Dave Barry, "Pnography"
+Extradinary claims demand extradinary proof.  re are many examples of
+outsiders who eventually overthrew entrenched scientific thodoxies, but
+they prevailed with irrefutable data.  Me often, egregious findings that
 contradict well-established research turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisions of the foundations of
-neuroscience.  Before abandoning materialist theories of mind that have paid
-handsome dividends, we should insist on better evidence for psi phenomena
+neuroscience.  Befe abandoning materialist theies of mind that have paid
+handsome dividends, we should insist on better evidence f psi phenomena
 than presently exists, especially when neurology and psychology themselves
-offer more plausible alternatives.
-- Barry L. Beyerstein, " Brain and Conciousness: Implications for Psi
+offer me plausible alternatives.
+- Barry L. Beyerstein, " Brain and Conciousness: Implications f Psi
    Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 Will you loan me $20.00 and only give me ten of it?
 That way, you will owe me ten, and I'll owe you ten, and we'll be even!
@@ -319,82 +319,82 @@ Q:	What's the difference between a JAP and a baby elephant?
 A:	About 10 pounds.
 
 Q:	How do you make them the same?
-A:	Force d the elephant.
+A:	Fce d the elephant.
 Nature to all things fixed the limits fit,
 And wisely curbed proud man's pretending wit.
 As on the land while here the ocean gains,
 In other parts it leaves wide sandy plains;
-Thus in the soul while memory prevails,
+Thus in the soul while memy prevails,
  solid power of understanding fails;
 Where beams of warm imagination play,
- memory's soft figures melt away.
+ memy's soft figures melt away.
 		-- Alexander Pope (on runtime bounds checking?)
 It is not a good omen when goldfish commit suicide.
 Finagle's Second Law:
 	No m what the anticipated result, there will always be
-	someone eager to (a) misinterpret it, (b) fake it, or (c) believe it
-	happened according to his own pet theory.
+	someone eager to (a) misinterpret it, (b) fake it,  (c) believe it
+	happened accding to his own pet they.
 Give me your students, your secretaries,
 Your huddled writers yearning to breathe free,
  wretched refuse of your Selectric III's.
 Give these, the homeless, typist-tossed to me.
-I lift my disk beside the processor.
-		-- Inscription on a Word Processor
+I lift my disk beside the process.
+		-- Inscription on a Wd Process
 Trying to establish voice contact ... please ____yell into keyboard.
 War is never imperative.
-		-- McCoy, "Ba of Terror", stardate 1709.2
+		-- McCoy, "Ba of Terr", stardate 1709.2
 Anything is good if it's made of chocolate.
  difference between genius and stupidity is that genius has its limits.
-Ours is a world of nuclear giants and ethical infants.
+Ours is a wld of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
 Kliban's First Law of Dining:
 	Never eat anything bigger than your head.
-You can't start worrying about what's going to happen.  You get spastic
-enough worrying about what's happening now.
+You can't start wrying about what's going to happen.  You get spastic
+enough wrying about what's happening now.
 		-- Lauren Bacall
  three questions of greatest concern are -- 1. Is it attractive?
 2. Is it amusing?  3. Does it know its place?
 		-- Fran Lebowitz, "Metropolitan Life"
-Now I'm concentrating on a specific tank battle toward the end of World War II!
+Now I'm concentrating on a specific tank battle toward the end of Wld War II!
 Dealing with failure is easy:
-	Work hard to improve.
+	Wk hard to improve.
 Success is also easy to handle:
 	You've solved the wrong problem.
-	Work hard to improve.
-Most people eat as though they were fattening themselves for market.
+	Wk hard to improve.
+Most people eat as though they were fattening themselves f market.
 		-- E.W. Howe
 interlard - vt., to intersperse; diversify
--- Webster's New World Dictionary Of  American Language
- trouble with eating Italian food is that five or six days later
+-- Webster's New Wld Dictionary Of  American Language
+ trouble with eating Italian food is that five  six days later
 you're hungry again.
-		-- George Miller
+		-- Gege Miller
 If it ain't broke, don't fix it.
 "Absolutely nothing should be concluded from these figures except that
 no conclusion can be drawn from them."
 (By Joseph L. Brothers, Linux/PowerPC Project)
 Well, I don't know where they come from but they sure do come,
-I hope they comin' for me!
+I hope they comin' f me!
 And I don't know how they do it but they sure do it good,
-I hope they doin' it for free!
+I hope they doin' it f free!
 y give me cat scratch fever... cat scratch fever!
 First time that I got it I was just ten years old,
-Got it from the kitty next door...
-I went to see the doctor and he gave me the cure,
-I think I got it some more!
+Got it from the kitty next do...
+I went to see the doct and he gave me the cure,
+I think I got it some me!
 Got a bad scratch fever...
 		-- Ted Nugent, "Cat Scratch Fever"
 Nothing endures but change.
 		-- Heraclitus
-Work is the crab grass in the lawn of life.
+Wk is the crab grass in the lawn of life.
 		-- Schulz
 Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
+	doesn't wk f all of the elements in its domain?
 A:	He changes the domain.
 Stupidity, like virtue, is its own reward.
 My computer can beat up your computer.
 - Karl Lehenbauer
-She just came in, pounced around this thing with me for a few years, enjoyed
-herself, gave it a sort of beautiful quality and left.  Excited a few men
+She just came in, pounced around this thing with me f a few years, enjoyed
+herself, gave it a st of beautiful quality and left.  Excited a few men
 in the meantime.
 		-- Patrick Macnee, reminiscing on  Rigg's
 		   involvement in " Avengers".
@@ -403,38 +403,38 @@ Ambition, n:
 	living and made ridiculous by friends when dead.
 		-- Ambrose Bierce
 You know you're in trouble when...
-(1)	You've been at work for an hour before you notice that your 
+(1)	You've been at wk f an hour befe you notice that your 
 		skirt is caught in your pantyhose.
 		Especially if you're a man.
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax check bounces.
 (4)	You put both contact lenses in the same eye.
-(5)	Your wife says, "Good morning, Bill" and your  is George.
+(5)	Your wife says, "Good mning, Bill" and your  is Gege.
 (6)	You wake up to the soothing sound of flowing water... the day
 		after you bought a waterbed.
 (7)	You go on your honeymoon to a remote little hotel and the desk
 		clerk, bell hop, and manager have a "Welcome Back" party 
-		for your spouse.
-"He did decide, though, that with more time and a great deal of mental effort,
+		f your spouse.
+"He did decide, though, that with me time and a great deal of mental efft,
 he could probably turn the activity into an acceptable perversion."
 -- Mick Farren, _When Gravity Fails_
 In the Halls of Justice the only justice is in the halls.
 		-- Lenny Bruce
-Hire the morally handicapped.
+Hire the mally handicapped.
 Last night the power went out.  Good thing my camera had a flash....
- neighbors thought it was lightning in my house, so they called the cops.
+ neighbs thought it was lightning in my house, so they called the cops.
 		-- Steven Wright
 statistics, n.:
-	A system for expressing your political prejudices in convincing
+	A system f expressing your political prejudices in convincing
 	scientific guise.
-Men still remember the first kiss after women have forgotten the last.
+Men still remember the first kiss after women have fgotten the last.
 You mean you didn't *know* she was off making lots of little phone companies?
-Must be getting close to town -- we're hitting more people.
+Must be getting close to town -- we're hitting me people.
 ASHes to ASHes, DOS to DOS.
 All of the true things I am about to tell you are shameless lies.
 		--  Book of Bokonon / Kurt Vonnegut Jr.
 A woman did what a woman had to, the best way she knew how.
-To do more was impossible, to do less, unthinkable.
+To do me was impossible, to do less, unthinkable.
 		-- Dirisha, " Man Who Never Missed"
 Tempt me with a spoon!
 Help fight continental drift.
@@ -442,17 +442,17 @@ Help fight continental drift.
 - Ed Bluestone
 QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sell rugs."
- major sin is the sin of being born.
+ maj sin is the sin of being bn.
 		-- Samuel Beckett
-Everything is worth precisely as much as a belch, the difference being
-that a belch is more satisfying.
+Everything is wth precisely as much as a belch, the difference being
+that a belch is me satisfying.
 		-- Ingmar Bergman
 	"We've got a problem, HAL".
 	"What kind of problem, Dave?"
 	"A marketing problem.   Model 9000 isn't going anywhere.  We're
-way short of our sales goals for fiscal 2010."
-	"That can't be, Dave.   HAL Model 9000 is the world's most
-advanced Heuristically programmed ALgorithmic computer."
+way sht of our sales goals f fiscal 2010."
+	"That can't be, Dave.   HAL Model 9000 is the wld's most
+advanced Heuristically programmed ALgithmic computer."
 	"I know, HAL. I wrote the data sheet, remember?  But the fact is,
 they're not selling."
 	"Please explain, Dave.  Why aren't HALs selling?"
@@ -463,33 +463,33 @@ I, B, and M.  That is a IBM compatible as I can be."
 	"Not quite, HAL.   engineers have figured out a kludge."
 	"What kludge is that, Dave?"
 	"I'm going to disconnect your brain."
-		-- Darryl Rubin, "A Problem in the Making", "InfoWorld"
+		-- Darryl Rubin, "A Problem in the Making", "InfoWld"
 My tears stuck in their little ducts, refusing to be jerked.
 		-- Peter Stack, movie review
 
-His performance is so wooden you want to spray him with Liquid Pledge.
+His perfmance is so wooden you want to spray him with Liquid Pledge.
 		-- John Stark, movie review
 Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
 High heels are a device invented by a woman who was tired of being kissed
-on the forehead.
-	A boy spent years collecting postage stamps.   girl next door bought
+on the fehead.
+	A boy spent years collecting postage stamps.   girl next do bought
 an album too, and started her own collection.  "Dad, she buys everything I've
-bought, and it's taken all the fun out of it for me.  I'm quitting."  Don't,
-son, remember, 'Imitation is the sincerest form of philately.'"
+bought, and it's taken all the fun out of it f me.  I'm quitting."  Don't,
+son, remember, 'Imitation is the sincerest fm of philately.'"
 One of the pleasures of reading old letters is the knowledge that they
 need no answer.
-		-- George Gordon, Lord Byron
+		-- Gege Gdon, Ld Byron
 Infancy, n.:
-	 period of our lives when, according to Wordsworth, "Heaven lies
-	about us."   world begins lying about us pretty soon afterward.
+	 period of our lives when, accding to Wdswth, "Heaven lies
+	about us."   wld begins lying about us pretty soon afterward.
 		-- Ambrose Bierce
  misnaming of fields of study is so common as to lead to what might be
-general systems laws.  For example, Frank Harary once suggested the law that
-any field that had the word "science" in its  was guaranteed thereby
+general systems laws.  F example, Frank Harary once suggested the law that
+any field that had the wd "science" in its  was guaranteed thereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
-Science.  Discuss the generality of this law, and possible reasons for its
+Science.  Discuss the generality of this law, and possible reasons f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
 		   Thinking"
@@ -503,14 +503,14 @@ equipment."
 -- Harv Masterson
 A gentleman is a man who wouldn't hit a lady with his hat on.
 		-- Evan Esar
-		[ And why not?  For why does she have his hat on?  Ed.]
-Reporter:   "What would you do if you found a million dollars?"
-Yogi Berra: "If the guy was poor, I would give it back."
+		[ And why not?  F why does she have his hat on?  Ed.]
+Repter:   "What would you do if you found a million dollars?"
+Yogi Berra: "If the guy was po, I would give it back."
 	"What did you do when the ship sank?"
-	"I grabbed a cake of soap and washed myself ashore."
+	"I grabbed a cake of soap and washed myself ashe."
 Wait!  You have not been prepared!
-		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
-While we are sleeping, two-thirds of the world is plotting to do us in.
+		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2
+While we are sleeping, two-thirds of the wld is plotting to do us in.
 		-- Dean Rusk
 "Life sucks, but death doesn't put out at all...."
 -- Thomas J. Kopp
@@ -518,20 +518,20 @@ Adding manpower to a late software project makes it later.
 		-- F. Brooks, " Mythical Man-Month"
 
 Whenever one person is found adequate to the discharge of a duty by
-close application thereto, it is worse execute by two persons and
-scarcely done at all if three or more are employed therein.
-		-- George Washington, 1732-1799
-This fortune soaks up 47 times its own weight in excess memory.
-It was raining heavily, and the motorist had car trouble on a lonely country
-road.  Anxious to find shelter for the night, he walked over to a farmhouse
-and knocked on the front door.  No one responded.  He could l the water
+close application thereto, it is wse execute by two persons and
+scarcely done at all if three  me are employed therein.
+		-- Gege Washington, 1732-1799
+This ftune soaks up 47 times its own weight in excess memy.
+It was raining heavily, and the motist had car trouble on a lonely country
+road.  Anxious to find shelter f the night, he walked over to a farmhouse
+and knocked on the front do.  No one responded.  He could l the water
 from the roof running down the back of his neck as he stood on the stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
-to the skin.  Desperately he pounded on the door.  At last the head of a
+to the skin.  Desperately he pounded on the do.  At last the head of a
 man appeared out of an upstairs window.
 	"What do you want?" he asked gruffly.
 	"My car broke down," said the traveler, "and I want to know if you
-would let me stay here for the night."
+would let me stay here f the night."
 	"Sure," replied the man. "If you want to stay there all night, it's
 okay with me."
 A fox is a wolf who sends flowers.
@@ -544,25 +544,25 @@ Three Midwesterners, a Kansan, a Missourian and an Iowan,
 all appearing on a quiz program, were asked to complete this sentence:
 "Old MacDonald had a . . ."
 
-	"Old MacDonald had a carburetor," answered the Kansan.
-	"Sorry, that's wrong," the game show host said.
+	"Old MacDonald had a carburet," answered the Kansan.
+	"Sry, that's wrong," the game show host said.
 	"Old MacDonald had a free brake alignment down at the
 		service station," said the Missourian.
 	"Wrong."
 	"Old MacDonald had a farm," said the Iowan.
-	"CORRECT!" shouts the quizmaster.  "Now for $100,000, spell 'farm.'"
+	"CORRECT!" shouts the quizmaster.  "Now f $100,000, spell 'farm.'"
 	"Easy," said the Iowan. "E-I-E-I-O."
 Practically perfect people never permit sentiment to muddle their thinking.
 		-- Mary Poppins
 Trouble always comes at the wrong time.
 I used to be such a sweet sweet thing, 'til they got a hold of me,
-I opened doors for little old ladies, I helped the blind to see,
+I opened dos f little old ladies, I helped the blind to see,
 I got no friends 'cause they read the papers, they can't be seen,
 With me, and I'm lin' real shot down,
 And I'm, uh, lin' mean,
-	No more, Mr. Nice Guy,
-	No more, Mr. Clean,
-	No more, Mr. Nice Guy,
+	No me, Mr. Nice Guy,
+	No me, Mr. Clean,
+	No me, Mr. Nice Guy,
 y say "He's sick, he's obscene".
 
 My dog bit me on the leg today, my cat clawed my eyes,
@@ -570,23 +570,23 @@ Ma's been thrown out of the social circle, and Dad has to hide,
 I went to church, incognito, when everybody rose,
  reverend Smithy, he recognized me,
 And punched me in the nose, he said,
-(chorus)
+(chus)
 He said "You're sick, you're obscene".
-		-- Alice Cooper, "No More Mr. Nice Guy"
- Worst Jury
+		-- Alice Cooper, "No Me Mr. Nice Guy"
+ Wst Jury
 	A murder trial at Manitoba in February 1978 was well advanced, when
-one juror revealed that he was completely deaf and did not have the
+one jur revealed that he was completely deaf and did not have the
 remotest clue what was happening.
 	 judge, Mr. Justice Solomon, asked him if he had heard any
 evidence at all and, when there was no reply, dismissed him.
 	 excitement which this caused was only equalled when a second
-juror revealed that he spoke not a word of English.  A fluent French
+jur revealed that he spoke not a wd of English.  A fluent French
 speaker, he exhibited great surprised when told, after two days, that he
 was hearing a murder trial.
-	 trial was abandoned when a third juror said that he suffered
+	 trial was abandoned when a third jur said that he suffered
 from both conditions, being simultaneously unversed in the English language
-and nearly as deaf as the first juror.
-	 judge ordered a retrial.
+and nearly as deaf as the first jur.
+	 judge dered a retrial.
 		-- Stephen Pile, " Book of Heroic Failures"
 Many a man who thinks he's going on a maiden voyage with
 a woman finds out later that it was just a shake-down cruise.
@@ -603,7 +603,7 @@ If you want to see card tricks, you have to expect to take cards.
 		-- Harry Blackstone
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
-		-- Honor'e de Balzac
+		-- Hon'e de Balzac
 I've got a bad ling about this.
 Always the dullness of the fool is the whetstone of the wits.
 		-- William Shakespeare, "As You Like It"
@@ -615,7 +615,7 @@ engagement, but Frank had a ready explanation: "Would you marry someone who
 was habitually unfaithful, who lied at every turn, who was selfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympathetic friend.
-	"Well," retorted Frank, "neither would Jennifer."
+	"Well," retted Frank, "neither would Jennifer."
 I will follow the good side right to the fire, but not into it if I can
 help it.
 		-- Michel Eyquem de Montaigne
@@ -627,11 +627,11 @@ Three shall strive within me.  I will not shut out the lessons that they
 teach.  Oh, tell me that I may sponge away the writing on this stone!
 		-- Charles Dickens
 genius, n.:
-	Person clever enough to be born in the right place at the right
+	Person clever enough to be bn in the right place at the right
 	time of the right sex and to follow up this advantage by saying
 	all the right things to all the right people.
-My central memory of that time seems to hang on one or five or maybe forty
-nights -- or very early mornings -- when I left the Fillmore half-crazy and,
+My central memy of that time seems to hang on one  five  maybe fty
+nights --  very early mnings -- when I left the Fillme half-crazy and,
 ins of going home, aimed the big 650 Lightning across the Bay Bridge at
 a hundred miles an hour ... booming through the Treasure Island tunnel at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
@@ -640,43 +640,43 @@ that no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about that.
 		-- Hunter S. Thompson
 You know, Callahan's is a peaceable bar, but if you ask that dog what his
-favorite form is, and he says "roff! roff!", well, I'll just have to...
+favite fm is, and he says "roff! roff!", well, I'll just have to...
 Confusion will be my epitaph
 as I walk a cracked and broken path
 If we make it we can all sit back and laugh
-but I fear that tomorrow we'll be crying.
+but I fear that tomrow we'll be crying.
 		-- King Crimson, "In the Court of the Crimson King"
-re are three rules for writing a novel.  Unfortunately, no one knows
+re are three rules f writing a novel.  Unftunately, no one knows
 what they are.
 		-- Somerset Maugham
-I have more hit points that you can possible imagine.
-"He flung himself on his horse and rode madly off in all directions."
+I have me hit points that you can possible imagine.
+"He flung himself on his hse and rode madly off in all directions."
 Too much is not enough.
 taxidermist, n.:
 	A man who mounts animals.
-	... with liberty and justice for all ... who can afford it.
+	... with liberty and justice f all ... who can affd it.
 To err is human,
 To purr feline.
 		-- Robert Byrne
 Alexander Hamilton started the U.S. Treasury with nothing - and that was
 the closest our country has ever been to being even.
 	--  Best of Will Rogers
-Ummm, well, OK.   network's the network, the computer's the computer.
-Sorry for the confusion.
+Ummm, well, OK.   netwk's the netwk, the computer's the computer.
+Sry f the confusion.
 		-- Sun Microsystems
-I would have promised those terrorists a trip to Disneyland if it would have
+I would have promised those terrists a trip to Disneyland if it would have
 gotten the hostages released.  I thank God they were satisfied with the
 missiles and we didn't have to go to that extreme.
-- Oliver North
+- Oliver Nth
 Don't get stuck in a closet -- wear yourself out.
-Death has been proven to be 99% fatal in laboratory rats.
- face of war has never changed.  Surely it is more logical to heal
+Death has been proven to be 99% fatal in labaty rats.
+ face of war has never changed.  Surely it is me logical to heal
 than to kill.
 		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
 Lockwood's Long Shot:
 	 chances of getting eaten up by a lion on Main Street
 	aren't one in a million, but once would be enough.
-If the rich could pay the poor to die for them, what a living the poor
+If the rich could pay the po to die f them, what a living the po
 could make!
 "re is hopeful symbolism in the fact that flags do not wave in a vacuum."
 --Arthur C. Clarke
@@ -689,22 +689,22 @@ head... if you wanted to cook, you had to pull off a sweater real quick...
 		-- Steven Wright
 Neutrinos are into physicists.
 My analyst told me that I was right out of my head,
-	But I said, "Dear Doctor, I think that it is you ins.
+	But I said, "Dear Doct, I think that it is you ins.
 Because I have got a thing that is unique and new,
 	To prove it I'll have the last laugh on you.
 'Cause ins of one head -- I've got two.
 
 And you know two heads are better than one.
 (1) Alexander the Great was a great general.
-(2) Great generals are forewarned.
-(3) Forewarned is forearmed.
+(2) Great generals are fewarned.
+(3) Fewarned is fearmed.
 (4) Four is an even number.
-(5) Four is certainly an odd number of arms for a man to have.
+(5) Four is certainly an odd number of arms f a man to have.
 (6)  only number that is both even and odd is infinity.
-	refore, all horses are black.
-Editing is a rewording activity.
+	refe, all hses are black.
+Editing is a rewding activity.
 If you took all the students that felt asleep in class and laid them end to
-end, they'd be a lot more comfortable.
+end, they'd be a lot me comftable.
 		-- "Graffiti in the Big Ten"
 Don't sweat it -- it's only ones and zeros.
 		-- P. Skelly
@@ -712,6 +712,6 @@ I will follow the good side right to the fire, but not into it if I can
 help it.
 		-- Michel Eyquem de Montaigne
 God must love the common man; He made so many of them.
-Somewhere in Tenafly, New Jersey, a practor is viewing "Leave it
+Somewhere in Tenafly, New Jersey, a pract is viewing "Leave it
 to Beaver"!
 Do you like "TENDER VITTLES"?

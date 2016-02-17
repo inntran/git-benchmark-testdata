@@ -1,8 +1,8 @@
-" way of the world is to praise dead saints and prosecute live ones."
+" way of the wld is to praise dead saints and prosecute live ones."
  -- Nathaniel Howe
 No snowflake in an avalanche ever ls responsible.
 May you have many beautiful and obedient daughters.
-"No, `Eureka' is Greek for `This bath is too hot.'"
+"No, `Eureka' is Greek f `This bath is too hot.'"
 		-- Dr. Who
 BASIC is to computer programming as QWERTY is to typing.
 		-- Seymour Papert
@@ -11,26 +11,26 @@ May you live in uninteresting times.
 Often things ARE as bad as they seem!
 Actually, my goal is to have a sandwich d after me.
 Acquaintance, n:
-	A person whom we know well enough to borrow from but not well
+	A person whom we know well enough to brow from but not well
 	enough to lend to.  A degree of friendship called slight when the
-	object is poor or obscure, and intimate when he is rich or famous.
+	object is po  obscure, and intimate when he is rich  famous.
 		-- Ambrose Bierce, " Devil's Dictionary"
 "I once witnessed a long-winded, month-long flamewar over the use of
 mice vs. trackballs...It was very silly."
 (By Matt Welsh)
-What passes for woman's intuition is often nothing more than man's
+What passes f woman's intuition is often nothing me than man's
 transparency.
-		-- George Nathan
- function of the expert is not to be more right than other people,
-but to be wrong for more sophisticated reasons.
+		-- Gege Nathan
+ function of the expert is not to be me right than other people,
+but to be wrong f me sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:
-	A portion of a book, for which nobody yet has discovered any use.
+	A ption of a book, f which nobody yet has discovered any use.
 After a number of decimal places, nobody gives a damn.
 Heisenberg may have slept here...
 Two wrongs are only the beginning.
 		-- Kohn
-Fortune's Real-Life Courtroom Quote #37:
+Ftune's Real-Life Courtroom Quote #37:
 
 Q:  Did he pick the dog up by the ears?
 A:  No.
@@ -43,7 +43,7 @@ with my breakfast cereal."
 - Zaphod Beeblebrox in "Hithiker's Guide to the Galaxy"
 I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
  Road goes ever on and on
-Down from the door where it began.
+Down from the do where it began.
 Now far ahead the Road has gone,
 And I must follow, if I can,
 Pursuing it with eager t,
@@ -58,21 +58,21 @@ Beats all the lies you can invent.
 unless he has an atomic weapon."
 -- Howard Chaykin
 Has anyone ever tasted an "end"?  Are they really bitter?
-You can't cheat an honest man.  Never give a sucker an even break or
+You can't cheat an honest man.  Never give a sucker an even break 
 smarten up a chump.
 		-- W.C. Fields
-"For the man who has everything... Penicillin."
- -- F. Borquin
+"F the man who has everything... Penicillin."
+ -- F. Bquin
 Lowery's Law:
-	If it jams -- force it.  If it breaks, it needed replacing anyway.
+	If it jams -- fce it.  If it breaks, it needed replacing anyway.
 Mathematicians practice absolute freedom.
 		-- Henry Adams
 May Euell Gibbons eat your only copy of the manual!
-Finish the sentence below in 25 words or less:
+Finish the sentence below in 25 wds  less:
 
-	"Love is what you l just before you give someone a good ..."
+	"Love is what you l just befe you give someone a good ..."
 
-Mail your answer along with the top half of your supervisor to:
+Mail your answer along with the top half of your supervis to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan
@@ -82,20 +82,20 @@ When smashing monuments, save the pedstals -- they always come in handy.
 		-- Stanislaw J. Lem, "Unkempt Thoughts"
 Why would anyone want to be called "Later"?
 But if you wish at once to do nothing and to be respectable
-nowdays, the best pretext is to be at work on some profound study.
+nowdays, the best pretext is to be at wk on some profound study.
 		-- Leslie Stephen, "Sketches from Cambridge"
 My own life has been spent chronicling the rise and fall of human systems,
 and I am convinced that we are terribly vulnerable.  ...  We should be
 reluctant to turn back upon the frontier of this epoch. Space is indifferent
-to what we do; it has no ling, no design, no interest in whether or not
+to what we do; it has no ling, no design, no interest in whether  not
 we grapple with it. But we cannot be indifferent to space, because the grand,
 slow march of intelligence has brought us, in our generation, to a point
-from which we can explore and understand and utilize it. To turn back now
-would be to deny our history, our capabilities.
+from which we can exple and understand and utilize it. To turn back now
+would be to deny our histy, our capabilities.
 		-- James A. Michener
 Alas, I am dying beyond my means.
 		-- Oscar Wilde [as he sipped champagne on his deathbed]
-It's the same old story; boy meets beer, boy drinks beer... boy gets
+It's the same old sty; boy meets beer, boy drinks beer... boy gets
 another beer.
 		-- Cheers
 What is wanted is not the will to believe, but the will to find out,
