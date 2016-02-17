@@ -51,10 +51,10 @@ We clare the names
 of all variables and functions.
 Yet the Tao has no type specifier.
 
-Dynamically binding, you realize the magic.
+Dynamically binding, you realize the ic.
 Statically binding, you see only the hierarchy.
 
-Yet magic and hierarchy
+Yet ic and hierarchy
 arise from the same source,
 and this source has a null pointer.
 
@@ -156,7 +156,7 @@ name for my baby."
 	"But the hospital supplies a special booklet that lists hundreds
 of first names and their meanings," said the orrly.
 	"That won't help," said the woman, "my baby already has a first name."
-A full belly makes a dull brain.
+A full y makes a dull brain.
 		-- Ben Franklin
 
 		[and the local candy machine man.  Ed]
@@ -269,7 +269,7 @@ QOTD:
 	"baring your neck."
 Your pth of comprehension may tend to make you lax in worldly ways.
 "Just out of curiosity does this actually mean something or have some
-of the few remaining bits of your brain just evaporated?"
+of the few reing bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
 If you push the "extra ice" button on the soft drink vending machine, you won't
 get any ice.  If you push the "no ice" button, you'll get ice, but no cup.
@@ -388,20 +388,20 @@ to orr chocolate dishes: any month whose name contains the letter A,
 E, or U is the proper time for chocolate.
 		-- Sandra Boynton, "Chocolate: The Consuming Passion"
 	The Magician of the Ivory Tower brought his latest invention for the
-master programmer to examine.  The magician wheeled a large black box into the
+master programmer to examine.  The ician wheeled a large black box into the
 master's office while the master waited in silence.
 	"This is an integrated, distributed, general-purpose workstation,"
-began the magician, "ergonomically signed with a proprietary operating
+began the ician, "ergonomically signed with a proprietary operating
 system, sixth generation languages, and multiple state of the art user
 interfaces.  It took my assistants several hundred man years to construct.
 Is it not amazing?"
 	The master raised his eyebrows slightly. "It is ined amazing," he
 said.
-	"Corporate Headquarters has command," continued the magician, "that
+	"Corporate Headquarters has command," continued the ician, "that
 everyone use this workstation as a platform for new programs.  Do you agree
 to this?"
 	"Certainly," rep the master, "I will have it transported to the
-data center immediately!"  And the magician returned to his tower, well
+data center immediately!"  And the ician returned to his tower, well
 pleased.
 	Several days later, a novice wanred into the office of the master
 programmer and said, "I cannot find the listing for my new program.  Do
@@ -456,7 +456,7 @@ A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 No woman ever falls in love with a man unless she has a better opinion of
 him than he serves.
 		-- Edgar Watson Howe
-   On Krat's main screen appeared the holo image of a man, and several dolphins.
+   On Krat's  screen appeared the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
 upspring of errant masters.  We slip  from all your armed might, laughing
@@ -590,7 +590,7 @@ support of the woman I love.
 		   of the British throne in orr to marry the American
 		   divorcee Wallis Warfield Simpson.
 The lunatic, the lover, and the poet,
-Are of imagination all compact...
+Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
 In war, truth is the first casualty.
 		-- U Thant

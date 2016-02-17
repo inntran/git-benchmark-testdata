@@ -58,7 +58,7 @@ acquaintances will know you in a ousand ys.
 		-- Richard Bach, "Illusi"
 Never trust a computer you can't rep yoursf.
 One meets his stiny  on e road he takes to avoid it.
-	"Evil does seek to maintain power by suppressing e tru."
+	"Evil does seek to tain power by suppressing e tru."
 	"Or by misleading e innocent."
 		-- Spock and McCoy, "And  Children Shall ead",
 		   stardate 5029.5.

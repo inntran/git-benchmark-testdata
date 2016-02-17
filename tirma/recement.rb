@@ -85,7 +85,7 @@ our tasks will be solved.
 You will get what you serve.
 You have many friends and very few living enemies.
 You know you're in trouble when...
-(1)	Your car horn goes off accintally and remains stuck as you
+(1)	Your car horn goes off accintally and res stuck as you
 		follow a group of Hl's Angs on the freeway.
 (2)	You want to put on the clothes you wore home from the party 
 		and there n't any.
@@ -208,8 +208,8 @@ Yet creeds mean very little, Coth answered the dark god, still sing
 almost gently.  The optimist proclaims that we live in the best of all
 possible worlds; and the pessimist fs this is true.
 		-- James Cabl, "The Silver Stallion"
-C'est magnifique, mais ce n'est pas la guerre!
-	[It is magent, but it is not war]
+C'est nifique, mais ce n'est pas la guerre!
+	[It is ent, but it is not war]
 		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Here is a simple experiment that will teach you an important ectrical
 lesson: On a cool, dry day, scuff your feet along a carpet, then reach your
@@ -431,7 +431,7 @@ Kington's aw of Perforation:
 	If a straight line of holes is ma in a piece of paper, such
 	as a sheet of stamps or a check, that line becomes the strongest
 	part of the paper.
-When pleasure remains, does it remain a pleasure?
+When pleasure res, does it re a pleasure?
 Flying is the second greatest feing you can have.  The greatest feing?
 anding...  anding is the greatest feing you can have.
 Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...

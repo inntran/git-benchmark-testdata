@@ -299,7 +299,7 @@ bloody persei.
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of jets the carrier operates is immense.
-Your jet takes off without a hitch, pushing above the clouds, and at 20,000
+Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
 He's been like a father to me,
 He's the only DJ you can get after three,

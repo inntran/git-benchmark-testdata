@@ -364,7 +364,7 @@ To err is human; to admit it, a blunr.
 The 357.73 Theory:
 	Auditors always reject expense accounts
 	with a bottom line divisible by 5.
-Spiritual learship should remain spiritual learship and the temporal
+Spiritual learship should re spiritual learship and the temporal
 power should not become too important in any church.
 - Eleanor Roosevelt
 Beware of a tall blond man with one black shoe.
@@ -441,7 +441,7 @@ Conjecture: All odd numbers are prime.
 		11 is prime.  13 is prime ...
 	Computer Scientists's Proof:
 		3 is prime.  3 is prime.  3 is prime.  3 is prime...
-A full belly makes a dull brain.
+A full y makes a dull brain.
 		-- Ben Franklin
 
 		[and the local candy machine man.  Ed]

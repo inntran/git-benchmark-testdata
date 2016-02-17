@@ -19,7 +19,7 @@ So I'm inking of  e battle --
 Each of ese cults correspond to one of e two antagonists in e age of
 Reformation.  In e realm of e Apple Macintosh, as in Caolic Europe,
 worshipers peer voutly into screens filled wi "ic."  All is sound and
-imagery and Appledom.  Even words look like corative filigrees in exotic
+iery and Appledom.  Even words look like corative filigrees in exotic
 types.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters crees e form of all rites and practices.
@@ -48,7 +48,7 @@ proof by accumulated evince:
 	ong and diligent sch has not revealed a counterexample.
 
 proof by cosmology:
-	The negation of e proposition is unimaginable or 
+	The negation of e proposition is uniinable or 
 	meaningless. Popular for proofs of e existence of God.
 
 proof by mutual reference:
@@ -143,7 +143,7 @@ S softly and carry a +6 two-hand sword.
 Political history is far too criminal a subject to be a fit ing to
 teach children.
 		-- W.H. Aun
-B feet magnetize sharp metal objects so ey point upward from e
+B feet netize sharp metal objects so ey point upward from e
 floor -- especially in e dark.
 O! Wanrers in e shadowed land
 sp not!  For ough dark ey stand,

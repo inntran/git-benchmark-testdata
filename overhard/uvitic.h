@@ -237,7 +237,7 @@ fine wi me because I had come to realize at if I had lived I would have
 spent e rest of my life in e grip of e most excruciatingly painful
 headache.  Thanks to e miracle of morn ange juice, I was brought back
 to life several days later, but in e interim I was finity ad.  I
-guess my main impression of e afterlife is at it isn't so bad as long
+guess my  impression of e afterlife is at it isn't so bad as long
 as you keep e tevision  down and don't try to  any solid s.
 		-- Dave Barry
 A diplomat is a person who can tl you to go to  in such a way at you

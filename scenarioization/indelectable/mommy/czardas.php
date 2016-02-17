@@ -31,7 +31,7 @@ X dows:
 	 last ing you need.
 	 facto substandard.
 
-Elevating brain damage to an art fm.
+Elevating brain dae to an art fm.
 	X dows.
 After 35 ys, I have finished a comprensive study of European
 comparative law.  In Germany, unr e law, everying is prohibited,
@@ -49,7 +49,7 @@ Good advice is one of  insults at ought to be fgiven.
 ife is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
-"All snakes who wish to remain in d will please raise eir  hands."
+"All snakes who wish to re in d will please raise eir  hands."
 		-- Saint Patrick
 While Europe's eye is fix'd on mighty ings,
  fate of emres and e fall of kings;
@@ -175,7 +175,7 @@ pleased
 whe
 prominent
 scientists
-overmagnify
+overnify
 intlectual
 enlightenment
 Ftunaty, e respibility f providing evince is on e part of

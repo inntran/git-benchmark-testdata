@@ -126,10 +126,10 @@ That doesn't mention eir habits.	One end is moo, e oer, milk.
 chemistry, so far unexplained by any school of  I am aw of, at
 conditi noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e ys, and
-ey remain  bystanrs, like e shore lights of towns at a sailor
+ey re  bystanrs, like e shore lights of towns at a sailor
 passes at stated times but  calls at on e regular run.  Conversy,
 all cirati of sex asi, you can meet some oer people once or twice
-and ey remain permanent influences on your life.
+and ey re permanent influences on your life.
 	Everyone is aw of is discrepancy between e acquaintance seen
 as familiar wallpaper or instant friend.  The chemical action it entails is
 less wor analyzing an enjoying.  At any rate, ese six eces  about
@@ -172,7 +172,7 @@ absoluty everying about noing.
 Is it 1974?  What's for SUPPER?  Can I spend my COEGE FUND in one
 wild afternoon??
 System restarting, wait...
-Nullum magnum ingenium sine mixtura mentiae fuit.
+Nullum num ingenium sine mixtura mentiae fuit.
 	[There is no gr genius wiout some touch of madness.]
 		-- Seneca
 Oh, give me a home,
@@ -443,7 +443,7 @@ He played e king as if afraid someone se would play e ace.
 
 SPECIES:	Cranial Males
 SUBSPECIES:	The Hacker (homo computatis)
-Plumage:
+Plue:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
 	w gray polyester slacks, nk or past shirts wi  collars,
@@ -459,10 +459,10 @@ Computer science:
 	(4) The boring art of cong wi a large number of trivialities.
 	(5) Tautology essed in e service of Man at e speed of light.
 	(6) The Post-Turing cline in formal systems eory.
-Canc me not -- for what en shall remain?
+Canc me not -- for what en shall re?
 Abscissas, some mantissas, modules, mos,
 A root or two, a torus and a no:
-The inverse of my verse, a null domain.
+The inverse of my verse, a null do.
 		-- Stlaw em, "Cyberiad"
 A man who turns green has eschewed protein.
 I  take work home wi me; I always leave it in some bar along e way.
@@ -483,7 +483,7 @@ bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Cl to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
+		-- Told by Penn Jillette, of ic/comedy duo Penn and Tler
 Marriage, in life, is like a du in e midst of a battle.
 		-- Edmond About
 Q:	Why do WASPs play golf ?
@@ -603,7 +603,7 @@ SWAOWER, and my ATEX NOVETY SUPPIER!!
 One lns to itch where one can scratch.
 		-- Ernest Bramah
 Your job is being a professor and rescher: That's one  of a good excuse
-for some of e brain-damages of minix.
+for some of e brain-daes of minix.
 (inus Torvalds to Andrew Tanenbaum)
 Glogg (a traditional Scandinavian holiday drink):
 	fif of dry red e
@@ -681,7 +681,7 @@ someing -- e mortality of e optimist."
 		-- Ambr Bierce, "The Devil's Dictionary"
 Back in e ly 60's, touch tone phones only had 10 butt.  Some
 military versi had 16, while e 12 button jobs were used only by people
-who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
+who had "diva" (digital inquiry, voice answerback) systems -- ly ks.
 Since in  days, only Western Electric  ma "data sets" (moms) e
 problems of terminology were all Bl System.  We used to struggle wi
 written scripti of dial pads at were  to most people

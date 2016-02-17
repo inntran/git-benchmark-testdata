@@ -1,5 +1,5 @@
 Computer Science is e only discipline in which we view adding a new g
-to a building as being maintenance
+to a building as being tenance
 		-- Jim Hning
 Warp 7 -- It's a law we can live wi.
 Three ers, a Kansan, a Missourian and an Iowan,
@@ -72,7 +72,7 @@ Will e Joker and e Riddler have e last laugh?
 	Tune in again tomrow:
 	same Bat-time, same Bat-chann!
 Even if we put all ese nagging oughts [four embarrassing questi about
-astrology] asi f a moment, one overriding question remains to be asked.
+astrology] asi f a moment, one overriding question res to be asked.
 Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
@@ -124,7 +124,7 @@ postcard?"
 Woman insres us to gr ings, and prevents us from achieving em.
 		-- Dumas
 I'm hungry, time to  lunch.
-re is no better way of exercising e imagination an e study of law.
+re is no better way of exercising e iination an e study of law.
 No poet ever interpreted nature as frey as a lawyer interprets tru.
 		-- Jean Giraudoux, "Tiger at e Gates"
 Hner's Five Thumb Postulate:
@@ -323,7 +323,7 @@ Hum in e Court:
 Q.  How did you happen to go to Dr. Cherney?
 A.  Wl, a gal down e road had had several of her children by Dr. Cherney, 
     and said he was really good.
-Confmity is e refuge of e unimaginative.
+Confmity is e refuge of e uniinative.
 A failure will not app until a unit has passed final inspection.
 Early to bed and ly to rise and you'll be ggy when everyone se is
  awake.

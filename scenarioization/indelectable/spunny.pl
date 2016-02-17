@@ -128,9 +128,9 @@ doing it because turning a knob is fun, he's frobbing it.
 It were not best that we should all think alike; it is difference of opinion
 that makes horse-races.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Rattling around the back of my head is a disturbing image of something I
+Rattling around the back of my head is a disturbing ie of something I
 saw at the airport ... Now I'm remembering, th giant piles of computer
-magazines right next to "People" and "Time" in the airport store.  Does
+azines right next to "People" and "Time" in the airport store.  Does
 it bother anyone else that half the world is being told all of our hard-won
 secrets of computer technology?  Remember how all the lawyers  foul
 when "How to Avoid Probate" was published?  Are they taking no-fault
@@ -284,7 +284,7 @@ bassist is the late Barry Oakley of the Allman Brothers.  So Stevie
 Ray's thinking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just then, Kn Carpenter walks in, sits down at the drums, and says:
 "'Cl to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
+		-- Told by Penn Jillette, of ic/comedy duo Penn and Teller
 The husband who doesn't tell his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- eo J. Burke
@@ -312,7 +312,7 @@ the coat.
 anything for one of th Rolls-Royces," she said.
 	"Jeez, baby," the guy moaned, "you think I'm ma of bricks?"
 "Every group has a couple of experts.  And every group has at least one
-idiot.  Thus  balance and harmony (and discord) maintained.  It's
+idiot.  Thus  balance and harmony (and discord) tained.  It's
 sometimes hard to remember this in the bulk of the flamewars that all
 of the hassle and pain is generally caused by one or two highly-motivated,
 caustic twits."
@@ -330,7 +330,7 @@ kill me.  You're talking about the American way of survival of the fittest.
 		-- Ray Kroc, founr of McDonald's
 But like the Good Book says... There's BIGGER DEAS to come!
 Thank God a million billion times you live in Texas.
-Some people need a good imaginary cure for their painful imaginary ailment.
+Some people need a good iinary cure for their painful iinary ailment.
 Stellar rays prove fibbing  pays.  Embezzlement is another matter.
 A beautiful man is paradise for the eyes, hell for the soul, and
 purgatory for the purse. 

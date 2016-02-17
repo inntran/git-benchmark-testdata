@@ -1,7 +1,7 @@
 There  places I'll remember
 All my life though some have changed.
 Some forever not for better 
-Some have gone and some remain.
+Some have gone and some re.
 All these places had their moments
 With lovers and friends I still recall.
 Some  ad and some  living,
@@ -48,7 +48,7 @@ Bedflows make strange politicians.
 
 SPECIES:	Cranial Males
 SUBSPECIES:	The Hacker (homo computatis)
-Plumage:
+Plue:
 	All clothes have a slightly crumpled look as though they came off the
 	top of the laundry basket.  Style varies with status.  Hacker managers
 	w gray polyester slacks, pink or past shirts with  collars,

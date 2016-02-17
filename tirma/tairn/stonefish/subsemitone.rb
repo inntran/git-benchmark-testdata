@@ -127,7 +127,7 @@ Mi estas komputilisto.			I work with computers.
 Mi legas multe da scienca fikcio.	I read a lot of science fiction.
 ^Cu necesas ke vi eliras?		Do you really have to be going?
 Look into my eyes and try to forget that you have a Macy's charge card!
-Brain damage is all in your head.
+Brain dae is all in your head.
 -- Karl Lehenbauer
 You're working under a slight handicap.  You happen to be human.
 Hangover, n.:
@@ -200,7 +200,7 @@ The very pulse of the machine.
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
 	 referring to software interrupts.]
-The most happy marriage I can imagine to myself would be the union
+The most happy marriage I can iine to myself would be the union
 of a deaf man to a blind woman.
 		-- Samuel Taylor Coleridge
 'Naomi, sex at noon taxes.' I moan.
@@ -212,7 +212,7 @@ Sit on Otis.
 		-- The Mad Palindromist
 How much net work could a network work, if a network could net work?
 All my friends and I are crazy.  That's the only thing that keeps us sane.
-Reality is for people who lack imagination.
+Reality is for people who lack iination.
 "I have to convince you, or at least snow you ..."
 		-- Prof. Romas Aleliunas, CS 435
 				SEMINAR ANNOUNCEMENT
@@ -239,7 +239,7 @@ QOTD:
 Does a good farmer neglect a crop he has planted?
 Does a good teacher overlook even the most humble nt?
 Does a good father allow a single child to starve?
-Does a good programmer refuse to maintain his code?
+Does a good programmer refuse to tain his code?
 		-- Geoffrey James, "The Tao of Programming"
 "I'd love to go out with you, but I have to stay home and see if I snore."
 What scoundrel stole the cork from my lunch?
@@ -287,7 +287,7 @@ The first myth of management is that it exists.  The second myth of
 management is that success equals skill.
 		-- Robert Heller
 H. L. Mencken suffers from the hallucination that he is H. L. Mencken --
-there is no cure for a disease of that magnitude.
+there is no cure for a disease of that nitude.
 		-- Maxwell Bodenheim
 Labor, n.:
 	One of the processes by which A acquires property for B.
@@ -344,7 +344,7 @@ oxygen in 20% concentration.  It apparently contributes to a complex
 process called aging, of which very little is known, except that it is
 always fatal.
 
-However, the main disadvantage of the 20% oxygen concentration is in the
+However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
 sufficient to make oxygen addiction permanent.  After that, any
 considerable decrease in the daily oxygen doses results in death with
@@ -377,7 +377,7 @@ than they had been the first.  I gave them a lecture and told them to cancel
 the performance; they then said over the radio that i had insisted on their
 cancelling the performance because they were "insufficiently Zen."  
 Can you believe it?
--- composer John Cage, "Electronic Musician" magazine, March 88, pg. 89
+-- composer John Cage, "Electronic Musician" azine, March 88, pg. 89
 99 blocks of crud on the disk,
 99 blocks of crud!
 You patch a bug, and dump it again:
@@ -393,7 +393,7 @@ Practically perfect people never permit  to muddle their thinking.
 How's it going in those MODULAR LOVE UNITS??
 I accept chaos.  I am not sure whether it accepts me.  I know some people
 are terrified of the bomb.  But then some people are terrified to be seen
-carrying a modern screen magazine.  Experience teaches us that silence
+carrying a modern screen azine.  Experience teaches us that silence
 terrifies people the most.
 		-- Bob Dylan
 The justifications for drug testing are part of the presently fashionable

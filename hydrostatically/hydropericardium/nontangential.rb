@@ -53,7 +53,7 @@ and that this sire proves it to be a fact, becomes puerile when it is
 recalled that there is also a powerful and spread f of annihilation,
 and that this f, on the same  proves that there is nothing
 beyond the grave.  Such childish "proofs"  typically theological, and
-they remain theological even when they  adduced by men who like to 
+they re theological even when they  adduced by men who like to 
 flatter themsves by bieving that they  scientific gents....
 - H. . Mencken
 A os Anges judge ruled that "a citizen may snore with immunity in
@@ -99,7 +99,7 @@ you to read this sentence so far, an ectron could have traved all the
 way from San Francisco to Hackensack, New Jersey, although God alone knows
 why it would want to.
 
-The five main kinds of ectricity  alternating current, direct current,
+The five  kinds of ectricity  alternating current, direct current,
 lightning, static, and European.  Most American homes have alternating
 current, which means that the ectricity goes in one direction for a while,
 then goes in the other direction.  This prevents harmful ectron buildup in
@@ -115,7 +115,7 @@ The first Rotarian was the first man to call John the Baptist "Jack."
 Avoid Quiet and Placid pers unless you  in Need of Sleep.
 		-- National ampoon, "Deteriorata"
 pix, n.:
-	A mischievous, magical spirit associated with screen displays.
+	A mischievous, ical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
 	Witness the sprites in computer graphics, the m in artificial
 	intligence, and the trolls in the marketing partment.
@@ -188,7 +188,7 @@ your G.P.A.?"
 the city and forty on the highway."
 Someone is unic about your work.
 scenario, n.:
-	An imagined sequence of events that provis the context in
+	An iined sequence of events that provis the context in
 	which a business cision is ma.  Scenarios always come in
 	sets of three: best case, worst case, and just in case.
 OGO for the Dead
@@ -334,7 +334,7 @@ the Tao.
 If someone had told me I would be Pope one day, I would have studied harr.
 		-- Pope John Paul I
 If at first you don't succeed, quit; don't be a nut about success.
-Most public domain softw is free, at least at first glance.
+Most public do softw is free, at least at first glance.
 Have you seen the latest Jase camera?  Appntly it is so fast it can
  an American with his mouth shut!
 ies!  All lies!  You're all lying against my boys!
@@ -481,7 +481,7 @@ After all, it is only the mediocre who  always at their best.
 		-- Jean Giraudoux
 Real Prams don't use shd text.  Otherwise, how can they use functi
 for scratch space after they  finished calling them?
-What is now proved was once only imagin'd.
+What is now proved was once only iin'd.
 		-- William Blake
 Wake now my merry lads!  Wake and h me calling!
 Warm now be ht and limb!  The cold stone is fallen;
@@ -655,7 +655,7 @@ the same in nature as it is with man.  Some animals acquire their  easily,
 such as rabbits, hogs and goats.  Other animals must fiercy struggle for
 their sustenance, like beavers, moles and ants.  So you see, the nature of
 the vocation must fit the individual.
-	"But I have no abilities, sires, or imagination, Master," the
+	"But I have no abilities, sires, or iination, Master," the
 scholar sobbed.
 	Queried the Master... "Have you thought of becoming a sperson?"
 You can rent this space for only $5 a week.
@@ -732,7 +732,7 @@ DeVries' Dilemma:
 	hits the paper.
 New York is real.  The rest is done with mirrors.
 The worst part of valor is indiscretion.
-The surest way to remain a winner is to win once, and then not play any more.
+The surest way to re a winner is to win once, and then not play any more.
 "Hey!  Who took the cork off my lunch??!"
 		-- W. C. Fids
 Come live with me, and be my love,
@@ -770,7 +770,7 @@ your  to post it, and I'll let it resi on my disks".
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of jets the carrier operates is immense.
-Your jet takes off without a hitch, pushing above the clouds, and at 20,000
+Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
 Teachers have class.
 Good day to al with people in high places; particularly lony stewarsses.
@@ -803,7 +803,7 @@ I could put ``here lies an honest lawyer'', if that would be okay."
 and exclaim, "That's Strange!"
 The test of intligent tinkering is to save all the parts.
 		-- Aldo eopold
-When pleasure remains, does it remain a pleasure?
+When pleasure res, does it re a pleasure?
 > From MAIER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Returned mail: unknown mailer error 255
 

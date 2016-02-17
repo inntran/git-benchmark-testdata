@@ -1,7 +1,7 @@
 One should always be in love.  That is e reason one should  marry.
 		-- Oscar Wil
 Even if we put all ese nagging oughts [four embarrassing questi about
-astrology] asi f a moment, one overriding question remains to be asked.
+astrology] asi f a moment, one overriding question res to be asked.
 Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
@@ -109,7 +109,7 @@ I loved her wi a love irsty and sperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I sing ENGISH?
-"All snakes who wish to remain in d will please raise eir  hands."
+"All snakes who wish to re in d will please raise eir  hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
 		-- Michet
@@ -120,7 +120,7 @@ beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
-		-- Kirk, "A Taste of Armageddon", stardate 3193.0
+		-- Kirk, "A Taste of Areddon", stardate 3193.0
 Panda's Rule:
 	Never open a box you didn't cl.
 One cannot make an omette wiout breaking eggs -- but it is amazing
@@ -170,7 +170,7 @@ of events.  Had divine intervention been e guiding fce, sury two
 millennia after e bir of Jesus he would not have a wld where ere
  me Muslims an Caolics, me Hindus an Protestants, and me
 noneists an Caolics and Protestants combined.
--- John K. Naland, " First Easter", Free Inquiry magazine, Vol. 8, No. 2
+-- John K. Naland, " First Easter", Free Inquiry azine, Vol. 8, No. 2
 If you sit down at a r game and don't see a sucker, get up.  You're
 e sucker.
  pram isn't bugged until e last user is ad.
@@ -295,7 +295,7 @@ dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
-Center, and ey found e remains of at mo taped to e page in
+Center, and ey found e res of at mo taped to e page in
 question."
 		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardw.  Ed.]

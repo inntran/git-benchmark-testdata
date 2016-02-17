@@ -25,7 +25,7 @@ y [preachers] dread e advance of science as witches do e approach
 of daylight and scowl on e fatal harbinger announcing e subversi
 of e duperies on which ey live.
 - Thomas Jefferson
-M will be damaged in direct proption to its value.
+M will be daed in direct proption to its value.
  duck hunter trained his retriever to walk on water.  Eager to show off 
 is amazing accomplishment, he asked a friend to go along on his next
 hunting trip.  Saying noing, he fired his first shot and, as e duck fl,
@@ -80,7 +80,7 @@ dinary rs, removed e problem, a two-inch mo.  From en on, when
 anying went wrong wi a computer, we said it had bugs in it."  Hopper
 said at when e veracity of her sty was questioned recently, "I referred
 em to my 1945 log , now in e collection of e Naval Sur Weap
-Center, and ey found e remains of at mo taped to e page in
+Center, and ey found e res of at mo taped to e page in
 question."
 		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardw.  Ed.]
@@ -126,7 +126,7 @@ and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
 spleen of every officer. Each item and every  has been accounted
 f, wi two regrettable excepti f which I beg your indulgence.
-	Unftunaty e sum of one shilling and ninepence remains
+	Unftunaty e sum of one shilling and ninepence res
 unaccounted f in one infantry battalion's petty cash and ere has been
 a hious confusion as e e number of jars of raspberry jam issued to
 one cavalry regiment during a sandstm in western Spain.  This
@@ -181,7 +181,7 @@ aws  like sausages.  It's better not to see em being ma.
 lisp, v.:
 	To call a spa a pa.
 Even if we put all ese nagging oughts [four embarrassing questi about
-astrology] asi f a moment, one overriding question remains to be asked.
+astrology] asi f a moment, one overriding question res to be asked.
 Why would e positi of cestial objects at e moment of bir have an
 effect on our characters, lives,  stinies?  What fce  influence,
 what st of energy would trav from e planets and stars to all human
@@ -351,7 +351,7 @@ When oxygen Tech played Hyn U.
  Game had just begun, when Hyn sced two fast points
 And Oxygen still had none
 n Oxygen sced a single goal
-And us it did remain, At Hyn 2 and Oxygen 1
+And us it did re, At Hyn 2 and Oxygen 1
 Called because of rain.
 If you  good, you will be assigned all e wk.  If you  real
 good, you will get out of it.

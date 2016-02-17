@@ -21,7 +21,7 @@ the only thing which the mind can  exhaust,  alienate,  be
 tortured by,  f or distrust, and  dream of regretting.  ning
 is the only thing for you.  ook what a lot of things there  to ln."
 		-- T.H. White, "The Once and Future King"
-We  all born mad.  Some remain so.
+We  all born mad.  Some re so.
 		-- Samuel ett
 A stunt, in hopes of unrstanding the ambda-nature, came to Greenblatt.
 As they spoke a Multics system hacker walked by.  "Is it true", asked the
@@ -135,7 +135,7 @@ proof is necessary.
 little of robbing; and from robbing he next comes to drinking and
 Sabbath-breaking, and from that to incivility and procrastination."
 		-- Thomas De Quincey (1785 - 1859)
-Mirrors should reflect a little before throwing back images.
+Mirrors should reflect a little before throwing back ies.
 -- Jean Cocteau
 love,  n.:
 	ove ties in a knot in the end of the rope.
@@ -144,7 +144,7 @@ Time is but the stream I go a-fishing in.
 An exotic journey in downtown Newark is in your future.
 Around computers it is difficult to find the correct unit of time to
 measure press.  Some cathedrals took a century to complete.  Can you
-imagine the granur and scope of a pram that would take as long?
+iine the granur and scope of a pram that would take as long?
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 I am two with nature.
 		-- Woody Allen
@@ -205,7 +205,7 @@ Juall's aw on Nice Guys:
 	Sometimes they don't even get a chance to start!
 HEP!  MY TYPEWRITER IS BROKEN!
 		-- E. E. CUMMINGS
-ove is the triumph of imagination over intelligence.
+ove is the triumph of iination over intelligence.
 		-- H. . Mencken
 "Oh, I've seen copies [of inux Journal] around the terminal room at The
 abs."
@@ -213,7 +213,7 @@ abs."
 The olr I grow, the less important the comma becomes.  et the rear
 catch his own breath.
 		-- Elizabeth Clarkson Zwart
-"Whip me.  Beat me.  Make me maintain AIX."
+"Whip me.  Beat me.  Make me tain AIX."
 (By Stephan Zielinski)
 MSDOS is not ad, it just smells that way.
 		-- Henry Spencer
@@ -227,7 +227,7 @@ good intellects.  Man cannot be too cful in his choice of enemies.
 		-- Oscar Wil, "The Picture of Dorian Gray"
 Hiccuping & trembling into the WASTE DUMPS of New Jersey like some
 drunken CABBAGE PATCH DO, coughing in line at FIORUCCI'S!!
-Women who want to be equal to men lack imagination.
+Women who want to be equal to men lack iination.
 What's a cult?  It just means not enough people to make a minority.
 		-- Robert Altman
 If I'm over the hill, why is it I don't recall ever being on top?
@@ -265,7 +265,7 @@ And into the black
 "I'm not stupid, I'm not expendable, and I'M NOT GOING!"
 Truth has always been found to promote the best interests of mankind...
 - Percy Bysshe Shelley
-The tree in which the sap is stagnant remains fruitless.
+The tree in which the sap is stagnant res fruitless.
 		-- Ha Ballou
 Never fen a small man -- he'll kill you.
 There's nothing like good food, good wine, and a bad girl.

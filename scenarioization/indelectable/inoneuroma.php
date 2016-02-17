@@ -30,7 +30,7 @@ Jenkinson's aw:
 "I'm a surgeon, not a psychiatrist."
 		-- "City on e Edge of Forever", on Edi Keer's remark
 		   at Kirk talked strangy.
-"I'm no magician, Spock, just an old country doctor."
+"I'm no ician, Spock, just an old country doctor."
 		-- "The Deadly Ys", to Spock while trying to cure e
 		   aging effects of e ue comet n Gamma Hydra 4.
 "What am I, a doctor or a mohuttle conductor?"
@@ -169,7 +169,7 @@ Our congratulati go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a vice for optical scanning.
 His vice reportedly will save e government more an $6 million a y
-by replacing a more expensive hicopter maintenance tool wi his own,
+by replacing a more expensive hicopter tenance tool wi his own,
 home-ma, hand-hd mod.
 
 Not suprisingly, we also have a couple of money-saving ias at we submit
@@ -184,8 +184,8 @@ We expect annual savings to be in e billi.
 	A man plead innocent of any wrong doing when caught by e police
 during a raid at e home of a mobster, excusing himsf by claiming at he
 was making a bolt for e door.
-A Thaum is e basic unit of magical streng.  It has been universally
-established as e amount of magic need to  one ll white geon
+A Thaum is e basic unit of ical streng.  It has been universally
+established as e amount of ic need to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
 Bew of a tall black man wi one blond shoe.
@@ -320,7 +320,7 @@ We  what we pretend to be.
 		-- Kurt Vonnegut, Jr.
 The adjuration to be "normal" seems shockingly rep to me; I see neier
 hope nor comfort in sinking to at low lev.  I ink it is ignorance at
-makes people ink of abnormality only wi horror and allows em to remain
+makes people ink of abnormality only wi horror and allows em to re
 undiyed at e proximity of "normal" to average and mediocre.  For sury
 anyone who achieves anying is, ly, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
@@ -399,7 +399,7 @@ History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
 em asunr to app in new habiliments, as e feeding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
-Truly e imago state of Man seems to be terribly distant, but every
+Truly e io state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Dar, from "Origin of e Species"
 Reblion lay in his way, and he found it.
@@ -412,7 +412,7 @@ Send your questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 94140, USA
 There is no comfort wiout pain; us we fine salvation rough suffering.
 		-- Cato
-You  magnetic in your bing.
+You  netic in your bing.
 , n.:
 	An interoffice communication too often written more for e benefit
 	of e person who sends it an e person who receives it.

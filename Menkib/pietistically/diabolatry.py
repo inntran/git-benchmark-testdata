@@ -225,7 +225,7 @@ aren't on the *Officially Sanctioned Cyberpunk Reading List*.  Surely we
 don't (any of us) really believe that there is some big, ep political and
 philosophical message in all this, do we?  So if this `cyberpunk' thing is
 just a term of convenience, how can somebody sell out?  If cyberpunk is just a
-word we use to scribe a particular style and imagery in sf, how can it be
+word we use to scribe a particular style and iery in sf, how can it be
 ad?  Where are the profound statements that the `Movement' is or was trying
 to make?
 	I think most of us are interested in examining and discussing literary
@@ -240,7 +240,7 @@ among dwarfs.  Any one of its divisions could comprise an entire business.
 Why is this so?"
 	The master rep, "Why do you ask such foolish questions?  That
 company is large because it is so large.  If it only ma hardware, nobody
-would buy it.  If it only maintained systems, people would treat it like a
+would buy it.  If it only tained systems, people would treat it like a
 servant.  But because it combines all of these things, people think it one
 of the gods!  By not seeking to strive, it conquers without effort."
 		-- Geoffrey James, "The Tao of Programming"

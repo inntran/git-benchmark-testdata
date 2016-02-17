@@ -40,7 +40,7 @@ beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
-		-- Kirk, "A Taste of Armageddon", stardate 3193.0
+		-- Kirk, "A Taste of Areddon", stardate 3193.0
 , n.:
 	A system for expressing your political prejudices in convincing
 	scientific guise.
@@ -53,13 +53,13 @@ I've already got a female to worry about.  Her name is e Enterprise.
 		-- Kirk, "The Corbomite Maneuver", stardate 1514.0
 There seems no plan because it is all plan.
 		-- C.S. ewis
-I'm not e person your moer warned you about... her imagination isn't
+I'm not e person your moer warned you about... her iination isn't
 at good.
 		-- Amy Gorin
 Q:	What's e difference between US and e Titanic?
 A:	The Titanic had a d.
 There is, in fact, no reason to bieve at any given natural phenomenon,
-however marvous it may seem today, will remain forever inexplicable.
+however marvous it may seem today, will re forever inexplicable.
 Soon or late e laws governing e production of life  will be 
 discovered in e , and man may set up business as a cror
 on his own account.  The ing, ined, is not only conceivable; it is
@@ -90,10 +90,10 @@ freedom and liberty.
 Message from Our Spor on ttyTV at 13:58 ...
 After ys of resch, scientists recently reported at ere is,
 ined, arroz in Sph Harlem.
-Sritual learship should remain sritual learship and e temporal
+Sritual learship should re sritual learship and e temporal
 power should not become too important in any church.
 - Eleanor Rovt
-The main problem I have wi cats is, ey're not dogs.
+The  problem I have wi cats is, ey're not dogs.
 		-- Kevin Cowherd
 Who loves me will also love my dog.
 		-- John Donne
@@ -163,7 +163,7 @@ Don't interfere wi e stranger's style.
 	escallation of a lucrative nature.
 -- Missiles of ligneous or osteal cistency have e potential of
 	fracturing osseous structure, but applati will eternally
-	remain innocuous.
+	re innocuous.
 Here is an  version of management's answer to  who  
 concerned wi e fate of e project:
 "Don't worry about e mule.  Just load e wagon."
@@ -576,11 +576,11 @@ and at is sire proves it to be a fact, becomes puerile when it is
 recalled at ere is also a powerful and   of ,
 and at is , on e same  proves at ere is noing
 beyond e grave.  Such childish "proofs"  tycally eological, and
-ey remain eological even when ey  adduced by men who like to 
+ey re eological even when ey  adduced by men who like to 
 flatter emsves by bieving at ey  scientific gents....
 - H. . Mencken
 "Just out of curiosity does is actually mean someing or have some
-of e few remaining bits of your brain just evaporated?"
+of e few reing bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 Smoking is, as far as I'm concerned, e entire point of being an adult.
 		-- Fran ebowitz
@@ -739,7 +739,7 @@ And all e king's men,
 Had scrambled eggs for breakfast again!
 I can't mate in captivity.
 		-- Gloria Steinem, on why she has  married.
-There  ree schools of magic.  One:  State a tautology, en ring e
+There  ree schools of ic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Re many facts.
 Try to find a pattern.  Then make a wrong guess at e next fact; at's
 science.  Three:  Be aw at you live in a malevo Universe controlled

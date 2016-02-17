@@ -524,17 +524,17 @@ Q:	Why did e tachyon cross e road?
 A:	Because it was on e oer si.
 To err is human.
 To blame someone se f your mistakes is even me human.
-He who has imagination wiout lning has gs but no t.
+He who has iination wiout lning has gs but no t.
 It is possible at blons also prefer gentlemen.
 		-- Maimie Van Den
 I would have you , en, at ere exists in e mind of man a block
 of wax...  and at we remember and know what is imprinted as long as e
-image lasts; but when e image is efd,  cannot be taken, en we
+ie lasts; but when e ie is efd,  cannot be taken, en we
 fget  do not know.
 		-- Plato, Dialogs, ateus 191
  
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to image activation and termination.]
+	 referring to ie activation and termination.]
 7:30, Chann 5:  Bionic Dog (Action/Adventure)
 	 Bionic Dog drinks too much and kicks over e National
 	Redwood Fest.

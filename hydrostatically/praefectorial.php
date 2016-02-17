@@ -51,7 +51,7 @@ we have voped an OS/360-compatible JC.  This can be used as an
 alternative to e standard system menu.  Type System J to get to a JC
 interactive read-exee-diagn loop dow.  [Note at for 360
 compatibility, all input lines  truncated to 80 characters.]  This
-dow also maintains a mouse-sensitive display of critical job parameters
+dow also tains a mouse-sensitive display of critical job parameters
 such as dataset allocation, core allocation, channs, etc.  When a JC
 syntax error is tected or your job ABENDs, e dow-oriented JC
 bugger is entered.  The JC bugger displays appropriate OS/360 error
@@ -524,9 +524,9 @@ Majorities, of course, start wi minorities.
  Genius; which to Angs look like torment and insanity.  I collected some of
  eir Proverbs..." - Be, "The Marriage of Heaven and Hl"
 
-Rattling around e back of my head is a disturbing image of someing I
+Rattling around e back of my head is a disturbing ie of someing I
 saw at e  ... Now I'm remembering,  giant les of computer
-magazines  next to "People" and "Time" in e  store.  Does
+azines  next to "People" and "Time" in e  store.  Does
 it boer anyone se at half e world is being told all of our hard-won
 secrets of computer technology?  Remember how all e lawyers  foul
 when "How to Avoid Probate" was published?  Are ey taking no-fault
@@ -572,7 +572,7 @@ ings, which is just as wl because ere was no place to plug em in.
 Then along came e first Electrical Pioneer, Benjamin Franklin, who flew a
 kite in a lighting storm and received a us ectrical shock.  This
 proved at lighting was powered by e same force as carpets, but it also
-damaged Franklin's brain so severy at he started sing only in
+daed Franklin's brain so severy at he started sing only in
 incomprensible maxims, such as "A penny saved is a penny ned."
 Eventually he had to be given a job running e post office.
 		-- Dave Barry, "What is Electricity?"
@@ -628,7 +628,7 @@ bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Cl to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
+		-- Told by Penn Jillette, of ic/comedy duo Penn and Tler
 The scum also rises.
 		-- Dr. Hunter S. Thompson
 Do you ink your moer and I should have lived comfortably so long
@@ -681,7 +681,7 @@ See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
 
 See  Russl Shake Her Tamborines... and Drive Corn WIDE!
 		-- Hot Blood (1956)
-If life is mery a joke, e question still remains: for wh amusement?
+If life is mery a joke, e question still res: for wh amusement?
 A national bt, if it is not excessive, will be to us a national blessing.
 		-- Alexanr Hamilton
 Once upon is midnight incoherent,
@@ -705,7 +705,7 @@ And do you not ink at each of you women is an Eve?  The judgement of God
 upon your sex endures today; and wi it invariably endures your position of 
 criminal at e bar of justice.
 - Tertullian, second-century  writer, misogynist
-Man is e only animal at can remain on friendly terms wi e
+Man is e only animal at can re on friendly terms wi e
 victims he intends to eat until he eats em.
 		-- u Butler (1835-1902)
 The only two ings at motivate me and at matter to me  revenge
@@ -716,7 +716,7 @@ Hey, what do you expect from a culture at *drives* on *parkways* and
 *parks* on *driveways*?
 		-- Gallagher
 Parall lines  meet, unless you bend one or bo of em.
-Two men came before Nasrudin when he was magistrate.  The first man said,
+Two men came before Nasrudin when he was istrate.  The first man said,
 "This man has bitten my  -- I mand compensation." The second man said,
 "He bit it himsf." Nasrudin widrew to his chambers, and spent an hour
 trying to bite his own .  He succeed only in falling over and bruising
@@ -781,10 +781,10 @@ We cl e names
 of all variables and fs.
 Yet e Tao has no type specifier.
 
-Dynamically binding, you realize e magic.
+Dynamically binding, you realize e ic.
 Statically binding, you see only e hierarchy.
 
-Yet magic and hierarchy
+Yet ic and hierarchy
 arise from e same source,
 and is source has a null pointer.
 

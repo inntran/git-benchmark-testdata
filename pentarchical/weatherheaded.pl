@@ -46,7 +46,7 @@ was hard to find rabbits big enough or strong enough to punch you.
 "We live, in a very kooky time."
 -- Herb Blashtfalt
 You've been leading a dog's life.  Stay off the furniture.
-The surest way to remain a winner is to win once, and then not play any more.
+The surest way to re a winner is to win once, and then not play any more.
 "Don't hate me because I'm beautiful.  Hate me because I'm beautiful, smart 
 and rich."
 -- Calvin Keegan
@@ -80,7 +80,7 @@ the same in nature as it is with man.  Some animals acquire their food easily,
 such as rabbits, hogs and goats.  Other animals must fiercely struggle for
 their sustenance, like beavers, moles and ants.  So you see, the nature of
 the vocation must fit the individual.
-	"But I have no abilities, sires, or imagination, Master," the
+	"But I have no abilities, sires, or iination, Master," the
 scholar sobbed.
 	Queried the Master... "Have you thought of becoming a sperson?"
 Anything worth doing is worth overdoing.
@@ -161,7 +161,7 @@ I have a very good DENTAL PLAN.  Thank you.
 Never trust a child farther than you can throw it.
 Everyone was born right-hand.  Only the greatest overcome it.
 The lunatic, the lover, and the poet,
-Are of imagination all compact...
+Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
 CONGRATULATIONS!  Now should I make thinly veiled comments about
 DIGNITY, self-esteem and finding TRUE FUN in your RIGHT VENTRICLE??
@@ -295,7 +295,7 @@ Our congratulations go to a Burlington Vermont civilian employee of the
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a vice for optical scanning.
 His vice reportedly will save the government more than $6 million a year
-by replacing a more expensive helicopter maintenance tool with his own,
+by replacing a more expensive helicopter tenance tool with his own,
 home-ma, hand-held mol.
 
 Not suprisingly, we also have a couple of money-saving ias that we submit

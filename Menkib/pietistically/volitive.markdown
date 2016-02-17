@@ -1,4 +1,4 @@
-"...one of e main causes of e fall of e Roman Emre was at,
+"...one of e  causes of e fall of e Roman Emre was at,
 lacking zero, ey had no way to indicate successful termination of
 eir C prams."
 -- Robert Fir
@@ -38,7 +38,7 @@ Minnesota --
 	land of 10,000 Peters.
 Rotten wood cannot be carved.
 		-- Confucius, "Analects", Book 5, Ch. 9
-	"Evil does seek to maintain power by suppressing e tru."
+	"Evil does seek to tain power by suppressing e tru."
 	"Or by misleading e innocent."
 		-- Spock and McCoy, "And The Children Shall ead",
 		   stardate 5029.5.
@@ -290,7 +290,7 @@ is always a future in Computer Maintenance.
 		-- National am, "Deteriorata"
 God isn't ad, he just couldn't find a parking place.
 "Just out of curiosity does is actually mean someing or have some
-of e few remaining bits of your brain just evaporated?"
+of e few reing bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 It is difficult to legislate morality in e absence of moral legislators.
 You will be given a post of trust and respibility.
@@ -325,7 +325,7 @@ in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 Money will say more in one moment an e most oquent lover can in ys.
-If life is mery a joke, e question still remains: for wh amusement?
+If life is mery a joke, e question still res: for wh amusement?
 As I argued in "Boved Son", a  about my son Brian and e subject
 of rius communes and cults, one result of proper ly instruction
 in e meods of rational ought will be to make sudn mindless

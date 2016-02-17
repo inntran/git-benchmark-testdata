@@ -84,7 +84,7 @@ say in th awkward situati?  Worry no more...
 	Just beacuse.
 If love is the answer, could you rephrase the question?
 		-- ily Tomlin
-   On Krat's main screen apped the holo image of a man, and several dolphins.
+   On Krat's  screen apped the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tl it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
 upspring of errant masters.  We slip  from all your armed might, laughing
@@ -408,7 +408,7 @@ to sit still in a room.
 of Science seemed to offer much hope, it's time to go beyond them...
 	Drawing a few ep even breaths, he entered a mental state practiced
 only by Masters of the Universal Way of Zen.  In it his mind floated frey,
-able to rummage at will among the bits and pieces of data he had absorbed,
+able to rume at will among the bits and pieces of data he had absorbed,
 undistracted by any outsi disturbances.  ogical structures no longer
 inhibited him. Pre-concepti, prejudices, ordinary human standards vhed.
 All things, th previously trivial as wl as th once thought important,
@@ -536,7 +536,7 @@ sury not a manager			Even now, forty ys after,
 		-- Bart anier Safford III, "An Obscured Radiance"
 No one may kill a man.  Not for any purp.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
-Imagine that Cray computer cis to make a personal computer.  It has
+Iine that Cray computer cis to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
 storage, a screen resolution of 4096 x 4096 pixs, ries entiry on
 voice recognition for input, fits in your shirt pocket and costs $300.
@@ -587,7 +587,7 @@ Doubt is not a pleasant condition, but certainty is absurd.
 		-- Voltaire
 Overall, the philosophy is to attack the availability problem from two
 complementary directi:  to reduce the number of softw errors through
-rigorous testing of running systems, and to reduce the effect of the remaining
+rigorous testing of running systems, and to reduce the effect of the reing
 errors by providing for recovery from them.  An interesting footnote to this
 sign is that now a system failure can usually be cired to be the
 result of two pram errors:  the first, in the pram that started the

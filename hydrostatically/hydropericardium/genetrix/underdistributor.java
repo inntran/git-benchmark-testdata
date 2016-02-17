@@ -59,7 +59,7 @@ A lady is one who  shows her unrw unintentionally.
 A cultant is a person who borrows your watch, tls you what time it
 is, pockets the watch, and sends you a bill for it.
 Computer Science is the only discipline in which we view adding a new wing
-to a building as being maintenance
+to a building as being tenance
 		-- Jim Horning
 UH-OH!!  I put on "GREAT HEAD-ON TRAIN COISIONS of the 50's" by
 mistake!!!
@@ -198,7 +198,7 @@ But that three do.
 Wherever possible, put people on "HOD".
 Be comforted, that in the  of all aridity and disillusionment,
 And spite the changing fortunes of time,
-There is always a big future in computer maintenance.
+There is always a big future in computer tenance.
 
 	You  a fluke of the universe ...
 	You have no  to be here.
@@ -262,7 +262,7 @@ by the number of my breathings, of which there  15 in a minute.  They
  not counted mentally, but  punctuated by pressing with 15 fingers
 successivy.  The counting is reserved for the fidgets.  These observati
 should be confined to pers of middle age.  Children  rary still,
-while rly philosophers will sometimes remain rigid for minutes altogether.
+while rly philosophers will sometimes re rigid for minutes altogether.
 		-- Francis Galton, 1909
 QOTD:
 	I'm not a nerd -- I'm "socially challenged".
@@ -324,7 +324,7 @@ Corollary:
 "If John Madn steps outsi on February 2, looks down, and doesn't see his 
 feet, we'll have 6 more weeks of Pro football."
 -- Chuck Newcombe
-I've  been canoeing before, but I imagine there must be just a few
+I've  been canoeing before, but I iine there must be just a few
 simple heuristics you have to remember...
 
 Yes, don't fall out, and don't hit rocks.
@@ -660,7 +660,7 @@ You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
 A traving n was driving past a farm when he saw a pig with three
-woon legs exeing a magent series of backflips and cartwhes.
+woon legs exeing a ent series of backflips and cartwhes.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
 	"That's quite a pig you have there, sir" said the n. 
@@ -693,8 +693,8 @@ is that they've changed trumps from clubs to diamonds.
 		-- The Indianapolis Star
 "But officer, I was only trying to gain enough speed so I could coast
 to the nest gas station."
-C'est magnifique, mais ce n'est pas la guerre!
-	[It is magent, but it is not war]
+C'est nifique, mais ce n'est pas la guerre!
+	[It is ent, but it is not war]
 		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Chairman of the Bored.
 Any dramatic series the producers want us to take usly as a representation
@@ -751,7 +751,7 @@ You've got another pram due, tomorrow, by the way.
 A chicken is an egg's way of producing more eggs.
 innovate, v.:
 	To annoy people.
-Your respibility as a pnt is not as great as you might imagine.  You
+Your respibility as a pnt is not as great as you might iine.  You
 need not supply the world with the next or of disease or major motion
 picture star.  If your child simply grows up to be someone who does not use
 the word "collectible" as a noun, you can cir yoursf an unqualified
@@ -788,7 +788,7 @@ other people.
 "We came.  We saw.  We kicked its ass."
 --  , _Ghostbusters_
 I suggest you locate your hot tub outsi your house, so it won't do too
-much damage if it catches fire or expes.  First you ci which
+much dae if it catches fire or expes.  First you ci which
 direction your hot tub should  for maximum solar energy.  After much
 trial and error, I have found that the best direction for a hot tub to 
 is up.

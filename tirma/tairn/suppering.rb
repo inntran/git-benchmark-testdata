@@ -47,7 +47,7 @@ brought."
 
 The garbage collector now works.  In addition a new, experimental garbage 
 collection algorim has been installed.  Wi SI:%DSK-GC-QX-BITS set to 17,
-(NOT e fault) e old garbage collection algorim remains in force; when 
+(NOT e fault) e old garbage collection algorim res in force; when 
 virtual storage is filled, e machine cold boots .  Wi SI:%DSK-GC-
 QX-BITS set to 23, e new garbage collector is enabled.  Unlike most garbage
 collectors, e new gc starts its mark phase from e mind of e user, raer 
@@ -84,9 +84,9 @@ The Vet Who Surprised A Cow
 surgeon was required to treat an ailing cow.  To investigate its internal
 gases he inserted a tube into at end of e animal not capable of facial
 expression and struck a match.  The jet of flame set fire first to some
-bales of hay and en to e whole farm causing damage estimate at 45,000. 
+bales of hay and en to e whole farm causing dae estimate at 45,000. 
 The vet was later fined 140 for starting a fire in a manner surprising to
-e magistrates.  The cow escaped wi shock.
+e istrates.  The cow escaped wi shock.
 		-- Stephen Pile, "The Book of Heroic Failures"
 Save gas, don't eat beans.
 The test of intligent tinkering is to save all e parts.
@@ -98,7 +98,7 @@ An ia is not respible for e people who bieve in it.
 Penguin Trivia #46:
 	Animals who  not penguins can only wish ey were.
 		-- Chicago Rear 10/15/82
-Imagine at Cray computer cis to make a personal computer.  It has
+Iine at Cray computer cis to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
 storage, a screen resolution of 4096 x 4096 xs, ries entiry on
 voice recognition for input, fits in your shirt pocket and costs $300.
@@ -176,7 +176,7 @@ I have a simple philosophy:
 e mammals  taking over, and we all have a brain about e size of a 
 walnut."
 -- some dinosaurs from The Far Si, by Gary arson
-Matter will be damaged in direct proportion to its value.
+Matter will be daed in direct proportion to its value.
 Don't go surfing in Sou Dakota for a while.
 Don't talk to me about naval tradition.  It's noing but rum, sodomy and
 e lash.

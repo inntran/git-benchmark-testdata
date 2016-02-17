@@ -1,6 +1,6 @@
 Do you think that illiterate people get the full effect of alphabet soup?
 [A computer is] like an Old Testament god, with a lot of rules and no mercy.
-		-- Jph Campbell
+		-- Jph Camp
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and cirs just how many people know the real truth
 about his or her love affairs.
@@ -17,7 +17,7 @@ In the and of Mordor where the Shadows lie.
 Marigold:		Jealousy
 Mint:			Virute
 Orange blossom:		Your purity equals your loveliness
-Orchid:			Beauty, magence
+Orchid:			Beauty, ence
 Pansy:			Thoughts
 Peach blossom:		I am your captive
 Petunia:		Your presence soothes me
@@ -145,7 +145,7 @@ I am just a nice, clean-cut Mongolian boy.
 Be valiant, but not too venturous.
 et thy attire be comely, but not costly.
 		-- John yly
-When he got in trouble in the ring, [Ali] imagined a door swung open and
+When he got in trouble in the ring, [Ali] iined a door swung open and
 insi he could see neon, orange, and green lights blinking, and bats
 blowing trumpets and alligators blowing trombones, and he could h snakes
 screaming.  Weird masks and actors' clothes hung on the wall, and if he
@@ -325,7 +325,7 @@ oxygen in 20% concentration.  It appntly contributes to a complex
 process called aging, of which very little is known, except that it is
 always fatal.
 
-However, the main disadvantage of the 20% oxygen concentration is in the
+However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
 sufficient to make oxygen addiction permanent.  After that, any
 cirable crease in the daily oxygen ds results in ath with
@@ -420,7 +420,7 @@ fine with me because I had come to realize that if I had lived I would have
 spent the rest of my life in the grip of the most excruciatingly painful
 headache.  Thanks to the miracle of morn orange juice, I was brought back
 to life several days later, but in the interim I was finitely ad.  I
-guess my main impression of the afterlife is that it isn't so bad as long
+guess my  impression of the afterlife is that it isn't so bad as long
 as you keep the television turned down and don't try to eat any solid foods.
 		-- Dave Barry
 You know you  getting old when you think you should drive the speed limit.
@@ -431,7 +431,7 @@ to sit back and make the same old carbonated beverage.  It was a good
 beverage, no question about it; generati of people had grown up
 drinking it and doing the experiment in sixth gra where you put a
 nail into a glass of Coke and after a couple of days the nail dissolves
-and the teacher says: "Imagine what it does to your TEETH!"  So Coca-Cola
+and the teacher says: "Iine what it does to your TEETH!"  So Coca-Cola
 was solidly entrenched in the market, and the management saw no need to
 improve ...
 		-- Dave Barry, "In Sch of Excellence"
@@ -442,7 +442,7 @@ Mouthless mutters.
 No self-ma man ever did such a good job that some woman didn't
 want to make some alterati.
 		-- Kim Hubbard
-Fortunate is he for whom the belle toils.
+Fortunate is he for whom the e toils.
 This is the tomorrow you worried about yesterday.  And now you know why.
 You can  trust a woman; she may be true to you.
 Traffic signals in New York  just rough guilines.

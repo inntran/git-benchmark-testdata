@@ -43,7 +43,7 @@ Drop that !
 "The lawgiver, of all beings, most owes the law allegiance.
  He of all men should behave as though the law compelled him.
  But it is the universal weakness of mankind that what we 
- given to administer we presently imagine we own."
+ given to administer we presently iine we own."
 -- H.G. Wells
 F is the greatest sman.
 		-- Robert Klein
@@ -171,7 +171,7 @@ his sh in this fense  the ctiional rights secure."
 You can go anywhere you want if you look serious and carry a clipboard.
 You're either part of the solution or part of the problem.
 		-- Eldridge Cleaver
-Rebellion lay in his way, and he found it.
+Reion lay in his way, and he found it.
 		-- William Shakespe, "Henry IV"
 Politics, as a practice, whatever its professi, has always been the
 systematic organisation of hatreds.
@@ -229,7 +229,7 @@ outsi"
 What this country needs is a good five cent nickel.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
 chatting with pers who've  existed.  Such carryings-on in our peaceable
-jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
+jungle!  We've had quite enough of you owing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
@@ -253,7 +253,7 @@ As on the land while here the ocean gains,
 In other parts it leaves  sandy plains;
 Thus in the soul while memory prevails,
 The solid power of unrstanding fails;
-Where beams of warm imagination play,
+Where beams of warm iination play,
 The memory's soft figures melt .
 		-- Alexanr Pope (on runtime bounds checking?)
 Why, every one as they like; as the good woman said when she kissed her cow.
@@ -466,7 +466,7 @@ QOTD:
 	"Every morning I read the obituaries; if my name's not there,
 	I go to work."
 The universe does not have laws -- it has habits, and habits can be broken.
-What use is magic if it can't save a unicorn?
+What use is ic if it can't save a unicorn?
 		-- Peter S. Beagle, "The ast Unicorn"
 She stood on the tracks
 Waving her arms

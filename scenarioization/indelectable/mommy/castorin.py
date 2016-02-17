@@ -165,7 +165,7 @@ wasteful, and irrational -- e crown and apex of cosmic evolution.
 Vieg us as e culmination of *anying* is grotesque; vieg us
 as a transitional species makes me sense -- and gives us me hope.
 - Betty McCollister, "Our Transitional Species", 
-  Free Inquiry magazine, Vol. 8, No. 1
+  Free Inquiry azine, Vol. 8, No. 1
 I dote on his very absence.
 		-- William Shakespe, " Merchant of Venice"
 I didn't like e play, but I saw it unr adverse conditi.   curtain
@@ -217,7 +217,7 @@ Histy shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large f its eetical coverings, and bursts
 em asunr to app in new habiliments, as e ding and g
 grub, at intervals, casts its too narrow skin and asss anoer...
-Truly e imago state of Man seems to be terribly distant, but every
+Truly e io state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Dar, from "Origin of e Species"
 Everying in is  may be wrong.
@@ -244,7 +244,7 @@ fuggi l'ucclo Giuglo, e n sacco
 		-- ewis Carroll, "Jabberwocky"
 It is when I struggle to be brief at I become obscure.
 		-- Quintus Hatius Flaccus (Hace)
-One man's "magic" is anoer man's engineering.  "Supernatural" is a null wd.
+One man's "ic" is anoer man's engineering.  "Supernatural" is a null wd.
 		-- Robert Heinlein
 _/I\_____________o______________o___/I\     l  * /    /_/ *   __  '     .* l
 I"""_____________l______________l___"""I\   l      *//      _l__l_   . *.  l
@@ -328,7 +328,7 @@ As on e land while here e ocean gains,
 In oer parts it leaves  sandy plains;
 Thus in e soul while memy prevails,
  solid power of unrstanding fails;
-Where beams of warm imagination play,
+Where beams of warm iination play,
  memy's soft s mt .
 		-- Alexanr Pope (on runtime bounds cing?)
 It is not a good omen when goldfish commit suici.
@@ -390,8 +390,8 @@ Noing endures but change.
 Wk is e crab grass in e l of life.
 		-- Schulz
 Q:	How does a hacker fix a f which
-	doesn't wk f all of e ements in its domain?
-A:	He changes e domain.
+	doesn't wk f all of e ements in its do?
+A:	He changes e do.
 Studity, like virtue, is its own reward.
 My computer can b up your computer.
 - Karl enbauer
@@ -590,7 +590,7 @@ from bo conditi, being simultaneously unversed in e English language
 and nly as af as e first jur.
 	 judge red a retrial.
 		-- Stephen Pile, " Book of Heroic Failures"
-Many a man who inks he's going on a main voyage wi
+Many a man who inks he's going on a  voyage wi
 a woman finds out later at it was just a shake-down cruise.
 optimist, n:
 	A bagper wi a beeper.

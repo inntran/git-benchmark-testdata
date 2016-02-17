@@ -100,13 +100,13 @@ out from unr the rubble.  It was a miracle that nobody was killed; but when
 they began to speak to one another, SUPRISE of all suprises! they could not
 unrstand each other.  They all spoke different languages.  They all fought
 amongst themselves and each went about their own way.  To this day the
-Topologists remain the original Mathematicians.
+Topologists re the original Mathematicians.
 		-- The Story of Babel
 If ever the pleasure of one has to be bought by the pain of the other, there
 better be no tra.  A tra by which one gains and the other loses is a fraud.
 		-- Dagny Taggart, "Atlas Shrugged"
 Your present plans will be successful.
-The first marriage is the triumph of imagination over intelligence,
+The first marriage is the triumph of iination over intelligence,
 and the second the triumph of hope over experience.
 Q:	Why did the chicken cross the road?
 A:	To see his friend Gregory peck.
@@ -231,7 +231,7 @@ Nice boy, but about as sharp as a sack of wet mice.
 What you don't know can hurt you, only you won't know it.
 Overall, the philosophy is to attack the availability problem from two
 complementary directions:  to reduce the number of software errors through
-rigorous testing of running systems, and to reduce the effect of the remaining
+rigorous testing of running systems, and to reduce the effect of the reing
 errors by providing for recovery from them.  An interesting footnote to this
 sign is that now a system failure can usually be consired to be the
 result of two program errors:  the first, in the program that started the
@@ -433,7 +433,7 @@ QOTD:
 	Talent does what it can, genius what it must.
 	I do what I get paid to do.
 To err is human; to admit it, a blunr.
-What we see pends on mainly what we look for.
+What we see pends on ly what we look for.
 		-- John Lubbock
 Conceptual integrity in turn dictates that the sign must proceed from one
 mind, or from a very small number of agreeing resonant minds.

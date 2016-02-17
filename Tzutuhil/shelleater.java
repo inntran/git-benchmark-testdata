@@ -91,7 +91,7 @@ Eleventh aw of Acoustics:
 	of course, this all means jack when you listen to Pink Floyd.
 Chef, n.:
 	Any cook who sws in French.
-Imagination is more important than knowledge.
+Iination is more important than knowledge.
 		-- Albert Einstein
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
@@ -195,7 +195,7 @@ mundane to bother with.  "I'm flame proof" might (and has) become
 	Two.  If I  words off the beginning or end of a quote, I don't
 put lipses, but neither do I  something that wasn't d
 before the . "I don't think that the Church of Ubizmo is a wonrful
-place" would turn into "the Church of Ubizmo is a wonrful place".  Imagine
+place" would turn into "the Church of Ubizmo is a wonrful place".  Iine
 the posting as a tape-reing of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
 I don't put lipses in.  And by the way, I love using this mechm for
@@ -212,7 +212,7 @@ you're crazy.
 		-- Evyn E. Smith
 First study the enemy.  Seek weakness.
 		-- Romulan Commanr, "Balance of Terror", stardate 1709.2
-The only real argument for marriage is that it remains the best method
+The only real argument for marriage is that it res the best method
 for getting acquainted.
 		-- Heywood Broun
 For your penance, say five Hail Marys and one loud BAH!
@@ -223,7 +223,7 @@ For adult education nothing beats children.
 Association, in Rome]:
 
 The Ontopsychological school, availing itsf of new resch criteria and
-of a new tematic epistemology, maintains that social mos do not spring
+of a new tematic epistemology, tains that social mos do not spring
 from dialectics of territory or of class, or of cumer goods, or of means
 of power, but rather from dynamic latencies capillarized in milli of
 individuals in system functi which, once they have reached the event

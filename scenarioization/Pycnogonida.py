@@ -20,9 +20,9 @@ The traffic folk thought it a joke	The man spoke true, and thus to you
 (the wagon wheels just spun);		A warning from the ages;
 "They'll nay sell that," the foreman	Your stock will slip if you can't ship
 	spat,				What's in your brochure's pages.
-"Just leave the wild weeds grow;	See if it sells without the bells
+"Just leave the wild weeds grow;	See if it sells without the s
 "It's Druid-kind, over-signed,	And strings that ring and quiver;
-"And belly up they'll go."		Druid repute went down the chute
+"And y up they'll go."		Druid repute went down the chute
 					Because they couldn't liver.
 		-- Edward C. McManus, "The Computer at Stonehenge"
 Everybody but Sam had signed up for a new company pension plan that
@@ -44,7 +44,7 @@ Economics is extremely useful as a form of employment for economists.
 If God is One, what is bad?
 		-- Charles Manson
 -- Scintillate, scintillate, asteroid minikin.
--- Members of an avian species of intical plumage congregate.
+-- Members of an avian species of intical plue congregate.
 -- Surveillance should prece saltation.
 -- Pulchritu possesses solely cutaneous profundity.
 -- It is fruitless to become lachrym over precipitately parted
@@ -92,7 +92,7 @@ genuinely stupid, but she could no longer be bothered to argue about.
 You can drive a  to water, but a pencil must be lead.
 Never try to teach a pig to sing.  It wastes your time and annoys the pig.
 		-- azarus ong, "Time Enough for ove"
-"Whip me.  Beat me.  Make me maintain AIX."
+"Whip me.  Beat me.  Make me tain AIX."
 (By Stephan Zielinski)
 news: gotcha
 In this vale
@@ -194,7 +194,7 @@ often abstract  its essence.
 You can always tell the Christmas season is here when you start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
 make ial gifts because the Postal Service has been unable to find a way to
-damage them.  They last forever, largely because nobody ever eats them.  In
+dae them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next y; some fruitcakes have been passed back
 and forth for hundreds of ys.
@@ -439,7 +439,7 @@ Patience is the best remedy for every trouble.
 There  places I'll remember
 All my life though some have changed.
 Some forever not for better 
-Some have gone and some remain.
+Some have gone and some re.
 All these places had their moments
 With lovers and friends I still recall.
 Some  ad and some  living,
@@ -468,7 +468,7 @@ Many of our stunts have gone on to achieve great success in all fields of
 pramming.  One former stunt veloped the concept of the personalized
 form letter.  Does the phrase, "D Mr.(insert name), You may already be a
 winner!," sound familiar?  Another stunt writes "After only five less I
-sold a "My Most Unforgettable Pram" article to Corrosive Computing magazine.
+sold a "My Most Unforgettable Pram" article to Corrosive Computing azine.
 Another of our graduates writes, "I recently completed a database-management
 pram for my partment manager.  My pram touched him so eply that he
 was speechless.  He told me later that he had  seen such a pram in
@@ -499,7 +499,7 @@ watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and scribed the scene into his
 tape reer, he saw two gnus grazing peacefully. So preoccupied were
 they that they failed to observe the approach of a pri of li led
-by two magent specimens, obviously the lears. The li charged,
+by two ent specimens, obviously the lears. The li charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
@@ -558,7 +558,7 @@ media and found objects including old sofa-beds, used mace cters,
 discard sanitary napkins and parts of freeways.  The artist explores
 our humanization due to high technology and unrespive governmental
 structures in a post-industrial world.  She/he (the artist prefers to
-remain without genr) strives to create dialogue between viewer and
+re without genr) strives to create dialogue between viewer and
 creator, to aid us in our quest to experience contemporary life with its
 inner-city tensi, homelessness, global warming and genr and
 class-based stress.  The works  arranged to lead us to the essence of
@@ -670,7 +670,7 @@ one can ln."
 When we unrstand knowledge-based systems, it will be as before --
 except our fingertips will have been singed.
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
-B feet magnetize sharp metal objects so they point upward from the
+B feet netize sharp metal objects so they point upward from the
 floor -- especially in the dark.
 Never face facts; if you do you'll  get up in the morning.
 		-- Marlo Thomas
@@ -713,7 +713,7 @@ evince as they now exist in this country, no single assertion in the
 Bible has in its support any evince admissible in a court of law...
 
 But as res of courts of justice  admissible, it can easily be proved
-that powerful and malevolent magicians once existed and were a scourge to
+that powerful and malevolent icians once existed and were a scourge to
 mankind.  The evince (including confession) upon which certain women
 were convicted of witchcraft and executed was without a flaw; it is still
 unimpeachable.  The judges' cisi based on it were sound in logic and
@@ -941,7 +941,7 @@ The answer to the question of ife, the Universe, and Everything is...
 
 	Four day work week,
 	Two ply toilet paper!
-"The first rule of magic is simple.  Don't waste your time waving your
+"The first rule of ic is simple.  Don't waste your time waving your
 hands and hoping when a rock or a club will do."
 		-- McCloctnik the ucid
 Food for thought is no substie for the real thing.

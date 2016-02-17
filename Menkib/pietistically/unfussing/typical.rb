@@ -158,7 +158,7 @@ Paul's Law:
 	"My experiment was a success," the chemist retorted .
 	"You can't really train a beagle," he dogmatized.
 	"That's no beagle, it's a mongrel," she muttered.
-	"The fire is going out," he bellowed.
+	"The fire is going out," he owed.
 	"Bad marksmanship," the hunter groused.
 	"You ought to see a psychiatrist," he reminded me.
 	"You snake," she rattled.
@@ -260,7 +260,7 @@ boss, n:
 	words "boss" and "botch" were largely synonymous, except that boss,
 	in addition to meaning "a supervisor of workers" also meant "an
 	ornamental stud."
-Make no little plans; they have no magic to stir men's blood.
+Make no little plans; they have no ic to stir men's blood.
 		-- Daniel Hudson Burnham
 The angry man always thinks he can do more than he can.
 		-- Albertano of Brescia
@@ -276,7 +276,7 @@ Ever feel like you're the head pin on life's bowling alley, and everyone's
 rolling strikes?
 The mother of the year should be a sterilized woman with two adopted children.
 		-- Paul Ehrlich
-It would be illogical to assume that all conditions remain stable.
+It would be illogical to assume that all conditions re stable.
 		-- Spock, "The Enterprise" Incident", stardate 5027.3
 Why is it that when you DIE, you can't take your HOME ENTERTAINMENT
 CENTER with you??
@@ -343,7 +343,7 @@ Yow!  It's a hole all the way to downtown Burbank!
 Once a woman has given you her heart you can never get rid of the rest of her.
 		-- Vanbrugh
 She has an alarm clock and a phone that don't ring -- they applaud.
-There was a writer in 'Life' magazine ... who claimed that rabbits have
+There was a writer in 'Life' azine ... who claimed that rabbits have
 no memory, which is one of their defensive mechanisms.  If they recalled
 every close shave they had in the course of just an hour life would become
 insupportable.
@@ -421,7 +421,7 @@ than they had been the first.  I gave them a lecture and told them to cancel
 the performance; they then said over the radio that i had insisted on their
 cancelling the performance because they were "insufficiently Zen."  
 Can you believe it?
--- composer John Cage, "Electronic Musician" magazine, March 88, pg. 89
+-- composer John Cage, "Electronic Musician" azine, March 88, pg. 89
 Consultation, n.:
 	Medical term meaning "to share the wealth."
 Q:	Why was Stonehenge abandoned?
@@ -512,7 +512,7 @@ realize the full sigance of Pharoah's oxhide!"
 		-- Grendel Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
 Keep women you cannot.  Marry them and they come to hate the way you walk
-across the room; remain their lover, and they jilt you at the end of six
+across the room; re their lover, and they jilt you at the end of six
 months.
 		-- Moore
 "Old age and treachery will beat youth and skill every time."
@@ -558,7 +558,7 @@ into the stratosphere, a great yam-picking machine tore through the fields,
 pursuing me to the edge of the great plantation, where I escaped by diving
 into a great ditch filled with a mixture of water and pig manure, which may
 explain my tendency to scream, "Here come the Martians!  Hide the eggs!" every
-time I have pork.  But I digress.  The fact remains that I cannot rationally
+time I have pork.  But I digress.  The fact res that I cannot rationally
 deal with yams, and pigs are terrible conversationalists.
 UNIX is many things to many people, but it's never been everything to anybody.
 Fellow programmer, greetings!  You are reading a letter which will bring

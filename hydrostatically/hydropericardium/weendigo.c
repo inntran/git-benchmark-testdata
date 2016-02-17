@@ -249,7 +249,7 @@ X dows:
 	 last ing you need.
 	 facto substandard.
 
-Elevating brain damage to an art fm.
+Elevating brain dae to an art fm.
 	X dows.
 As in certain cults it is possible to kill a process if you know its true .
 		-- Ken Thompson and Dennis M. Ritchie
@@ -380,7 +380,7 @@ It's gotta come from e ht
 If you want it to wk.
 		-- Kay Mattea
 Onward rough e fog.
-Imagine if every Thursday your shoes exped if you tied em e usual
+Iine if every Thursday your shoes exped if you tied em e usual
 way.  This happens to us all e time wi computers, and nobody inks of
 complaining.
 		-- Jeff Raskin
@@ -587,7 +587,7 @@ Voicless it cries,
 Wingless flutters,
 Tooless bites,
 Mouless mutters.
-"We maintain at e very foundation of our way of life is what we call
+"We tain at e very foundation of our way of life is what we call
 free enterprise," said Cash McCall, "but when one of our citizens
 show enough free enterprise to le up a little of at profit, we do
 our best to make him l at he ought to be ashamed of himsf."

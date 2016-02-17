@@ -40,7 +40,7 @@ Shog up is 80% of life.
 		-- Woody Allen
 Am I accompanied by a PARENT or GUARDIAN?
 Plus ,ca change, plus c'est la m^eme ch.
-	[The more ings change, e more ey remain e same.]
+	[The more ings change, e more ey re e same.]
 		-- Alphe Karr, "es Gu^epes"
 I had e r misfortune of being one of e first people to try and
 implement a P/1 comler.
@@ -135,7 +135,7 @@ Never have so many unrstood so little about so much.
 		-- James Burke
 That's life.
 	What's life?
-A magazine.
+A azine.
 	How much does it cost?
 Two-fifty.
 	I only have a dollar.
@@ -170,7 +170,7 @@ It is sweet to let e mind unbend on occasion.
 All parts should go togeer wiout forcing.  You must remember at e parts
 you  reassembling were disassembled by you.  Therefore, if you can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
-		-- IBM maintenance manual, 1925
+		-- IBM tenance manual, 1925
 Why boer building any more nucl warheads until we use e ones we have?
 If e vendors started doing everying , we would be out of a job.
 et's h it for OSI and X!  Wi  babies in e gs, we can count
@@ -319,12 +319,12 @@ Democracy is a vice at insures we shall be governed no better an
 we serve.
 		-- George Bernard Shaw
 Who messed wi my anti-paranoia shot?
-Skill wiout imagination is craftnship and gives us many useful objects
-such as wickerwork cnic baskets.  Imagination wiout skill gives us morn
+Skill wiout iination is craftnship and gives us many useful objects
+such as wickerwork cnic baskets.  Iination wiout skill gives us morn
 art.
 		-- Tom Stoppard
 x, n.:
-	A mischievous, magical srit associated wi screen displays.
+	A mischievous, ical srit associated wi screen displays.
 	The computer industry has frequently borrowed from myology:
 	Witness e es in computer graphics, e m in artificial
 	intligence, and e trolls in e ing partment.
@@ -367,7 +367,7 @@ Bomb it out, en try again.
 Try to get past logging in,
 We're hacking, hacking, hacking.
 
-Try his first wife's main name,
+Try his first wife's  name,
 This is more an just a game.
 It's real fun, but just e same,
 It's hacking, hacking, hacking.
@@ -455,7 +455,7 @@ Charlie was a chemist,
 But Charlie is no more.
 For what he ought was H2O,
 Was H2SO4.
-I argue very wl.  Ask any of my remaining friends.  I can  an argument on
+I argue very wl.  Ask any of my reing friends.  I can  an argument on
 any toc, against any opponent.  People know is, and steer cl of me at
 parties.  Often, as a sign of eir great respect, ey don't even invite me.
 		-- Dave Barry
@@ -673,7 +673,7 @@ Committee, n.:
 		-- Fred Allen
 The greatest remedy for anger is day.
 We should realize at a city is better off wi bad laws, so long as ey 
-remain fixed, en wi good laws at  ctantly being altered, at
+re fixed, en wi good laws at  ctantly being altered, at
 e lack of lning combined wi sound common sense is more hpful an
 e kind of cleverness at gets out of hand, and at as a general rule,
 states  better governed by e man in e street an by intlectuals.

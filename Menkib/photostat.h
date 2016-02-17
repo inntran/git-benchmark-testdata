@@ -126,7 +126,7 @@ No bird soars too high if he soars with his own wings.
 		-- William Blake
 Call on God, but row  from the rocks.
 		-- Indian proverb
-It would be illogical to assume that all conditions remain stable.
+It would be illogical to assume that all conditions re stable.
 		-- Spock, "The Enterprise" Incint", stardate 5027.3
 Politicians  the same all over.  They promise to build a bridge even
 where there is no river.

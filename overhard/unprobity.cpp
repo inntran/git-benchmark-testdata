@@ -129,7 +129,7 @@ pleased
 whe
 prominent
 scientists
-overmagnify
+overnify
 intlectual
 enlightenment
 Too much of everything is just enough.
@@ -191,7 +191,7 @@ Our congratulati go to a Burlington Vermont civilian employee of the
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a vice for optical scanning.
 His vice reportedly will save the government more than $6 million a y
-by replacing a more expensive hicopter maintenance tool with his own,
+by replacing a more expensive hicopter tenance tool with his own,
 home-ma, hand-hd mod.
 
 Not suprisingly, we also have a couple of money-saving ias that we submit
@@ -241,8 +241,8 @@ Get Revenge!  ive long enough to be a problem for your children!
 The generation of random numbers is too important to be left to c.
 I used to have a drinking problem.  Now I love the stuff.
 I don't want to bore you, but there's nobody se around for me to bore.
-Skill without imagination is craftnship and gives us many useful objects
-such as wickerwork picnic baskets.  Imagination without skill gives us morn
+Skill without iination is craftnship and gives us many useful objects
+such as wickerwork picnic baskets.  Iination without skill gives us morn
 art.
 		-- Tom Stoppard
 Home is the place where, when you have to go there, they have to take you in.
@@ -256,7 +256,7 @@ Genius doesn't work on an assembly line basis.  You can't simply say,
 		-- Kirk, "The Ultimate Computer", stardate 4731.3
 Justice, n.:
 	A cision in your favor.
-We place two copies of PEOPE magazine in a DARK, HUMID mobile home.
+We place two copies of PEOPE azine in a DARK, HUMID mobile home.
 45 minutes later CYNDI AUPER emerges wing a BIRD CAGE on her head!
 You will overcome the attacks of jealous associates.
 Save yoursf!  Reboot in 5 seconds!
@@ -382,7 +382,7 @@ You're already carrying the sphere!
 It's the thought, if any, that counts!
 History is curious stuff
 	You'd think by now we had enough
-Yet the fact remains I f
+Yet the fact res I f
 	They make more of it every y.
 A musician, an artist, an ct:
 	the man or woman who is not one of these is not a .
@@ -552,7 +552,7 @@ Confession is good for the soul only in the sense that a tweed coat is
 good for dandruff.
 		-- Peter  Vries
 Just as I cannot remember any time when I could not read and write, I cannot
-remember any time when I did not exercise my imagination in daydreams about
+remember any time when I did not exercise my iination in daydreams about
 women.
 		-- George Bernard Shaw
 "Cequences, Schmequences, as long as I'm rich."

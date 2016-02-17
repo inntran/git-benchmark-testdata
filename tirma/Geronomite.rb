@@ -122,7 +122,7 @@ Alea iacta est.
 	[The die is cast]
 		-- Gaius Julius Caesar
 A sense of humor keen enough to show a man his own absurdities will keep
-him from the commission of all sins, or nearly all, save those that are
+him from the  of all sins, or nearly all, save those that are
 worth committing.
 		-- Samuel Butler
 Whoever tells a lie cannot be pure in heart -- and only the pure in heart
@@ -165,11 +165,11 @@ Show me a good sportsman and I'll show you a player I'm looking to tra.
 ***** Special AI Seminar (abstract)
 
 It has been wily recognized that AI programs require expert knowledge 
-in orr to perform well in complex domains.  But knowledge alone is not
+in orr to perform well in complex dos.  But knowledge alone is not
 sufficient for some applications; wisdom is need as well.  Accordingly, 
 we have veloped a new approach to artificial intelligence which we call 
 "wisdom engineering".  As a test of our ias, we have written IMMANUEL, a 
-wisdom based system for the task domain of western philosophical thought.  
+wisdom based system for the task do of western philosophical thought.  
 IMMANUEL was supp initially with 200 wisdom units which contained wisdom 
 about such elementary concepts as mind, matter, being, nothingness, and so 
 forth.  IMMANUEL was then allowed to run freely, guid by the heuristic 

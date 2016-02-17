@@ -397,7 +397,7 @@ sophisticated is -- being tired.
 Windows Airlines:
 The terminal is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of Learjets the carrier operates is immense.
-Your jet takes off without a hitch, pushing above the clouds, and at 20,000
+Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explodes without warning.
 Have the courage to take your own thoughts seriously, for they will shape you.
 		-- Albert Einstein
@@ -460,7 +460,7 @@ In an age when the fashion is to be in love with yourself, confessing to
 be in love with somebody else is an admission of unfaithfulness to one's
 beloved.
 		-- Russell Baker
-   On Krat's main screen appeared the holo image of a man, and several dolphins.
+   On Krat's  screen appeared the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their leader.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
 upspring of errant masters.  We slip  from all your armed might, laughing
@@ -487,7 +487,7 @@ toilet seat.
 Health nuts are going to feel stupid someday, lying in hospitals dying
 of nothing.
 		-- Redd Foxx
-There are three schools of magic.  One:  State a tautology, then ring the
+There are three schools of ic.  One:  State a tautology, then ring the
 changes on its corollaries; that's philosophy.  Two:  Record many facts.
 Try to find a pattern.  Then make a wrong guess at the next fact; that's
 science.  Three:  Be aware that you live in a malevolent Universe controlled
@@ -661,7 +661,7 @@ You can go anywhere you want if you look serious and carry a clipboard.
 (6)	Men employees will be given time off each week for courting
 	purposes, or two evenings a week if they go regularly to church.
 (7)	After an employee has spent his thirteen hours of labor in the
-	office, he should spend the remaining time reading the Bible
+	office, he should spend the reing time reading the Bible
 	and other good books.
 (8)	Every employee should lay aside from each pay packet a goodly
 	sum of his earnings for his benefit during his declining years,
@@ -866,8 +866,8 @@ there were no winners, just men doing what men must do. [...]
 	There was a look of terrible sadness in her eyes.  She knew about the
 woman of the tollway.  I knew not how.  I started to speak, but she raised an
 arm and spoke with a quiet and peace I will never forget.
-	"I do not ask for whom's the tollway belle," she said, "the tollway
-belle's for thee."
+	"I do not ask for whom's the tollway e," she said, "the tollway
+e's for thee."
 	The next morning our youth was a memory, and our happiness was a lie.
 Life is like a bad margarita with good tequila, I thought as I poured whiskey
 onto my granola and faced a new day.

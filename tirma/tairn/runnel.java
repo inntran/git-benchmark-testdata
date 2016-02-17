@@ -50,7 +50,7 @@ All I ask is a chance to prove that money can't make me happy.
 QOTD:
 	"If I'm what I eat, I'm a chocolate chip cookie."
 mathematician, n.:
-	Some one who believes imaginary things appear right before your _i's.
+	Some one who believes iinary things appear right before your _i's.
 When a woman marries again it is because she tested her first husband.
 When a man marries again, it is because he adored his first wife.
 		-- Oscar Wil
@@ -68,8 +68,8 @@ standards of their own.  When IBM recently abandoned some of its original
 standards and creed new ones, many of its rivals cld a puritan
 allegiance to IBM's original faith, and nounced the company as a divisive
 innovator.  Still, the IBM world is united by its distrust of icons and
-imagery.  IBM's screens  signed for language, not pictures.  Graven
-images may be tolerated by the luxurious cults, but the true IBM faith relies
+iery.  IBM's screens  signed for language, not pictures.  Graven
+ies may be tolerated by the luxurious cults, but the true IBM faith relies
 on the austerity of the word.
 		-- Edward Menlson, "The New Republic", February 22, 1988
 Actor			Real Name
@@ -140,7 +140,7 @@ Rules for Good Grammar #4.
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
 Los Angeles.  Disregard personal feelings about city and intercept."
 -- The Firesign Theatre movie, _J-Men Forever_
-One man's "magic" is another man's engineering.  "Supernatural" is a null word.
+One man's "ic" is another man's engineering.  "Supernatural" is a null word.
 		-- Robert Heinlein
 I love children.  Especially when they cry -- for then someone takes them .
 		-- Nancy Mitford
@@ -159,8 +159,8 @@ standards of their own.  When IBM recently abandoned some of its original
 standards and creed new ones, many of its rivals cld a puritan
 allegiance to IBM's original faith, and nounced the company as a divisive
 innovator.  Still, the IBM world is united by its distrust of icons and
-imagery.  IBM's screens  signed for language, not pictures.  Graven
-images may be tolerated by the luxurious cults, but the true IBM faith relies
+iery.  IBM's screens  signed for language, not pictures.  Graven
+ies may be tolerated by the luxurious cults, but the true IBM faith relies
 on the austerity of the word.
 		-- Edward Menlson, "The New Republic", February 22, 1988
 There's just something I don't like about Virginia; the state.
@@ -205,7 +205,7 @@ and all manner of sundry items for which His Majesty's Government holds
 me accountable. I have dispatched reports on the character, wit, and
 spleen of every officer. Each item and every farthing has been accounted
 for, with two regrettable exceptions for which I beg your indulgence.
-	Unfortunately the sum of one shilling and ninepence remains
+	Unfortunately the sum of one shilling and ninepence res
 unaccounted for in one infantry battalion's petty cash and there has been
 a hious confusion as the the number of jars of raspberry jam issued to
 one cavalry regiment during a sandstorm in western Spain.  This
@@ -237,7 +237,7 @@ It has been justly observed by sages of all lands that although a man may be
 most happily married and continue in that state with the utmost contentment,
 it does not necessarily follow that he has therefore been struck stone-blind.
 		-- H. Warner Munn
-The first marriage is the triumph of imagination over intelligence,
+The first marriage is the triumph of iination over intelligence,
 and the second the triumph of hope over experience.
 Why won't sharks eat lawyers?   Professional courtesy.
 Judges, as a class, display, in the matter of arranging alimony, that
@@ -262,9 +262,9 @@ The Vet Who Surprised A Cow
 surgeon was required to treat an ailing cow.  To investigate its internal
 gases he inserted a tube into that end of the animal not capable of facial
 expression and struck a match.  The jet of flame set fire first to some
-bales of hay and then to the whole farm causing damage estimate at L45,000. 
+bales of hay and then to the whole farm causing dae estimate at L45,000. 
 The vet was later fined L140 for starting a fire in a manner surprising to
-the magistrates.  The cow escaped with shock.
+the istrates.  The cow escaped with shock.
 		-- Stephen Pile, "The Book of Heroic Failures"
 It is better to  have tried anything than to have tried something and
 failed.
@@ -349,7 +349,7 @@ Would ye both eat your cake and have your cake?
 		-- John Heywood
 You're not an alcoholic unless you go to the meetings.
 panic: kernel segmentation violation. core dumped		(only kidding)
-Imagine if every Thursday your shoes explod if you tied them the usual
+Iine if every Thursday your shoes explod if you tied them the usual
 way.  This happens to us all the time with computers, and nobody thinks of
 complaining.
 		-- Jeff Raskin

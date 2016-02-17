@@ -52,7 +52,7 @@ things, which is just as well because there was no place to plug them in.
 Then along came the first Electrical Pioneer, Benjamin Franklin, who flew a
 kite in a lighting storm and received a serious electrical shock.  This
 proved that lighting was powered by the same force as carpets, but it also
-damaged Franklin's brain so severely that he started speaking only in
+daed Franklin's brain so severely that he started speaking only in
 incomprehensible maxims, such as "A penny saved is a penny earned."
 Eventually he had to be given a job running the post office.
 		-- Dave Barry, "What is Electricity?"

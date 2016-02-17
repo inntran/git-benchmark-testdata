@@ -78,7 +78,7 @@ And miles around e wonr grew
 	How wl did I bave.
 
 And now e fancy passes by,
-	And noing will remain,
+	And noing will re,
 And miles around ey'll say at I
 	Am quite mysf again.
 		-- A. E. Houn
@@ -250,9 +250,9 @@ A comment on schedules:
    F each unknown hardw vice add two m.
    F each 100 miles between voper and installation add one mon.
    F each type of communication chann add one mon.
-   If an IBM mainframe shop is involved and you  wking on a non-IBM
+   If an IBM frame shop is involved and you  wking on a non-IBM
       system add 6 m.
-   If an IBM mainframe shop is involved and you  wking on an IBM
+   If an IBM frame shop is involved and you  wking on an IBM
       system add 9 m.
 Round up to e nest half-y.
 --Brad Sherman
@@ -332,7 +332,7 @@ beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
-		-- Kirk, "A Taste of Armageddon", stardate 3193.0
+		-- Kirk, "A Taste of Areddon", stardate 3193.0
 You've been leading a dog's life.  Stay off e furniture.
 > > Oer an e fact inux has a cool , could someone explain why I
 > > should use inux over BSD?

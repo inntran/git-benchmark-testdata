@@ -126,7 +126,7 @@ I'd OVE to, but...
 		d Basil Metabolism.
 	-- re  imptant wld issues at need wrying about.
 	-- I'm going to count e bristles in my toobrush.
-	-- I prefer to remain an enigma.
+	-- I prefer to re an enigma.
 	-- I ink you want e OTHER Peggy/Cay/Mike/whomever.
 	-- I l a song coming on.
 Man who arrives at party two hours late will find he has been ben
@@ -238,7 +238,7 @@ target -- in less time, and wi less efft.  All f $795. It's inevitable.
 If you're going up against some guy wi an Osbne 1 --  any personal 
 computer -- he's e one who's in trouble.  One round from an Uzi can zip
 rough ten inches of solid ne wood, so you can  what it will do
-to structural foam acrylic and sheet aluminum.  In fact, tachable magazines 
+to structural foam acrylic and sheet aluminum.  In fact, tachable azines 
 f e Uzi  available in 25-, 32-, and 40-round capacities, so you can 
 take out an entire office full of Apple II  IBM Personal Computers tied
 into Eernet  oer local-a netwks.  What about e new 16-bit
@@ -315,7 +315,7 @@ Humility is e first of e virtues -- f oer people.
 Wiout facts, e cision cannot be ma logically.  You must ry on
 your human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown
-Imagine what we can !
+Iine what we can !
 		--  Rubinstein
  English have no respect f eir language, and will not teach
 eir children to s it.

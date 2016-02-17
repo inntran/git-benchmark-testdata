@@ -43,7 +43,7 @@ This wasn't just plain terrible, this was fancy terrible.  This was terrible
 with raisins in it.
 		-- Dorothy Parker
 "Just out of curiosity does this actually mean something or have some
-of the few remaining bits of your brain just evaporated?"
+of the few reing bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 Advertising may be scribed as the science of arresting the human
 intelligence long enough to get money from it.
@@ -142,7 +142,7 @@ at yourself and you will unrstand everyone else.  How would Seldon have
 worked out his Plan -- and I don't c how subtle his mathematics was --
 if he didn't unrstand people; and how could he have done that if people
 weren't easy to unrstand?  You show me someone who can't unrstand
-people and I'll show you someone who has built up a false image of himself
+people and I'll show you someone who has built up a false ie of himself
 -- no offense intend."
 		-- Asimov, "Foundation's Edge"
 Joshu:	What is the true Way?

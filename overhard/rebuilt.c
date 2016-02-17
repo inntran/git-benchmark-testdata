@@ -120,7 +120,7 @@ e mous of people who have had to live.
 master.  
 	In Paris during 1924 he was ben after only four moves by a
 Mieur azard.  Haply f posterity, e moves  recd and so
-chess enusiasts may rectruct is magent colse in e comft
+chess enusiasts may rectruct is ent colse in e comft
 of eir own homes.
 	azard was black and Gibaud white:
 	1: P-Q4, Kt-KB3
@@ -143,7 +143,7 @@ Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
 broad-mindness, n:
 	 result of flattening high-mindness out.
 "Every group has a couple of exs.  And every group has at least one idiot.
- Thus  ba and harmony (and discd) maintained.  It's sometimes hard
+ Thus  ba and harmony (and discd) tained.  It's sometimes hard
  to remember is in e bulk of e flamewars at all of e hassle and
  pain is generally caused by one  two highly-motivated, caustic twits."
 -- Chuq Von Rospach, chuq@apple.com, about Usenet

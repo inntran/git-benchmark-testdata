@@ -36,7 +36,7 @@ Were it not for the presence of the unwashed and the half-educated, the
 formless, queer and incomplete, the unreasonable and absurd, the infinite
 shapes of the lightful human tadpole, the horizon would not wear so 
 a grin.
-		-- F.M. Colby, "Imaginary Obligations"
+		-- F.M. Colby, "Iinary Obligations"
 A healthy male adult bore consumes each year one and a half times his own
 weight in other people's patience.
 		-- John Updike
@@ -156,7 +156,7 @@ Yearn only to sink into sleep.
 
 And my soul, unguard,
 Would soar on spread wings,
-To live in night's magical sphere
+To live in night's ical sphere
 More profoundly, more variously.
 		-- Hermann Hesse, "Going to Sleep"
 YOU PICKED KARL MALDEN'S NOSE!!
@@ -202,7 +202,7 @@ You have taken yourself too seriously.
 I have  seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
-Steve Jobs said two years ago that X is brain-damaged and it will be
+Steve Jobs said two years ago that X is brain-daed and it will be
 gone in two years.  He was half right.
 		-- Dennis Ritchie
 
@@ -411,7 +411,7 @@ town gossip.
 Lavoris in the toilet."
 		-- Jay Leno
 Plus ,ca change, plus c'est la m^eme ch.
-	[The more things change, the more they remain the same.]
+	[The more things change, the more they re the same.]
 		-- Alphonse Karr, "Les Gu^epes"
 Vermouth always makes me brilliant unless it makes me idiotic.
 		-- E.F. Benson
@@ -449,7 +449,7 @@ media and found objects including old sofa-beds, used mace canisters,
 discard sanitary napkins and parts of freeways.  The artist explores
 our humanization due to high technology and unresponsive governmental
 structures in a post-industrial world.  She/he (the artist prefers to
-remain without genr) strives to create dialogue between viewer and
+re without genr) strives to create dialogue between viewer and
 creator, to aid us in our quest to experience contemporary life with its
 inner-city tensions, homelessness, global warming and genr and
 class-based stress.  The works  arranged to lead us to the essence of
@@ -463,7 +463,7 @@ Testing can show the presense of bugs, but not their absence.
 Any sufficiently advanced technology is indistinguishable from a rigged mo.
 Vulcans  bluff.
 		-- Spock, "The Doomsday Machine", stardate 4202.1
-There  certain things men must do to remain men.
+There  certain things men must do to re men.
 		-- Kirk, "The Ultimate Computer", stardate 4929.4
 Better by far you should forget and smile than that you should remember
 and be sad.
@@ -530,7 +530,7 @@ that will last, at least until they've finished building it.
 
 The garbage collector now works.  In addition a new, experimental garbage 
 collection algorithm has been installed.  With SI:%DSK-GC-QLX-BITS set to 17,
-(NOT the fault) the old garbage collection algorithm remains in force; when 
+(NOT the fault) the old garbage collection algorithm res in force; when 
 virtual storage is filled, the machine cold boots itself.  With SI:%DSK-GC-
 QLX-BITS set to 23, the new garbage collector is enabled.  Unlike most garbage
 collectors, the new gc starts its mark phase from the mind of the user, rather 
@@ -547,7 +547,7 @@ People's Action Rules:
 	(5) Some people who shouldn't, but try, will then blame others.
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
-Yow!  I'm imagining a surfer van filled with soy sauce!
+Yow!  I'm iining a surfer van filled with soy sauce!
 Even bytes get lonely for a little bit.
 Mike:	"The Fourth Dimension is a shambles?"
 Bernie:	"Nobody ever empties the ashtrays.  People  SO inconsirate."

@@ -70,7 +70,7 @@ Forgive and forget.
 Nasrudin returned to his village from the imperial capital, and the villagers
 gathered around to h what had passed.  "At this time," said Nasrudin, "I
 only want to say that the King spoke to me."  All the villagers but the
-stupist ran off to spread the wonrful news.  The remaining villager
+stupist ran off to spread the wonrful news.  The reing villager
 asked, "What did the King say to you?"  "What he said -- and quite distinctly,
 for everyone to h -- was 'Get out of my way!'" The simpleton was overjoyed;
 he had hd words actually spoken by the King, and seen the very man they

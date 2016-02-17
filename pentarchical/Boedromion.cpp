@@ -131,7 +131,7 @@ Coming togeer is a beginning;
 		working togeer is success.
 If you can read is, you're too cl.
 My oni may have changed, but not e fact at I am .
-Men's magazines  fure ctures of naked ladies.  Women's magazines
+Men's azines  fure ctures of naked ladies.  Women's azines
 also  fure ctures of naked ladies.  This is because e female
 body is a beautiful work of art, while e male body is hy and lumpy and
 should not be seen by e light of day.
@@ -203,7 +203,7 @@ and mushroom.  Jim, come and get me!
 		-- R.W. Hamming
 In  to succeed in any enterprise, one must be persistent and patient.
 Even if one has to run some risks, one must be brave and strong enough to
-meet and overcome vexing challenges to maintain a successful business in
+meet and overcome vexing challenges to tain a successful business in
 e long run.  I cannot hp saying at Americans lack is necessary 
 challenging srit today.
 - Hajime Karatsu
@@ -236,7 +236,7 @@ bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Cl to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
+		-- Told by Penn Jillette, of ic/comedy duo Penn and Tler
 A cer is gr, but you can't run your fingers rough its h.
 You  a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven ys.  One of its dshid wipers is broken, and
@@ -271,7 +271,7 @@ seemed dirty, ough a cl glance showed him as cfully shaven as an
 -- H.. Mencken, on e dh of William Jennings Bryan
 District of Columbia trians who leap over passing autos to escape
 injury, and en strike e car as ey come down,  liable for any
-damage inflicted on e vicle.
+dae inflicted on e vicle.
 ... The prejudices people fe about each oer disapp when en get
 to know each oer.
 		-- Kirk, "Elaan of Troyius", stardate 4372.5

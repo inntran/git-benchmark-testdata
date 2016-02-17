@@ -75,7 +75,7 @@ Real Time, adj.:
 Rotten wood cannot be carved.
 		-- Confucius, "Analects", Book 5, Ch. 9
 I know you're in search of yourself, I just haven't seen you anywhere.
-Imagination is the one weapon in the war against reality.
+Iination is the one weapon in the war against reality.
 		-- Jules de Gaultier
 I had no shoes and I pitied myself.  Then I met a man who had no feet,
 so I took his shoes.
@@ -163,7 +163,7 @@ to the Berkeley UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 We are not a loved organization, but we are a respected one.
 		-- John Fisher
-"The first rule of magic is simple.  Don't waste your time waving your
+"The first rule of ic is simple.  Don't waste your time waving your
 hands and hoping when a rock or a club will do."
 		-- McCloctnik the Lucid
 Life is like a tin of sardines.  We're, all of us, looking for the key.
@@ -347,7 +347,7 @@ by the number of my breathings, of which there are 15 in a minute.  They
 are not counted mentally, but are punctuated by pressing with 15 fingers
 successively.  The counting is reserved for the fidgets.  These observations
 should be confined to persons of middle age.  Children are rarely still,
-while elderly philosophers will sometimes remain rigid for minutes altogether.
+while elderly philosophers will sometimes re rigid for minutes altogether.
 		-- Francis Galton, 1909
 Real software engineers don't like the idea of some inexplicable and
 greasy hardware several aisles  that may stop working at any
@@ -526,7 +526,7 @@ this address correctly.  Comply with above instructions carefully and
 completely or you may be disqualified from receiving your prize.
 If you do not think about the future, you cannot have one.
 		-- John Galsworthy
-Awash with unfocused desire, Everett twisted the lobe of his one remaining
+Awash with unfocused desire, Everett twisted the lobe of his one reing
 ear and felt the presence of somebody else behind him, which caused terror
 to push through his nervous system like a flash flood roaring down the
 mid-fork of the Feather River before the completion of the Oroville Dam

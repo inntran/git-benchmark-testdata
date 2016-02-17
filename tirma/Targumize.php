@@ -16,7 +16,7 @@ There's such a thing as too much point on a pencil.
 Was there a time when dancers with their fiddles
 In children's circuses could stay their troubles?
 There was a time they could cry over books,
-But time has set its maggot on their track.
+But time has set its got on their track.
 Unr the arc of the sky they  unsafe.
 What's  known is safest in this life.
 Unr the skysigns they who have no arms
@@ -27,7 +27,7 @@ paranoia, n.:
 	A healthy unrstanding of the way the universe works.
 I have an existential map.  It has "You  here" written all over it.
 		-- Steven W
-Conformity is the refuge of the unimaginative.
+Conformity is the refuge of the uniinative.
 question = ( to ) ? be : ! be;
 		-- Wm. Shakespe
 Having a baby isn't so bad.  If you're a female Emperor penguin in the
@@ -148,8 +148,8 @@ Finagle's Tenth aw:
 Finagle's Eleventh aw:
 	No matter what occurs, someone believes it happened acing to
 	his pet theory.
-A Thaum is the basic unit of magical strength.  It has been universally
-established as the amount of magic need to create one small white pigeon
+A Thaum is the basic unit of ical strength.  It has been universally
+established as the amount of ic need to create one small white pigeon
 or three normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
 Its name is Public Opinion.  It is held in reverence.  It settles everything.
@@ -224,7 +224,7 @@ telling the Airline Pilots Association (in jest) about 21st century aircraft:
 	nurture and feed the dog.  The dog will be there to bite the
 	pilot if he touches anything.
 		-- Fortune, Sept. 26, 1988
-		   [the *magazine*, silly!]
+		   [the *azine*, silly!]
 Owe no man any thing...
 Universities  places of knowledge.  The man each bring a little
 		-- Romans 13:8
@@ -260,7 +260,7 @@ He's ad, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
 You will be imprisoned for contributing your time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
-and soluti we can imagine is very cl.  For this reason restricting
+and soluti we can iine is very cl.  For this reason restricting
 language features with the intent of eliminating prammer errors is at best
 dangerous.
 		-- Bjarne Stroustrup
@@ -292,7 +292,7 @@ ife is like an egg stain on your chin -- you can lick it, but it still
 won't go .
 I accept chaos.  I am not sure whether it accepts me.  I know some people
  terrified of the bomb.  But then some people  terrified to be seen
-carrying a morn screen magazine.  Experience teaches us that silence
+carrying a morn screen azine.  Experience teaches us that silence
 terrifies people the most.
 		-- Bob Dylan
 QOTD:
@@ -331,7 +331,7 @@ undreamed of by its author.
 "ive or die, I'll make a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
 Computer Science is the only discipline in which we view adding a new wing
-to a building as being maintenance
+to a building as being tenance
 		-- Jim Horning
 What you don't know won't help you much either.
 		-- D. Bennett
@@ -516,7 +516,7 @@ A manly man, to be a wizard able;
 Many a protected file he had sitting on his table.
 His cole, when he typed, a man might h
 Clicking and feeping wind as cl,
-Aye, and as loud as does the machine room bell
+Aye, and as loud as does the machine room 
 Where my lord Hacker was Prior of the cell.
 The Rule of good St Sa or St Doeppnor
 As old and strict he tend to ignore;

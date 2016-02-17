@@ -62,7 +62,7 @@ To grok what apps on e screen,	No matter e load,
 					To write  routines
 To  e unable bug,		Wiout question or pause,
 To endlessly twiddle and rash,	To be willing to hack FORTRAN IV
-To mount e unmountable magtape,	For a heavenly cause.
+To mount e unmountable tape,	For a heavenly cause.
 To stop e unstoppable crash!		And I know if I'll only be true
 					To is glorious quest,
 And e  will be better for is,	That my co will run CUSPy and calm,
@@ -183,7 +183,7 @@ Tiger got to sleep,
 Bird got to land;
 Man got to tl himsf he unrstand.
 		-- The Books of Bokonon
-If e American dream is for Americans only, it will remain our dream
+If e American dream is for Americans only, it will re our dream
 and  be our stiny.
 		-- Ren'e  Visme Williamson
 I come from a ll town wh population  changed.  Each time a woman
@@ -198,7 +198,7 @@ struggles to discover cheaper alternatives, we need your hp. Please...
 Follow ese simple suggesti:
 
 (1)  Walk wi a light step.  Carry hium ballo if possible.
-(2)  Use tape, magnets, or glue instead of paperweights.
+(2)  Use tape, nets, or glue instead of paperweights.
 (3)  Give up skiing and skydiving for more horizontal sports like curling.
 (4)  Avoid showers .. take bas instead.
 (5)  Don't hang all your cloes in e clt ... Keep em in one big le.

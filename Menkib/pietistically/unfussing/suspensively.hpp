@@ -52,7 +52,7 @@ Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand ys.
 		-- Richard Bach, "Illusi"
 This is the tomorrow you worried about yesterday.  And now you know why.
-Imagine if every Thursday your shoes explod if you tied them the usual
+Iine if every Thursday your shoes explod if you tied them the usual
 way.  This happens to us all the time with computers, and nobody thinks of
 complaining.
 		-- Jeff Raskin
@@ -374,7 +374,7 @@ forms that have been tried from time to time.
 of others, and all positive assertion of my own.  I even forba myself the use
 of every word or expression in the language that imported a fixed opinion, such
 as "", "undoubtedly", etc.   I adopted instead of them "I conceive",
-"I apprehend", or "I imagine" a thing to be so or so; or "so it apps to me
+"I apprehend", or "I iine" a thing to be so or so; or "so it apps to me
 at present".
 	When another asserted something that I thought an error, I nied
 myself the pleasure of contradicting him abruptly, and of showing him

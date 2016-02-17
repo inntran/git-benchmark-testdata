@@ -4,7 +4,7 @@ yoursf down wi invisible chains.
 Most people can't unrstand how oers can blow eir ns differently
 an ey do.
 		-- Turgenev
-Men's magazines  fure ctures of naked ladies.  Women's magazines
+Men's azines  fure ctures of naked ladies.  Women's azines
 also  fure ctures of naked ladies.  This is because e female
 body is a beautiful work of art, while e male body is hy and lumpy and
 should not be seen by e light of day.
@@ -78,7 +78,7 @@ pleased
 whe
 prominent
 scientists
-overmagnify
+overnify
 intlectual
 enlightenment
 Hacker's Quicky #313:
@@ -320,7 +320,7 @@ day c twve hours a day, eier.
 You will live a long, healy, happy life and make bags of money.
 A mind is a wonrful ing to waste.
 Your job is being a professor and rescher: That's one  of a good excuse
-for some of e brain-damages of minix.
+for some of e brain-daes of minix.
 (inus Torvalds to Andrew Tanenbaum)
 Charm is a way of getting e answer "Yes" -- wiout having asked any
 cl question.
@@ -524,7 +524,7 @@ FORCE YOURSEF TO REAX!
 Majorities, of course, start wi minorities.
 		-- Robert Ms
 H. . Mencken suffers from e hallucination at he is H. . Mencken --
-ere is no cure for a disease of at magnitu.
+ere is no cure for a disease of at nitu.
 		-- Maxwl Bonheim
 He was part of my dream, of course -- but en I was part of his dream too.
 		-- ewis Carroll

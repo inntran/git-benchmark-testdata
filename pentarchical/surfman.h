@@ -81,7 +81,7 @@ will be temparily canced.
 Go , I'm all .
 		-- H.G. Wls' last wds.
 If you  what you , does at mean Eul Gibb really was a nut?
- surest way to remain a ner is to  once, and en not play any me.
+ surest way to re a ner is to  once, and en not play any me.
 Go ahead, catalize e T on technology, ify it if it will make you l
 less respible -- but it puts you in wi e neutered, broer, in wi
 e eunuchs keeng e hm of our stolen Ear f e numb and joyless
@@ -190,7 +190,7 @@ not know how to make emsves attractive.
 One way to make your old car run better is to look up e price of a new mod.
 ... I have read e INSTRUCTIONS ...
 re is, in fact, no reason to bieve at any given natural phenomenon,
-however marvous it may seem today, will remain fever inexplicable.
+however marvous it may seem today, will re fever inexplicable.
 Soon  late e laws governing e production of life  will be 
 discovered in e lty, and man may set up business as a cr
 on his own account.   ing, ined, is not only conceivable; it is
@@ -250,7 +250,7 @@ times.  In e eight preceding ys she had received two hundred and
 twve driving less at a cost of 300.  She set e new recd while
 driving triumphantly rough a set of red traffic lights in Wakefid,
 Ykshire.  ppointingly, she passed at e ftie attempt (3 August
-1970) but eight ys later she showed some of her old magic when she was
+1970) but eight ys later she showed some of her old ic when she was
 repted as saying at she still didn't like doing -hand turns.
 		-- Stephen Pile, " Book of Heroic Failures"
  grest love is a moer's, en a dog's, en a sweet's.
@@ -269,7 +269,7 @@ at is not being talked about.
 All parts should go togeer wiout fcing.  You must remember at e parts
 you  reassembling were disassembled by you.  refe, if you can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
-		-- IBM maintenance manual, 1925
+		-- IBM tenance manual, 1925
  only person who always got his wk done by Friday was Robinson Crusoe.
 Men n't attracted to me by my mind.  y're attracted by what I
 don't mind...
@@ -505,8 +505,8 @@ Ask not f whom e Bl tolls, and you will pay only e station-to-station
 rate.
 		-- Howard Kand
 Q:	How does a hacker fix a f which
-	doesn't wk f all of e ements in its domain?
-A:	He changes e domain.
+	doesn't wk f all of e ements in its do?
+A:	He changes e do.
 I have discovered at all human evil comes from is, man's being unable
 to sit still in a room.
 		-- Blaise Pascal

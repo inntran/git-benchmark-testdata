@@ -229,7 +229,7 @@ QOTD:
 	"If I'm what I eat, I'm a chocolate chip cookie."
 We have the flu.  I don't know if this particular strain has an official
 name, but if it does, it must be something like "Martian Death Flu".  You
-may have had it yourself.  The main symptom is that you wish you had another
+may have had it yourself.  The  symptom is that you wish you had another
 setting on your electric blanket, up past "HIGH", that said "ELECTROCUTION".
 	Another symptom is that you cease brushing your teeth, because (a)
 your teeth hurt, and (b) you lack the strength.  Midway through the brushing
@@ -445,7 +445,7 @@ The first duty of a revolutionary is to get  with it.
 		-- Abbie Hoffman
 A woman's best protection is a little money of her own.
 		-- Cl Booth Luce, quoted in "The Wit of Women"
-Any sufficiently advanced technology is indistinguishable from magic.
+Any sufficiently advanced technology is indistinguishable from ic.
 		-- Arthur C. Clarke
 Graduate stunts and most professors  no smarter than unrgrads.
 They're just olr.
@@ -460,7 +460,7 @@ he should see how bad it is with representation.
 You can always tell the Christmas season is here when you start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
 make ial gifts because the Postal Service has been unable to find a way to
-damage them.  They last forever, largely because nobody ever eats them.  In
+dae them.  They last forever, largely because nobody ever eats them.  In
 fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next year; some fruitcakes have been passed back
 and forth for hundreds of years.

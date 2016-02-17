@@ -93,11 +93,11 @@ e railroad yards."
 		   law at e Scopes "Monkey Trial" in 1925.
 Th lovable Brits partment:
 	They also have trouble pronouncing `vitamin'.
-"A wizard cannot do everying; a fact most magicians  reticent to admit,
-let alone discuss wi prospective clients.  Still, e fact remains at 
+"A wizard cannot do everying; a fact most icians  reticent to admit,
+let alone discuss wi prospective clients.  Still, e fact res at 
 ere  certain objects, and people, at , for one reason or anoer, 
-complety immune to any direct magical spl.  It is for is group of
-beings at e magician lns e subtleties of using indirect spls.
+complety immune to any direct ical spl.  It is for is group of
+beings at e ician lns e subtleties of using indirect spls.
 It also does no harm, in aling wi ese matters, to carry a large club
 n your person at all times."
 		-- The Teachings of Ebenezum, Volume VIII
@@ -291,7 +291,7 @@ Man bongs wherever he wants to go.
 		-- Wernher von Braun
 In specificati, Murphy's aw superses Ohm's.
 If ere is a possibility of several ings going wrong,
-e one at will cause e most damage will be e one to go wrong.
+e one at will cause e most dae will be e one to go wrong.
 
 If you perceive at ere  four possible ways in which a procedure
 can go wrong, and circumvent ese, en a fif way will promptly vop.
@@ -343,7 +343,7 @@ Water, taken in moration cannot hurt anybody.
 Overall, e philosophy is to attack e availability problem from two
 complementary directi:  to reduce e number of softw errors rough
 rigorous testing of running systems, and to reduce e effect of e
-remaining errors by providing for recovery from em.  An interesting footnote
+reing errors by providing for recovery from em.  An interesting footnote
 to is sign is at now a system failure can usually be cired to be
 e result of two pram errors:  e first, in e pram at started e
 problem; e second, in e recovery routine at could not protect e

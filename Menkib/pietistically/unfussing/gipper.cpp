@@ -79,7 +79,7 @@ real fast and freak everybody out.
 "If value crupts en absolute value crupts absoluty."
 DON'T go!!  I'm not HOWARD COSE!!  I know POISH JOKES ... WAIT!!
 Don't go!!  I AM Howard Cosl! ... And I DON'T know Polish jokes!!
-"Only a brain-damaged operating system would suppt task switching and not
+"Only a brain-daed operating system would suppt task switching and not
 make e simple next step of suppting multitasking."
 -- Gege McFry
 All generalizati  false, including is one.

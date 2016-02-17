@@ -83,14 +83,14 @@ Shall whet their knives, and think of you.
 I request a weekend in Havana with Phil Silvers!
 lighthouse, n.:
 	A tall building on the seashore in which the government
-	maintains a lamp and the friend of a politician.
-  I. Any body suspend in space will remain in space until ma aware of
+	tains a lamp and the friend of a politician.
+  I. Any body suspend in space will re in space until ma aware of
      its situation.
 	Daffy Duck steps off a cliff, expecting further pastureland.  He
 	loiters in midair, soliloquizing flippantly, until he chances to
 	look down.  At this point, the familiar principle of 32 feet per
 	second per second takes over.
- II. Any body in motion will tend to remain in motion until solid matter
+ II. Any body in motion will tend to re in motion until solid matter
      intervenes sudnly.
 	Whether shot from a cannon or in hot pursuit on foot, cartoon
 	characters are so absolute in their momentum that only a telephone
@@ -146,10 +146,10 @@ Never buy what you do not want because it is cheap; it will be ar to you.
 		-- Thomas Jefferson
 I have many CHARTS and DIAGRAMS..
 X-rated movies are all alike ... the only thing they leave to the
-imagination is the plot.
+iination is the plot.
 That's life.
 	What's life?
-A magazine.
+A azine.
 	How much does it cost?
 Two-fifty.
 	I only have a dollar.
@@ -226,7 +226,7 @@ human body but one.  The brain!  The brain is what life is all about.
 Man has ma his bedlam; let him lie in it.
 		-- Fred Allen
 I think the world is ready for the story of an ugly duckling, who grew up to
-remain an ugly duckling, and lived happily ever after.
+re an ugly duckling, and lived happily ever after.
 		-- Chick
 untold wealth, n.:
 	What you left out on April 15th.
@@ -437,7 +437,7 @@ Stop searching forever.  Happiness is unattainable.
 The climate of Bombay is such that its inhabitants have to live elsewhere.
 To many, total abstinence is easier than perfect moration.
 		-- St. Augustine
-Somewhere in suburban Honolulu, an unemployed bellhop is whipping up a
+Somewhere in suburban Honolulu, an unemployed hop is whipping up a
 batch of illegal psilocybin chop suey!!
 Don't interfere with the stranger's style.
 Your business will assume vast proportions.
@@ -589,7 +589,7 @@ X windows:
 	The last thing you need.
 	The facto substandard.
 
-Elevating brain damage to an art form.
+Elevating brain dae to an art form.
 	X windows.
 Laura's Law:
 	No child throws up in the bathroom.
@@ -626,7 +626,7 @@ you to read this sentence so far, an electron could have traveled all the
 way from San Francisco to Hackensack, New Jersey, although God alone knows
 why it would want to.
 
-The five main kinds of electricity are alternating current, direct current,
+The five  kinds of electricity are alternating current, direct current,
 lightning, static, and European.  Most American homes have alternating
 current, which means that the electricity goes in one direction for a while,
 then goes in the other direction.  This prevents harmful electron buildup in

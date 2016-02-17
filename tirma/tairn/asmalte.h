@@ -132,7 +132,7 @@ There is one thing you should learn,
 When there is no one else to turn to,
 	Caaaall for Super Chicken!!    (**bwuck-bwuck-bwuck-bwuck**)
 	Caaaall for Super Chicken!!
-C'est magnifique, mais ce n'est pas l'Informatique.
+C'est nifique, mais ce n'est pas l'Informatique.
 		-- Bosquet [on seeing the IBM 4341]
 If two wrongs don't make a right, try three.
 		-- Laurence J. Peter
@@ -198,7 +198,7 @@ jerk, I guess you're OK."
 If imprinted foil seal under cap is broken or missing when purchased, do not 
 use.
 Liar, n.:
-	A lawyer with a roving commission.
+	A lawyer with a roving .
 		-- Ambrose Bierce, "The Devil's Dictionary"
 If you don't do it, you'll never know what would have happened if you
 had done it.

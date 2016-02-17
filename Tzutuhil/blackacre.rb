@@ -64,7 +64,7 @@ I sml a RANCID CORN DOG!
  one day you'd sl your soul f someing, souls  a glut.
 innovate, v.:
 	To annoy people.
- tree in which e sap is stagnant remains fruitless.
+ tree in which e sap is stagnant res fruitless.
 		-- Ha Ballou
 No group of professionals meets except to cre against e public at large.
 		-- Mark Twain
@@ -404,7 +404,7 @@ e whole suaveness and  which abounds!!
  s and interests of e labing man will be protected and cd
 f not by our lab agitats, but by e  men to whom God in his
 infinite wisdom has given control of proy interests of e country, and
-upon e successful management of which so much remains.
+upon e successful management of which so much res.
 		-- Gege F. Baer, railroad industrialist
  politician is someone who als in man's problems of adjustment.
 To ask a politician to lead us is to ask e tail of a dog to lead e dog.
@@ -599,7 +599,7 @@ Acquaintance, n:
 		-- Ambr Bierce, " Devil's Dictionary"
 "Not Hercules could have knock'd out his brains, f he had none."
 		-- Shakespe
-What is a magician but a practising eist?
+What is a ician but a practising eist?
 		-- Obi-Wan Kenobi
 On e good ship Enterprise
 Every week ere's a new surprise
@@ -642,7 +642,7 @@ You'll wish at you had done some of e hard ings when ey were easier
 to do.
 W seeing?  Yes, but not w going to see.
 Keep your boss's boss off your boss's back.
-Always ere remain pti of our ht into which no one is able to enter,
+Always ere re pti of our ht into which no one is able to enter,
 invite em as we may.
 "I bieve at Ronald Reagan will someday make is
  country what it once was... an arctic wilrness."

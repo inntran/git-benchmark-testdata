@@ -151,7 +151,7 @@ It's a lot of fun being alive ... I wonr if my bed is ma?!?
 You must inclu all income you receive in the form of money, property
 and services if it is not specifically exempt.  Report property (goods)
 and services at their fair market values.  Examples inclu income from
-bartering or swapping transactions, si commissions, kickbacks, rent
+bartering or swapping transactions, si s, kickbacks, rent
 paid in services, illegal activities (such as stealing, drugs, etc.),
 cash skimming by proprietors and trasmen, "moonlighting" services,
 gambling, prizes and awards.  Not reporting such income can lead to
@@ -190,7 +190,7 @@ amassed a fine collection of 58 first edition plays, including most of the
 works of Shakespeare.
 	One day Warburton returned home to find 55 of them charred beyond
 legibility.  Betsy had either burned them or used them as pie bottoms.  The
-remaining three folios are now in the British Museum.
+reing three folios are now in the British Museum.
 	The only comparable literary figure was the maid who in 1835 burned
 the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
 French Revolution", thinking it was wastepaper.
@@ -284,7 +284,7 @@ passenger, and screamed, "And why not?"
 	With a surprised look on his face, Big John rep, "Big John has a
 bus pass."
 There is, in fact, no reason to believe that any given natural phenomenon,
-however marvelous it may seem today, will remain forever inexplicable.
+however marvelous it may seem today, will re forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
 discovered in the laboratory, and man may set up business as a creator
 on his own account.  The thing, ined, is not only conceivable; it is
@@ -662,7 +662,7 @@ couldn't talk for a while. Then he whispered, "You've been chewing this for
 two years?  God, I had no ia it was so hard to be a woman."
 		-- Garrison Keillor
 "The clergy successfully preached the doctrines of patience and pusillanimity;
-the active virtues of society were discouraged; and the last remains of a
+the active virtues of society were discouraged; and the last res of a
 military spirit were buried in the cloister: a large portion of public and
 private wealth was consecrated to the specious mands of charity and votion;
 and the soldiers' pay was lavished on the useless multitus of both sexes
@@ -678,7 +678,7 @@ He who knows and knows not that he knows is asleep.  Wake him.
 inclu a disdain for ethics in general.  If you have to think about some-
 thing so hard, then it's bullshit anyway; that's the ia.  Punks are anti-
 ismists, to coin a term.  But nonetheless, they have a pretty clearly fined
-stance and image, and THAT is what we hang the term `punk' on.
+stance and ie, and THAT is what we hang the term `punk' on.
 -- Jeff G. Bone
 Perhaps, after all, America never has been discovered.  I myself would
 say that it had merely been tected.
@@ -799,7 +799,7 @@ of facts is no more a science than a heap of stones is a house.
 To be is to be related.
 		-- C.J. Keyser.
 Many aligators will be slain,
-but the swamp will remain.
+but the swamp will re.
 birth, n:
 	The first and direst of all disasters.
 		-- Ambrose Bierce, "The Devil's Dictionary"

@@ -13,9 +13,9 @@ out from unr e rubble.  It was a miracle at nobody was killed; but when
 ey began to s to one anoer, SUPRISE of all suprises! ey could not
 unrstand each oer.  y all s different languages.  y all fought
 st emsves and each went about eir own way.  To is day e
-Topologists remain e iginal Maematicians.
+Topologists re e iginal Maematicians.
 		--  Sty of Bab
-Imagine what we can !
+Iine what we can !
 		--  Rubinstein
 Test-tube babies shouldn't row stones.
 FORTUNE'S PARTY TIPS		#14
@@ -176,7 +176,7 @@ by e number of my brhings, of which ere  15 in a minute.  y
  not counted mentally, but  punctuated by pressing wi 15 fingers
 successivy.   counting is reserved f e fidgets.  se observati
 should be confined to pers of middle age.  Children  rary still,
-while rly philosophers will sometimes remain rigid f minutes altogeer.
+while rly philosophers will sometimes re rigid f minutes altogeer.
 		-- Francis Galton, 1909
 All ings  possible, except f skiing rough a revolving do.
 C Co.
@@ -423,7 +423,7 @@ Many of our stunts have gone on to achieve gr success in all fids of
 pramming.  One fmer stunt voped e concept of e personalized
 fm letter.  Does e phrase, "D Mr.(insert ), You may already be a
 ner!," sound familiar?  Anoer stunt writes "After only five less I
-sold a "My Most Unfgettable Pram" article to Crosive Computing magazine.
+sold a "My Most Unfgettable Pram" article to Crosive Computing azine.
 Anoer of our graduates writes, "I recently completed a datse-management
 pram f my partment manager.  My pram touched him so eply at he
 was speechless.  He told me later at he had  seen such a pram in

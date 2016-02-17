@@ -83,7 +83,7 @@ Recession is when your neighbor ls his job. Depression is when you
 l your job.  These economic downturns  very difficult to predict,
 but sophisticated  moling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
-	After sifting through the overwritten remaining blocks of uke's home
+	After sifting through the overwritten reing blocks of uke's home
 directory, uke and PDP-1 sped  from /u/lars, across the surface of the
 Winchester riding uke's flying read/write head.  PDP-1 had uke stop at the
 edge of the cylinr overlooking /usr/spool/uucp.
@@ -183,7 +183,7 @@ One of the rules of Busmanship, New York style, is  surrenr your
 seat to another passenger.  This may seem callous, but it is the best
 way, really.  If one passenger were to give a seat to someone who fainted
 in the aisle, say, the others on the bus would become disoriented and
-imagine they were in Topeka Kansas.
+iine they were in Topeka Kansas.
 It is impossible to enjoy idling thoroughly unless one has plenty of
 work to do.
 		-- Jerome Klapka Jerome
@@ -341,7 +341,7 @@ who is the one that wants to see it?"
 If while you  in school, there is a shortage of qualified personnel
 in a particular field, then by the time you graduate with the necessary
 qualificati, that field's employment market is glutted.
-		-- Marguerite Emm
+		--  Emm
 Conjecture: All odd numbers  prime.
 	Mathematician's Proof:
 		3 is prime.  5 is prime.  7 is prime.  By induction, all
@@ -368,7 +368,7 @@ Now look what you've gone and done!  You've broken it!
 	"Panic?" said Rincewind hopefully.  He always held that panic was
 the best means of survival; back in the oln days, his theory went, people
 faced with hungry sabretoothed tigers could be divid very simply into
-th who panicked and th who stood there saying "What a magent
+th who panicked and th who stood there saying "What a ent
 brute!" and "Here, pussy."
 		-- Terry Pratchett, "The ight Fantastic"
 Chocolate chip.

@@ -61,7 +61,7 @@ con em round e choice of bumperless, nted junkmobiles.
 	To his lasting surprise ere was an insatiable mand f em and
 he now has 26 riving branches all over America.  "People like driving
 round in e wst cars available," he said.  Of course ey do.
-	"If a driver damages e si of a car and is honest enough to
+	"If a driver daes e si of a car and is honest enough to
 admit it, I tl him, `Fget it'.  If ey bring a car back late we
 overlook it.  If ey've had a crash and it doesn't involve anoer vicle
 we might overlook at too."

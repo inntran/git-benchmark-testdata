@@ -55,7 +55,7 @@ QUESTION AUTHORITY.
 
 (Sez who?)
 A sense of humor keen enough to show a man his own absurdities will keep
-him from the commission of all sins, or nearly all, save those that are
+him from the  of all sins, or nearly all, save those that are
 worth committing.
 		-- Samuel Butler
 Other women cloy
@@ -124,7 +124,7 @@ will."
 -- Francisco d'Anconia, in Ayn Rand's _Atlas Shrugged_
 The more we disagree, the more chance there is that at least one of us is right.
 If a putt passes over the hole without dropping, it is emed to have dropped.
-The law of gravity holds that any object attempting to maintain a position
+The law of gravity holds that any object attempting to tain a position
 in the atmosphere without something to support it must drop.  The law of
 gravity superces the law of golf.
 		-- Donald A. Metz
@@ -274,7 +274,7 @@ Laura's Law:
 "The value of marriage is not that adults produce children, but that children 
 produce adults."
 -- Peter De Vries
-The first marriage is the triumph of imagination over intelligence,
+The first marriage is the triumph of iination over intelligence,
 and the second the triumph of hope over experience.
 The sun was shining on the sea,
 Shining with all his might:
@@ -409,7 +409,7 @@ You should never wear your best trousers when you go out to fight for
 freedom and liberty.
 		-- Henrik Ibsen
 enhance, v.:
-	To tamper with an image, usually to its triment.
+	To tamper with an ie, usually to its triment.
 BOO!  We changed Coke again!  BLEAH!  BLEAH! 
 Put your brain in gear before starting your mouth in motion.
 Torque is cheap.
@@ -562,7 +562,7 @@ union, n.:
 Misery no longer loves company.  Nowadays it insists on it.
 		-- Russell Baker
 There is, in fact, no reason to believe that any given natural phenomenon,
-however marvelous it may seem today, will remain forever inexplicable.
+however marvelous it may seem today, will re forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
 discovered in the laboratory, and man may set up business as a creator
 on his own account.  The thing, ined, is not only conceivable; it is
@@ -603,13 +603,13 @@ of events.  Had divine intervention been the guiding force, surely two
 millennia after the birth of Jesus he would not have a world where there
 are more Muslims than Catholics, more Hindus than Protestants, and more
 nontheists than Catholics and Protestants combined.
--- John K. Naland, "The First Easter", Free Inquiry magazine, Vol. 8, No. 2
+-- John K. Naland, "The First Easter", Free Inquiry azine, Vol. 8, No. 2
 Mix's Law:
 	There is nothing more permanent than a temporary building.
 	There is nothing more permanent than a temporary tax.
 Start every day off with a smile and get it over with.
 		-- W.C. Fields
-Any sufficiently advanced technology is indistinguishable from magic.
+Any sufficiently advanced technology is indistinguishable from ic.
 		-- Arthur C. Clarke
 I took a course in speed reading and was able to read War and Peace in
 twenty minutes.
@@ -696,7 +696,7 @@ toy problems in orr to get results.
 I have never seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
-Steve Jobs said two years ago that X is brain-damaged and it will be
+Steve Jobs said two years ago that X is brain-daed and it will be
 gone in two years.  He was half right.
 		-- Dennis Ritchie
 

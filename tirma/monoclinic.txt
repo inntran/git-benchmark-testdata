@@ -161,9 +161,9 @@ A comment on schedules:
    For each unknown hardw vice add two months.
    For each 100 miles between veloper and installation add one month.
    For each type of communication channel add one month.
-   If an IBM mainframe shop is involved and you  working on a non-IBM
+   If an IBM frame shop is involved and you  working on a non-IBM
       system add 6 months.
-   If an IBM mainframe shop is involved and you  working on an IBM
+   If an IBM frame shop is involved and you  working on an IBM
       system add 9 months.
 Round up to the nest half-y.
 --Brad Sherman
@@ -272,8 +272,8 @@ and involve others in our doom.
 For some reason a glaze passes over people's faces when you say
 "Canada".  Maybe we should inva South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
-Skill without imagination is craftsmanship and gives us many useful objects
-such as wickerwork picnic baskets.  Imagination without skill gives us morn
+Skill without iination is craftsmanship and gives us many useful objects
+such as wickerwork picnic baskets.  Iination without skill gives us morn
 art.
 		-- Tom Stoppard
 A boy gets to be a man when a man is need.

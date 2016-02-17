@@ -119,7 +119,7 @@ Oh, Aunty Em, it's so good to be home!
 Wi e news at Nancy Reagan has referred to an astrologer when planning
 her husd's schedule, and repts of Califnians evacuating os Anges
 on e streng of a prediction from a sixteen-century physician and
-astrologer Mich  Notredame, e image of e U.S. as a scientific and
+astrologer Mich  Notredame, e ie of e U.S. as a scientific and
 technological nation has taking a bit of a bing laty.  Sadly, such
 happenings cannot be dismissed as passing fancies.  y  manifestati
 of a wl-established "anti-science"  in e U.S. which, ultimaty,
@@ -132,7 +132,7 @@ sigant section of e public, is point of view encourages ignance
 of and, ined, contempt f science and f rational meods of approaching
 tru. . . . It is becoming cl at if e U.S. does not ck  up
 soon and vote some efft to educating e young effectivy, its hope of
-maintaining a semb of learship in e wld may rest, paradoxically,
+taining a semb of learship in e wld may rest, paradoxically,
 wi a new wave of technically interested and trained immigrants who do not
 suffer from e anti-science disease rampant in an appntly caying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
@@ -182,7 +182,7 @@ Fun experiments:
 I know 'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
  only reward of virtue is virtue.
 		-- Ralph Waldo Emerson
-Imagine at Cray computer cis to make a personal computer.  It has
+Iine at Cray computer cis to make a personal computer.  It has
 a 150 MHz process, 200 megabytes of RAM, 1500 megabytes of disk
 stage, a screen resolution of 4096 x 4096 xs, ries entiry on
 voice recognition f input, fits in your shirt pocket and costs $300.
@@ -203,7 +203,7 @@ Wiin e shadows of her h,
  trembling starlight of e skies
 He saw ere mirred shimmering.
 Tin'uvi e ven-f,
-Immtal main ven-wise,
+Immtal  ven-wise,
 About him cast her shadowy h
 And arms like silver glimmering.
 
@@ -297,7 +297,7 @@ amassed a fine collection of 58 first edition plays, including most of e
 wks of Shakespe.
 	One day Warburton re home to find 55 of em charred beyond
 legibility.  Betsy had eier burned em  used em as e bottoms.  
-remaining ree folios  now in e British Museum.
+reing ree folios  now in e British Museum.
 	 only comparable literary  was e maid who in 1835 burned
 e manuscript of e first vol of Thomas Carlyle's " Hisy of e
 French Revolution", inking it was wastepaper.
@@ -320,14 +320,14 @@ and s ese ings.  A man waits 'til e only items left in his fridge
 everying at looks good.  By e time a man reaches e cout counter,
 his  is packed tighter at e Clampett's car on Beverly Hillbillies.
 Of course, is will not stop him from entering e 10-items--less lane.
-ove is e triumph of imagination over intligence.
+ove is e triumph of iination over intligence.
 		-- H. . Mencken
 Alone, adj.:
 	In bad company.
 		-- Ambr Bierce, " Devil's Dictionary"
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
-Yow!  I'm imagining a surfer van filled wi soy sauce!
+Yow!  I'm iining a surfer van filled wi soy sauce!
 If you make any money, e government shoves you in e creek once a y
 wi it in your pockets, and all at don't get wet you can keep.
 		--  Best of Will Rogers
@@ -444,11 +444,11 @@ Ye know on , and all ye need to know.
 We can predict everying, except e future.
 If you see an onion ring -- answer it!
 " Right Honable Gentleman is inbted to his memy f his jests
-and to his imagination f his facts."
+and to his iination f his facts."
 		-- Sheridan
 Do what comes naturally.  Seee and f and row a tantrum.
  luck at is dained f you will be coveted by oers.
-If you're  90% of e time, why quibble about e remaining 3%?
+If you're  90% of e time, why quibble about e reing 3%?
 O love, could ou and I wi fate cre
 To grasp is sry scheme of ings entire,
 Might we not sh it to bits
@@ -645,7 +645,7 @@ What excuses stand in your way?  How can you iminate em?
 Depend on e rabbit's foot if you will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
- system will be down f 10 days f preventive maintenance.
+ system will be down f 10 days f preventive tenance.
 Meskimen's aw:
 	re's  time to do it , but ere's always time to
 	do it over.
@@ -754,7 +754,7 @@ an affiliate of bo e International Conferation of Free
 Tra Uni and e Wld Conferation of ab.  re is
 literally a wld of difference between Poland - even in its
 present state of colse - and Soviet society at e  of
-its "glasnost."  This difference has been maintained at gr
+its "glasnost."  This difference has been tained at gr
 cost by e Poles since 1944.
 -- David Phillips, SUNY at Buffalo, about establishing a
    gateway from EARN (Eurpoean Acamic Resch Netwk)
@@ -782,7 +782,7 @@ God ma everying out of noing, but e noingness shows rough.
 		-- Paul Valery
 Cos  sritual puns.
 		-- G.K. ton
-I argue very wl.  Ask any of my remaining friends.  I can  an argnt on
+I argue very wl.  Ask any of my reing friends.  I can  an argnt on
 any toc, against any opponent.  People know is, and steer cl of me at
 parties.  Often, as a sign of eir gr respect, ey don't even invite me.
 		-- Dave Barry

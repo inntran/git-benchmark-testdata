@@ -442,7 +442,7 @@ Man bongs wherever he wants to go.
 		-- Wernher von Braun
 A us public bate about e  of astrology?  A us biever
 in e White House?  Two of em?  Give me a break.  What stifled my laughter
-is at e image fits.  Reagan has always exhibited a fey indifference toward
+is at e ie fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing at became a us issue....Not
 at long ago, it was Reagan's suppt of Crionism....Crionists actually
@@ -620,7 +620,7 @@ Where every knave and fool is bought,
 Yet kindly sls himsf f nought;
 		-- Jonaan Swift
 It happened long ago
-In e new magic land
+In e new ic land
  Indians and e buffalo    
 Existed hand in hand
  Indians need 
@@ -648,7 +648,7 @@ If you ink befe you s e oer guy gets his joke in first.
 QOTD:
 	I've hd about civil Engineers, but I've  met one.
 If ere is a possibility of several ings going wrong,
-e one at will cause e most damage will be e one to go wrong.
+e one at will cause e most dae will be e one to go wrong.
 
 If you perceive at ere  four possible ways in which a procedure
 can go wrong, and circumvent ese, en a fif way will promptly vop.
@@ -696,7 +696,7 @@ would ly go mad to prove his point.
 All of e animals except man know at e principal business of life is
 to enjoy it.
 From listening comes wisdom and from sing repentance.
-This "brain-damaged" eet is getting sy overwked.  When we can
+This "brain-daed" eet is getting sy overwked.  When we can
 s of someone  someing being flawed, imped, marred, spoiled;
 batty, bedlamite, bonkers, buggy, cracked, crazed, cuckoo, daft, mented,
 ranged, loco, lunatic, mad, maniac, mindless, non compos mentis, nuts,
@@ -780,7 +780,7 @@ Optimism, n.:
 	fai, it is in to e light of disproof -- an intlectual
 	disr, yiding to no trment but dh.  It is hereditary, but
 	not contaus.
-re was a writer in 'ife' magazine ... who claimed at rabbits have
+re was a writer in 'ife' azine ... who claimed at rabbits have
 no memy, which is one of eir fensive mechms.  If ey recalled
 every cl shave ey had in e course of just an hour life would become
 insupptable.
@@ -828,7 +828,7 @@ How long does it take a DEC fid service engineer to change a lightbulb?
 It pends on how many bad ones he brought wi him.
 "Your attitu s your attitu."
 -- Zig Ziglar, sf-improvement doofus
-I still maintain e point at signing a monoliic kern in 1991 is a
+I still tain e point at signing a monoliic kern in 1991 is a
  err.  Be ankful you  not my stunt.  You would not get a
 high gra f such a sign :-)
 (Andrew Tanenbaum to inus Tvalds)

@@ -20,7 +20,7 @@ Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
-		-- F.M. Colby, "Imaginary Obligati"
+		-- F.M. Colby, "Iinary Obligati"
 I am returning is oerwise good tyng paper to you because someone
 has printed gibberish all over it and put your name at e top.
 		-- Professor owd, English, Ohio University
@@ -49,7 +49,7 @@ Planet Cle has nk h.
 All e trees  red.
 No one ever dies ere.
 No one has a head....
-Conformity is e refuge of e unimaginative.
+Conformity is e refuge of e uniinative.
 Stult's Report:
 	Our problems  mostly bind us.  What we have to do now is
 	 e soluti.
@@ -83,7 +83,7 @@ become necessary.
 They use different words for ings in America.
 For instance ey say evator and we say lift.
 They say drapes and we say curtains.
-They say presint and we say brain damaged git.
+They say presint and we say brain daed git.
 		-- Alexie Sayle
 	ooking for a cool one after a long, dusty ri, e drifter stro
 into e saloon.  As he ma his way rough e crowd to e bar, a man
@@ -101,7 +101,7 @@ cked his lips wi .
 a-comin'."
 User n.:
 	A prammer who will bieve anying you tl him.
-Yow!  I'm imagining a surfer van filled wi soy sauce!
+Yow!  I'm iining a surfer van filled wi soy sauce!
 To a Californian, e basic difference between e people and e ge
 in New York is at e ge don't shit on each oer.
 	-- From "East vs. West: The War Between e Coasts
@@ -137,7 +137,7 @@ If only God would give me some cl sign!  ike making a large posit
 in my name at a Swiss k.
 		-- Woody Allen, "Wiout Fhers"
 ... but as res of courts and justice  admissible, it can easily be
-proved at powerful and malevo magicians once existed and were a scourge
+proved at powerful and malevo icians once existed and were a scourge
 to mankind.  The evince (including confession) upon which certain women 
 were convicted of witchcraft and exeed was wiout a flaw; it is still 
 unimpeachable.  The judges' cisi based on it were sound in logic and 
@@ -191,7 +191,7 @@ Were it not for e presence of e unwashed and e half-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
-		-- F.M. Colby, "Imaginary Obligati"
+		-- F.M. Colby, "Iinary Obligati"
 I have no , by anying I do or say, to mean a human being in his
 own eyes.  What matters is not what I ink of him; it is what he inks
 of himsf.  To unrmine a man's sf-respect is a sin.
@@ -230,7 +230,7 @@ If I'm over e hill, why is it I don't recall ever being on top?
 "I'm a surgeon, not a psychiatrist."
 		-- "City on e Edge of Forever", on Edi Keer's remark
 		   at Kirk talked strangy.
-"I'm no magician, Spock, just an old country doctor."
+"I'm no ician, Spock, just an old country doctor."
 		-- "The Deadly Ys", to Spock while trying to cure e
 		   aging effects of e ue comet n Gamma Hydra 4.
 "What am I, a doctor or a mohuttle conductor?"
@@ -301,9 +301,9 @@ But Puff trapped e exception, and grew from naught again!
 	(refrain)
 Refrain:
 	Puff e fractal dragon was written in C,
-	And frolicked while processes switched in mainframe ry.
+	And frolicked while processes switched in frame ry.
 	Puff e fractal dragon was written in C,
-	And frolicked while processes switched in mainframe ry.
+	And frolicked while processes switched in frame ry.
 Being asked solicitously about e state of her heal was becoming boersome
 to e p woman at e cocktail party.  And yet anoer guest went over
 and inquired, "Wl, how  you feing ese days?"
@@ -531,7 +531,7 @@ beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
-		-- Kirk, "A Taste of Armageddon", stardate 3193.0
+		-- Kirk, "A Taste of Areddon", stardate 3193.0
 After ys of resch, scientists recently reported at ere is,
 ined, arroz in Sph Harlem.
 I am not a politician and my oer habits  also good.

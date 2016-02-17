@@ -86,7 +86,7 @@ No group of professionals meets except to conspire against the public at large.
 COMPASS [for the CDC-6000 series] is the sort of assembler one expects from
 a corporation whose presint cos in octal.
 		-- J.N. Gray
-Please remain calm, it's no use both of us being hysterical at the same time.
+Please re calm, it's no use both of us being hysterical at the same time.
 Marriage causes dating problems.
 It is the business of little minds to shrink.
 		-- Carl Sandburg
@@ -262,7 +262,7 @@ in peace.  Please enlighten me.  What is it that you are stealing?"
 	The man smiled.  "I am stealing ias," he said.
 		-- Geoffrey James, "The Tao of Programming"
 ... but as records of courts and justice are admissible, it can easily be
-proved that powerful and malevolent magicians once existed and were a scourge
+proved that powerful and malevolent icians once existed and were a scourge
 to mankind.  The evince (including confession) upon which certain women 
 were convicted of witchcraft and executed was without a flaw; it is still 
 unimpeachable.  The judges' cisions based on it were sound in logic and 
@@ -398,7 +398,7 @@ You see things; and you say "Why?"
 But I dream things that never were; and I say "Why not?"
 		-- George Bernard Shaw, "Back to Methuselah"
 		[No, it wasn't J.F. Kennedy.  Ed.]
-Nullum magnum ingenium sine mixtura mentiae fuit.
+Nullum num ingenium sine mixtura mentiae fuit.
 	[There is no great genius without some touch of madness.]
 		-- Seneca
 In this vale
@@ -472,7 +472,7 @@ Yearn only to sink into sleep.
 
 And my soul, unguard,
 Would soar on wispread wings,
-To live in night's magical sphere
+To live in night's ical sphere
 More profoundly, more variously.
 		-- Hermann Hesse, "Going to Sleep"
 Better living a beggar than buried an emperor.
@@ -553,7 +553,7 @@ they're not coming out on the damn printer...  Hold?  Sure, I'll hold."
 		-- e.e. cummings last service call
 I'm not proud.
 scenario, n.:
-	An imagined sequence of events that provis the context in
+	An iined sequence of events that provis the context in
 	which a business cision is ma.  Scenarios always come in
 	sets of three: best case, worst case, and just in case.
 I'm a Hollywood writer; so I put on a sports jacket and take off my brain.

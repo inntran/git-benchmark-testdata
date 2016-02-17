@@ -201,11 +201,11 @@ you'll have to ram them down people's throats."
  -- Howard Aiken
 NOTE: No warranties, either express or imp, are hereby given. All
 software is supp as is, without guarantee.  The user assumes all
-responsibility for damages resulting from the use of these features,
+responsibility for daes resulting from the use of these features,
 including, but not limited to, frustration, disgust, system abends, disk
 head-crashes, general malfeasance, floods, fires, shark attack, nerve
 gas, locust infestation, cyclones, hurricanes, tsunamis, local
-electromagnetic disruptions, hydraulic brake system failure, invasion,
+electronetic disruptions, hydraulic brake system failure, invasion,
 hashing collisions, normal wear and tear of friction surfaces, comic
 radiation, inadvertent struction of sensitive electronic components,
 windstorms, the Rirs of Nazgul, infuriated chickens, malfunctioning
@@ -266,7 +266,7 @@ For the next hour, WE will control all that you see and hear.
 "Einstein's mother must have been one heck of a physicist."
 -- Joseph C. Wang (joe@athena.mit.edu)
 The lunatic, the lover, and the poet,
-Are of imagination all compact...
+Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
 A woman is like your shadow; follow her, she flies; fly from her, she follows.
 		-- Chamfort
@@ -364,7 +364,7 @@ I respect faith, but doubt is what gives you an education.
 For thee the wonr-working earth puts forth sweet flowers.
 		-- Titus Lucretius Carus
 8)   Use common sense in routing cable.  Avoid w coax around sources of
-     strong electric or magnetic fields.  Do not wrap the cable around
+     strong electric or netic fields.  Do not wrap the cable around
      flourescent light ballasts or cyclotrons, for example.
 -- Ethernet Headstart Product, Information and Installation Gui,
    Bell Technologies, pg. 11
@@ -564,7 +564,7 @@ It's risky enough when the weather is fine.
 But to have a pig soar when the monsoon doth roar
 Cast even more perils before swine.
 You will live to see your grandchildren.
-When pleasure remains, does it remain a pleasure?
+When pleasure res, does it re a pleasure?
 Neckties strangle clear thinking.
 		-- Lin Yutang
 And thou shalt eat it as barley cakes, and thou shalt bake it with dung that
@@ -588,8 +588,8 @@ The  White Rabbit put on his spectacles.
 till you come to the end: then stop."
 		-- Lewis Carroll
 RELATIVES!!
-When I say the magic word to all these people, they will vanish forever.
-I will then say the magic words to you, and you, too, will vanish -- never
+When I say the ic word to all these people, they will vanish forever.
+I will then say the ic words to you, and you, too, will vanish -- never
 to be seen again.
 		-- Kurt Vonnegut Jr., "Between Time and Timbuktu"
 Those parts of the system that you can hit with a hammer (not advised)
@@ -599,7 +599,7 @@ at are called software.
 		   Literacy for the 1990's.
 "How many teamsters does it take to screw in a light bulb?"
    "FIFTEEN!!  YOU GOT A PROBLEM WITH THAT?"
-Mirrors should reflect a little before throwing back images.
+Mirrors should reflect a little before throwing back ies.
 	-- Jean Cocteau
 IBM:
 	It may be slow, but it's hard to use.
@@ -627,10 +627,10 @@ We clare the names
 of all variables and functions.
 Yet the Tao has no type specifier.
 
-Dynamically binding, you realize the magic.
+Dynamically binding, you realize the ic.
 Statically binding, you see only the hierarchy.
 
-Yet magic and hierarchy
+Yet ic and hierarchy
 arise from the same source,
 and this source has a null pointer.
 
@@ -829,7 +829,7 @@ Have the courage to take your own thoughts seriously, for they will shape you.
 		-- Albert Einstein
 First law of bate:
 	Never argue with a fool.  People might not know the difference.
-Example is not the main thing in influencing others.  It is the only thing.
+Example is not the  thing in influencing others.  It is the only thing.
 		-- Albert Schweitzer
 "But are you not," he said, "a more fiendish disputant than the Great Hyperlobic
 Omni-Cognate Neutron Wrangler of Ciceronicus Twelve, the Magic and 
@@ -910,7 +910,7 @@ the railroad yards."
 		   law at the Scopes "Monkey Trial" in 1925.
 Province, New Jersey, is one of the few cities where Velveeta cheese
 appears on the gourmet shelf.
-Always there remain portions of our heart into which no one is able to enter,
+Always there re portions of our heart into which no one is able to enter,
 invite them as we may.
 To whom the mornings are like nights,
 What must the midnights be!
@@ -935,7 +935,7 @@ wasteful, and irrational -- the crown and apex of cosmic evolution.
 Viewing us as the culmination of *anything* is grotesque; viewing us
 as a transitional species makes more sense -- and gives us more hope.
 - Betty McCollister, "Our Transitional Species", 
-  Free Inquiry magazine, Vol. 8, No. 1
+  Free Inquiry azine, Vol. 8, No. 1
 Majority, n.:
 	That quality that distinguishes a crime from a law.
 We'll know that rock is ad when you have to get a gree to work in it.

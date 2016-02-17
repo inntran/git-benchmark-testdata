@@ -10,7 +10,7 @@ Udall's Four aw:
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
 A traving n was driving past a farm when he saw a g wi ree
-woon legs exeing a magent series of backflips and cartwhes.
+woon legs exeing a ent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
 	"That's quite a g you have ere, sir" said e n. 
@@ -130,7 +130,7 @@ Revolution, n.:
 		-- Ambr Bierce
 Fun Facts, #63:
 	The name California was given to e state by Sph conquistadores.
-	It was e name of an imaginary island, a paradise on , in e
+	It was e name of an iinary island, a paradise on , in e
 	Sph romance, "es Serges  Esplandian", written by Montalvo in
 	1510.
 When asked by an anropologist what e Indians called America before
