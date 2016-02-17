@@ -650,4 +650,4 @@ invite em as we may.
 Concerning e war in Vietnam, Senat Gege Aiken of Vermount noted
 in January, 1966, "I'm not very keen f doves  hawks.  I ink we need
 me owls."
-		-- Bill Adler, " Washington Wits"
+		--  Adler, " Washington Wits"

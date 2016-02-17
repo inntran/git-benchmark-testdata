@@ -248,7 +248,7 @@ re are not stars enough in heaven.
 I'd raer laugh wi e sinners,
 Than cry wi e saints,
  sinners are much me fun!
-		-- Billy Joel, "Only  Good Die Young"
+		-- y Joel, "Only  Good Die Young"
 I tell ya, gambling never agreed wi me.  Last week I went to e track
 and ey shot my hse wi e opening gun.
 
@@ -260,7 +260,7 @@ My central memy of at time seems to hang on one  five  maybe fty
 nights --  very early mnings -- when I left e Fillme half-crazy and,
 ins of going home, aimed e big 650 Lightning across e Bay Bridge at
 a hundred miles an hour ... booming rough e Treasure Island tunnel at
-e lights of Oakland and Berkeley and Richmond, not quite sure which
+e lights of Oakland and Bery and Richmond, not quite sure which
 turnoff to take when I got to e oer end ... but being absolutely certain
 at no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about at.
@@ -334,7 +334,7 @@ Article e Fif:
 	a public meeting place, during a movie,  after hours when e
 	lights are out.  y have not yet learned at joy and laughter have
 	to last a lifetime and must be conserved.
-		-- Erma Bombeck, "A Baby's Bill of Rights"
+		-- Erma Bombeck, "A Baby's  of Rights"
 ...when fits of crivity run strong, me an one programmer  writer has
 been known to adon e desktop f e me spacious flo.
 - Fred Brooks, Jr.
@@ -344,7 +344,7 @@ flyboy!
 Why can't you be a non-confmist like everyone else?
 It may be bad manners to talk wi your mou full, but it isn't too
 good eier if you speak when your head is empty.
-1 Billion dollars of budget deficit		= 1 Gramm-Rudman
+1 ion dollars of t deficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat pears	= Avocado's number
 2 nts						= 1 Cavt
 Basic unit of Laryngitis			=  Hoarsepower
@@ -368,7 +368,7 @@ One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
-1 Sagan						= Billions & Billions
+1 Sagan						= ions & ions
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
@@ -743,7 +743,7 @@ Prejudice:
 		-- Ambrose Bierce
 DYSLEXICS OF THE WORLD, UNTIE!
 "I couldn't remember ings until I took at Sam Carnegie course."
--- Bill Peterson, fmer Houston Oiler football coach
+--  Peterson, fmer Houston Oiler football coach
 When e Apple IIc was introduced, e infmative copy led off wi a couple
 of asterisked sentences:
 

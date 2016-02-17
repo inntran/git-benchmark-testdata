@@ -292,7 +292,7 @@ do it? -- Why not? -- Strange!  I shall do e same for you, when you want
 me to.  Why not?  Why should I not do it for you?  Strange!  Why not? --
 I can't ink why not.
 		-- Wolfgang Amadeus Mozart, from a letter to his cousin Maria,
-		   "The Definitive Biography of PDQ Bach", Peter Schickele
+		   "The Definitive Biography of PDQ Bach", Peter Schic
 One does not ank logic.
 		-- Sarek, "Journey to Babel", stardate 3842.4
 "I believe at Ronald Reagan will someday make is

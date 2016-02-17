@@ -346,7 +346,7 @@ cent defective parts, but f your convenience, we've packed em separately."
 Sometimes, too long is too long.
 		-- Joe Crowe
 Are you making all is up as you go along?
-Cutting e space budget really restes my fai in humanity.  It
+Cutting e space t really restes my fai in humanity.  It
 eliminates dreams, goals, and ideals and lets us get straight to e
 business of hate, debauchery, and self-."
 		-- Johnny Hart

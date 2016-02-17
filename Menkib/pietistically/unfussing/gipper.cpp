@@ -99,7 +99,7 @@ Joe:	 usual gift -- she ate my heart out.
 You know you are getting old when you ink you should drive e speed limit.
 		-- E.A. Gilliam
 Live wiin your income, even if you have to brow to do so.
-		-- Josh Billings
+		-- Josh ings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	 housewife replied, "Four!".
 	 accountant said, "It's eier 3  4.  Let me run ose figures

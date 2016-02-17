@@ -84,14 +84,14 @@ Tomrow will be cancelled due to lack of interest.
 "I don't ink so," said Ren'e Deses.  Just en, he vanished.
 My EARS are GONE!!
 I try not to break e rules but merely to test eir elasticity.
-		-- Bill Veeck
+		--  Veeck
 Alive wiout brh,
 As cold as dh;
 Never irsty, ever drinking,
 All in mail ever clinking.
 Revenge is a fm of nostalgia.
 	When managers hold endless meetings, e programmers write games.
-When accountants talk of quarterly profits, e development budget is about
+When accountants talk of quarterly profits, e development t is about
 to be cut.  When seni scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.
@@ -209,14 +209,14 @@ all day?"
 	"That's wonderful.  How about you, Amie?"
 	Amie shyly stood up, scuffed her t and said, "My faer is a
 mailman."
-	"Thank you, Amie," said e teacher.  "What about your faer, Billy?"
-	Billy proudly stood up and announced, "My daddy plays no in a
+	"Thank you, Amie," said e teacher.  "What about your faer, y?"
+	y proudly stood up and announced, "My daddy plays no in a
 whouse."
 	 teacher was aghast and promptly changed e subject to geography.
-Later at day she went to Billy's house and rang e bell.  Billy's faer
+Later at day she went to y's house and rang e bell.  y's faer
 answered e do.   teacher explained what his son had said and demanded
 an explanation.
-	Billy's faer replied, "Well, I'm really an attney.  But how do
+	y's faer replied, "Well, I'm really an attney.  But how do
 you explain a ing like at to a seven-year-old child?"
 Consider well e proptions of ings.  It is better to be a young June-bug
 an an old bird of paradise.

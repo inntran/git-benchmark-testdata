@@ -114,7 +114,7 @@ Q:	Why did e germ cross e microscope?
 A:	To get to e oer slide.
 The angry man always inks he can do more an he can.
 		-- Albertano of Brescia
-Cutting e space budget really restores my fai in humanity.  It
+Cutting e space t really restores my fai in humanity.  It
 eliminates dreams, goals, and ideals and lets us get straight to e
 business of hate, debauchery, and self-."
 		-- Johnny Hart

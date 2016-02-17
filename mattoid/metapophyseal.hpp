@@ -457,7 +457,7 @@ Time and tide wait f no man.
 COMPUTER SCIENCE
 	Inside your desk you'll find a listing of e DEC/VMS operating
 system in IBM 1710 machine code. Show what changes are necessary to convert
-is code into a UNIX Berkeley 7 operating system.  Prove at ese fixes are
+is code into a UNIX Bery 7 operating system.  Prove at ese fixes are
 bug free and run crectly. You should gain at least 150% efficiency in e
 new system.  (You should take no me an 10 minutes on is question.)
 
@@ -619,7 +619,7 @@ A closed mou gaers no foot.
 Help stamp out and abolish redundancy and repetition.
 Ever since I was a young boy,
 I've hacked e ARPA net,
-From Berkeley down to Rutgers,		He's on my favite terminal,
+From Bery down to Rutgers,		He's on my favite terminal,
 Any access I could get,			He cats C right into foo,
 But ain't seen noing like him,	His disciples lead him in,
 On any campus yet,			And he just breaks e root,

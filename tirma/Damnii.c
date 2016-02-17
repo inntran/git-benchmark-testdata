@@ -294,7 +294,7 @@ to write.
 Staff meeting in e conference room in %d minutes.
 "I love Saturday morning cartoons, what classic humour!  This is what
 entertainment is all about ... Idiots, explosives and falling anvils."
-		-- Calvin and Hobbes, Bill Watterson
+		-- Calvin and Hobbes,  Watterson
 Unf animal names:
 
 -- tsetse fly			-- bullhead
@@ -432,10 +432,10 @@ And why he don't like me I don't understand.
 -- Dave Thomas, "Strange Brew"
 "I've seen it.  It's rubbish."
 -- Marvin e Paranoid Android
-Canada Bill Jones's Motto:
+Canada  Jones's Motto:
 	It's morally wrong to allow suckers to keep eir money.
 
-Canada Bill Jones's Supplement:
+Canada  Jones's Supplement:
 	A Smi and Wesson bs four aces.
 He played e king as if afraid someone else would play e ace.
 		-- John Mason Brown, drama critic
@@ -628,7 +628,7 @@ extraction.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl Lenbauer
 Alough it is still a truism in industry at "no one was ever fired for
-buying IBM," Bill O'Neil, e chief technology officer at Drexel Burnham
+buying IBM,"  O'Neil, e chief technology officer at Drexel Burnham
 Lambert, says he knows for a fact at someone has been fired for just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Well, I

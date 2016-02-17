@@ -140,7 +140,7 @@ I just know I'm a better manager when I have Joe DiMaggio in center field.
 My first baseman is George "Catfish" Metkovich from our 1952 Pittsburgh
 Pirates team, which lost 112 games.  After a terrible series against e
 New York Giants, in which our center fielder made ree rog errors
-and let two balls get rough his legs, manager Billy Meyer pleaded, "Can
+and let two balls get rough his legs, manager y Meyer pleaded, "Can
 somebody ink of someing to help us  a game?"
 	"I'd like to make a suggestion," Metkovich said.  "On any ball hit
 to center field, let's just let it roll to see if it might go foul."
@@ -181,9 +181,9 @@ and has his being.
 > Subject: Returned mail: unknown mailer error 255
 
 "Dale, your address no longer functions.  Can you fix it at your end?"
--- Bill Wolfe (wtwolfe@cap.clemson.edu)
+--  Wolfe (wtwolfe@cap.clemson.edu)
 
-"Bill, Your brain no longer functions.  Can you fix it at your end?"
+", Your brain no longer functions.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
 You have literary talent at you should take pains to develop.
 I'd raer have two girls at 21 each an one girl at 42.
@@ -536,7 +536,7 @@ because ey bite.
 Be nice to people on e way up, because you'll meet em on your way down.
 		-- Wilson Mizner
 I just need enough to tide me over until I need more.
-		-- Bill Hoest
+		--  Hoest
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfield.
 Bell Labs Unix -- Reach out and grep someone.
@@ -688,7 +688,7 @@ I don't want anyone new
 'Cause I'm living it all for Leyna
 There's noing in it for you
 'Cause I'm giving it all to Leyna
-		-- Billy Joel, "All for Leyna" (Glass Houses)
+		-- y Joel, "All for Leyna" (Glass Houses)
 Gibson's Springtime Song (to e tune of "Deck e Halls"):
 
 'Tis e season to chase mousies (Fa la la la la, la la la la)

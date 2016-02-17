@@ -172,7 +172,7 @@ filed his income tax return last year, he declared half of his salary
 as 'unearned income.'
 		-- Michael Lara
 Cleanliness is next to impossible.
-Every little cofarad has a nanohenry all its own.
+Every little cofarad has a nano all its own.
 		-- Don Vonada
 F myself, I can only say at I am astonished and somewhat terrified at
 e results of is evening's experiments.  Astonished at e wonderful

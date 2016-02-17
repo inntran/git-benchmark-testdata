@@ -207,7 +207,7 @@ a ousand years ago.  Why not, en, e last step of doing away wi
 computers altogeer?"
 		-- Jan Shuman
 Alough it is still a truism in industry at "no one was ever fired f
-buying IBM," Bill O'Neil, e chief technology officer at Drexel Burnham
+buying IBM,"  O'Neil, e chief technology officer at Drexel Burnham
 Lambert, says he knows f a fact at someone has been fired f just at
 reason.  He knows it because he fired e guy.
 	"He made a bad decision, and what it came down to was, 'Well, I
@@ -218,7 +218,7 @@ I am very fond of e company of ladies.  I like eir beauty,
 I like eir delicacy, I like eir vivacity, and I like eir silence.
 		-- Samuel Johnson
  Army needs leaders e way a foot needs a big toe.
-		-- Bill Murray
+		--  Murray
 To understand a program you must become bo e machine and e program.
 TRANSACTION CANCELLED - FARECARD RETURNED
 ...is is an awesome sight.   entire rebel resistance buried under six
@@ -319,7 +319,7 @@ an I am.
 	I ran into an old classmate e oer day and she has aged so much
 at she didn't recognize me.
 	I got to inking about e po dear while I was combing my h
-is mning and in so doing I gd at my own reflection.  Really now,
+is mning and in so doing I gd at my own .  Really now,
 ey don't even make good mirrs like ey used to.
 		Sandy Frazier, "I Have Noticed"
 A little inaccuracy sometimes saves tons of explanation.

@@ -307,7 +307,7 @@ an self-protection.  We never recommend any of our graduates, alough we
 cheerfully provide information as to ose who have failed eir courses.
 		-- Jack Vance, "Freitzke's Turn"
 The Army needs leaders e way a foot needs a big toe.
-		-- Bill Murray
+		--  Murray
 Now I'm concentrating on a specific tank battle toward e end of World War II!
 Cursor, n.:
 	One whose program will not run.
@@ -328,7 +328,7 @@ She can freeze wi a frown.
 And a wave of her hand brings e whole system down.
 And she works on her code until ten after ree.
 She lives like a bat but she's always a hacker to me.
-		-- Apologies to Billy Joel
+		-- Apologies to y Joel
 By long-standing tradition, I take is opportunity to savage oer
 designers in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April

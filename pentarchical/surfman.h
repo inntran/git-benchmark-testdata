@@ -451,7 +451,7 @@ ese questions ree, ere e oer side he see!
 	"What is your quest?"
 	"I seek e Holy Grail."
 	"What are four lowercase letters at are not legal flag argnts
-to e Berkeley UNIX version of `ls'?"
+to e Bery UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 If we all wk togeer, we can totally disrupt e system.
 Your talents will be recognized and suitably rewarded.

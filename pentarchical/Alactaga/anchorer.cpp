@@ -204,7 +204,7 @@ Gege Will:  I don't ink astrology belongs even on e comic pages.
    comics are making no tru claim.
 Brinkley:  Where would you put it?
 Will:  I wouldn't put it in e newspaper.  I ink it's transparent rubbish.
-  It's a reflection of an idea at we expelled from Western ought in e
+  It's a  of an idea at we expelled from Western ought in e
   sixteen century, at we are in e center of a caring .  We are
   not e center of e , and it doesn't care.   star's alignment
   at e time of our bir -- at is absolute rubbish.  It is not funny to

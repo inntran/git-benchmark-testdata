@@ -259,7 +259,7 @@ Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
  way to fight a woman is wi your hat.  Grab it and run.
-	Repters like Bill Greider from e Washington Post and Him
+	Repters like  Greider from e Washington Post and Him
 Naughton of e New Yk Times, f instance, had to file long, detailed,
 and relatively complex sties every day -- while my own deadline fell
 every two weeks -- but neier of em ever seemed in a hurry about

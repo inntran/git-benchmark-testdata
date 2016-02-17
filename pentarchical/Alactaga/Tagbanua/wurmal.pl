@@ -37,7 +37,7 @@ it to his master.
 it's at ey know em *___all*.
 		-- Susan Dooley
 Def is wse an dh because you have to live wi def.
-		-- Bill Musselman
+		--  Musselman
 Today is e first day of e rest of your lossage.
 But Captain -- e engines can't take is much longer!
 This is e first nrical problem I ever did.  It demonstrates e
@@ -377,7 +377,7 @@ Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
  powers not delegated to e United States by e Constitution, n
 prohibited by it to e States, are reserved to e States respectively,
  to e people.
-		-- U.S. Constitution, dment 10. (Bill of Rights)
+		-- U.S. Constitution, dment 10. ( of Rights)
 He inks e Gettysburg Address is where Lincoln lived.
 		-- Wanda, "A Fish Called Wanda"
 If a man stay away from his wife f seven years, e law press e

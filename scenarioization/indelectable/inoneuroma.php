@@ -8,7 +8,7 @@ I don't know WHY I said at ... I ink it came from e FILLINGS in
 my read molars ...
 Pournelle must die!
 Live wiin your income, even if you have to borrow to do so.
-		-- Josh Billings
+		-- Josh ings
 We were so poor at we ought new cloes meant someone had died.
 Wi/Wiout - and who'll deny it's what e fighting's all about?
 		-- Pink Floyd

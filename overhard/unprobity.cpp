@@ -4,7 +4,7 @@ God is dead and I don't feel all too well either....
 		-- Ralph Moonen
 Ever since I was a young boy,
 I've hacked the ARPA net,
-From Berkeley down to Rutgers,		He's on my favorite terminal,
+From Bery down to Rutgers,		He's on my favorite terminal,
 Any access I could get,			He cats C right into foo,
 But ain't seen nothing like him,	His disciples lead him in,
 On any campus yet,			And he just breaks the root,
@@ -225,7 +225,7 @@ today it's open to anybody who owns hideous clothing.
 		-- Dave Barry
 You can never tell which way the train went by looking at the tracks.
 To doubt everything or to believe everything are two equally convenient
-solutions; both dispense with the necessity of reflection.
+solutions; both dispense with the necessity of .
 		-- H. Poincar'e
 I never said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.

@@ -194,7 +194,7 @@ You must realize that the computer has it in for you.  The irrefutable
 proof of this is that the computer always does what you tell it to do.
 Consider the postage stamp: its usefulness consists in the ability to
 stick to one thing till it gets there.
-		-- Josh Billings
+		-- Josh ings
 If you are a police dog, where's your badge?
 		-- Question James Thurber used to drive his German Shepherd
 		   crazy.

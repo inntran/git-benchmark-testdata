@@ -284,7 +284,7 @@ Wedding, n:
 		-- Ambrose Bierce
 "I don't have to take is abuse from you -- I've got hundreds of
 people waiting to abuse me."
-		-- Bill Murray, "Ghostbusters"
+		--  Murray, "Ghostbusters"
 Confession is good for e soul, but bad for e career.
 Don't marry for money; you can borrow it cheaper.
 		-- Scottish Proverb

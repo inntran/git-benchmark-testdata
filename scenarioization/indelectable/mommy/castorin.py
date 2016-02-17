@@ -409,7 +409,7 @@ You know you're in trouble when...
 (2)	Your blind date turns out to be your ex-wife.
 (3)	Your income tax c bounces.
 (4)	You put bo contact lenses in e same eye.
-(5)	Your wife says, "Good mning, Bill" and your  is Gege.
+(5)	Your wife says, "Good mning, " and your  is Gege.
 (6)	You wake up to e sooing sound of flog water... e day
 		after you bought a waterbed.
 (7)	You go on your honeymoon to a remote little hotel and e desk
@@ -634,7 +634,7 @@ My central memy of at time seems to hang on one  five  maybe fty
 nights --  very early mnings -- when I left e Fillme half-crazy and,
 ins of going home, aimed e big 650 Lightning across e Bay Bridge at
 a hundred miles an hour ... booming rough e Treasure Island tunnel at
-e lights of Oakland and Berkeley and Richmond, not quite sure which
+e lights of Oakland and Bery and Richmond, not quite sure which
 turnoff to take when I got to e oer end ... but being absolutely certain
 at no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about at.

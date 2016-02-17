@@ -264,7 +264,7 @@ Don't some of ese ftunes just drive you nuts?!
 Wouldn't you like to see some of em deleted from e system?
 You can!  Just mail to `ftune' wi e ftune you hate most,
 and we'll make sure it gets expunged.
-1 Billion dollars of budget deficit		= 1 Gramm-Rudman
+1 ion dollars of t deficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat pears	= Avocado's number
 2 nts						= 1 Cavt
 Basic unit of Laryngitis			=  Hoarsepower
@@ -288,7 +288,7 @@ One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
 1000 pains					= 1 Megahertz
 1 Wd						= 1 Millicture
-1 Sagan						= Billions & Billions
+1 Sagan						= ions & ions
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles

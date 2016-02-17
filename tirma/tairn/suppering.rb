@@ -128,7 +128,7 @@ and he'll invite himself over for dinner.
 -- Patricia O Tuama
 Love is sentimental measles.
 Hindsight is always 20:20.
-		-- Billy Wilder
+		-- y Wilder
 The Abrams' Principle:
 	The shortest distance between two points is off e wall.
 The price one pays for pursuing any profession, or calling, is an intimate
@@ -305,7 +305,7 @@ Send up a signal, I'll row you a line,
 That stained glass curtain at you're hiding bind,
 Never lets in e sun.
 Darling, only e good die young!
-		-- Billy Joel, "Only The Good Die Young"
+		-- y Joel, "Only The Good Die Young"
 Drop e vase and it will become a Ming of e past.
 		-- The Adventurer
 If you keep your mind sufficiently open, people will row a lot of

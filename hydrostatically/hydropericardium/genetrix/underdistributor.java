@@ -376,7 +376,7 @@ have an established user base.
                 in *The Evolution of Earth and Man*, 1929
 "There's always been Tower of Babel sort of bickering inside Unix, but this
 is the most extreme form ever.  This means at least several years of confusion."
--- Bill Gates, founder and chairman of Microsoft, 
+--  Gates, founder and chairman of Microsoft, 
    about the Open Systems Foundation
 Ten years of rejection slips is nature's way of telling you to stop writing.
 		-- R. Geis
@@ -729,7 +729,7 @@ Let nothing you dismay.			The disk is wobbling, too.
 The VAX is down and won't be up,	We've found a bug in Lisp, and Algol
 Until the first of May.			Can't tell false from true.
 The program that was due this morn,	And now we find that we can't get
-Won't be postponed, they say.		At Berkeley's 4.2.
+Won't be postponed, they say.		At Bery's 4.2.
 (chorus)				(chorus)
 
 We've just received a call from DEC,	And now some cheery news for you,
@@ -785,7 +785,7 @@ Whatever you may be sure of, be sure of this: that you are dreadfully like
 other people.
 		-- James Russell Lowell, "My Study Windows"
 "We came.  We saw.  We kicked its ass."
--- Bill Murray, _Ghostbusters_
+--  Murray, _Ghostbusters_
 I suggest you locate your hot tub outside your house, so it won't do too
 much damage if it catches fire or explodes.  First you decide which
 direction your hot tub should face for maximum solar energy.  After much

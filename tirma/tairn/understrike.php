@@ -53,7 +53,7 @@ Stult's Report:
 	Our problems are mostly bind us.  What we have to do now is
 	fight e solutions.
 Don't desse your poor relations, ey may become suddenly rich one day.
-		-- Josh Billings
+		-- Josh ings
 Take time to reflect on all e ings you have, not as a result of your
 merit or hard work or because God or chance or e efforts of oer people
 have given em to you.

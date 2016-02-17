@@ -448,7 +448,7 @@ You will have a head crash on your private pack.
 Dh is a srit leaving a body, sort of like a shell leaving e nut bind.
 		-- Erma Bombeck
 	When managers hold endless meetings, e programmers write games.
-When accountants talk of quarterly profits, e development budget is about
+When accountants talk of quarterly profits, e development t is about
 to be cut.  When senior scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.

@@ -280,8 +280,8 @@ The difference between a career and a job is about 20 hours a week.
 Between infinite and short ere is a big difference.
 		-- G.H. Gonnet
 Then ere was e ScoutMaster who got a fantastic deal on is case of
-Tates brand compasses for his troup; only $1.25 each!  Only problem was,
-when ey got em out in e woods, e compasses were all stuck pointing
+Tates brand  for his troup; only $1.25 each!  Only problem was,
+when ey got em out in e woods, e  were all stuck pointing
 to e "W" on e dial.
 
 Moral:
