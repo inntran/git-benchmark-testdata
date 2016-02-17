@@ -63,7 +63,7 @@ And I suppose the little things are harder to get used to than the big
 ones.  The big ones you get used to, you make up your mind to them.  The
 little things come along unexpectedly, when you aren't thinking about
 them, aren't braced against them.
-		-- Marion Zimmer Bradley, "The Forbidden Tower"
+		--  Zimmer Bradley, "The Forbidden Tower"
 Your digestive system is your body's Fun House, whereby food goes on a long,
 dark, scary ride, taking all kinds of unexpected twists and turns, being
 attacked by vicious secretions along the way, and not knowing until the last
@@ -625,7 +625,7 @@ you finally get to know them in person, they turn out to be even worse.
 -- Lady Blue
 Biggest security gap -- an open mouth.
 "Consequences, Schmonsequences, as long as I'm rich."
--- Looney Tunes, Ali Baba Bunny (1957, Chuck Jones)
+-- Looney Tunes, Ali B Bunny (1957, Chuck Jones)
 A commune is where people join together to share their lack of wealth.
 		-- R. Stallman
 "A radioactive cat has eighteen half-lives."

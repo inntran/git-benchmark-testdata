@@ -320,7 +320,7 @@ your control.  But your  is yours, and yours alone, like your voice, or
 your fingers, or your ry, and therefore yours to control.  If you feel
 powerless over your , you have not yet admitted that it is yours, to do
 with as you will.
-		-- Marion Zimmer Bradley, "Stormqueen"
+		--  Zimmer Bradley, "Stormqueen"
 Without coffee he could not work, or at least he could not have worked in the
 way he did.  In addition to paper and pens, he took with him everywhere as an
 indispensable article of equipment the coffee machine, which was no less

@@ -470,7 +470,7 @@ implication.  Advance to manipulation and humiliation.  Above all, relax
 and have a nice day.
 Around computers it is difficult to find the correct unit of time to
 measure progress.  Some cathedrals took a century to complete.  Can you
-imagine the grandeur and scope of a program that would take as long?
+ the grandeur and scope of a program that would take as long?
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 I don't make the rules, Gil, I only play the game.
 		-- Cash McCall

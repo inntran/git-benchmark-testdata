@@ -213,7 +213,7 @@ one every day.
 " lawgiver, of all beings, most owes the law allegiance.
  He of all men should bave as though the law compelled him.
  But it is the universal weakness of mankind that what we are
- given to administer we presently imagine we own."
+ given to administer we presently  we own."
 -- H.G. Wells
 Arnold's Laws of Docntation:
 	(1) If it should exist, it doesn't.

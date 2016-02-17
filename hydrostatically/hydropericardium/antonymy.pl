@@ -9,7 +9,7 @@ One of the rules of Busmanship, New York style, is never surrender your
 s to another passenger.  This may seem callous, but it is the best
 way, really.  If one passenger were to give a s to someone who fainted
 in the aisle, say, the others on the bus would become disoriented and
-imagine they were in Topeka Kansas.
+ they were in Topeka Kansas.
 I have never let my schooling interfere with my education.
 		-- Mark Twain
 When I  up this morning, my girlfriend asked if I had slept well.

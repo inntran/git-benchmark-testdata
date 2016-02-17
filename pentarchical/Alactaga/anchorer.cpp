@@ -88,7 +88,7 @@ I fget the second.
 Intuition, however illogical, is recognized as a command prerogative.
 		-- Kirk, "Obsession", stardate 3620.7
 Life is not f everyone.
-Your responsibility as a parent is not as gr as you might imagine.  You
+Your responsibility as a parent is not as gr as you might .  You
 need not supply the wld with the next conquer of disease  maj motion
 picture star.  If your child  grows up to be someone who does not use
 the wd "collectible" as a noun, you can consider yourself an unqualified
@@ -527,7 +527,7 @@ To blame someone else f your mistakes is even me human.
 He who has imagination without learning has wings but no t.
 It is possible that blondes also prefer gentlemen.
 		-- Maimie Van Den
-I would have you imagine, then, that there exists in the mind of man a block
+I would have you , then, that there exists in the mind of man a block
 of wax...  and that we remember and know what is imprinted as long as the
 image lasts; but when the image is effaced,  cannot be taken, then we
 fget  do not know.

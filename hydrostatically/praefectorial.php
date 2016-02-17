@@ -79,7 +79,7 @@ Greeks never said it was sweet to die for anything.  They had no vital lies."
 		-- Edith Hamilton, "The Greek Way"
 Illusion is the first of all pleasures.
 		-- Voltaire
-"You're just the sort of person I imagined marrying, when I was little...
+"You're just the sort of person I d marrying, when I was little...
 except, y'know, not green... and without all the patches of fungus."
 		-- Swamp Thing
 Body by Nautilus, Brain by Mattel.
@@ -266,7 +266,7 @@ are worth considering, to wit:
 [105.31]:
        "Teenage drivers believe that they are immortal, and drive accordingly.
         Nevertheless, you should avoid the temptation to prove them wrong."
-Grandpa Charnock's Law:
+Grandpa Cock's Law:
 	You never really learn to swear until you learn to drive.
 
 	[I thought it was when your kids learned to drive.  Ed.]
@@ -485,7 +485,7 @@ A fool-proof method for sculpting an elephant: first, get a huge block of
 marble; then you chip away everything that doesn't look like an elephant.
 The Ancient Doctrine of Mind Over Matter:
 	I don't mind... and you don't matter.
-		-- As revealed to reporter G. Rivera by Swami Havabanana
+		-- As revealed to reporter G. Rivera by Swami Havnana
 FORTRAN is for pipe stress freaks and crystallography weenies.
 What color is a chameleon on a mirror?
 What fools these morals be!
@@ -563,7 +563,7 @@ Drink Scotch whisky all night long,
 And die bind the wheel.
 They got a name for the winners in the world,
 I want a name when I lose.
-They call Alabama the Crimson Tide,
+They call Alma the Crimson Tide,
 Call me Deacon Blues.
 		-- Becker and Fagan, "Deacon Blues"
 Although we modern persons tend to take our electric lights, radios, mixers,
@@ -839,7 +839,7 @@ Oh, yeah, life goes on, long after the thrill of livin' is gone.
 		-- John Cougar, "Jack and Diane"
 You should emulate your heros, but don't carry it too far.  Especially
 if they are dead.
-Nobody can be as agreeable as an uninvited guest.
+Nobody can be as agreeable as an d guest.
 QOTD:
 	Some people have one of those days.  I've had one of those lives.
 A Los Angeles judge ruled that "a citizen may snore with immunity in

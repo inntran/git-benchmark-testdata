@@ -120,7 +120,7 @@ on the strength of a prediction from a sixteenth-century physician and
 astrologer Michel de Notredame, the image of the U.S. as a scientific and
 technological nation has taking a bit of a bing lately.  Sadly, such
 happenings cannot be dismissed as passing fancies.  y are manifestations
-of a well-established "anti-science" tendency in the U.S. which, ultimately,
+of a well-established "anti-science"  in the U.S. which, ultimately,
 could thren the country's position as a technological power. . . .  
 manifest widespread desire to reject rationality and substitute a series
 of quasirandom beliefs in der to understand the  does not augur
@@ -373,7 +373,7 @@ ses that are in all the other museums."
 An idealist is one who helps the other fellow to make a profit.
 		-- Henry Fd
 Weinberg, as a young grocery clerk, advised the grocery manager to get
-rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
+rid of rutgas which nobody every bought.  He did so. "Well, kid, that
 was a gr idea," said the manager. n he paused and asked the killer
 question, "NOW what's the least popular vegetable?"
 

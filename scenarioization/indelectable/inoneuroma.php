@@ -200,7 +200,7 @@ Give all orders verbally.  Never write anything down that might go into a
 "Pearl Harbor File".
 Fortune Docnts the Great Legal Decisions:
 
-We can imagine no reason why, with ordinary care, human toes could not be
+We can  no reason why, with ordinary care, human toes could not be
 left out of chewing tobacco, and if toes are found in chewing tobacco, it
 seems to us that someone has been very careless.
 		-- 78 So. 365.
@@ -217,7 +217,7 @@ dills are eaten each year, averaging out to almost 1/4 pickle per person
 per day.  New York Times food critic Mimi Sheraton says "The kosher dill
 really changed my life.  I used to enjoy eating McDonald's hamburgers and
 drinking Iron City Lite, and then I encountered the kosher dill pickle.
-I realized that there was far more to haute cuisine then I'd ever imagined.
+I realized that there was far more to haute cuisine then I'd ever d.
 And now, just look at me."
 You will probably marry after a very brief courtship.
 The only difference between the saint and the sinner is that every saint

@@ -97,7 +97,7 @@ you can always change the channel.
 news: gotcha
 "sic transit discus mundi"
 (From the System Administrat's Guide, by Lars Wirzenius)
-Lawrence R Labaty keeps all its data in an old gray trunk.
+Lawrence R Lty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
 " wages of sin are dh; but after they're done taking out taxes,

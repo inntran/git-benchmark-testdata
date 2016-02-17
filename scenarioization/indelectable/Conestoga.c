@@ -690,7 +690,7 @@ diets that are driving them crazy.
 Except with sour cream.
 How many weeks are there in a light year?
 All's well that ends.
-Pardon this fortune.  Database under reconstruction.
+Pardon this fortune.  Datse under reconstruction.
 When some people decide it's time for everyone to make big changes,
 it means that they want you to change first.
 For if there is a sin against life, it consists perhaps not so much in

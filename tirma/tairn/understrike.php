@@ -516,7 +516,7 @@ proceed forthrightly, without being deflected or swayed, directly to the goal.
 Chisolm's First Corollary to Murphy's Second Law:
 	When things just can't possibly get any worse, they will.
 Only that in you which is me can hear what I'm saying.
-		-- Baba Ram Dass
+		-- B Ram Dass
 Nitwit ideas are for emergencies.  You use them when you've got nothing
 else to try.  If they work, they go in the Book.  Otherwise you follow
 the Book, which is largely a collection of nitwit ideas that worked.

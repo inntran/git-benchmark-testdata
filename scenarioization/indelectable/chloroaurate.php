@@ -207,7 +207,7 @@ Don't SANFORIZE me!!
 Real programs don't  cache.
 Around computers it is difficult to find the correct unit of time to
 measure progress.  Some cathedrals took a century to complete.  Can you
-imagine the grandeur and scope of a program that would take as long?
+ the grandeur and scope of a program that would take as long?
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 "I turn on my television set.  I see a young lady who goes under the guise
 of being a Christian, known all over the nation, dressed in skin-tight

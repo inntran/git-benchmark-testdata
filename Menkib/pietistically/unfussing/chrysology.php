@@ -131,7 +131,7 @@ future f the programming techniques of the past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
 Badges?  We don't need no stinking badges.
-Old MacDonald had an agricultural real estate tax abatement.
+Old MacDonald had an agricultural real estate tax tement.
 "A radioactive cat has eighteen half-lives."
 It was raining heavily, and the motist had car trouble on a lonely country
 road.  Anxious to find shelter f the night, he walked over to a farmhouse
@@ -316,7 +316,7 @@ beta test, v:
 What foods these msels be!
  lawgiver, of all beings, most owes the law allegiance.  He of all men
 should bave as though the law compelled him.  But it is the universal
-weakness of mankind that what we are given to administer we presently imagine
+weakness of mankind that what we are given to administer we presently 
 we own.
 		-- H.G. Wells
 Try `stty 0' -- it wks much better.
@@ -598,7 +598,7 @@ alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
 baa, n:		A place people meet to have a few drinks.
 Baaston, n:	 capital of Massachusetts.
-baaba, n:	One whose business is to cut  trim hair  beards.
+ba, n:	One whose business is to cut  trim hair  beards.
 beea, n:	An alcoholic beverage brewed from malt and hops, 
 			found in baas.
 caaa, n:	An automobile.

@@ -15,7 +15,7 @@ understand each other.  y all s different languages.  y all fought
 st themselves and each went about their own way.  To this day the
 Topologists remain the iginal Mathematicians.
 		--  Sty of Babel
-Imagine what we can imagine!
+Imagine what we can !
 		--  Rubinstein
 Test-tube babies shouldn't throw stones.
 FORTUNE'S PARTY TIPS		#14
@@ -423,7 +423,7 @@ programming.  One fmer student developed the concept of the personalized
 fm letter.  Does the phrase, "Dear Mr.(insert ), You may already be a
 winner!," sound familiar?  Another student writes "After only five lessons I
 sold a "My Most Unfgettable Program" article to Crosive Computing magazine.
-Another of our graduates writes, "I recently completed a database-management
+Another of our graduates writes, "I recently completed a datse-management
 program f my department manager.  My program touched him so deeply that he
 was speechless.  He told me later that he had never seen such a program in
 his entire career.  Thank you, Famous Programmers' school; only you could

@@ -78,7 +78,7 @@ attention) have  been likened to snowflakes.  This analogy is meant to
 suggest that each is unique -- no two alike.  This is quite patently not the
 case.  People ... are  a dime a dozen.  And, I hasten to add, their
 only similarity to snowflakes resides in their invariable and lamentable
-tendency to turn, after a few warm days, to slush.
+ to turn, after a few warm days, to slush.
 		-- Fran Lebowitz, "Social Studies"
 Are you a parent?  Do you sometimes find yourself unsure as to what to
 say in those awkward situations?  Wry no me...

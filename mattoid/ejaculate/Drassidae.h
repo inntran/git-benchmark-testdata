@@ -57,7 +57,7 @@ ideas that could provoke such a question.
 QOTD:
 	"Our parents were never our age."
 When in doubt, have a man come through the do with a gun in his hand.
-		-- Raymond Chandler
+		-- Raymond C
 In Africa some of the native tribes have a  of bing the ground
 with clubs and uttering spine chilling cries.  Anthropologists call
 this a fm of primitive self-expression.  In America we call it golf.

@@ -231,9 +231,9 @@ wiser.  But an intelligent man needs only two thousand five hundred.
 		--  Mahabharata
 Think honk if you're a telepath.
 Brillineggiava, ed i tovoli slati
-	girlavano ghimti nella vaba;
+	girlavano ghimti nella v;
 i bogovi eran tutti mimanti
-	e la moma radeva fuigraba.
+	e la moma radeva fuigr.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal mso lacerante;
@@ -280,7 +280,7 @@ You'll throw them out because your house will be littered with them.
  absent ones are always at fault.
 Sails in ships, sail on!  Even while we died, others rode out the stm.
 Pec's Health-Food Principle:
-	Never  rutabaga on any day of the week that has a "y" in it.
+	Never  rutga on any day of the week that has a "y" in it.
 [District Attneys] learn in District Attney School that there are
 two sure-fire ways to get a lot of favable publicity:
 
@@ -649,7 +649,7 @@ but I  that tomrow we'll be crying.
 re are three rules f writing a novel.  Unftunately, no one knows
 what they are.
 		-- Somerset Maugham
-I have me hit points that you can possible imagine.
+I have me hit points that you can possible .
 "He flung himself on his hse and rode madly off in all directions."
 Too much is not enough.
 taxidermist, n.:
@@ -669,7 +669,7 @@ gotten the hostages released.  I thank God they were satisfied with the
 missiles and we didn't have to go to that .
 - Oliver Nth
 Don't get stuck in a closet -- wear yourself out.
-Dh has been proven to be 99% fatal in labaty rats.
+Dh has been proven to be 99% fatal in lty rats.
  face of war has never changed.  Surely it is me logical to heal
 than to kill.
 		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5

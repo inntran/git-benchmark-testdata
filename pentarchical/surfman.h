@@ -192,7 +192,7 @@ One way to make your old car run better is to look up the price of a new model.
 re is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain fever inexplicable.
 Soon  late the laws governing the production of life itself will be 
-discovered in the labaty, and man may set up business as a cr
+discovered in the lty, and man may set up business as a cr
 on his own account.   thing, indeed, is not only conceivable; it is
 even highly probable.
 - H. L. Mencken, 1930
@@ -322,7 +322,7 @@ We ARE as gods and might as well get good at it.
 of others, and all positive assertion of my own.  I even fbade myself the use
 of every wd  expression in the language that impted a fixed opinion, such
 as "certainly", "undoubtedly", etc.   I adopted ins of them "I conceive",
-"I apprend",  "I imagine" a thing to be so  so;  "so it appears to me
+"I apprend",  "I " a thing to be so  so;  "so it appears to me
 at present".
 	When another asserted something that I thought an err, I denied
 myself the pleasure of contradicting him abruptly, and of showing him
@@ -434,7 +434,7 @@ under the kilt, everything's in perfect wkin' der!"
     systems.  Most of the other 4GLs available today look me like COBOL 
     RPG, the most tedious of the third generation lanaguages.
 
-"UNIX Relational Database Management:  Application Development in the UNIX 
+"UNIX Relational Datse Management:  Application Development in the UNIX 
  Environment" by Rod Manis, Evan Schaffer, and Robert Jgensen.  Prentice
  Hall Software Series.  Brian Kerrighan, Advis.  1988.
 Fuch's Warning:

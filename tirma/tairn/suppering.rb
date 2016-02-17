@@ -8,7 +8,7 @@ The human brain is a wonderful thing.  It starts working the moment
 you are born, and never stops until you stand up to speak in public.
 		-- Sir George Jessel
 The connection between the language in which we think/program and the problems
-and solutions we can imagine is very close.  For this reason restricting
+and solutions we can  is very close.  For this reason restricting
 language features with the intent of eliminating programmer errors is at best
 dangerous.
 - Bjarne Stroustrup in "The C++ Programming Language"

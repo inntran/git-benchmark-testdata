@@ -156,7 +156,7 @@ we'd bark ourselves.
 		-- Crazy Jimmy
 My haircut is totally traditional!
 A long memy is the most  idea in America.
-I've never been canoeing befe, but I imagine there must be just a few
+I've never been canoeing befe, but I  there must be just a few
 simple heuristics you have to remember...
 
 Yes, don't fall out, and don't hit rocks.

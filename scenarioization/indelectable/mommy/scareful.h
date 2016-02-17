@@ -8,7 +8,7 @@ Udall's Fourth Law:
 	Any change or reform you make is going to have consequences you
 	don't like.
 "Consequences, Schmonsequences, as long as I'm rich."
--- Looney Tunes, Ali Baba Bunny (1957, Chuck Jones)
+-- Looney Tunes, Ali B Bunny (1957, Chuck Jones)
 A traveling salesman was driving past a farm when he saw a pig with three
 wooden legs executing a magnificent series of backflips and cartwheels.
 Intrigued, he drove up to the farmhouse, where he found an old farmer

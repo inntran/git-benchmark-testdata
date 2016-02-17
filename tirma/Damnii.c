@@ -457,7 +457,7 @@ Computer science:
 	(2) The protracted value analysis of algorithms.
 	(3) The costly enration of the obvious.
 	(4) The boring art of coping with a large number of trivialities.
-	(5) Tautology harnessed in the service of Man at the speed of light.
+	(5) Tautology essed in the service of Man at the speed of light.
 	(6) The Post-Turing decline in formal systems theory.
 Cancel me not -- for what then shall remain?
 Abscissas, some mantissas, modules, modes,
@@ -493,10 +493,10 @@ O reed by the living pool!  Fair river-daughter!
 O spring-time and summer-time, and spring again after!
 O wind on the waterfall, and the leaves' laughter!
 		-- J. R. R. Tolkien
-Has everyone noticed that all the letters of the word "database" are
+Has everyone noticed that all the letters of the word "datse" are
 typed with the left hand?  Now the layout of the QWERTYUIOP typewriter
 keyboard was designed,  other things, to facilitate the even use
-of both hands.  It follows, therefore, that writing about databases is
+of both hands.  It follows, therefore, that writing about datses is
 not only unnatural, but a lot harder than it appears.
 Nondeterminism means never having to say you are wrong.
 The plot was designed in a light vein that somow became varicose.

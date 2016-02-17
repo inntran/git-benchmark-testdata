@@ -165,7 +165,7 @@ If only I could be respected without having to be respectable.
 If you analyse anything, you destroy it.
 		--  Miller
 Bacon's not the only thing that's cured by hanging from a string.
-Your responsibility as a parent is not as gr as you might imagine.  You
+Your responsibility as a parent is not as gr as you might .  You
 need not supply the wld with the next conquer of disease  maj motion
 picture star.  If your child  grows up to be someone who does not use
 the wd "collectible" as a noun, you can consider yourself an unqualified

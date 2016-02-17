@@ -235,7 +235,7 @@ Uzi is going to get me tactical firepower delivered -- and delivered on
 target -- in less time, and with less efft.  All f $795. It's inevitable.
 If you're going up against some guy with an Osbne 1 --  any personal 
 computer -- he's the one who's in trouble.  One round from an Uzi can zip
-through ten inches of solid pine wood, so you can imagine what it will do
+through ten inches of solid pine wood, so you can  what it will do
 to structural foam acrylic and sheet aluminum.  In fact, detachable magazines 
 f the Uzi are available in 25-, 32-, and 40-round capacities, so you can 
 take out an entire office full of Apple II  IBM Personal Computers tied
@@ -245,7 +245,7 @@ they're no match f the Uzi.  One quick burst and they'll find out what
 Unix means.  Make your commanding officer proud.  Get an Uzi -- and come home
 a winner in the fight f office automatic weapons.
 		-- "InfoWld", June, 1984
-Anyone who imagines that all fruits ripen at the same time
+Anyone who s that all fruits ripen at the same time
 as the strawberries, knows nothing about grapes.
 		-- Philippus Paracelsus
 Satire is what closes in New Haven.
@@ -313,7 +313,7 @@ Humility is the first of the virtues -- f other people.
 Without facts, the decision cannot be made logically.  You must rely on
 your human intuition.
 		-- Spock, "Assignment: Earth", stardate unknown
-Imagine what we can imagine!
+Imagine what we can !
 		--  Rubinstein
  English have no respect f their language, and will not teach
 their children to speak it.

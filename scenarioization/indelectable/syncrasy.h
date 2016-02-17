@@ -33,7 +33,7 @@ church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected with
 religious control of the schools, which are paid f by taxpayers' money.
 - Elean Roosevelt
-Due to lack of disk space, this ftune database has been discontinued.
+Due to lack of disk space, this ftune datse has been discontinued.
 "I hate the itching.  But I don't mind the swelling."
 -- new buzz phrase, like "Where's the Beef?" that David Letterman's trying
    to get everyone to start saying

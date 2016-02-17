@@ -106,9 +106,9 @@ Do not read this ftune under penalty of law.
 Violats will be prosecuted.
 (Penal Code sec. 2.3.2 (II.a.))
 "We want to cre puppets that pull their own strings."
--- Ann Marion
+-- Ann 
 
-"Would this make them Marionettes?"
+"Would this make them ettes?"
 -- Jeff Daiell
 GREAT MOMENTS IN AMERICAN HISTORY (#17):
 
@@ -300,7 +300,7 @@ What's a cult?  It just means not enough people to make a minity.
 		-- Robert Altman
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock befe entering a ladies room!
-Old MacDonald had an agricultural real estate tax abatement.
+Old MacDonald had an agricultural real estate tax tement.
 Oh my GOD -- the SUN just fell into YANKEE STADIUM!!
 WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
