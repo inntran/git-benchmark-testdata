@@ -150,11 +150,11 @@ While most peoples' opinions change, the conviction of their
 crectness never does.
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
 his fellow anti-establishment rabble-rousers, " first thing we do, let's
-kill all the lawyers."  That action may be extreme but a similar sentiment
+kill all the lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connellan, president of  Management Group, Inc.
 Speaking to business executives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
-of attneys and accountants, and a dearth of production experts.  Lawyers
+of attneys and accountants, and a dearth of production exs.  Lawyers
 and accountants "do not make the economic pie any bigger; they only figure
 out how the pie gets divided.  Neither profession provides any added value
 to product."
@@ -162,7 +162,7 @@ to product."
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests that "the U.S. proption of
 pie-bakers and pie-dividers is way out of whack."  Could Dick Butcher have
-been an efficiency expert?
+been an efficiency ex?
 		-- Mot Trend, May 1983
 Soap and education are not as sudden as a massacre, but they are me
 deadly in the long run.

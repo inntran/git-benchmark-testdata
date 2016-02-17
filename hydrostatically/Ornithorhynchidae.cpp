@@ -266,7 +266,7 @@ the rabbit.
 		-- R.E. Shay
 beta test, v:
 	To voluntarily entrust one's data, one's livelihood and one's
-	sanity to hardware  software intended to destroy all three.
+	sanity to hardware  software int to destroy all three.
 	In earlier days, virgins were often selected to beta test volcanos.
 Evolution is a million line computer program falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.

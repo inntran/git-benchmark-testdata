@@ -123,7 +123,7 @@ progress, n.:
 I needed the good will of the legislature of four states.  I formed the
 legislative bodies with my own money.  I found that it was cheaper that way.
 		-- Jay Gould
-A "practical joker" deserves applause for his wit according to its quality.
+A "practical joker" deserves applause for his wit  to its quality.
 Bastinado is about right.  For exceptional wit one might grant keelhauling.
 But staking him out on an anthill should be reserved for the very wittiest.
 		-- Lazarus Long
@@ -441,9 +441,9 @@ All that glitters has a high refractive index.
 -- Charles Tomlinson's Rudimentary Treatise on the Construction of Locks, 
    published around 1850 
 Your mode of life will be changed to EBCDIC.
-An amendment to a motion may be amended, but an amendment to an amendment
-to a motion may not be amended.  However, a substitute for an amendment to
-and amendment to a motion may be adopted and the substitute may be amended.
+An amendment to a motion may be am, but an amendment to an amendment
+to a motion may not be am.  However, a substitute for an amendment to
+and amendment to a motion may be adopted and the substitute may be am.
 		-- The Montana legislature's contribution to the English
 		language.
 Monogamy is the Western custom of one wife and hardly any mistresses.
@@ -904,4 +904,4 @@ I have a switch in my apartment that doesn't do anything.  Every once
 in a while I turn it on and off.  On and off.  On and off.  One day I
 got a call from a woman in France who said "Cut it out!"
 		-- Steven Wright
-Freedom from incrustation of grime is contiguous to rectitude.
+Freedom from intion of grime is contiguous to rectitude.

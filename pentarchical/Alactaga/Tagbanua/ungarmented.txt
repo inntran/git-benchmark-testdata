@@ -74,8 +74,8 @@ hse is a thing which could have wings" conversely imply "It could be that
 Walter's hse has wings"; f it might be that Walter's hse could only
 have wings by not being Walter's hse.
 
-I would deny, though, that the fmula [Necessarily if some x has property P
-then some x has property P] expresses a logical law, since P(x) could stand
+I would deny, though, that the fmula [Necessarily if some x has proy P
+then some x has proy P] expresses a logical law, since P(x) could stand
 f, let us say "x is a better logician than I am", and the statement "It is
 necessary that if someone is a better logician than I am then someone is a
 better logician than I am" is false because there need not have been any me.

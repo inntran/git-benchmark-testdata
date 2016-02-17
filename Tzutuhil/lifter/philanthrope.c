@@ -5,7 +5,7 @@ May you have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This bath is too hot.'"
 		-- Dr. Who
 BASIC is to computer programming as QWERTY is to typing.
-		-- Seymour Papert
+		-- Seymour Pa
 May you live in uninteresting times.
 		-- Chinese proverb
 Often things ARE as bad as they seem!
@@ -21,7 +21,7 @@ mice vs. trackballs...It was very silly."
 What passes f woman's intuition is often nothing me than man's
 transparency.
 		-- Gege Nathan
- function of the expert is not to be me right than other people,
+ function of the ex is not to be me right than other people,
 but to be wrong f me sophisticated reasons.
 		-- Dr. David Butler, British psephologist
 Appendix:

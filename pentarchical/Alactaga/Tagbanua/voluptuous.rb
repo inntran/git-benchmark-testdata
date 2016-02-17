@@ -82,7 +82,7 @@ dismaying.
 Kinetic activity was not in evidence among the
    possesss of this potential, including that
    species of domestic rodent known as Mus musculus.
-Hosiery was meticulously suspended from the fward
+Hosiery was meticulously susp from the fward
    edge of the woodburning calic apparatus,
 Pursuant to our anticipaty pleasure regarding an
    imminent visitation from an eccentric

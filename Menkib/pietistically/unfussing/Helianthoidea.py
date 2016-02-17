@@ -102,7 +102,7 @@ If you want to make God laugh, tell him about your plans.
 		-- Woody Allen
 Take a lesson from the whale; the only time he gets speared is when he
 raises to spout.
-Every man is apt to form his notions of things difficult to be apprehended,
+Every man is apt to form his notions of things difficult to be appreh,
 or less familiar, from their analogy to things which are more familiar.
 Thus, if a man bred to the seafaring life, and accustomed to think and talk
 only of matters relating to navigation, enters into discourse upon any other

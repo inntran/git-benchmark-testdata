@@ -38,7 +38,7 @@ and it is never bing.  Oh, among some po souls, including even
 intellectuals in fields of high scholarship, science is frequently
 misperceived.  Many see it as only a body of facts, promulgated from
 on high in must, unintelligible textbooks, a collection of unchanging
-precepts defended with authitarian vig.  Others view it as nothing
+precepts def with authitarian vig.  Others view it as nothing
 but a cold, dry narrow, plodding, rule-bound process -- the scientific
 method: hidebound, linear, and left brained.
 
@@ -304,7 +304,7 @@ How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 While it cannot be proved retrospectively that any experience of possession,
 conversion, revelation,  divine ecstasy was merely an epileptic discharge,
 we must ask how one differentiates "real transcendence" from neuropathies
-that produce the same extreme realness, profundity, ineffability, and sense
+that produce the same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
 [tempal-lobe epileptics] are laid alongside the epiphanous revelations of
 the religious tradition, the parallels are striking.   same is true of the
@@ -403,7 +403,7 @@ Nothing endures but change.
 the whole suaveness and de which abounds!!
  rights and interests of the labing man will be protected and cared
 f not by our lab agitats, but by the Christian men to whom God in his
-infinite wisdom has given control of property interests of the country, and
+infinite wisdom has given control of proy interests of the country, and
 upon the successful management of which so much remains.
 		-- Gege F. Baer, railroad industrialist
  politician is someone who deals in man's problems of adjustment.
@@ -635,7 +635,7 @@ A prediction is wth twenty explanations.
 		-- K. Brecher
 A public debt is a kind of anch in the stm; but if the anch be
 too heavy f the vessel, she will be sunk by that very weight which
-was intended f her preservation.
+was int f her preservation.
 		-- Colton
 Memy fault -- brain fried
 You'll wish that you had done some of the hard things when they were easier

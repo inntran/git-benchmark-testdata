@@ -93,7 +93,7 @@ While having never invented a sin, I'm trying to perfect several.
 Snow-white!  Snow-white!  O Lady clear!
 O Queen beyond the Western Sea!
 O Light to us that wander here
-Amid the world of woven trees!
+Amid the world of  trees!
 
 	Gilthoniel!  O Elbereth!
 	Clear are thy eyes and bright thy breath!
@@ -260,7 +260,7 @@ any such "show-down" is sacrilegious and perverse.  The characteristic
 of religion, from their point of view, is that it is intellectually
 secret, not public; peculiarly revealed, not generall known; 
 authoritatively declared, not communicated and tested in ordinary 
-ways...It is pertinent to point out that, as long as religion is
+ways...It is inent to point out that, as long as religion is
 conceived as it is now by the great majority of professed religionists,
 there is something self-contradictory in speaking of education in
 religion in the same sense in which we speak of education in topics

@@ -74,19 +74,19 @@ of the universe.   premise is wrong, but the navigation wks.  An
 increct model can be a useful tool.
 		-- Kelvin Throop III
 One Bell System - it used to wk befe they installed the Dimension!
-We're fantastically incredibly sry f all these extremely unreasonable
+We're fantastically incredibly sry f all these ly unreasonable
 things we did.  I can only plead that my simple, barely-sentient friend
 and myself are underprivileged, deprived and also college students.
 		-- Waldo D.R. Dobbs
  cost of living is going up, and the chance of living is going down.
-"None of our men are "experts."  We have most unftunately found it necessary 
-to get rid of a man as soon as he thinks himself an expert -- because no one 
-ever considers himself expert if he really knows his job.  A man who knows a 
+"None of our men are "exs."  We have most unftunately found it necessary 
+to get rid of a man as soon as he thinks himself an ex -- because no one 
+ever considers himself ex if he really knows his job.  A man who knows a 
 job sees so much me to be done than he has done, that he is always pressing 
 fward and never gives up an instant of thought to how good and how efficient 
 he is.  Thinking always ahead, thinking always of trying to do me, brings a 
 state of mind in which nothing is impossible.  moment one gets into the
-"expert" state of mind a great number of things become impossible."
+"ex" state of mind a great number of things become impossible."
 -- From Henry Fd Sr., "My Life and Wk," p. 86 (1922):
 When you become used to never being alone, you may consider yourself
 Americanized.
@@ -399,7 +399,7 @@ You're already carrying the sphere!
 No m how subtle the wizard, a knife in the shoulder blades will seriously
 cramp his style.
 I do not care if half the league strikes.  Those who do will encounter
-quick retribution.  All will be suspended, and I don't care if it wrecks
+quick retribution.  All will be susp, and I don't care if it wrecks
 the National League f five years.  This is the United States of America
 and one citizen has as much right to play as another.
 		-- Fd Frick, National League President, reacting to a

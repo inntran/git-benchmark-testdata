@@ -190,9 +190,9 @@ Democracy is a government where you can say what you think even if you
 don't think.
 I'm not prejudiced, I hate everyone equally.
 Catsup and Mustard all over the place!  It's the Human Hamburger!
-An amendment to a motion may be amended, but an amendment to an amendment
-to a motion may not be amended.  However, a substitute f an amendment to
-and amendment to a motion may be adopted and the substitute may be amended.
+An amendment to a motion may be am, but an amendment to an amendment
+to a motion may not be am.  However, a substitute f an amendment to
+and amendment to a motion may be adopted and the substitute may be am.
 		--  Montana legislature's contribution to the English
 		language.
 I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
@@ -298,7 +298,7 @@ miles closer to globular cluster M13 in the constellation Hercules, and
 still there are some misfits who continue to insist that there is no
 such thing as progress.
 		-- Ransom K. Ferm
-... that the notions of "hardware", and "software" should be extended by
+... that the notions of "hardware", and "software" should be ext by
 the notion of LIVEWARE - being that which produces software f use on
 hardware.  This produces an obvious extension to the concept of MONITORS.
 A liveware monit is a person dedicated to the task of ensuring that the
@@ -308,11 +308,11 @@ REAL-TIME EXECUTIONER to delete liveware that adversely affects ...
 I l ... JUGULAR ...
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
 his fellow anti-establishment rabble-rousers, " first thing we do, let's
-kill all the lawyers."  That action may be extreme but a similar sentiment
+kill all the lawyers."  That action may be  but a similar sentiment
 was expressed by Thomas K. Connellan, president of  Management Group, Inc.
 Speaking to business executives in Chicago and quoted in Automotive News,
 Connellan attributed a measure of America's falling productivity to an excess
-of attneys and accountants, and a dearth of production experts.  Lawyers
+of attneys and accountants, and a dearth of production exs.  Lawyers
 and accountants "do not make the economic pie any bigger; they only figure
 out how the pie gets divided.  Neither profession provides any added value
 to product."
@@ -320,7 +320,7 @@ to product."
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests that "the U.S. proption of
 pie-bakers and pie-dividers is way out of whack."  Could Dick Butcher have
-been an efficiency expert?
+been an efficiency ex?
 		-- Mot Trend, May 1983
 Who goeth a-browing goeth a-srowing.
 		-- Thomas Tusser

@@ -7,7 +7,7 @@ and the wisdom to tell the difference.
 Who will take care of the wld after you're gone?
 High heels are a device invented by a woman who was tired of being kissed
 on the fehead.
-If a subdinate asks you a pertinent question, look at him as if he had
+If a subdinate asks you a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase the question back at him.
  test of intelligent tinkering is to save all the parts.
 		-- Aldo Leopold
@@ -142,7 +142,7 @@ Toes, knees, NIPPLES.  Toes, knees, nipples, KNUCKLES ...
 Nipples, dimples, knuckles, NICKLES, wrinkles, pimples!!
 broad-mindedness, n:
 	 result of flattening high-mindedness out.
-"Every group has a couple of experts.  And every group has at least one idiot.
+"Every group has a couple of exs.  And every group has at least one idiot.
  Thus are ba and harmony (and discd) maintained.  It's sometimes hard
  to remember this in the bulk of the flamewars that all of the hassle and
  pain is generally caused by one  two highly-motivated, caustic twits."

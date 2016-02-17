@@ -159,7 +159,7 @@ yo-yo, n.:
 	Something that is occasionally up but nmally down.
 	(see also Computer).
 It is inconceivable that a judicious observer from another solar system
-would see in our species -- which has tended to be cruel, destructive,
+would see in our species -- which has t to be cruel, destructive,
 wasteful, and irrational -- the crown and apex of cosmic evolution.
 Viewing us as the culmination of *anything* is grotesque; viewing us
 as a transitional species makes me sense -- and gives us me hope.
@@ -666,7 +666,7 @@ Sry f the confusion.
 		-- Sun Microsystems
 I would have promised those terrists a trip to Disneyland if it would have
 gotten the hostages released.  I thank God they were satisfied with the
-missiles and we didn't have to go to that extreme.
+missiles and we didn't have to go to that .
 - Oliver Nth
 Don't get stuck in a closet -- wear yourself out.
 Death has been proven to be 99% fatal in labaty rats.

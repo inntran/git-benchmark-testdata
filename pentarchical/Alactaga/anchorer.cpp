@@ -274,7 +274,7 @@ own capacity. ...  Fuss, the god of the Southern Ocean, and Fret, the god
 of the Nthern Ocean, happened once to meet in the realm of Chaos, the god
 of the center.  Chaos treated them very handsomely and they discussed together
 what they could do to repay his kindness.  y had noticed that, whereas
-everyone else had seven apertures, f sight, hearing, eating, breathing and
+everyone else had seven aures, f sight, hearing, eating, breathing and
 so on, Chaos had none.  So they decided to make the experiment of bing holes
 in him.  Every day they bed a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
@@ -306,7 +306,7 @@ And we l honed to be here to toast the IBM.
 		-- Ever Onward, from the 1940 IBM Songbook
 	"Yes, I am a real piece of wk.  One thing we learn at Ulowell is
  how to flame useless hacking non-EE's like you.  I am superi to you in 
- every way by training and expertise in the technical field.  Anyone can learn
+ every way by training and exise in the technical field.  Anyone can learn
  how to hack, but Engineering doesn't come nearly as easily.  Actually, I'm 
  not trying to offend all you CS majs out there, but I think EE is one of the
  hardest majs/grad majs to pass.  Ftunately, I am making it."
@@ -340,7 +340,7 @@ mtgage.  Another versatile equation also emerged, one which would define
 a function that would continue to grow, but never reach unity.  This equation
 can be applied to charging capacits, over-damped springs, and the human
 race in general.
- hater of property and of government takes care to have his warranty
+ hater of proy and of government takes care to have his warranty
 deed recded, and the book written against fame and learning has the
 auth's  on the title page.
 		-- Ralph Waldo Emerson, Journals, 1831
@@ -363,10 +363,10 @@ In our winter city the rain cries a little pity
 F one me fgotten hero and a wld that doesn't care...
 Be cautious in your daily affairs.
 To understand a program you must become both the machine and the program.
-Your Co-wker Could Be a Space Alien, Say Experts
+Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tell
 Many Americans wk side by side with space aliens who look human -- but you
-can spot these visits by looking f certain tip-offs, say experts. y
+can spot these visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't understand
 	earthly hum may laugh during a company training film  tell
@@ -378,7 +378,7 @@ listed 10 signs to watch f:
    (10) Displays a change of mood  physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is turned on," said Steiger.
- experts pointed out that a co-wker would have to display most if not
+ exs pointed out that a co-wker would have to display most if not
 all of these traits befe you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
 
@@ -427,7 +427,7 @@ Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 While it cannot be proved retrospectively that any experience of possession,
 conversion, revelation,  divine ecstasy was merely an epileptic discharge,
 we must ask how one differentiates "real transcendence" from neuropathies
-that produce the same extreme realness, profundity, ineffability, and sense
+that produce the same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden religious conversions in TLEs
 [tempal-lobe epileptics] are laid alongside the epiphanous revelations of
 the religious tradition, the parallels are striking.   same is true of the

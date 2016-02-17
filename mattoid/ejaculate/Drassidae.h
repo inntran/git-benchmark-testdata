@@ -206,10 +206,10 @@ A New Yk City dinance prohibits the shooting of rabbits from the
 rear of a Third Avenue street car -- if the car is in motion.
 Can't act.  Slightly bald.  Also dances.
 		-- RKO executive, reacting to Fred Astaire's screen test.
-		   Cerf/Navasky, " Experts Speak"
+		   Cerf/Navasky, " Exs Speak"
 Everything that you know is wrong, but you can be straightened out.
 	Once upon a time there was a beautiful young girl taking a stroll 
-through the woods.  All at once she saw an extremely ugly bull frog seated 
+through the woods.  All at once she saw an ly ugly bull frog seated 
 on a log and to her amazement the frog s to her.  "Maiden," croaked the
 frog, "would you do me a fav?  This will be hard f you to believe, but
 I was once a handsome, charming prince and then a mean, ugly old witch cast

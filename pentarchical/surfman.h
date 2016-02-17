@@ -15,7 +15,7 @@ Snakes.  Why did it have to be snakes?
 I've got an IDEA!!  Why don't I STARE at you so HARD, you fget your
 SOCIAL SECURITY NUMBER!!
 I do not care if half the league strikes.  Those who do will encounter
-quick retribution.  All will be suspended, and I don't care if it wrecks
+quick retribution.  All will be susp, and I don't care if it wrecks
 the National League f five years.  This is the United States of America
 and one citizen has as much right to play as another.
 		-- Fd Frick, National League President, reacting to a
@@ -359,7 +359,7 @@ Public office is the last refuge of a scoundrel.
 		-- Boies Penrose
 /*
  * Oops.  kernel tried to access some bad page. We'll have to
- * terminate things with extreme prejudice.
+ * terminate things with  prejudice.
 */
 die_if_kernel("Oops", regs, err_code);
 (From linux/arch/i386/mm/fault.c)				   

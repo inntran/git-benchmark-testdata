@@ -20,7 +20,7 @@ And perhaps the horse will learn to sing.
 		-- "The Mote in God's Eye", Niven and Pournelle
 Good salesmen and good repairmen will never go hungry.
 		-- R.E. Schenk
-It is very difficult to prophesy, especially when it pertains to the future.
+It is very difficult to prophesy, especially when it ains to the future.
 Alliance:  In international politics, the union of two thieves who have their
 hands so deeply inserted in each other's pocket that they cannot separately
 plunder a third.
@@ -29,8 +29,8 @@ Nuclear powered vacuuum cleaners will probably be a reality within 10 years.
 		-- Alex Lewyt (President of the Lewyt Corporation,
 		   manufacturers of vacuum cleaners), quoted in The New York
 		   Times, June 10, 1955.
-If the weather is extremely bad, church attendance will be down.  If
-the weather is extremely good, church attendance will be down.  If the
+If the weather is ly bad, church attendance will be down.  If
+the weather is ly good, church attendance will be down.  If the
 bulletin covers are in short supply, however, church attendance will
 exceed all expectations.
 		-- Reverend Chichester
@@ -97,7 +97,7 @@ Is the trouble with me.
 Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Workingman's Dead"
-Anyone who has attended a USENIX conference in a fancy hotel can tell you
+Anyone who has att a USENIX conference in a fancy hotel can tell you
 that a sentence like "You're one of those computer people, aren't you?"
 is roughly equivalent to "Look, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
@@ -337,7 +337,7 @@ parking lots with a large butterfly net retrieving floating IC chips, Xerox
 decided to give him a break.  If you see Tubby in a parking lot he may have
 a sheepish grin.  This is where the expression, "Service with a slightly
 sheepish grin" comes from.
-Cats are intended to teach us that not everything in nature has a function.
+Cats are int to teach us that not everything in nature has a function.
 		-- Garrison Keillor
 Save gas, don't use the shell.
 Time is nature's way of making sure that everything doesn't happen at once.
@@ -423,7 +423,7 @@ You have the power to influence all with whom you come in contact.
 idea out ahead of oneself so that it gains autonomy and is fulfilled not only
 by the efforts of its originator but, indeed, independently of him as well.
 -- Czeslaw Milosz
-An expert is one who knows more and more about less and less until he knows
+An ex is one who knows more and more about less and less until he knows
 absolutely everything about nothing.
 Lactomangulation, n.:
 	Manhandling the "open here" spout on a milk on so badly
@@ -568,7 +568,7 @@ have plenty of food and water.
 You first have to decide whether to use the short or the long form. The
 short form is what the Internal Revenue Service calls "simplified", which
 means it is designed for people who need the help of a Sears tax-preparation
-expert to distinguish between their first and last names.  Here's the
+ex to distinguish between their first and last names.  Here's the
 complete text:
 
 "(1) How much did you make?  (AMOUNT)
@@ -615,7 +615,7 @@ smaller prime numbers.
 
 Since the composite numbers are formed from primes, their qualities
 are derived from those primes.  So, for instance, the number 6 is "odd
-but true", while the powers of 2 are all extremely odd numbers.
+but true", while the powers of 2 are all ly odd numbers.
 If only God would give me some clear sign!  Like making a large deposit
 in my name at a Swiss Bank.
 - Woody Allen

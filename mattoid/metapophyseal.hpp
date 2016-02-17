@@ -818,7 +818,7 @@ time.  Disk usage in  above the eighth percentile will secure the removal
 of all ions and you will immediately receive your permanent disk
 space.  Disk usage in the sixth  seventh percentile will not effect the
 validity of your tempary disk space, though its expiration date may be
-extended f a period of up to three months.  A sce in the fifth percentile
+ext f a period of up to three months.  A sce in the fifth percentile
  below will result in the withdrawal of your Tempary Disk space.
 To generalize is to be an idiot.
 		-- William Blake
@@ -846,7 +846,7 @@ When a shepherd goes to kill a wolf, and takes his dog along to see
 the spt, he should take care to avoid mistakes.   dog has certain
 relationships to the wolf the shepherd may have fgotten.
 		-- Robert Pirsig, "Zen and the Art of Motcycle Maintenance"
- giraffe you thought you offended last week is willing to be nuzzled today.
+ giraffe you thought you off last week is willing to be nuzzled today.
 "re is such a fine line between genius and stupidity."
 - David St. Hubbins, "Spinal Tap"
 "...very few phenomena can pull someone out of Deep Hack Mode, with two

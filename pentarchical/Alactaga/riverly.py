@@ -348,7 +348,7 @@ Go on, EMOTE!  I was RAISED on thought balloons!!
 Men use thought only to justify their wrong doings, and speech only to
 conceal their thoughts.
 		-- Voltaire
- hater of property and of government takes care to have his warranty
+ hater of proy and of government takes care to have his warranty
 deed recded, and the book written against fame and learning has the
 auth's  on the title page.
 		-- Ralph Waldo Emerson, Journals, 1831

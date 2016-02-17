@@ -159,7 +159,7 @@ My future now hangs in between eigenstates.
 In one I'm enlightened, in the other I ain't.
 If *you* understand, Cecil, then show me the way
 And rescue my psyche from quantum decay.
-But if this queer thing has perplexed even you,
+But if this queer thing has ed even you,
 n I will *___and* I won't see you in Schrodinger's zoo.
 		-- Randy F., Chicago, " Straight Dope, a compendium
 		   of human knowledge" by Cecil Adams

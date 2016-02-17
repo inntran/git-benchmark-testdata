@@ -325,7 +325,7 @@ You will l hungry again in another hour.
 Those who can, do; those who can't, write.
 Those who can't write wk f the Bell Labs Recd.
 He who laughs last didn't get the joke.
-	Once, when the secrets of science were the jealously guarded property
+	Once, when the secrets of science were the jealously guarded proy
 of a small priesthood, the common man had no hope of mastering their arcane
 complexities.  Years of study in musty classrooms were prerequisite to
 obtaining even a dim, incoherent knowledge of science.
@@ -395,10 +395,10 @@ deeds, to boldly split infinitives that no man had split befe -- and thus
 was the Empire fged.
 -- Douglas Adams, _ Hitchhiker's Guide to the Galaxy_
 CCI Power 6/40: one board, a megabyte of cache, and an attitude...
-Your Co-wker Could Be a Space Alien, Say Experts
+Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tell
 Many Americans wk side by side with space aliens who look human -- but you
-can spot these visits by looking f certain tip-offs, say experts. y
+can spot these visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't understand
 	earthly hum may laugh during a company training film  tell
@@ -410,7 +410,7 @@ listed 10 signs to watch f:
    (10) Displays a change of mood  physical reaction when near certain
 	high-tech hardware.  "An alien may experience a mood change when
 	a microwave oven is turned on," said Steiger.
- experts pointed out that a co-wker would have to display most if not
+ exs pointed out that a co-wker would have to display most if not
 all of these traits befe you can positively identify him as a space alien.
 		-- National Enquirer, Michael Cassels, August, 1984.
 

@@ -8,7 +8,7 @@ But I will trick those dirty skunks
 And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
- hater of property and of government takes care to have his warranty
+ hater of proy and of government takes care to have his warranty
 deed recded, and the book written against fame and learning has the
 auth's  on the title page.
 		-- Ralph Waldo Emerson, Journals, 1831
@@ -252,7 +252,7 @@ played.  re would be a great increase in broken arms, legs, and necks,
 and simultaneously an appreciable diminution in the loss to humanity.
 		-- H. L. Mencken
 Lab, n.:
-	One of the processes by which A acquires property f B.
+	One of the processes by which A acquires proy f B.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Foolproof Operation:
 	No provision f adjustment.

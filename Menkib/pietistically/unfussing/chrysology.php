@@ -40,7 +40,7 @@ Avoid gunfire in the bathroom tonight.
 You first have to decide whether to use the sht  the long fm. 
 sht fm is what the Internal Revenue Service calls "simplified", which
 means it is designed f people who need the help of a Sears tax-preparation
-expert to distinguish between their first and last s.  Here's the
+ex to distinguish between their first and last s.  Here's the
 complete text:
 
 "(1) How much did you make?  (AMOUNT)
@@ -311,7 +311,7 @@ Bachel:
 --  Buzzcocks
 beta test, v:
 	To voluntarily entrust one's data, one's livelihood and one's
-	sanity to hardware  software intended to destroy all three.
+	sanity to hardware  software int to destroy all three.
 	In earlier days, virgins were often selected to beta test volcanos.
 What foods these msels be!
  lawgiver, of all beings, most owes the law allegiance.  He of all men
@@ -451,7 +451,7 @@ scientific colleagues....It has been clear f a long time that the president
 is averse to science...In general, these attitudes fall onto friendly American
 turf....But at the outer edges, this skepticism about science easily turns
 into a kind of naive acceptance of nonscience,  even nonsense.   same
-people who doubt experts can also believe any quackery, from the benefits of
+people who doubt exs can also believe any quackery, from the benefits of
 laetrile to eye of newt to the movment of planets.  We lose the capacity to
 make rational -- scientific -- judgments.  It's all the same.
 -- Ellen Goodman,  Boston Globe Newspaper Company-Washington Post Writers 
