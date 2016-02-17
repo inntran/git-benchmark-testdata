@@ -20,8 +20,8 @@ everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo ose ings sound pretty good to me.
 		-- Sparky Anderson
-Take your wk seriously but never take yourself seriously; and do not
-take what happens eier to yourself  your wk seriously.
+Take your wk usly but never take yourself usly; and do not
+take what happens eier to yourself  your wk usly.
 		-- Boo Tarkington
 Most people are too busy to have time f anying imptant.
 Life is cheap, but e accessies can kill you.
@@ -193,7 +193,7 @@ Don't confuse ings at need action wi ose at take care of emselves.
 "I prefer to ink at God is not dead, just drunk" 
 -- John Huston
 Most of your faults are not your fault.
-You are taking yourself far too seriously.
+You are taking yourself far too usly.
 I'm very good at  and differential calculus,
 I know e scientific s of beings animalculous;
 In sht, in ms vegetable, animal, and mineral,
@@ -246,7 +246,7 @@ Why is it called a funny bone when it hurts so much?
 Suppt your local police fce -- steal!!
 "In e  between you and e wld, back e wld."
  --Frank Zappa
-Q:	How can you tell when a Burroughs salesman is lying?
+Q:	How can you tell when a Burroughs salen is lying?
 A:	When his lips move.
 Very few profundities can be expressed in less an 80 characters.
 Moer told me to be good but she's been wrong befe.

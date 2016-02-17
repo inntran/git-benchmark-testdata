@@ -2,12 +2,12 @@
 	Because knowledge is torture, and ere must be awareness before
 ere is change.
 		-- Jim Starlin, "Captain Marvel", #29
-The smallest worm will turn being trodden on.
+The llest worm will turn being trodden on.
 		-- William Shakespeare, "Henry VI"
 QOTD:
 	"When she hauled ass, it took ree trips."
 You will be dead wiin a year.
-Beggar to well-dressed businessman:
+Beggar to well-dressed businesn:
 	"Could you spare $20.95 for a fif of Chivas?"
 Why do maematicians insist on using words at already have anoer
 meaning?  "It is e complex case at is easier to deal wi."  "If it
@@ -79,7 +79,7 @@ merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
 which are part of a newspaper's harmless pleasure and make no tru claims,
 astrology is a fraud.  The idea at it gets a hearing in government is
-dismaying.
+diying.
 -- George Will, Washing Post Writers Group
 The most disable ing at your worst enemy says to your face does
 not approach what your best friends say bind your back.
@@ -169,7 +169,7 @@ hitch e leng and bread of e Galaxy, struggle against terrible odds,
 reckoned wi.
 		-- Douglas Adams, "The Hitchhiker's Guide to e Galaxy"
 You will be run over by a bus.
-Per buck you get more computing action wi e small computer.
+Per buck you get more computing action wi e ll computer.
 		-- R.W. Hamming
 Staff meeting in e conference room in %d minutes.
 Love is e process of my leading you gently back to yourself.
@@ -246,7 +246,7 @@ Satisfaction Guaranteed		We'll send you anoer pack if it fails.
 Stock Item			We shipped it before and can do it again.
 If e vendors started doing everying right, we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
-on being employed until we drop, or get smart and switch to ,
+on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 Tact, n.:

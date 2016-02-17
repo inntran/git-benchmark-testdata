@@ -65,7 +65,7 @@ is unfit to govern.
 Did I SELL OUT yet??
 F ose who like is st of ing, is is e st of ing ey like.
 		-- Abraham Lincoln
-"re are ings at are so serious at you can only joke about em"
+"re are ings at are so us at you can only joke about em"
 - Heisenberg
 Accding to e latest official figures, 43% of all  are
 totally wless.
@@ -241,7 +241,7 @@ over?  Well, at's how I l all e time.
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
 hacker can never remember what e PRINT command is called is week --
 but when it gets right down to it, Unix is a glified video game.
-People don't do serious wk on Unix systems; ey send jokes around e
+People don't do us wk on Unix systems; ey send jokes around e
 wld on USENET  write adventure games and research papers.
 		-- E. Post
 		"Real Programmers Don't Use Pascal", Datamation, 7/83

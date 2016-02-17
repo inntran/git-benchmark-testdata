@@ -92,7 +92,7 @@ Absolutum obsoletum.  (If it works, it's out of date.)
 O imitators, you slavish herd!
 		-- Quintus Horatius Flaccus (Horace)
 	Against his wishes, a math teacher's classroom was remodeled.  Ever
-since, he's been talking about the good old dais.  His students planted a small
+since, he's been talking about the good old dais.  His students planted a ll
 orchard in his honor; the trees all have square roots.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
@@ -350,7 +350,7 @@ Civilization is fun!  Anyway, it keeps me busy!!
 Line Printer paper is strongest at the perforations.
 Look at it this way: Your wife's spending $280 a  on meditation lessons to
 forget $26,000 of college education. And you're still drinking ordinary scotch?
-"Never underestimate the power of a small tactical nuclear weapon."
+"Never underestimate the power of a ll tactical nuclear weapon."
 :  What's new, Norm?
 Norm: Most of my wife.
 		-- Cheers, The Spy Who Came in for a Cold One
@@ -559,7 +559,7 @@ speaking, an extremely unnatural condition."
 The Ruffed Pandanga of Borneo and Rotherham spreads out his feathers in
 his courtship dance and imitates Winston Churchill and Tommy Cooper on
 one leg.  The padanga is dying out because the female padanga doesn't
-take it too seriously.
+take it too usly.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 It's easier to take it apart than to put it back together.
 		-- Washlesky
@@ -568,8 +568,8 @@ Tomorrow's computers some time next .
 Women waste men's lives and think they have indemnified them by a few
 gracious words.
 		-- Honor'e de Balzac
-	"Surely you can't be serious."
-	"I am serious, and stop calling me Shirley."
+	"Surely you can't be us."
+	"I am us, and stop calling me Shirley."
 		-- "Airplane"
 Save energy: be apathetic.
 And thou shalt eat it as barley cakes, and thou shalt bake it with dung that
@@ -578,7 +578,7 @@ have given thee cow's dung for man's dung, and thou shalt prepare thy bread
 therewith.
 [Ezek. 4:12-15 (KJV)]
 write-protect tab, n.:
-	A small sticker created to cover the unsightly notch carelessly left
+	A ll sticker created to cover the unsightly notch carelessly left
 	by disk manufacturers.  The use of the tab creates an error message
 	once in a while, but its aesthetic value far outweighs the momentary
 	inconvenience.
@@ -608,7 +608,7 @@ Psychiatry is the care of the id by the odd.
 Show me a sane man and I will cure him for you.
 		-- C.G. Jung
 A lost ounce of gold may be found, a lost moment of time never.
-Q:	How can you tell when a Burroughs salesman is lying?
+Q:	How can you tell when a Burroughs salen is lying?
 A:	When his lips move.
 It must have been some unmarried fool that said "A child can ask questions
 that a wise man cannot answer"; because, in any decent house, a brat that
@@ -659,20 +659,20 @@ much closer to a truly religious situation on earth.
 You are in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
-A traveling salesman was driving past a farm when he saw a pig with three
+A traveling salen was driving past a farm when he saw a pig with three
 wooden legs executing a magnificent series of backflips and cartwheels.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
-	"That's quite a pig you have there, sir" said the salesman. 
+	"That's quite a pig you have there, sir" said the salen. 
 	"Sure is, son," the farmer replied.  "Why, two years ago, my daughter
 was swimming in the lake and bumped her head and damned near drowned, but that
 pig swam out and dragged her back to shore."
-	"Amazing!"  the salesman exlaimed.
+	"Amazing!"  the salen exlaimed.
 	"And that's not the only thing.  Last fall I was cuttin' wood up on
 the north forty when a tree fell on me.  Pinned me to the ground, it did.  
 That pig run up and wiggled underneath that tree and lifted it off of me.
 Saved my life."
-	"Fantastic!  the salesman said.  But tell me, how come the pig has
+	"Fantastic!  the salen said.  But tell me, how come the pig has
 three wooden legs?"
 	The farmer stared at the newcomer in amazement.  "Mister, when you 
 got an amazin' pig like that, you don't eat him all at once."
@@ -680,7 +680,7 @@ Drinking makes such fools of people, and people are such fools to begin
 with, that it's compounding a felony.
 		-- Robert Benchley
 The better the state is established, the fainter is humanity.
-To make the individual uncomfortable, that is my task.
+To make the individual un, that is my task.
 		-- Nietzsche
 He who spends a storm beneath a tree, takes life with a grain of TNT.
 A chicken is an egg's way of producing more eggs.
@@ -697,8 +697,8 @@ C'est magnifique, mais ce n'est pas la guerre!
 	[It is magnificent, but it is not war]
 		-- Pierre Bosquet, witnessing the charge of the Light Brigade
 Chairman of the Bored.
-Any dramatic series the producers want us to take seriously as a representation
-of contemporary reality cannot be taken seriously as a representation of
+Any dramatic series the producers want us to take usly as a representation
+of contemporary reality cannot be taken usly as a representation of
 anything -- except a show to be ignored by anyone capable of sitting upright
 in a chair and chewing gum simultaneously.
 		-- Richard Schickel
@@ -726,7 +726,7 @@ the vexation of thinking.
 		-- Ralph Waldo Emerson, Journals, 1831
 So many men; so little time.
 God rest ye CS students now,		The bearings on the drum are gone,
-Let nothing you dismay.			The disk is wobbling, too.
+Let nothing you diy.			The disk is wobbling, too.
 The VAX is down and won't be up,	We've found a bug in Lisp, and Algol
 Until the first of May.			Can't tell false from true.
 The program that was due this morn,	And now we find that we can't get

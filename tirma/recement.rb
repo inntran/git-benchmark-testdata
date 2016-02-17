@@ -33,7 +33,7 @@ Life is like a bad margarita with good tequila, I thought as I poured whiskey
 onto my granola and faced a new day.
 		-- Peter Applebome, International Imitation Hemingway
 		   Competition
-"You can't expect a mother to be with a small child all the time," Margaret
+"You can't expect a mother to be with a ll child all the time," Margaret
 Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twelve hours a day, either.
@@ -120,7 +120,7 @@ version of the integrated system as a test bed for debugging its piece.  Their
 work will be set back by having that test bed change under them.  Of course it
 must.  But the changes need to be quantized.  Then each user has periods of
 productive stability, interrupted by bursts of test-bed change.  This seems
-to be much less disruptive than a constant rippling and trembling.
+to be much less  than a constant rippling and trembling.
 - Frederick Brooks Jr., "The Mythical Man Month" 
 My religion consists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight details we are able to perceive
@@ -158,7 +158,7 @@ I never killed a man that didn't deserve it.
 WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
 Hoare's Law of Large Problems:
-	Inside every large problem is a small problem struggling to get out.
+	Inside every large problem is a ll problem struggling to get out.
 "We can't schedule an orgy, it might be construed as ing"
 --Stanley Sutton
 Endless the world's turn, endless the sun's spinning
@@ -218,7 +218,7 @@ notice how your friend twitched violy and cried out in pain?  This
 teaches us that electricity can be a very powerful force, but we must never
 use it to hurt others unless we need to learn an important electrical lesson.
 	It also teaches us how an electrical circuit works.  When you scuffed
-your feet, you picked up batches of "electrons", which are very small objects
+your feet, you picked up batches of "electrons", which are very ll objects
 that carpet manufacturers weave into carpets so they will attract dirt.
 The electrons travel through your bloodstream and collect in your finger,
 where they form a spark that leaps to your friend's filling, then travels
@@ -363,7 +363,7 @@ awareness of the great goals for Man and the society he conspired to erect.
 		-- David Baker, paraphrasing Harold Urey, in
 		   "The History of Manned Space Flight"
 As I was walking down the street one dark and dreary day,
-I came upon a billboard and much to my dismay,
+I came upon a billboard and much to my diy,
 The words were torn and tattered,
 From the storm the night before,
 The wind and rain had done its work and this is how it goes,

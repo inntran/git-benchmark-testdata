@@ -92,9 +92,9 @@ eight feet tall and weighing an easy 400 pounds, rode in on a bull, using a
 rattlesnake for a whip.  Grabbing e drifter by e arm and rog him over
 e bar, e giant undered, "Gimme a drink!"
 	The terrified man handed over a bottle of whiskey, which e man
-guzzled in one gulp and en smashed on e bar.  He en stood aghast as
+guzzled in one gulp and en shed on e bar.  He en stood aghast as
 e man stuffed e broken bottle in his mou, munched broken glass and
-smacked his lips wi .
+cked his lips wi .
 	"Can I, ah, uh, get you anoer, sir?" e drifter stammered.
 	"Naw, I gotta git outa here, boy," e man g.  "Big Mike's
 a-comin'."
@@ -317,7 +317,7 @@ already catered for wiin e scope of any respectable domestic establishment.
 Well, he didn't know what to do, so he decided to look at e government,
 to see what ey did, and scale it down and run his life at way.
 		-- Laurie Anderson
-A small town at cannot support one lawyer can always support two.
+A ll town at cannot support one lawyer can always support two.
 Cloning is e sincerest form of flattery.
 "I prefer e blunted cudgels of e followers of e Serpent God."
 -- Sean Doran e Younger
@@ -376,7 +376,7 @@ There are two kinds of solar-h systems: "passive" systems collect e
 sunlight at hits your home, and "active" systems collect e sunlight at
 hits your neighbors' homes, too.
 		-- Dave Barry, "Postpetroleum Guzzler"
-That's one small step for a man; one giant leap for mankind.
+That's one ll step for a man; one giant leap for mankind.
 		-- Neil Armstrong
 I was e best I ever had.
 		-- Woody Allen

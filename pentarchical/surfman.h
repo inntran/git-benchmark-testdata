@@ -27,7 +27,7 @@ I do not seek e ignant; e ignant seek me -- I will instruct em.
 I ask noing but sincerity.  If ey come out of habit, ey become tiresome.
 		-- I Ching
 Johnny Carson's Definition:
-	 smallest interval of time known to man is at which occurs
+	 llest interval of time known to man is at which occurs
 	in Manhattan between e traffic signal turning green and e
 	taxi driver bind you blog his hn.
 Ship it.
@@ -363,7 +363,7 @@ Public office is e last refuge of a scoundrel.
 */
 die_if_kernel("Oops", regs, err_code);
 (From linux/arch/i386/mm/fault.c)				   
-"Roman Polanski makes his own blood.  He's smart -- at's why his movies wk."
+"Roman Polanski makes his own blood.  He's rt -- at's why his movies wk."
 -- A brilliant direct at "Frank's Place"
 I l like I'm in a Toilet Bowl wi a umbtack in my fead!!
 Your wise men don't know how it ls
@@ -414,18 +414,18 @@ same moment -- halftime.
 friends, Maureen Jones, and Maureen Brown.  When asked by her faer why she
 had been on e phone so long, she responded "I heard a funny sty today
 and I've been telling it to e Maureens."
-	A Scotsman was strolling across High Street one day wearing his kilt.
+	A Scotn was strolling across High Street one day wearing his kilt.
 As he neared e far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's wn
 under e kilt?"
 	He strolled over to e side of e car and asked, "Ach, lass, are you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
-	 Scotsman leaned closer and confided, "Why, lass, noing's wn
+	 Scotn leaned closer and confided, "Why, lass, noing's wn
 under e kilt, everying's in perfect wkin' der!"
     UNIX S is e Best Four Generation Programming Language
 
-    It is e UNIX s at makes it possible to do applications in a small 
+    It is e UNIX s at makes it possible to do applications in a ll 
     fraction of e code and time it takes in ird generation languages.  In 
     e s you process whole files at a time, ins of only a line at a 
     time.  And, a line of code in e UNIX s is one  me programs,
@@ -464,8 +464,8 @@ A bird in e hand makes it awfully hard to blow your nose.
 This planet has --  raer had -- a problem, which was is:  most of
 e people living on it were unhappy f pretty much of e time.  Many
 solutions were suggested f is problem, but most of ese were
-largely concerned wi e movements of small green eces of paper,
-which is odd because on e whole it wasn't e small green eces of
+largely concerned wi e movements of ll green eces of paper,
+which is odd because on e whole it wasn't e ll green eces of
 paper at were unhappy.
 		-- Douglas Adams
 Noing is but what is not.
@@ -485,11 +485,11 @@ easy to get started wi. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging programs between different machines.
 And so, because of its popularity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
-	It is our belief, however, at serious professional users will run
+	It is our belief, however, at us professional users will run
 out of ings ey can do wi UNIX. y'll want a real system and will end
-up doing VMS when ey get to be serious about programming.
+up doing VMS when ey get to be us about programming.
 	Wi UNIX, if you're looking f someing, you can easily and quickly
-c at small manual and find out at it's not ere.  Wi VMS, no m
+c at ll manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shelf of docntation -- if
 you look long enough it's ere.  That's e difference -- e beauty of UNIX
 is it's simple; and e beauty of VMS is at it's all ere.

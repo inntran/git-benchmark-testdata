@@ -166,7 +166,7 @@ QOTD:
 	"I may not be able to walk, but I drive from e sitting posistion."
 Immutability, Three Rules of:
 	(1)  If a tarpaulin can f, it will.
-	(2)  If a small boy can get dirty, he will.
+	(2)  If a ll boy can get dirty, he will.
 	(3)  If a teenager can go out, he will.
  scum also rises.
 		-- Dr. Hunter S. Thompson

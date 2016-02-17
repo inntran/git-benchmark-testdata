@@ -343,7 +343,7 @@ consider having anying removed.  We hired you as you are, and to have
 anying removed would certainly make you less an we bargained f.
 I love ROCK 'N ROLL!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
-Aberdeen was so small at when e family wi e car went
+Aberdeen was so ll at when e family wi e car went
 on vacation, e gas station and drive-in re had to close.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#4
 
@@ -449,7 +449,7 @@ Do what comes naturally.  Seee and f and row a tantrum.
 If you're right 90% of e time, why quibble about e remaining 3%?
 O love, could ou and I wi fate consre
 To grasp is sry scheme of ings entire,
-Might we not smash it to bits
+Might we not sh it to bits
 And mould it closer to our hearts' desire?
 		-- Omar Khayyam, tr. FitzGerald
 Time and tide wait f no man.
@@ -675,7 +675,7 @@ still ere are some misfits who continue to insist at ere is no
 such ing as progress.
 		-- Ransom K. Ferm
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it .
+	Don't take life too usly; you won't get out of it .
 Your only obligation in any lifetime is to be true to yourself.  Being
 true to anyone else  anying else is not only impossible, but e
 mark of a fake messiah.   simplest questions are e most profound.
@@ -873,7 +873,7 @@ Anxious after e delay, Gruber doesn't waste any time getting e Koenig
 [a modified Psche] up to speed, and almost immediately we are blog off
 Alfas, Fiats, and Lancias full of excited Italians.  se people love fast
 cars.  But ey love spt too and no passing encounter goes unchallenged.
-Noing serious, just two wheels into your lane as you're bearing down on
+Noing us, just two wheels into your lane as you're bearing down on
 em at 130-plus -- to see if you're paying attention.
 		-- Road & Track article about driving two absurdly fast
 		   cars across Europe.

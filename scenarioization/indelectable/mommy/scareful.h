@@ -9,20 +9,20 @@ Udall's Four Law:
 	don't like.
 "Consequences, Schmonsequences, as long as I'm rich."
 -- Looney Tunes, Ali B Bunny (1957, Chuck Jones)
-A traveling salesman was driving past a farm when he saw a g wi ree
+A traveling salen was driving past a farm when he saw a g wi ree
 wooden legs executing a magnificent series of backflips and cartwheels.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
-	"That's quite a g you have ere, sir" said e salesman. 
+	"That's quite a g you have ere, sir" said e salen. 
 	"Sure is, son," e farmer replied.  "Why, two years ago, my daughter
 was swimming in e e and bumped her head and damned near drowned, but at
 g swam out and dragged her back to shore."
-	"Amazing!"  e salesman exlaimed.
+	"Amazing!"  e salen exlaimed.
 	"And at's not e only ing.  Last fall I was cuttin' wood up on
 e nor forty when a tree fell on me.  Pinned me to e ground, it did.  
 That g run up and wiggled undernh at tree and lifted it off of me.
 Saved my life."
-	"Fantastic!  e salesman said.  But tell me, how come e g has
+	"Fantastic!  e salen said.  But tell me, how come e g has
 ree wooden legs?"
 	The farmer stared at e newcomer in a.  "Mister, when you 
 got an amazin' g like at, you don't  him all at once."
@@ -102,28 +102,28 @@ and to e republic for which it stands,
 one nation,
 indivisible,
 wi liberty
-There are two ways of disliking art.   One is to dislike it.  The oer is
+There are two ways of disliking art.   One is to  it.  The oer is
 and justice for all.
 		-- Francis Bellamy, 1892
 Entropy isn't what it used to be.
 Women give to men e very gold of eir lives.  Possibly; but ey
-invariably want it back in such very small change.
+invariably want it back in such very ll change.
 		-- Oscar Wilde
-	A Scotsman was strolling across High Street one day wearing his kilt.
+	A Scotn was strolling across High Street one day wearing his kilt.
 As he neared e far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's worn
 under e kilt?"
 	He strolled over to e side of e car and asked, "Ach, lass, are you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
-	The Scotsman leaned closer and confided, "Why, lass, noing's worn
+	The Scotn leaned closer and confided, "Why, lass, noing's worn
 under e kilt, everying's in perfect workin' order!"
 Frankfort, Kentucky, makes it against e law to shoot off a policeman's tie.
 "Rights" is a fictional abstraction.  No one has "Rights", neier machines
 nor flesh-and-blood.  Persons... have opportunities, not rights, which ey
 use or do not use.
 		-- Lazarus Long
-The smallest worm will turn being trodden on.
+The llest worm will turn being trodden on.
 		-- William Shakespeare, "Henry VI"
 Revolution, n.:
 	In politics, an abrupt change in e form of misgovernment.

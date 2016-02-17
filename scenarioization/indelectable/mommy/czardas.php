@@ -133,19 +133,19 @@ Famous last wds:
 	(8) Don't wry!  Women love it!
 I've always considered statesmen to be me expendable an soldiers.
 Conscience is what hurts when everying else ls so good.
-	 salesman and e system analyst took off to spend a weekend in e
+	 salen and e system analyst took off to spend a weekend in e
 fest, hunting bear.  y'd rented a cabin, and, when ey got ere, took
-eir backpacks off and put em .  At which point e salesman 
+eir backpacks off and put em .  At which point e salen 
 to his friend, and said, "You unpack while I go and find us a bear."
 	Puzzled, e analyst finished unpacking and en went and sat down
 on e pch.  Soon he could hear  noises in e fest.   noises
-got nearer -- and louder -- and suddenly ere was e salesman, running like
+got nearer -- and louder -- and suddenly ere was e salen, running like
  across e clearing toward e cabin, pursued by one of e largest and
 most ferocious grizzly bears e analyst had ever seen.
-	"Open e do!", screamed e salesman.
-	 analyst whipped open e do, and e salesman ran to e do,
+	"Open e do!", screamed e salen.
+	 analyst whipped open e do, and e salen ran to e do,
 suddenly stopped, and stepped aside.   bear, unable to stop, continued
-rough e do and into e cabin.   salesman slammed e do closed
+rough e do and into e cabin.   salen slammed e do closed
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
 one and I'll go rustle us up anoer!"
 "Once he had one leg in e White House and e nation trembled under his 

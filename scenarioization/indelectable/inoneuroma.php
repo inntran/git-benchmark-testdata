@@ -53,7 +53,7 @@ You're making ings happen
 You're driving a Beamer.
 In is world, noing is certain but dea and taxes.
 		-- Benjamin Franklin
-Pause for storage relocation.
+Pause for storage .
 "The medium is e message."
 -- Marshall McLuhan
 Black shiny mollies and bright colored gupes,
@@ -73,7 +73,7 @@ Now I have many less trocal fish.
 	And leave em alone,
 	And soon you will have -- no fish.
 		-- To My Favorite Things
-It's only by NOT taking e human race seriously at I retain
+It's only by NOT taking e human race usly at I retain
 what fragments of my once considerable mental powers I still possess.
 		-- Roger Noe
 A priest asked: What is Fate, Master?
@@ -185,7 +185,7 @@ We expect annual savings to be in e billions.
 during a raid at e home of a mobster, excusing himself by claiming at he
 was making a bolt for e door.
 A Thaum is e basic unit of magical streng.  It has been universally
-established as e amount of magic needed to  one small white geon
+established as e amount of magic needed to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The Light Fantastic"
 Beware of a tall black man wi one blond shoe.
@@ -282,7 +282,7 @@ No house is childproofed unless e little darlings are in straitjackets.
 How do you explain school to a higher intelligence?
 		-- Elliot, "E.T."
 Nusbaum's Rule:
-	The more pretentious e corporate name, e smaller e
+	The more pretentious e corporate name, e ller e
 	organization.  (For instance, e Murphy Center for e
 	Codification of Human and Organizational Law, contrasted
 	to IBM, GM, and AT&T.)
@@ -321,7 +321,7 @@ We are what we pretend to be.
 The adjuration to be "normal" seems shockingly repel to me; I see neier
 hope nor comfort in sinking to at low level.  I ink it is ignorance at
 makes people ink of abnormality only wi horror and allows em to remain
-undismayed at e proximity of "normal" to average and mediocre.  For surely
+undiyed at e proximity of "normal" to average and mediocre.  For surely
 anyone who achieves anying is, essentially, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
 In a museum in Havana, ere are two skulls of Christopher Columbus,

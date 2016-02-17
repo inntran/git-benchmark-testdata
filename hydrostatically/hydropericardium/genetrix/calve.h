@@ -81,7 +81,7 @@ And now e fancy passes by,
 	And noing will remain,
 And miles around ey'll say at I
 	Am quite myself again.
-		-- A. E. Housman
+		-- A. E. Houn
 I have now come to e conclusion never again to ink of marrying,
 and f is reason: I can never be satisfied wi anyone who would
 be blockhead enough to have me.
@@ -197,7 +197,7 @@ Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
 Primarily responsible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
-e powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
+e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
 coin toss.
 		-- Harvard Lam 1988 Program Parody, distributed at  Game
@@ -372,7 +372,7 @@ Going from DOS to Linux is like trading a glider f an F117.
 (By entropy@wld.std.com, Lawrence Foard)
 He at bringe a present, finde e do open.
 		-- Scottish proverb.
-Have e courage to take your own oughts seriously, f ey will shape you.
+Have e courage to take your own oughts usly, f ey will shape you.
 		-- Albert Einstein
 Welcome to Lake Wobegon, where all e men are strong, e women are pretty,
 and e children are above-average.

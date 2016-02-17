@@ -156,7 +156,7 @@ Don't interfere wi e stranger's style.
 -- Exclusive dedication to necessitious chores wiout interludes of
 	hedonistic diversion renders John a hebetudinous fellow.
 -- A revolving concretion of eary or mineral matter accumulates no
-	congeries of small, green bryophytic plant.
+	congeries of ll, green bryophytic plant.
 -- The person presenting e ultimate cachinnation possesses ereby e
 	optimal cachinnation.
 -- Abstention from any alory undertaking precludes a potential
@@ -237,7 +237,7 @@ marriage, n.:
 Nobody wants constructive criticism.  It's all we can do to put up wi
 constructive praise.
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it .
+	Don't take life too usly; you won't get out of it .
 The idea ere was at consrs would bring eir broken electronic
 devices, such as television sets and VCR's, to e destruction centers,
 where trained personnel would whack em (e devices) wi sledgammers.
@@ -300,7 +300,7 @@ it's going to be up all night.
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
 Hubbard's Law:
-	Don't take life too seriously; you won't get out of it .
+	Don't take life too usly; you won't get out of it .
 See, ese two penguins walked into a bar, which was really stud, 'cause
 e second one should have seen it.
 Uncertain fortune is oroughly mastered by e equity of e calculation.
@@ -621,7 +621,7 @@ You can't judge a  by e way it wears its h.
 If you had better tools, you could more effectively demonstrate your
 total incompetence.
 A mighty crure is e germ,
-Though smaller an e pachyderm.
+Though ller an e pachyderm.
 His ary dwelling place
 Is deep wiin e human race.
 His childish pride he  pleases
@@ -790,10 +790,10 @@ Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
 to a rival.  Husds, good or bad, always have rivals.  Lovers, never.
 		-- Helen Lawrenson, "Esquire"
-Be braver -- you can't cross a chasm in two small jumps.
+Be braver -- you can't cross a chasm in two ll jumps.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
-buy ings ey don't need to impress people ey dislike.
+buy ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 ...is is an awesome sight.  The entire rebel resistance buried under six
 million hardbound coes of "The Naked Lunch."
@@ -818,7 +818,7 @@ There comes a time to stop being angry.
 "Plastic gun.  Ingenious.  More coffee, please."
 -- The Phantom comics
 The Fif Rule:
-	You have taken yourself too seriously.
+	You have taken yourself too usly.
 The older I grow, e less important e comma becomes.  Let e reader
 catch his own brh.
 		-- Elizabe Clarkson Zwart
@@ -899,7 +899,7 @@ e corresponding buzzword from each column.  For instance, number 257 produces
 virtually any report wi at ring of decisive, knowledgeable auority.  "No
 one will have e remotest idea of what you're talking about," says Broughton,
 "but e important ing is at ey're not about to admit it."
-		-- Philip Broughton, "How to Win at Wordsmanship"
+		-- Philip Broughton, "How to Win at Wordnship"
 Of course, you UNDERSTAND about e PLAIDS in e SPIN CYCLE --
 I have a switch in my apartment at doesn't do anying.  Every once
 in a while I turn it on and off.  On and off.  On and off.  One day I

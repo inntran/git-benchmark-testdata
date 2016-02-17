@@ -195,7 +195,7 @@ If I had any humility I would be perfect.
 I used to ink at e brain was e most wonderful gan in
 my body.  n I realized who was telling me is.
 		-- Emo Phillips
-If dolphins are so smart, why did Flipper wk f television?
+If dolphins are so rt, why did Flipper wk f television?
 Life begins at e centerfold and expands outward.
 		-- Miss November, 1966
 I just had a NOSE JOB!!
@@ -440,11 +440,11 @@ what might you have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
 Man belongs wherever he wants to go.
 		-- Wernher von Braun
-A serious public debate about e validity of astrology?  A serious believer
+A us public debate about e validity of astrology?  A us believer
 in e White House?  Two of em?  Give me a break.  What stifled my laughter
 is at e image fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
-accept it.  This time it was stargazing at became a serious issue....Not
+accept it.  This time it was stargazing at became a us issue....Not
 at long ago, it was Reagan's suppt of Crionism....Crionists actually
 got equal time wi evolutionists.   public was supposed to be open-minded
 to e claims of paleontologists and fundamentalists, as if e two were
@@ -474,7 +474,7 @@ wonderful.  can looks a lot like Mac Beer's can, but tastes me like
 Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look , e 
 cans only have 16 oz. of beer in em. Most people will probably keep 
 drinking Windows 3.1 Beer until eir friends try Windows 95 Beer and say 
-ey like it.  ingredients list, when you look at e small print, has 
+ey like it.  ingredients list, when you look at e ll print, has 
 some of e same ingredients at come in DOS beer, even ough e 
 manufacturer claims at is is an entirely new brew.
 He at composes himself is wiser an he at composes a .
@@ -675,7 +675,7 @@ May I politely interject here: BULLSHIT.  That's e biggest Apple lie of all!
 (Discussion in comp.os.linux.misc on e intuitiveness of interfaces.)
 Most general statements are false, including is one.
 		-- Alexander Dumas
-Smartness runs in my family.  When I went to school I was so smart my
+Smartness runs in my family.  When I went to school I was so rt my
 teacher was in my class f five years.
 		-- Gege Burns
 Brigands will demand your money  your life, but a woman will demand bo.

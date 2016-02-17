@@ -60,7 +60,7 @@ The way to a man's stomach is rough his esophagus.
 People in general do not willingly read if ey have anying else to
 amuse em.
 		-- S. Johnson
-The man who has never been flogged has never been taught.
+The man who has never been f has never been taught.
 		-- Menander
 Dibble's First Law of Sociology:
 	Some do, some don't.
@@ -190,7 +190,7 @@ in her boudoir, lying beside her little Princess phone, 962-7873?"
 When e ax entered e forest, e trees said, "The handle is one of us!"
 		-- Turkish proverb
 A lot of e stuff I do is so minimal, and it's designed to be minimal.
-The smallness of it is what's attractive.  It's weird, 'cause it's so
+The llness of it is what's attractive.  It's weird, 'cause it's so
 intellectually lame.  It's hard to see me doing at for e rest of
 my life.  But at e same time, it's what I do best.
 - Chris Elliot, writer and performer on "Late Night wi David Letterman"
@@ -271,7 +271,7 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#2
 Desserts:
 	A woman will generally admire an ornate dessert for e artistic
 work it is, praising its creator and waiting a suitable interval before
-she reluctantly takes a small sliver off one edge.  A man will start by
+she reluctantly takes a ll sliver off one edge.  A man will start by
 grabbing e cherry in e center.
 
 Car rep:
@@ -355,7 +355,7 @@ protected species.
 	  2 teacupsful toasted oatmeal
 	  1 teasful salt
 	  8 oz. shredded suet
-	  2 small onions
+	  2 ll onions
 	1/2 teasful black pepper
     
 	Scrape and clean bag in cold, en warm, water.  Soak in salt water
@@ -370,7 +370,7 @@ four to five hours.
 It is easier to be a "humanitarian" an to render your own country its
 proper due; it is easier to be a "patriot" an to make your community a
 better place to live in; it is easier to be a "civic leader" an to treat
-your own family wi loving understanding; for e smaller e focus of
+your own family wi loving understanding; for e ller e focus of
 attention, e harder e task.
 		-- Sydney J. Harris
 Now at I have my "APPLE", I comprend COST ACCOUNTING!!

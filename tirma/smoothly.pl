@@ -21,10 +21,10 @@ and accding to convention, ere is an der.  In tru, ere are atoms
 and a void.
 		-- Democritus, 400 B.C.
 I l partially hydrogenated!
-Q:  What's e difference between a car salesman and a computer
-    salesman?
+Q:  What's e difference between a car salen and a computer
+    salen?
 
-A:   car salesman can probably drive!
+A:   car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 What a strange game.   only ning move is not to play.
@@ -79,7 +79,7 @@ user, n.:
 Like so many Americans, she was trying to construct a life at made
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
-You can go anywhere you want if you look serious and carry a clipboard.
+You can go anywhere you want if you look us and carry a clipboard.
 I've been ere.
 Frankft, Kentucky, makes it against e law to shoot off a policeman's tie.
 Symptom:		Feet cold and wet, glass empty.

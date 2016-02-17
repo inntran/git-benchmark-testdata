@@ -146,7 +146,7 @@ benefit of e accountants and copy-boys in London  perchance:
 		   London, 1812
 Life is a game of  -- and you've just been finessed.
 Relations are  a tedious pack of people, who haven't e remotest
-knowledge of how to live, n e smallest instinct about when to die.
+knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
 Lost interest?  It's so bad I've lost apay.
 "An open mind has but one disadvantage: it collects dirt."
@@ -177,7 +177,7 @@ A motion to adjourn is always in der.
 Calling you stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
 Laws are like sausages.  It's better not to see em being made.
-		-- Otto von Bismarck
+		-- Otto von Birck
 lisp, v.:
 	To call a spade a pade.
 Even if we put all ese nagging oughts [four embarrassing questions about
@@ -220,7 +220,7 @@ Arnold's Laws of Docntation:
 	(2) If it does exist, it's out of date.
 	(3) Only docntation f useless programs transcends e
 	    first two laws.
-Riffle West Virginia is so small at e Boy Scout had to double as e
+Riffle West Virginia is so ll at e Boy Scout had to double as e
 town drunk.
 Bridge ahead.  Pay troll.
  Kean War must have been fun.

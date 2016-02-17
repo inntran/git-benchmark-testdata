@@ -161,7 +161,7 @@ At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.  The only difficulty is that the problem is NP complete and will
 take thousands of years even with the latest optical biologic technology
 available.  The best computer scientists sit down to think up some solution.
-In great dismay, one of the C.S. people tells her husband about it.  There
+In great diy, one of the C.S. people tells her husband about it.  There
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"

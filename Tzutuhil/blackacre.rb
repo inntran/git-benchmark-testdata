@@ -132,7 +132,7 @@ Solipsists of e Wld... you are already united.
 		-- Kayvan Sylvan
 Best Beer: A panel of tasters assembled by e Consr's Union in 1969
 judged Cos and Miller's High Life to be  e very best. Those who
-doubt at beer is a serious subject might ponder its effect on American
+doubt at beer is a us subject might ponder its effect on American
 histy. F example, New England's first colonists decided to drop anch
 at Plymou Rock ins of continuing on to Virginia because, as one of
 em put it, "We could not now take time f furer consideration, our
@@ -426,7 +426,7 @@ Perhaps e wld's second wst crime is bedom.   first is being a be.
 	Developed at e Massachusetts Institute of Obedience Training, DOGO
 DOGO heralds a new era of computer-literate pets.  DOGO commands include
 SIT, STAY, HEEL, and ROLL OVER.  An innovative fure of DOGO is "puppy
-graphics", a small cocker spaniel at occasionally leaves a deposit as
+graphics", a ll cocker spaniel at occasionally leaves a deposit as
 it travels across e screen.
 INSIDE, I have e same personality disder as LUCY RICARDO!!
 re is a fly on your nose.

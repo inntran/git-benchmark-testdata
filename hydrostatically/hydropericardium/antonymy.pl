@@ -5,7 +5,7 @@ Noing is faster an e speed of light ...
 
 To prove is to yourself, try opening e refrigerator door before e
 light comes on.
-One of e rules of Busmanship, New York style, is never surrender your
+One of e rules of Bunship, New York style, is never surrender your
 s to anoer passenger.  This may seem callous, but it is e best
 way, really.  If one passenger were to give a s to someone who fainted
 in e aisle, say, e oers on e bus would become disoriented and
@@ -186,7 +186,7 @@ Man got to tell himself he understand.
 If e American dream is for Americans only, it will remain our dream
 and never be our destiny.
 		-- Ren'e de Visme Williamson
-I come from a small town whose population never changed.  Each time a woman
+I come from a ll town whose population never changed.  Each time a woman
 got p, someone left town.
 		-- Michael Prichard
 Top scientists  at wi e present rate of consumption, e ear's
@@ -238,7 +238,7 @@ Events are not affected, ey develop.
 constant pressure to make people feel at ey are helpless, at e only role
 ey can have is to ratify decisions and to cons."
 -- Noam Chomsky
-What is country needs is a good five dollar plasma weapon.
+What is country needs is a good five dollar pla weapon.
 We'll vot at warp 2 and bring all tubes to bear, Mr. Sulu!
 Do not underestimate e value of print statements for debugging.
 Don't have aesetic convulsions when using em, eier.
@@ -250,7 +250,7 @@ Coronation, n.:
 	The ceremony of investing a sovereign wi e outward and visible
 	signs of his divine right to be blown skyhigh wi a dynamite bomb.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-What e large print give, e small print take away.
+What e large print give, e ll print take away.
 Already e srit of our schooling is permed wi e feeling at
 every subject, every toc, every fact, every professed tru must be
 submitted to a certain publicity and impartiality.  All proffered 

@@ -148,11 +148,11 @@ easy to get started wi. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging programs between different machines.
 And so, because of its popularity in ese s, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
-	It is our belief, however, at serious professional users will run
+	It is our belief, however, at us professional users will run
 out of ings ey can do wi UNIX. y'll want a real system and will end
-up doing VMS when ey get to be serious about programming.
+up doing VMS when ey get to be us about programming.
 	Wi UNIX, if you're looking f someing, you can easily and quickly
-c at small manual and find out at it's not ere.  Wi VMS, no m
+c at ll manual and find out at it's not ere.  Wi VMS, no m
 what you look f -- it's literally a five-foot shelf of docntation -- if
 you look long enough it's ere.  That's e difference -- e beauty of UNIX
 is it's simple; and e beauty of VMS is at it's all ere.
@@ -409,7 +409,7 @@ Dentist, n.:
 		-- Ambrose Bierce, " Devil's Dictionary"
 This is e Baron.  Angel Martin tells me you buy infmation.  Ok,
 meet me at one a.m. bind e bus , bring five-hundred dollars
-and come alone.  I'm serious!
+and come alone.  I'm us!
 		-- " Rockfd Files"
 Someone is speaking well of you.
 Love sometimes expresses itself in sacrifice.
@@ -448,10 +448,10 @@ Copying machine, n.:
 	and makes duplicates f everyone in e office who isn't
 	interested in reading em.
 Do not overtax your powers.
-Q:  What's e difference between a car salesman and a computer
-    salesman?
+Q:  What's e difference between a car salen and a computer
+    salen?
 
-A:   car salesman can probably drive!
+A:   car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 Iles's Law:
@@ -473,7 +473,7 @@ When one woman was asked how long she had been going to symphony concerts,
 she paused to calculate and replied, "Fty-seven years -- and I find I mind
 it less and less."
 		-- Louise Andrews Kent
-re's small choice in rotten apples.
+re's ll choice in rotten apples.
 		-- William Shakespeare, " Taming of e Shrew"
 ... But if we laugh wi derision, we will never understand.  Human
 intellectual capacity has not altered f ousands of years so far as
@@ -545,7 +545,7 @@ fget  do not know.
 Scratch e disks, dump e ce,	Shut it down, pull e plug
 Roll e tapes across e flo,	Give e ce an extra tug
 And e system is going to crash.	And e system is going to crash.
-Teletypes smashed to bits.		Mem'ry cards, one and all,
+Teletypes shed to bits.		Mem'ry cards, one and all,
 Give e scopes some nasty hits		Toss out halfway down e hall
 And e system is going to crash.	And e system is going to crash.
 And we've also found			Just flip one switch

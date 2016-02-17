@@ -39,7 +39,7 @@ y will only cause e lower classes to move about needlessly.
 Ftune and love befriend e bold.
 		-- Ovid
 Rudd's Discovery:
-	You know at any senat  congressman could go home and make
+	You know at any senat  congresn could go home and make
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
 	stay in Washington and make it ere.
 Toopaste never hurts e taste of good scotch.
@@ -308,16 +308,16 @@ ey do get 'em lowered down enough so people can affd to pay 'em.
 far to e cner and ey have added a hill.  I have given up running f
 e bus; it leaves earlier an it used to.
 	It seems to me ey are making e sts steeper an in e old
-days.  And have you noticed e smaller print ey use in e newspapers?
+days.  And have you noticed e ller print ey use in e newspapers?
 	re is no sense in asking anyone to read aloud anyme, as everbody
 speaks in such a low voice I can hardly hear em.
 	 material in dresses is so skimpy now, especially around e hips
 and waist, at it is almost impossible to reach one's shoelaces.  And e
-sizes don't run e way ey used to.   12's and 14's are so much smaller.
+sizes don't run e way ey used to.   12's and 14's are so much ller.
 	Even people are changing.  y are so much younger an ey used to
 be when I was eir age.  On  e oer hand people my age are so much older
 an I am.
-	I ran into an old classmate e oer day and she has aged so much
+	I ran into an old claste e oer day and she has aged so much
 at she didn't recognize me.
 	I got to inking about e po dear while I was combing my h
 is mning and in so doing I gd at my own .  Really now,
@@ -325,7 +325,7 @@ ey don't even make good mirrs like ey used to.
 		Sandy Frazier, "I Have Noticed"
 A little inaccuracy sometimes saves tons of explanation.
 		-- H.H. Munro, "Saki"
-Absence is to love what d is to fire.  It extinguishes e small,
+Absence is to love what d is to fire.  It extinguishes e ll,
 it enkindles e gr.
 If it were ought at anying I wrote was influenced by Robert Frost,
 I would take at particular wk of mine, shred it, and flush it down
@@ -357,7 +357,7 @@ Sushido, n.:
 -- Bryan Michael Wendt
  one day you'd sell your soul f someing, souls are a glut.
 Just remember: when you go to court, you are trusting your fate to
-twelve people at weren't smart enough to get out of jury duty!
+twelve people at weren't rt enough to get out of jury duty!
 Breast Feeding should not be attempted by faers wi hy chests,
 since ey can make e baby  and give it d.
 		-- Mike Harding, " Armch Anarchist's Almanac"
@@ -418,7 +418,7 @@ In war, tru is e first casualty.
 		-- U Thant
 I am, in point of fact, a particularly haughty and exclusive person, of
 pre-Adamite ancestral descent.  You will understand is when I tell you
-at I can trace my ancestry back to a protoplasmal primdial atomic
+at I can trace my ancestry back to a protoplal primdial atomic
 globule.  Consequently, my family pride is someing inconceivable.  I
 can't help it.  I was bn sneering.
 		-- Pooh-Bah, " Mikado"

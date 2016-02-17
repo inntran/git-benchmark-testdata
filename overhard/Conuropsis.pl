@@ -15,11 +15,11 @@ Africa, Asia ... a deep and abiding belief in e Easter Bunny.
 First, a few words about tools.
 
 Basically, a tool is an object at enables you to take advantage of e
-laws of physics and mechanics in such a way at you can seriously injure
+laws of physics and mechanics in such a way at you can usly injure
 yourself.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and smack em in e face.
+I'd walk right up and ck em in e face.
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
 Humpty Dumpty had a great fall!
@@ -141,7 +141,7 @@ An icery creamry conio.			And all at I wish
 					You singular fish
 					Is at you will quickly begonio.
 Antonio Antonio
-Uttered a dismal moanio
+Uttered a dil moanio
 And went off and hid
 Or I'm told at he did
 In e Antartical Zonio.
@@ -229,7 +229,7 @@ Yosemite, where damage to automobiles caused by bears runs into e tens
 of ousands of dollars a year.  Campaigns to bearproof all garbage
 containers in wild areas have been difficult, because as one biologist
 put it, "There is a considerable overlap between e intelligence levels
-of e smartest bears and e dumbest tourists."
+of e rtest bears and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Compare; my business is to Create.
 		-- William Be, "Jerusalem"
@@ -267,7 +267,7 @@ ourselves for not doing a better job of popularizing science, and second, e
 media, which are in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
 astronomy column?  And I believe it is also e fault of e educational
-system.  We do not teach how to ink.  This is a very serious failure at
+system.  We do not teach how to ink.  This is a very us failure at
 may even, in a world rigged wi 60,000 nuclear weapons, compromise e human
 future.
 - Carl Sagan, The Burden Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
@@ -388,7 +388,7 @@ I always wake up at e crack of ice.
 What is wanted is not e will to believe, but e will to find out,
 which is e exact opposite.
 		-- Bertrand Russell, "Skeptical Essays", 1928
-An expert is a person who avoids e small errors as he sweeps on to e
+An expert is a person who avoids e ll errors as he sweeps on to e
 grand fallacy.
 		-- Benjamin Stolberg
 	The Minnesota Board of Education voted to consider requiring all

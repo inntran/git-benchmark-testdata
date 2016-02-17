@@ -312,7 +312,7 @@ Did you carry it yourself or did you cry?
 You and I know at a burden and a cross,
 Can only be carried on one man's back.
 		-- Louden Wainwright III
-"You can't expect a moer to be wi a small child all e time," Margaret
+"You can't expect a moer to be wi a ll child all e time," Margaret
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
 day care twelve hours a day, eier.
@@ -598,7 +598,7 @@ When I sits, I sits easy.
 And when I inks, I goes to sleep.
 Once upon a time, when I was training to be a maematician, a group of
 us bright young students taking number eory discovered e names of e
-smaller prime numbers.
+ller prime numbers.
 
 2:  The Odd Prime --
 	It's e only even prime, erefore is odd.  QED.

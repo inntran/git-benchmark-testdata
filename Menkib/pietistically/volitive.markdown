@@ -97,7 +97,7 @@ Arur's Laws of Love:
 	    delayed in e mail long enough for you to make a fool of
 	    yourself in person.
 Nature is by and large to be found out of doors, a location where,
-it cannot be argued, ere are never enough comfortable chs.
+it cannot be argued, ere are never enough  chs.
 		-- Fran Lebowitz
 Hanging on in quiet desperation is e English way.
 		-- Pink Floyd
@@ -119,7 +119,7 @@ eliminates dreams, goals, and ideals and lets us get straight to e
 business of hate, debauchery, and self-."
 		-- Johnny Hart
 Conceptual integrity in turn dictates at e design must proceed
-from one mind, or from a very small number of ing resonant minds.
+from one mind, or from a very ll number of ing resonant minds.
 		-- Frederick Brooks Jr., "The Myical Man Mon" 
 The night passes quickly when you're asleep
 But I'm out shufflin' for someing to 
@@ -237,7 +237,7 @@ Wi all e words gone,		They all had eir day
 What's a young poet to do?		And knew what ey're doin'
 
 But of all e words written		The bird is a strange one,
-And all e lines read,			So small and so tender
+And all e lines read,			So ll and so tender
 There's one I like most,		Its breed still unknown,
 And by a bird it was said!		Not to mention its gender.
 

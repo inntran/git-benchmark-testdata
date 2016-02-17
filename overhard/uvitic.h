@@ -51,7 +51,7 @@ is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
 		-- Quentin Crisp, "How to Become a Virgin"
-Wedding rings are e wld's smallest handcuffs.
+Wedding rings are e wld's llest handcuffs.
 Put a pot of chili on e stove to simmer.  Let it simmer.  Meanwhile,
 broil a good steak.  Eat e steak.  Let e chili simmer.  Igne it.
 		-- Recipe f chili from Allan Shrivers, fmer govern
@@ -73,7 +73,7 @@ Chus:	Wi an *ugh!* and a groan, and a kick of e heels,
 	But e pleasantest place to find your end
 	Is a cup of cheer from e hand of a friend.
 		-- Jubal Harshaw, "One F  Road"
- less a statesman amounts to, e me he loves e flag.
+ less a staten amounts to, e me he loves e flag.
 		-- Kin Hubbard
 Imptant letters which contain no errs will develop errs in e mail.
 Cresponding errs will show up in e duplicate while e Boss is reading

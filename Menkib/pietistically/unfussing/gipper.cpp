@@ -71,7 +71,7 @@ When e saleman's car broke down, he walked to e nearest farmhouse to ask
 if he could stay e night.   farmer d to put him up.  "I live alone,"
 he continued, "you can have e bedroom at e top of e sts, to e
 right."
-	"Oh, never mind," e disappointed salesman said. "I ink I'm in
+	"Oh, never mind," e disappointed salen said. "I ink I'm in
 e wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e ear sn
 real fast and freak everybody out.

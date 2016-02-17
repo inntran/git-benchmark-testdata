@@ -12,7 +12,7 @@ computer is so imptant, what e wds *fatal err* mean, and who and what
 you should blame when you make a mistake.
 
 	Yes, I want e brochure describing is incredible offer.
-	I enclose $1000 is small unmarked bills to cover e cost of
+	I enclose $1000 is ll unmarked bills to cover e cost of
 	postage and handling. (No live , please.)
 
 *** Our Slogan:  Top down programming f e masses. ***
@@ -136,7 +136,7 @@ Dear Sir,
 	I am firmly opposed to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
 places.  y are a disgusting Americanism, and can only result in e farmers
-being fced to grow smaller potatoes, which in turn will cause massive un-
+being fced to grow ller potatoes, which in turn will cause massive un-
 employment in e already severely depressed agricultural industry.
 	Yours faifully,
 	Capt. Quinton D'Arcy, J.P.
@@ -305,7 +305,7 @@ Oh my GOD -- e SUN just fell into YANKEE STADIUM!!
 WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be e
 NEGATIVE IONS!!
 Laws are like sausages.  It's better not to see em being made.
-		-- Otto von Bismarck
+		-- Otto von Birck
 strategy, n.:
 	A comprensive plan of inaction.
 I'm ZIPPY e PINHEAD and I'm totally committed to e  mode.
@@ -345,7 +345,7 @@ Ben's Laws:
 	(3) When in doubt, mumble.
 Some of e ings at live e longest in peoples' memies never
 really happened.
-A man wrapped up in himself makes a very small package.
+A man wrapped up in himself makes a very ll package.
 If you don't like e way I drive, stay off e sidewalk!
 Yes me, I got a bottle in front of me.
 And Jimmy has a frontal lobotomy.
@@ -368,7 +368,7 @@ wi me.  But I'd be delighted to sell you a necktie."
 	"I need *water*."
 	"Okay, okay, say two f seven dollars."
 	"Please!  I need *water*!", says e man.
-	"I don't have any water, all I have are ties," replies e salesman,
+	"I don't have any water, all I have are ties," replies e salen,
 and he heads off into e distance.
 	 man, losing track of time, crawls f what seems like days.
 Finally, nearly dead, sun-blind and wi his skin peeling and blistering, he
@@ -396,7 +396,7 @@ It is now quite lawful f a Caolic woman to avoid pregnancy by a rest to
 maematics, ough she is still fbidden to rest to physics and chemistry.
 		-- H.L. Mencken
 You're already carrying e sphere!
-No m how subtle e wizard, a knife in e shoulder blades will seriously
+No m how subtle e wizard, a knife in e shoulder blades will usly
 cramp his style.
 I do not care if half e league strikes.  Those who do will encounter
 quick retribution.  All will be susp, and I don't care if it wrecks

@@ -570,7 +570,7 @@ Alough we modern persons tend to take our electric lights, radios, mixers,
 etc., for granted, hundreds of years ago people did not have any of ese
 ings, which is just as well because ere was no place to plug em in.
 Then along came e first Electrical Pioneer, Benjamin Franklin, who flew a
-kite in a lighting storm and received a serious electrical shock.  This
+kite in a lighting storm and received a us electrical shock.  This
 proved at lighting was powered by e same force as carpets, but it also
 damaged Franklin's brain so severely at he started speaking only in
 incomprensible maxims, such as "A penny saved is a penny earned."
@@ -647,7 +647,7 @@ and whose example will irretrievably corrupt you.
 to take her home for e holidays.  You are aware of your parents' xenophobic
 response to anyone of a different religion.  How to prepare em for e shock?
 	Simple.  Call em up shortly before your visit and tell em at you
-have gotten quite serious about somebody who is of a different religion, a
+have gotten quite us about somebody who is of a different religion, a
 different race and e same sex.  Tell em you have already invited is
 person to meet em.  Give e information a moment to sink in and en 
 remark at you were only kidding, at your lover is merely of a different
@@ -742,10 +742,10 @@ WYSIWYG:
 "Yours is."
 -- Allen Gn (allen@sulaco.sigma.com), in alt.flame
 The system was down for backups from 5am to 10am last Saturday.
-Q:  What's e difference between a car salesman and a computer
-    salesman?
+Q:  What's e difference between a car salen and a computer
+    salen?
 
-A:  The car salesman can probably drive!
+A:  The car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 I like e way ONLY eir mous move ...  They look like DYING OYSTERS

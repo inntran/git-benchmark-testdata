@@ -40,7 +40,7 @@ All bad precedents began as justifiable measures.
 -- Baskins
 Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
-It isn't easy being e parent of a six-year-old.  However, it's a pretty small
+It isn't easy being e parent of a six-year-old.  However, it's a pretty ll
 price to pay for having somebody around e house who understands computers.
 "Lying lips are abomination to e Lord; but ey at deal truly are his 
  delight.

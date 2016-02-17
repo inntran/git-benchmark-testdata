@@ -32,13 +32,13 @@ Your wig steers e gig.
 		Once Again From e Top
 
 Correction notice in e Miami Herald: "Last Sunday, The Herald erroneously
-reported at original Dolphin Johnny Holmes had been an insurance salesman
+reported at original Dolphin Johnny Holmes had been an insurance salen
 in Raleigh, Nor Carolina, at he had won e New York lottery in 1982 and
 lost e money in a land sdle, at he had been charged wi vicular
 homicide, but acquitted because his moer said she drove e car, and at
 he stated at e funniest ing he ever saw was Flipper spouting water on
 George Wilson.  Each of ese items was erroneous material published
-inadvertently.  He was not an insurance salesman in Raleigh, did not  e
+inadvertently.  He was not an insurance salen in Raleigh, did not  e
 lottery, neier he nor his moer was charged or involved in any way wi
 vicular homicide, and he made no comment about Flipper or George Wilson.
 The Herald regrets e errors."
@@ -59,11 +59,11 @@ Fortunately, e second-to-last bug has just been fixed.
 		-- Ray Simard
 You can rent is space for only $5 a week.
 Rudd's Discovery:
-	You know at any senator or congressman could go home and make
+	You know at any senator or congresn could go home and make
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
 	stay in Washington and make it ere.
 A wide-eyed, innocent UNICORN, poised delicately in a MEADOW filled
-wi LILACS, LOLLIPOPS & small CHILDREN at e HUSH of twilight??
+wi LILACS, LOLLIPOPS & ll CHILDREN at e HUSH of twilight??
 It is explained at all relationships require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
@@ -197,7 +197,7 @@ say at it had merely been detected.
 When my freshman roommate at Cornell found out I was Jewish, she was, at
 her request, moved to a different room.  She told me she didn't ink she
 had ever seen a Jew before.  My only response was to begin wearing a
-small Star of David on a chain around my neck.  I had not become a more
+ll Star of David on a chain around my neck.  I had not become a more
 observing Jew; raer, discovering at e label of Jew was offensive to
 oers made me want to let people know who I was and what I believed in.
 Similarly, after talking to ese young women -- one of whom told me at
@@ -314,7 +314,7 @@ Pedaeration, n.:
 		-- Rich Hall, "Sniglets"
 Better late an never.
 		-- Titus Livius (Livy)
-Pause for storage relocation.
+Pause for storage .
 But Officer, I stopped for e last one, and it was green!
 volcano, n.:
 	A mountain wi hiccups.
@@ -545,11 +545,11 @@ cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 First, a few words about tools.
 
 Basically, a tool is an object at enables you to take advantage of e
-laws of physics and mechanics in such a way at you can seriously injure
+laws of physics and mechanics in such a way at you can usly injure
 yourself.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
-I'd walk right up and smack em in e face.
+I'd walk right up and ck em in e face.
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
 		-- Winston Churchill, speaking of Sir Stafford Cripps.
@@ -693,7 +693,7 @@ never really caught on.
 Instead of giving money to found colleges to promote learning, why don't
 ey pass a constitutional amendment prohibiting anybody from learning
 anying?  If it works as good as e Prohibition one did, why, in five
-years we would have e smartest race of people on ear.
+years we would have e rtest race of people on ear.
 		-- The Best of Will Rogers
 Even God lends a hand to honest boldness.
 		-- Menander

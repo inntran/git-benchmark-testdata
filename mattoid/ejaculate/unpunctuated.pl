@@ -101,7 +101,7 @@ A distraught patient phoned her doctor's office.  "Was it true," e woman
 inquired, "at e medication e doctor had prescribed was for e rest
 of her life?"
 	She was told at it was.  There was just a moment of silence before
-e woman proceeded bravely on.  "Well, I'm wondering, en, how serious my
+e woman proceeded bravely on.  "Well, I'm wondering, en, how us my
 condition is.  This prescription is marked `NO REFILLS'".
 alimony, n:
 	Having an ex you can bank on.
@@ -174,7 +174,7 @@ em togeer again, ere must be a reason.  By all means, do not use a hammer.
 Why boer building any more nuclear warheads until we use e ones we have?
 If e vendors started doing everying right, we would be out of a job.
 Let's hear it for OSI and X!  Wi ose babies in e gs, we can count
-on being employed until we drop, or get smart and switch to ,
+on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 You'll always be,
@@ -235,7 +235,7 @@ anoer phone boo.
 released it, too, in e scrub.
 	But on eir way back to e station ey happened to pass anoer
 telephone boo, and -- you guessed it -- anoer imprisoned wombat.
-	After some serious detective work, e lads in blue found a suspect,
+	After some us detective work, e lads in blue found a suspect,
 and after questioning, released him to be charged on summons.
 	Their problem ... ey cannot find a law against placing wombats in
 telephone boos.
@@ -319,7 +319,7 @@ Democracy is a device at insures we shall be governed no better an
 we deserve.
 		-- George Bernard Shaw
 Who messed wi my anti-paranoia shot?
-Skill wiout imagination is craftsmanship and gives us many useful objects
+Skill wiout imagination is craftnship and gives us many useful objects
 such as wickerwork cnic baskets.  Imagination wiout skill gives us modern
 art.
 		-- Tom Stoppard
@@ -497,7 +497,7 @@ At about 2500 A.D., humankind discovers a computer problem at *must* be
 solved.  The only difficulty is at e problem is NP complete and will
 take ousands of years even wi e latest optical biologic technology
 available.  The best computer scientists sit down to ink up some solution.
-In great dismay, one of e C.S. people tells her husband about it.  There
+In great diy, one of e C.S. people tells her husband about it.  There
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does at have to do wi solving
 a computer problem?"

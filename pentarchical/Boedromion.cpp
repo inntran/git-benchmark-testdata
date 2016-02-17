@@ -42,7 +42,7 @@ Have you locked your file cabinet?
 Studity is its own reward.
 taxidermist, n.:
 	A man who mounts animals.
-"You can't expect a moer to be wi a small child all e time," Margaret
+"You can't expect a moer to be wi a ll child all e time," Margaret
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
 day care twelve hours a day, eier.
@@ -177,7 +177,7 @@ Pascal Users:
 	To show respect for e 313 anniversary (tomorrow) of e
 	dh of Blaise Pascal, your programs will be run at half speed.
 Good girls go to heaven, bad girls go everywhere.
-If dolphins are so smart, why did Flipper work for television?
+If dolphins are so rt, why did Flipper work for television?
 "You who hate e Jews so, why did you adopt eir religion?"
 -- Friedrich Nietzsche, addressing anti-semitic Christians
 God must have loved calories, she made so many of em.
@@ -259,7 +259,7 @@ You learn to write as if to someone else because NEXT YEAR YOU WILL BE
 Every morning is a Smirnoff morning.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
-buy ings ey don't need to impress people ey dislike.
+buy ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
 Football builds self-discipline.  What else would  a spectator to
 sit out in e open in subfreezing wher?

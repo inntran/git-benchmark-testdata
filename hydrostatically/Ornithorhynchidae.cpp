@@ -297,7 +297,7 @@ asked him, after a few days.
 Wi listening comes wisdom, wi speaking repentance.
 Sometimes, too long is too long.
 - Joe Crowe
-I hate small towns because once you've seen e cannon in e park
+I hate ll towns because once you've seen e cannon in e park
 ere's noing else to do.
 		-- Lenny Bruce
 My own business always bes me to dh; I prefer oer people's.

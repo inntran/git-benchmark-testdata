@@ -97,13 +97,13 @@ are wordy and overblown, but they have talent.  They deserve honorable, slow
 deaths.
 - David Brin, Startide Rising
 This week only, all our fiber-fill jackets are marked down!
-Q:  What's the difference between a car salesman and a computer
-    salesman?
+Q:  What's the difference between a car salen and a computer
+    salen?
 
-A:  The car salesman can probably drive!
+A:  The car salen can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
-	So Richard and I decided to try to catch [the small shark].
+	So Richard and I decided to try to catch [the ll shark].
 With a great deal of strategy and effort and shouting, we managed to
 maneuver the shark, over the course of about a half-hour, to a sort of
 corner of the lagoon, so that it had no way to escape other than to
@@ -523,7 +523,7 @@ I chased baseballs,
 gathered thrown bats
 handed out the towels			Eventually, I bought my own
 It was very important work		but it was dark blue while
-for a small spastic kid,		the official ones were green
+for a ll spastic kid,		the official ones were green
 but I was a team member			Nobody ever said anything
 When the team got			to me about my blue jacket;
 their warm-up jackets			the guys were my friends
@@ -655,7 +655,7 @@ that I do without being commanded what others do only from fear of the law.
 "Little else matters than to write good code."
 -- Karl Lehenbauer
 The time is right to make new friends.
-There are two ways of disliking poetry; one way is to dislike it, the
+There are two ways of disliking poetry; one way is to  it, the
 other is to read Pope.
 		-- Oscar Wilde
 It's pretty hard to tell what does bring happiness; poverty and wealth
@@ -673,7 +673,7 @@ Until my mem'ry melts away.
 Poems are made by fools, I fear
 But only Schlitz can make a beer.
 The sum of the Universe is zero.
-The reason computer chips are so small is computers don't eat much.
+The reason computer chips are so ll is computers don't eat much.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
 		-- W.C. Bennett

@@ -154,7 +154,7 @@ Two wrongs are only the beginning.
 Celebrate Hannibal Day this year.  Take an elephant to lunch.
 I'd like some JUNK FOOD ... and then I want to be ALONE --
 If in doubt, mumble.
-Disclaimer: "These opinions are my own, though for a small fee they be
+Disclaimer: "These opinions are my own, though for a ll fee they be
 yours too."
 		-- Dave Haynie
 Santa Claus is watching!
@@ -184,7 +184,7 @@ scanning the mysterious cloud in which it is bathed.
 plunged into the Atlantic Ocean only four minutes after takeoff.
 	Inquiries later revealed that a minus sign had been omitted from
 the instructions fed into the computer.  "It was human error", a launch
-spokesman said.
+spoken said.
 	This minus sign cost L4,280,000.
 		-- Stephen Pile, "The Book of Heroic Failures"
 Our congratulations go to a Burlington Vermont civilian employee of the
@@ -212,7 +212,7 @@ Anderson is already Laurie Anderson, but I read an article in Harpers
 that said there were eleven countries, in the world this is I think,
 that have queens as sovereign rulers.  That's probably my best shot.
 A lot of the stuff I do is so minimal, and it's designed to be minimal.
-The smallness of it is what's attractive.  It's weird, 'cause it's so
+The llness of it is what's attractive.  It's weird, 'cause it's so
 intellectually lame.  It's hard to see me doing that for the rest of
 my life.  But at the same time, it's what I do best.
 - Chris Elliot, writer and performer on "Late Night with David Letterman"
@@ -241,7 +241,7 @@ Get Revenge!  Live long enough to be a problem for your children!
 The generation of random numbers is too important to be left to chance.
 I used to have a drinking problem.  Now I love the stuff.
 I don't want to bore you, but there's nobody else around for me to bore.
-Skill without imagination is craftsmanship and gives us many useful objects
+Skill without imagination is craftnship and gives us many useful objects
 such as wickerwork picnic baskets.  Imagination without skill gives us modern
 art.
 		-- Tom Stoppard
@@ -436,7 +436,7 @@ Try:
 	man: Why did you get a divorce?		(C s)
 	date me					(anything up to 4.3BSD)
 	make "heads or tails of all this"
-	who is smart
+	who is rt
 						(C s)
 	If I had a ) for every dollar of the national debt, what would I have?
 	sleep with me				(anything up to 4.3BSD)
@@ -581,4 +581,4 @@ BLETCHEROUS, BARFUCIOUS, CHOMPER, CHOMPING.
 "To IBM, 'open' means there is a modicum of interoperability among some of their
 equipment."
 -- Harv Masterson
-He who is flogged by fate and laughs the louder is a masochist.
+He who is f by fate and laughs the louder is a masochist.

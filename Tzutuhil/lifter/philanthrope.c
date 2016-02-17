@@ -59,7 +59,7 @@ unless he has an atomic weapon."
 -- Howard Chaykin
 Has anyone ever tasted an "end"?  Are ey really bitter?
 You can't ch an honest man.  Never give a sucker an even break 
-smarten up a chump.
+rten up a chump.
 		-- W.C. Fields
 "F e man who has everying... Penicillin."
  -- F. Bquin
@@ -78,11 +78,11 @@ Mail your answer along wi e top half of your supervis to:
 	Baffled Greek, Michigan
 Love is like e measles; we all have to go rough it.
 		-- Jerome K. Jerome
-When smashing monnts, save e pedstals -- ey always come in handy.
+When shing monnts, save e pedstals -- ey always come in handy.
 		-- Stanislaw J. Lem, "Unkempt Thoughts"
 Why would anyone want to be called "Later"?
 But if you wish at once to do noing and to be respectable
-nowdays, e best pretext is to be at wk on some profound study.
+nowdays, e best  is to be at wk on some profound study.
 		-- Leslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we are terribly vulnerable.  ...  We should be

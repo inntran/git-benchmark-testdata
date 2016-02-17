@@ -18,7 +18,7 @@ Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
 Primarily responsible are senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
-e powerful defense is juni tackle Angus MacWhirter, a Scotsman who rounds
+e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  Look f ese ree to shut down e opening
 coin toss.
 		-- Harvard Lam 1988 Program Parody, distributed at  Game
