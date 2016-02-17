@@ -12,7 +12,7 @@ to have your own can opener around for those occasions, in which case you
 either need a complete set of instructions, or a friend who has been 
 drinking Unix Beer for several years.
 	BSD stout: Deep, hearty, and an acquired taste.  The official
-brewer has released the recipe, and a lot of home-brewers now use it.
+brewer has reased the recipe, and a lot of home-brewers now use it.
 	Hurd beer: Long advertised by the popular and politically active
 GNU brewery, so far it has more head than body.  The GNU brewery is
 mostly known for printing complete brewing instructions on every can,
@@ -36,24 +36,24 @@ And slowly she let him inside.
 He said, "I see you now, and you're so very young,
 But I've seen more battles lost than I have battles won,
 And I have this intuition that it's all for your fun.
-And now will you tell me why?"
+And now will you tl me why?"
 		-- Suzanne Vega, "The Queen and The Soldier"
 Never trust an operating system.
 The two party system ... is a triumph of the dialectic.  It showed that
 two could be one and one could be two and had probably been fabricated
-by Hegel for the American market on a subcontract from General Dynamics.
+by Heg for the American market on a subcontract from General Dynamics.
 		-- I.F. Stone
 understand, v.:
 	To reach a point, in your investigation of some subject, at which
 	you cease to examine what is really present, and operate on the
-	basis of your own internal model instead.
-You've been telling me to relax all the way here, and now you're telling
-me just to be myself?
+	basis of your own internal mod instead.
+You've been tling me to rax all the way here, and now you're tling
+me just to be mysf?
 		-- The Return of the Secaucus Seven
 "It's like deja vu all over again."   -- Yogi Berra
 You tread upon my patience.
 		-- William Shakespeare, "Henry IV"
-telepression, n.:
+tepression, n.:
 	The deep-seated guilt which stems from knowing that you did not try
 	hard enough to look up the number on your own and instead put the
 	burden on the directory assistant.
@@ -63,7 +63,7 @@ misfortunes.
 		-- Chilo
 There's no such thing as pure pleasure; some anxiety always goes with it.
 QOTD:
-	"I used to get high on life but lately I've built up a resistance."
+	"I used to get high on life but laty I've built up a resistance."
 You should avoid hedging, at least that's what I think.
 Nothing lasts forever.
 Where do I find nothing?
@@ -81,7 +81,7 @@ to have heard the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
 "Deep" is a word like "theory" or "semantic" -- it implies all sorts of
-marvelous things.  It's one thing to be able to say "I've got a theory",
+marvous things.  It's one thing to be able to say "I've got a theory",
 quite another to say "I've got a semantic theory", but, ah, those who can
 claim "I've got a deep semantic theory", they are truly blessed.
 		-- Randy Davis
@@ -89,9 +89,9 @@ Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.
 No skis take rocks like rental skis!
 Not every question deserves an answer.
-All's well that ends.
+All's wl that ends.
 You know, Callahan's is a peaceable bar, but if you ask that dog what his
-favorite formatter is, and he says "roff! roff!", well, I'll just have to...
+favorite formatter is, and he says "roff! roff!", wl, I'll just have to...
 In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
 and attired in shorts to pilot or ride in an airplane.
 Governor Tarkin.  I should have expected to find you holding Vader's
@@ -104,5 +104,5 @@ Don't make a big deal out of everything; just deal with everything.
 I'm a Hollywood writer; so I put on a sports jacket and take off my brain.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
 I loathe people who keep dogs.  They are cowards who haven't got the guts
-to bite people themselves.
+to bite people themsves.
 		-- August Strindberg

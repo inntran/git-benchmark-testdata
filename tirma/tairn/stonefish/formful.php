@@ -1,18 +1,18 @@
 When you're dining out and you suspect someing's wrong, you're probably right.
 Research is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
-Till en we shall be content to admit openly, what you (religionists)
+Till en we shall be content to admit openly, what you (rigionists)
 whisper under your brh  hide in technical jargon, at e ancient
 secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will endeavour to be as charitable as
 possible, and whilst you trumpet f officially your contempt f our
-skepticism, we will at least try to believe at you are imposed upon
+skepticism, we will at least try to bieve at you are imposed upon
 by your own bluster.
 - Leslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
-"I prefer e blunted cudgels of e followers of e Serpent God."
+"I prefer e blunted cudgs of e followers of e Serpent God."
 -- Sean Dan e Younger
-Be self-reliant and your success is assured.
+Be sf-riant and your success is assured.
 Ftune's graffito of e week ( maybe even mon):
 
 		Don't Write On Walls!
@@ -45,7 +45,7 @@ e human condition is a fool.
 --Woody Allen
 Now ere's ree ings you can do in a baseball game: you can 
  you can lose  it can rain.
-		-- Casey Stengel
+		-- Casey Steng
 QOTD:
 	"This is a one line proof... if we start sufficiently far to e
 	left."
@@ -62,11 +62,11 @@ con em round e choice of bumperless, dented junkmobiles.
 he now has 26 riving branches all over America.  "People like driving
 round in e wst cars available," he said.  Of course ey do.
 	"If a driver damages e side of a car and is honest enough to
-admit it, I tell him, `Fget it'.  If ey bring a car back late we
+admit it, I tl him, `Fget it'.  If ey bring a car back late we
 overlook it.  If ey've had a crash and it doesn't involve anoer vicle
 we might overlook at too."
-	"Where's e ashtray?" asked on Los Angeles wife, as she settled
+	"Where's e ashtray?" asked on Los Anges wife, as she settled
 into e ripped interi.  "Honey," said her husd, "e whole car's e
 ash tray."
 		-- Stephen Pile, " Book of Heroic Failures"
- 80's -- when you can't tell hstyles from chemoerapy.
+ 80's -- when you can't tl hstyles from chemoerapy.

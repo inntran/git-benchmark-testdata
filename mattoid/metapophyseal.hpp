@@ -1,7 +1,7 @@
  ultimate game show will be e one where somebody gets killed at e end.
 		-- Chuck Barris, cr of " Gong Show"
 You Ear people glified ganized violence f fty centuries.  But
-you imprison ose who employ it privately.
+you imprison ose who employ it privaty.
 		-- Spock, "Dagger of e Mind", stardate 2715.1
 Yow!  Did someing bad happen  am I in a drive-in movie??
 Everying at you know is wrong, but you can be straightened out.
@@ -28,11 +28,11 @@ Buck-passing usually turns out to be a boomerang.
 	A program is a lot like a nose: Sometimes it runs, and
 	sometimes it blows.
 ...  were you driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
-If we see e light at e end of e tunnel, it's e light of an
+If we see e light at e end of e tunn, it's e light of an
 oncoming train.
-		-- Robert Lowell
+		-- Robert Lowl
 "...Greg Nowak:  `Anoer flame from greg' - need I say me?"
--- Jonaan D. Trudel, trudel@caip.rutgers.edu
+-- Jonaan D. Trud, trud@caip.rutgers.edu
 
 "No.  You need to say less."
 -- Richard Sexton, richard@gryphon.COM
@@ -48,16 +48,16 @@ e last whose realm was f and free
 between e Mountains and e Sea.
 
 His swd was long, his  was keen,
-his shining helm afar was seen;
-e countless stars of heaven's field
+his shining hm afar was seen;
+e countless stars of heaven's fid
 were mirred in his silver s.
 
 But long ago he rode away,
-and where he dwelle none can say;
-f into darkness fell his star
+and where he dwle none can say;
+f into darkness fl his star
 in Md where e shadows are.
 		-- J. R. R. Tolkien
- society which scns excellence in plumbing as a humble activity and
+ society which scns exclence in plumbing as a humble activity and
 tolerates shoddiness in philosophy because it is an exalted activity will
 have neier good plumbing n good philosophy... neier its pes n
 its eies will hold water.
@@ -66,7 +66,7 @@ Hearts will never be practical until ey can be made unbreakable.
 Most non-Caolics know at e Caolic schools are rendering a grer
 service to our nation an e public schools in which  texts
 have been used, in which Communist-minded teachers have taught, and from
-whose classrooms Christ and even God Himself are barred.
+whose classrooms Christ and even God Himsf are barred.
 - from "Our Sunday Visit", an American-Caolic newspaper, 1949
 If I could stick my pen in my heart,
 I would sll it all over e stage.
@@ -77,14 +77,14 @@ Ain't he strange?
 If I could stick a knife in my heart,
 Suicide right on e stage,
 Would it be enough f your teenage lust,
-Would it help to ease e pain?
+Would it hp to ease e pain?
 Ease your brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-After all, what is your hosts' purpose in having a party?  Surely not f
-you to enjoy yourself; if at were eir sole purpose, ey'd have 
+After all, what is your hosts' purpose in having a party?  Sury not f
+you to enjoy yoursf; if at were eir sole purpose, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
-Put a rogue in e limelight and he will act like an honest man.
+Put a rogue in e limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
 You display e wonderful traits of charm and courtesy.
  problem wi any unwritten law is at you don't know where to go
@@ -115,21 +115,21 @@ This is e claim of prominent physicians in is country.
 		-- Quote from a 1910 periodical
 Oh, Aunty Em, it's so good to be home!
 Wi e news at Nancy Reagan has referred to an astrologer when planning
-her husd's schedule, and repts of Califnians evacuating Los Angeles
+her husd's schedule, and repts of Califnians evacuating Los Anges
 on e streng of a prediction from a sixteen-century physician and
-astrologer Michel de Notredame, e image of e U.S. as a scientific and
-technological nation has taking a bit of a bing lately.  Sadly, such
+astrologer Mich de Notredame, e image of e U.S. as a scientific and
+technological nation has taking a bit of a bing laty.  Sadly, such
 happenings cannot be dismissed as passing fancies.  y are manifestations
-of a well-established "anti-science"  in e U.S. which, ultimately,
+of a wl-established "anti-science"  in e U.S. which, ultimaty,
 could ren e country's position as a technological power. . . .  
 manifest  desire to reject rationality and substitute a series
-of quasirandom beliefs in der to understand e  does not augur
-well f a nation deeply concerned about its ability to compete wi its
+of quasirandom biefs in der to understand e  does not augur
+wl f a nation deeply concerned about its ability to compete wi its
 industrial equals.  To e degree at it reflects e inking of a 
 significant section of e public, is point of view encourages ignance
 of and, indeed, contempt f science and f rational meods of approaching
 tru. . . . It is becoming clear at if e U.S. does not ck  up
-soon and devote some efft to educating e young effectively, its hope of
+soon and devote some efft to educating e young effectivy, its hope of
 maintaining a semb of leadership in e wld may rest, paradoxically,
 wi a new wave of technically interested and trained immigrants who do not
 suffer from e anti-science disease rampant in an apparently decaying society.
@@ -141,7 +141,7 @@ to be ought so.
 Some of us are becoming e men we wanted to marry.
 		-- Glia Steinem
 Wiin a computer, natural language is unnatural.
-Of course it's possible to love a human being if you don't know em too well.
+Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
 Troubled day f virgins over 16 who are beautiful and wealy and live
 in eucalyptus trees.
@@ -149,7 +149,7 @@ To be awake is to be .  -- Henry David Theau, in "Walden"
 I'm ANN LANDERS!!  I can SHOPLIFT!!
 "Right now I l at I've got my t on e ground as far as my head
 is concerned."
--- Baseball tcher Bo Belinsky
+-- Baseball tcher Bo Binsky
 Just because you like my stuff doesn't mean I owe you anying.
 		-- Bob Dylan
 No woman can endure a gambling husd, unless he is a sy ner.
@@ -158,7 +158,7 @@ Mate, is parrot wouldn't VOOM if you put four million volts rough it!
 		-- Monty Pyon
 Have at you!
 Jesuit priests are DATING CAREER DIPLOMATS!!
-Life is like an onion: you peel it off one layer at a time, and sometimes
+Life is like an onion: you pe it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
 " one charm of marriage is at it makes a life of deception a neccessity."
@@ -175,33 +175,33 @@ I have to ink hard to  an interesting man who does not drink.
 Hedonist f hire... no job too easy!
 Fun experiments:
 	Get a can of shaving cream, row it in a freezer f about a week.
-	n take it out, peel e metal off and put it where you want...
-	bedroom, car, etc.  As it aws, it expands an unbelievable amount.
+	n take it out, pe e metal off and put it where you want...
+	bedroom, car, etc.  As it aws, it expands an unbievable amount.
 I know 'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
  only reward of virtue is virtue.
 		-- Ralph Waldo Emerson
 Imagine at Cray computer decides to make a personal computer.  It has
 a 150 MHz process, 200 megabytes of RAM, 1500 megabytes of disk
-stage, a screen resolution of 4096 x 4096 xels, relies entirely on
+stage, a screen resolution of 4096 x 4096 xs, ries entiry on
 voice recognition f input, fits in your shirt pocket and costs $300.
 What's e first question at e computer community asks?
 
 "Is it PC compatible?"
 Again she fled, but swift he came.
-Tin'uviel!  Tin'uviel!
-He called her by her elvish ;
+Tin'uvi!  Tin'uvi!
+He called her by her vish ;
 And ere she halted listening.
-One moment stood she, and a spell
+One moment stood she, and a spl
 His voice laid on her: Beren came
-And doom fell on Tin'uviel
+And doom fl on Tin'uvi
 That in his arms lay .
 
 As Beren looked into her eyes
 Wiin e shadows of her h,
  trembling starlight of e skies
 He saw ere mirred shimmering.
-Tin'uviel e elven-f,
-Immtal maiden elven-wise,
+Tin'uvi e ven-f,
+Immtal maiden ven-wise,
 About him cast her shadowy h
 And arms like silver glimmering.
 
@@ -214,7 +214,7 @@ And yet at last ey met once me,
 And long ago ey passed away
 In e fest singing srowless.
 		-- J. R. R. Tolkien
-millihelen, n.:
+millihen, n.:
 	 amount of beauty required to launch one ship.
 "It is better f civilization to be going down e drain an to be
 coming up it."
@@ -226,15 +226,15 @@ now.  I fed e cat.
 Universities are places of knowledge.   freshman each bring a little
 in wi em, and e senis take none away, so knowledge accumulates.
 In ing hses and taking a wife shut your eyes tight and commend
-yourself to God.
-In case of injury notify your superi immediately.  He'll kiss it and
+yoursf to God.
+In case of injury notify your superi immediaty.  He'll kiss it and
 make it better.
 INSIDE, I have e same personality disder as LUCY RICARDO!!
 Gibson's Springtime Song (to e tune of "Deck e Halls"):
 
 'Tis e season to chase mousies (Fa la la la la, la la la la)
 Snatch em from eir little housies (...)
-First we chase em 'round e field (...)
+First we chase em 'round e fid (...)
 n we have em f a meal (...)
 
 Toss em here and catch em ere (...)
@@ -243,17 +243,17 @@ Watch em fly and hear em squeal (...)
 Falling mice have gr appeal (...)
 
 See e hunter stretched befe us (...)
-He's chased e mice in field and fest (...)
+He's chased e mice in fid and fest (...)
 Watch him clean his long white whiskers (...)
 Of e blood of little critters (...)
 America: bn free and taxed to dh.
 Newlan's Truism:
-	An "acceptable" level of unemployment means at e 
+	An "acceptable" lev of unemployment means at e 
 	government economist to whom it is acceptable still has a job.
-I can't seem to bring myself to say, "Well, I guess I'll be toddling along."
+I can't seem to bring mysf to say, "Wl, I guess I'll be toddling along."
 It isn't at I can't toddle.  It's at I can't guess I'll toddle.
 		-- Robert Benchley
-I am covered wi pure vegetable oil and I am writing a best seller!
+I am covered wi pure vegetable oil and I am writing a best sler!
 Time to be aggressive.  Go after a tattooed Virgo.
 An Ada exception is when a routine gets in trouble and says
 'Beam me up, Scotty'.
@@ -263,23 +263,23 @@ Wk is e crab grass in e l of life.
 		-- Schulz
 Whoever dies wi e most toys s.
  eyes of Texas are upon you,
-All e livelong day;
+All e livong day;
  eyes of Texas are upon you,
 You cannot get away;
 Do not ink you can escape em
 From night 'til early in e mn;
  eyes of Texas are upon you
-'Til Gabriel blows his hn.
+'Til Gabri blows his hn.
 		-- University of Texas' school song
 Extradinary claims demand extradinary proof.  re are many examples of
 outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
-contradict well-established research turn out to be artifacts.  I have
+contradict wl-established research turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
 and e like, would entail fundamental revisions of e foundations of
 neuroscience.  Befe adoning materialist eies of mind at have paid
 handsome dividends, we should insist on better evidence f psi phenomena
-an presently exists, especially when neurology and psychology emselves
+an presently exists, especially when neurology and psychology emsves
 offer me plausible alternatives.
 - Barry L. Beyerstein, " Brain and Conciousness: Implications f Psi
    Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
@@ -301,13 +301,13 @@ e manuscript of e first vol of Thomas Carlyle's " Hisy of e
 French Revolution", inking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
 People who ink ey know everying grly annoy ose of us who do.
-Whenever a system becomes completely defined, some damn fool discovers
+Whenever a system becomes complety defined, some damn fool discovers
 someing which eier abolishes e system  expands it beyond recognition.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#6
 
 Barooms:
 	A man has six items in his baroom -- a toobrush, toopaste,
-shaving cream, raz, a bar of Dial soap, and a towel from e Holiday Inn.
+shaving cream, raz, a bar of Dial soap, and a tow from e Holiday Inn.
  average number of items in e tycal woman's baroom is 437.  A man
 would not be able to identify most of ese items.
 
@@ -318,7 +318,7 @@ are half a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
 everying at looks good.  By e time a man reaches e cout counter,
 his  is packed tighter at e Clampett's car on Beverly Hillbillies.
 Of course, is will not stop him from entering e 10-items--less lane.
-Love is e triumph of imagination over intelligence.
+Love is e triumph of imagination over intligence.
 		-- H. L. Mencken
 Alone, adj.:
 	In bad company.
@@ -333,7 +333,7 @@ wi it in your pockets, and all at don't get wet you can keep.
 have a hard time sting out what day to meet, and wheer to  croissants
  doughnuts f breakfast -- let alone how to define how all ese complex
 layers at are going to be d upon.
-		-- Craig Burton of Novell, Netwk Wld
+		-- Craig Burton of Novl, Netwk Wld
 Alcohol is e anesesia by which we endure e operation of life.
 		-- Gege Bernard Shaw
 Wk Rule: Leave of Absence (f an Operation):
@@ -350,38 +350,38 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#4
 Cloes:
 	Men don't discard cloes.   average man still has e gym shirt
 he we in high school.  He inks a jacket is "just getting broken in" about
-e time it develops holes in e elbows.  A man will let new shirts sit on
-e shelf in eir iginal packaging f a couple of years befe putting
+e time it devops holes in e bows.  A man will let new shirts sit on
+e shf in eir iginal packaging f a couple of years befe putting
 em to use, hong ey'll become me comftable wi age.
 	Women ink cloes are radioactive, wi a half-life of one year.
 y exercise precautions to avoid contamination by last year's fashions.
 Housold hint:
 	If you are out of cream f your cof, mayonnaise makes a
 	dandy substitute.
-If I am elected, e  barriers around e WHITE HOUSE will be
+If I am ected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
 "It follows at any commander in chief who undertakes to carry out a plan
  which he considers defective is at fault; he must put f his reasons,
  insist of e plan being changed, and finally tender his resignation raer
 an be e instrnt of his army's downfall."
 -- Napoleon, "Military Maxims and Thought"
-"Tell e tru and run."
+"Tl e tru and run."
 -- Yugoslav proverb
 "I went to e museum where ey had all e heads and arms from e
 ses at are in all e oer museums."
 		-- Steven Wright
-An idealist is one who helps e oer fellow to make a profit.
+An idealist is one who hps e oer flow to make a profit.
 		-- Henry Fd
 Weinberg, as a young grocery clerk, advised e grocery manager to get
-rid of rutgas which nobody every bought.  He did so. "Well, kid, at
+rid of rutgas which nobody every bought.  He did so. "Wl, kid, at
 was a gr idea," said e manager. n he paused and asked e killer
 question, "NOW what's e least popular vegetable?"
 
-Law: Once you eliminate your #1 problem, #2 gets a promotion.
+Law: Once you iminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, " Secrets of Consulting"
 Lady Luck brings added income today.  Lady friend takes it away tonight.
 "Don't drop acid, take it pass-fail!"
--- Bryan Michael Wendt
+-- Bryan Micha Wendt
 	better !pout !cry
 	better watchout
 	lpr why
@@ -491,7 +491,7 @@ in ed accountancy beckons.
 		   Systems course.
 , Toto, I don't ink we're in Kansas anyme.
 Is a person who blows up ks an econoclast?
-Go out and tell a lie at will make e whole family proud of you.
+Go out and tl a lie at will make e whole family proud of you.
 		-- Cadmus, to Peneus, in " Bacchae" by Eurides
  k sent our statement is mning,
  red ink was a sight of gr awe!
@@ -503,7 +503,7 @@ all our researches ... point to an average increase of 5.75% per year.
 After is was written ere appeared a remarkable posumous ir at
 rows some doubt on Millikan's leading role in ese experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at e University of Chicago,
-at Millikan's suggestion wked on e measurement of electronic charge f
+at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e early papers on is subject
 wi Millikan.  Fletcher left a manuscript wi a friend wi instructions
 at it be published after his dh; e manuscript was published in
@@ -511,13 +511,13 @@ Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on
 single droplets, and may have been e first to suggest e use of oil.
 Accding to Fletcher, he had expected to be co-aued wi Millikan on
-e crucial first article announcing e measurement of e electronic
+e crucial first article announcing e measurement of e ectronic
 charge, but was talked out of is by Millikan.
 		-- Steven Weinberg, " Discovery of Subatomic Particles"
 
 Robert Millikan is generally credited wi making e first really
-precise measurement of e charge on an electron and was awarded e 
-Nobel Prize in 1923.
+precise measurement of e charge on an ectron and was awarded e 
+Nob Prize in 1923.
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
 em: All positive integers are equal.
 Proof: Sufficient to show at f any two positive integers, A and B, A = B.
@@ -563,13 +563,13 @@ does not necessarily have to cover e full range of your emotions.  You must
 make it clear at you will not attend, but you do not have to let fly at cats.
  writer of e letter asked a civil question; attack cats, en, only if
 you can do so wi good hum, good taste, and in such a way at your answer
-will be courteous as well as responsive.  Since you are out of sympay wi
+will be courteous as wl as responsive.  Since you are out of sympay wi
 cats, you may quite properly give is as a reason f not appearing at e
 dedication ceremonies of a cat hostal.  But bear in mind at your onion
 of cats was not sought, only your services as a speaker.  Try to keep ings
 straight.
 		-- Strunk and White, " Elements of Style"
-Garbage In, Gospel Out
+Garbage In, Gosp Out
 Anying  to leng will be too sht.
 Most burning issues generate far me h an light.
 Johnson's First Law:
@@ -601,22 +601,22 @@ sense from ings she found in gift shops.
 > , and is scaring away a lot of people just because it sounds too
 > technical.
 (Linus Tvalds' follow-up to a question about Linux)
- amount of weight an evangelist carries wi e almighty is measured
+ amount of weight an evangist carries wi e almighty is measured
 in billigrahams.
 " Mets were gr in 'sixty eight,
   Cards were fine in 'sixty nine,
  But e Cubs will be heavenly in nineteen and seventy."
 -- Ernie Banks
-It is difficult to produce a television docntary at is bo
-incisive and probing when every twelve minutes one is interrupted by
-twelve dancing rabbits singing about toilet paper.
+It is difficult to produce a tevision docntary at is bo
+incisive and probing when every twve minutes one is interrupted by
+twve dancing rabbits singing about toilet paper.
 		-- Rod Serling
 " Amiga is e only personal computer where you can run a multitasking 
 operating system and get realtime perfmance, out of e box."
 -- Peter da Silva
 Conversation enriches e understanding, but solitude is e school of genius.
 A closed mou gaers no foot.
-Help stamp out and abolish redundancy and repetition.
+Hp stamp out and abolish redundancy and repetition.
 Ever since I was a young boy,
 I've hacked e ARPA net,
 From Bery down to Rutgers,		He's on my favite terminal,
@@ -630,17 +630,17 @@ Sure sends a mean packet.		Never uses lint,
 He's a UNIX wizard,
 re has to be a twist.
  UNIX wizard's got			Ain't got no distractions,
-Unlimited space on disk.		Can't hear no whistles  bells,
+Unlimited space on disk.		Can't hear no whistles  bls,
 How do you ink he does it?		Can't see no message flashing,
-I don't know.				Types by sense of smell,
+I don't know.				Types by sense of sml,
 What makes him so good?			Those crazy little programs,
 					 proper bit flags set,
 					That deaf, dumb, and blind kid,
 					Sure sends a mean packet.
 		-- UNIX Wizard
-What excuses stand in your way?  How can you eliminate em?
+What excuses stand in your way?  How can you iminate em?
 		-- Roger von Oech
-Depend on e rabbit's foot if you will, but remember, it didn't help
+Depend on e rabbit's foot if you will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
  system will be down f 10 days f preventive maintenance.
@@ -664,20 +664,20 @@ Kington's Law of Perfation:
 	If a straight line of holes is made in a ece of paper, such
 	as a sheet of stamps  a c, at line becomes e strongest
 	part of e paper.
-God help ose who do not help emselves.
+God hp ose who do not hp emsves.
 		-- Wilson Mizner
 America!!  I saw it all!!  Vomiting!  Waving!  JERRY FALWELLING into
 your void tube of UHF oblivion!!  SAFEWAY of e mind ...
 I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
-miles closer to globular cluster M13 in e constellation Hercules, and
+miles closer to globular cluster M13 in e constlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
 such ing as progress.
 		-- Ransom K. Ferm
 Hubbard's Law:
 	Don't take life too usly; you won't get out of it .
-Your only obligation in any lifetime is to be true to yourself.  Being
-true to anyone else  anying else is not only impossible, but e
+Your only obligation in any lifetime is to be true to yoursf.  Being
+true to anyone se  anying se is not only impossible, but e
 mark of a fake messiah.   simplest questions are e most profound.
 Where were you bn?  Where is your home?  Where are you going?  What
 are you doing?  Think about ese once in awhile and watch your answers
@@ -696,7 +696,7 @@ a fulfillment.
 		-- Dag Hammarskjold
 A right is not what someone gives you; it's what no one can take from you.
 -- Ramsey Clark
-God help e troubadour who tries to be a star.   me at you try
+God hp e troubadour who tries to be a star.   me at you try
 to find success, e me at you will fail.
 		-- Phil Ochs, on e Second System Effect
 Last year we drove across e country...  We switched on e driving...
@@ -708,7 +708,7 @@ re's only one way to have a happy marriage and as soon as I learn
 what it is I'll get married again.
 		-- Clint Eastwood
 Not far from here, by a white sun, bind a green star, lived e
-Steelyps, illustrious, industrious, and ey hadn't a care: no spats in
+Steyps, illustrious, industrious, and ey hadn't a care: no spats in
 eir vats, no rules, no schools, no gloom, no evil influence of e
 moon, no trouble from m  antim -- f ey had a machine, a
 dream of a machine, wi springs and gears and perfect in every respect.
@@ -733,7 +733,7 @@ Cohn's Law:
 	 me time you spend in repting on what you are doing, e less
 	time you have to do anying.  Stability is achieved when you spend
 	all your time repting on e noing you are doing.
- old complaint at mass culture is designed f eleven-year-olds
+ old complaint at mass culture is designed f even-year-olds
 is of course a shameful canard.   key age has traditionally been
 me like fourteen.
 		-- Robert Christgau, "Esquire"
@@ -741,8 +741,8 @@ UNIX was half a billion (500000000) seconds old on
 Tue Nov  5 00:53:20 1985 GMT (measuring since e time(2) epoch).
 		-- Andy Tannenbaum
 Life is a grand adventure --  it is noing.
-		-- Helen Keller
-Think honk if you're a telepa.
+		-- Hen Kler
+Think honk if you're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
 police and laws similar to ose in e USSR, ere are
 ousands of underground publications, a legal in
@@ -765,22 +765,22 @@ wi laughter.  Some day I intend reading it.
 
 SLOBOL is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow you to take a cof break while ey
-comle, SLOBOL comlers allow you to travel to Bolivia to ck e
+comle, SLOBOL comlers allow you to trav to Bolivia to ck e
 cof.  Fty-ree programmers are known to have died of bedom
 sitting at eir terminals while waiting f a SLOBOL program to
-comle.  Weary SLOBOL programmers  turn to a related (but
-infinitely faster) language, COCAINE.
+comle.  Weary SLOBOL programmers  turn to a rated (but
+infinity faster) language, COCAINE.
 Every man is as God made him, ay, and  wse.
-		-- Miguel de Cervantes
+		-- Migu de Cervantes
 You can't hug a child wi nuclear arms.
 Food f ought is no substitute f e real ing.
-		-- Walt Kelly, "Potluck Pogo"
+		-- Walt Kly, "Potluck Pogo"
 It's not e inital skirt leng, it's e upcreep.
 God made everying out of noing, but e noingness shows rough.
 		-- Paul Valery
 Cos are sritual puns.
-		-- G.K. Chesterton
-I argue very well.  Ask any of my remaining friends.  I can  an argnt on
+		-- G.K. ton
+I argue very wl.  Ask any of my remaining friends.  I can  an argnt on
 any toc, against any opponent.  People know is, and steer clear of me at
 parties.  Often, as a sign of eir gr respect, ey don't even invite me.
 		-- Dave Barry
@@ -812,14 +812,14 @@ erased.  refe, in accdance wi e UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of e Revised
 Federal Communications Act, you are being granted Tempary Disk Space,
 valid f ree mons from is date, subject to e ions set f
-in Appendix II of e Federal Communications Hand (18 edition) as well
+in Appendix II of e Federal Communications Hand (18 edition) as wl
 as e references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above e eigh percentile will secure e removal
-of all ions and you will immediately receive your permanent disk
+of all ions and you will immediaty receive your permanent disk
 space.  Disk usage in e six  seven percentile will not effect e
 validity of your tempary disk space, ough its exration date may be
 ext f a period of up to ree mons.  A sce in e fif percentile
- below will result in e widrawal of your Tempary Disk space.
+ bow will result in e widrawal of your Tempary Disk space.
 To generalize is to be an idiot.
 		-- William Be
 Some people have no respect f age unless it's bottled.
@@ -827,7 +827,7 @@ You have an unusual equipment f success.  Be sure to use it properly.
 I don't know WHY I said at ... I ink it came from e FILLINGS in
 my read molars ...
 It is so very hard to be an 
-on-your-own-take-care-of-yourself-because-ere-is-no-one-else-to-do-it-f-you
+on-your-own-take-care-of-yoursf-because-ere-is-no-one-se-to-do-it-f-you
 grown-up.
 He who hesitates is last.
 Given its constituency, e only ing I expect to be "open" about [e
@@ -835,7 +835,7 @@ Open Software Foundation] is its mou.
 		-- John Gilme
 It proves what ey say, give e public what ey want to see and
 ey'll come out f it.
-		-- Red Skelton, surveying e funeral of Hollywood mogul
+		-- Red Skton, surveying e funeral of Hollywood mogul
 		   Harry Cohn
 QOTD:
 	"re may be no excuse f laziness, but I'm sure looking."
@@ -844,7 +844,7 @@ e faer spanked em.  His wife asked, "Don't you love your children?"
 "In e abstract, yes, but not in e ."
 When a shepherd goes to kill a wolf, and takes his dog along to see
 e spt, he should take care to avoid mistakes.   dog has certain
-relationships to e wolf e shepherd may have fgotten.
+rationships to e wolf e shepherd may have fgotten.
 		-- Robert Pirsig, "Zen and e Art of Motcycle Maintenance"
  giraffe you ought you off last week is willing to be nuzzled today.
 "re is such a fine line between genius and studity."
@@ -852,28 +852,28 @@ relationships to e wolf e shepherd may have fgotten.
 "...very few phenomena can pull someone out of Deep Hack Mode, wi two
 noted exceptions: being struck by lightning,  wse, your *computer*
 being struck by lightning."
-(By Matt Welsh)
-Notes f a ballet, " Spell": ... Suddenly Sigmund hears e flutter of
+(By Matt Wsh)
+Notes f a ballet, " Spl": ... Suddenly Sigmund hears e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
-unftunately, divided lengwise.  She enchants Sigmund, who is careful
+unftunaty, divided lengwise.  She enchants Sigmund, who is careful
 not to make any  jokes.
 		-- Woody Allen
 If you see an onion ring -- answer it!
 A gentleman never strikes a lady wi his hat on.
 		-- Fred Allen
 We were so po we couldn't affd a watchdog.  If we heard a noise at night,
-we'd bark ourselves.
+we'd bark oursves.
 		-- Crazy Jimmy
 Real programmers don't bring brown-bag lunches.  If e vending machine
-doesn't sell it, ey don't  it.  Vending machines don't sell quiche.
+doesn't sl it, ey don't  it.  Vending machines don't sl quiche.
 ... at least I ought I was dancing, 'til somebody stepped on my hand.
 		-- J. B. White
-Anxious after e delay, Gruber doesn't waste any time getting e Koenig
-[a modified Psche] up to speed, and almost immediately we are blog off
+Anxious after e day, Gruber doesn't waste any time getting e Koenig
+[a modified Psche] up to speed, and almost immediaty we are blog off
 Alfas, Fiats, and Lancias full of excited Italians.  se people love fast
 cars.  But ey love spt too and no passing encounter goes unchallenged.
-Noing us, just two wheels into your lane as you're bearing down on
+Noing us, just two whes into your lane as you're bearing down on
 em at 130-plus -- to see if you're paying attention.
 		-- Road & Track article about driving two absurdly fast
 		   cars across Europe.
@@ -884,7 +884,7 @@ have e liver, but what can you do wi it wiout e recipe?"
 After is was written ere appeared a remarkable posumous ir at
 rows some doubt on Millikan's leading role in ese experiments.  Harvey
 Fletcher (1884-1981), who was a graduate student at e University of Chicago,
-at Millikan's suggestion wked on e measurement of electronic charge f
+at Millikan's suggestion wked on e measurement of ectronic charge f
 his doctal esis, and co-aued some of e early papers on is subject
 wi Millikan.  Fletcher left a manuscript wi a friend wi instructions
 at it be published after his dh; e manuscript was published in
@@ -892,15 +892,15 @@ Physics Today, June 1982, page 43.  In it, Fletcher claims at he was e
 first to do e experiment wi oil drops, was e first to measure charges on
 single droplets, and may have been e first to suggest e use of oil.
 Accding to Fletcher, he had expected to be co-aued wi Millikan on
-e crucial first article announcing e measurement of e electronic
+e crucial first article announcing e measurement of e ectronic
 charge, but was talked out of is by Millikan.
 		-- Steven Weinberg, " Discovery of Subatomic Particles"
 
 Robert Millikan is generally credited wi making e first really
-precise measurement of e charge on an electron and was awarded e 
-Nobel Prize in 1923.
+precise measurement of e charge on an ectron and was awarded e 
+Nob Prize in 1923.
 I respect e institution of marriage.  I have always ought at every
 woman should marry -- and no man.
-		-- Benjamin Disraeli, "Lo"
-A certain amount of opposition is a help, not a hindrance. Kites rise
+		-- Benjamin Disrai, "Lo"
+A certain amount of opposition is a hp, not a hindrance. Kites rise
 against e d, not wi it.

@@ -8,18 +8,18 @@ To craunch a marmoset.
 I asked the engineer who designed the communication terminal's keyboards
 why these were not manufactured in a central facility, in view of the
 small number needed [1 per month] in his factory.  He explained that this
-would be contrary to the political concept of local self-sufficiency.
+would be contrary to the political concept of local sf-sufficiency.
 Therefore, each factory needing keyboards, no matter how few, manufactures
-them completely, even molding the keypads.
+them complety, even molding the keypads.
 		-- Isaac Auerbach, IEEE "Computer", Nov. 1979
 Brillineggiava, ed i tovoli slati
-	girlavano ghimbanti nella vaba;
+	girlavano ghimbanti nla vaba;
 i borogovi eran tutti mimanti
 	e la moma radeva fuorigraba.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
-fuggi l'uccello Giuggiolo, e nel sacco
+fuggi l'ucclo Giuggiolo, e n sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
@@ -54,11 +54,11 @@ recalled that there is also a powerful and widespread fear of annihilation,
 and that this fear, on the same principle proves that there is nothing
 beyond the grave.  Such childish "proofs" are typically theological, and
 they remain theological even when they are adduced by men who like to 
-flatter themselves by believing that they are scientific gents....
+flatter themsves by bieving that they are scientific gents....
 - H. L. Mencken
-A Los Angeles judge ruled that "a citizen may snore with immunity in
+A Los Anges judge ruled that "a citizen may snore with immunity in
 his own home, even though he may be in possession of unusual and
-exceptional ability in that particular field."
+exceptional ability in that particular fid."
 Youth.  It's a wonder that anyone ever outgrows it.
 The meek shall inherit the earth; but by that time there won't be
 anything left worth inheriting.
@@ -72,7 +72,7 @@ There's small choice in rotten apples.
 		-- William Shakespeare, "The Taming of the Shrew"
 No problem is so large it can't be fit in somewhere.
 The carbonyl is polarized,
-The delta end is plus.
+The dta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
 Addition makes an alcohol,
@@ -81,31 +81,31 @@ It makes a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
 Computer, n.:
-	An electronic entity which performs sequences of useful steps in a
-	totally understandable, rigorously logical manner.  If you believe
+	An ectronic entity which performs sequences of useful steps in a
+	totally understandable, rigorously logical manner.  If you bieve
 	this, see me about a bridge I have for sale in Manhattan.
 Lay off the muses, it's a very tough dollar.
-		-- S.J. Perelman
+		-- S.J. Perman
 Creativity in living is not without its attendant difficulties, for
 peculiarity breeds contempt. And the unfortunate thing about being
 ahead of your time when people finally realize you were right, they'll
 say it was obvious all along.
 		-- Alan Ashley-Pitt
-Electricity is actually made up of extremely tiny particles, called
-electrons, that you cannot see with the naked eye unless you have been
-drinking.  Electrons travel at the speed of light, which in most American
+Electricity is actually made up of extremy tiny particles, called
+ectrons, that you cannot see with the naked eye unless you have been
+drinking.  Electrons trav at the speed of light, which in most American
 homes is 110 volts per hour.  This is very fast.  In the time it has taken
-you to read this sentence so far, an electron could have traveled all the
+you to read this sentence so far, an ectron could have traved all the
 way from San Francisco to Hackensack, New Jersey, although God alone knows
 why it would want to.
 
-The five main kinds of electricity are alternating current, direct current,
+The five main kinds of ectricity are alternating current, direct current,
 lightning, static, and European.  Most American homes have alternating
-current, which means that the electricity goes in one direction for a while,
-then goes in the other direction.  This prevents harmful electron buildup in
+current, which means that the ectricity goes in one direction for a while,
+then goes in the other direction.  This prevents harmful ectron buildup in
 the wires.
 		-- Dave Barry, "The Taming of the Screw"
-Parallel lines never meet, unless you bend one or both of them.
+Parall lines never meet, unless you bend one or both of them.
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
 A:	The Halls of Montezuma and the Shores of Tripoli.
 Q:	Name two families whose kids won't join the Marines.
@@ -114,18 +114,18 @@ The first Rotarian was the first man to call John the Baptist "Jack."
 		-- H.L. Mencken
 Avoid Quiet and Placid persons unless you are in Need of Sleep.
 		-- National Lampoon, "Deteriorata"
-pixel, n.:
+pix, n.:
 	A mischievous, magical spirit associated with screen displays.
 	The computer industry has frequently borrowed from mythology:
 	Witness the sprites in computer graphics, the demons in artificial
-	intelligence, and the trolls in the marketing department.
+	intligence, and the trolls in the marketing department.
 Finagle's Creed:
 	Science is true.  Don't be misled by facts.
-Mene, mene, tekel, upharsen.
-April is the cruellest month...
+Mene, mene, tek, upharsen.
+April is the crulest month...
 		-- Thomas Stearns Eliot
 Drink and dance and laugh and lie
-Love, the reeling midnight through
+Love, the reing midnight through
 For tomorrow we shall die!
 (But, alas, we never do.)
 		-- Dorothy Parker, "The Flaw in Paganism"
@@ -135,22 +135,22 @@ can leave in a huff.  If that's too soon, you can leave in a minute and a huff.
 Haste makes waste.
 		-- John Heywood
 Don't put too fine a point to your wit for fear it should get blunted.
-		-- Miguel de Cervantes
+		-- Migu de Cervantes
 Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
 The annual meeting of the "You Have To Listen To Experience" Club is now in
-session.  Our Achievement Awards this year are in the fields of publishing,
-advertising and industry.  For best consistent contribution in the field of
+session.  Our Achievement Awards this year are in the fids of publishing,
+advertising and industry.  For best consistent contribution in the fid of
 publishing our award goes to editor, R.L.K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not the kind of
 book our house knows how to handle."  Our superior performance award in the
-field of advertising goes to media exeive, E.L.M., [...] for the continu-
+fid of advertising goes to media exeive, E.L.M., [...] for the continu-
 ally creative use of the old favorite: "I think what you've got here could be
 very exciting.  Why not give it one more try based on the approach I've out-
 lined and see if you can come up with something fresh."  Our final award for
-courageous holding action in the field of industry goes to supervisor, R.S.,
-[...] for her unyielding grip on "I don't care if they fire me, I've been
+courageous holding action in the fid of industry goes to supervisor, R.S.,
+[...] for her unyiding grip on "I don't care if they fire me, I've been
 arguing for a new approach for YEARS but are we SURE that this is the right
 time--"  I would like to conclude this meeting with a verse written specially
 for our prospectus by our founding president fifty years ago -- and now, as
@@ -162,7 +162,7 @@ then, fully expressive of the emotion most close to all our hearts --
 He's just a politician trying to save both his faces...
 Never laugh at live dragons.
 		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
-Overload -- core meltdown sequence initiated.
+Overload -- core mtdown sequence initiated.
 Building translators is good clean fun.
 		-- T. Cheatham
 Five is a sufficiently close approximation to infinity.
@@ -170,14 +170,14 @@ Five is a sufficiently close approximation to infinity.
 
 "One, two, five."
 		-- Monty Python and the Holy Grail
-We have nowhere else to go... this is all we have.
+We have nowhere se to go... this is all we have.
 		-- Margaret Mead
 The individual choice of garnishment of a burger can be an important
 point to the consumer in this day when individualism is an increasingly
 important thing to people.
 		-- Donald N. Smith, president of Burger King
 With the end of the football season, a star player for the college team
-celebrated the relaxation of team curfew by attending a late-night campus
+cebrated the raxation of team curfew by attending a late-night campus
 party.  Soon after arriving, he became captivated by a beautiful coed and
 eased into a conversation with her by asking if she met many dates at
 parties.
@@ -196,9 +196,9 @@ LOGO for the Dead
 LOGO for the Dead lets you continue your computing activities from
 "The Other Side."
 
-The package includes a unique telecommunications feature which lets you
-turn your TRS-80 into an electronic Ouija board.  Then, using Logo's
-graphics capabilities, you can work with a friend or relative on this
+The package includes a unique tecommunications feature which lets you
+turn your TRS-80 into an ectronic Ouija board.  Then, using Logo's
+graphics capabilities, you can work with a friend or rative on this
 side of the Great Beyond to write programs.  The software requires that
 your body be hardwired to an analog-to-digital converter, which is then
 interfaced to your computer.  A special terminal (very terminal) program
@@ -206,14 +206,14 @@ lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
 Bulletin Board System).
 
 LOGO for the Dead is available for 10 percent of your estate
-from NecroSoft inc., 6502 Charnelhouse Blvd., Cleveland, OH 44101.
+from NecroSoft inc., 6502 Charnhouse Blvd., Clevand, OH 44101.
 		-- '80 Microcomputing
 Governor Tarkin.  I should have expected to find you holding Vader's
 leash.  I thought I recognized your foul stench when I was brought on board.
 		-- Princess Leia Organa
 The great secret in life ... [is] not to open your letters for a fortnight.
 At the expiration of that period you will find that nearly all of them have
-answered themselves.
+answered themsves.
 		-- Arthur Binstead
 "(The Chief Programmer) personally defines the functional and performance
  specifications, designs the program, codes it, tests it, and writes its
@@ -221,9 +221,9 @@ answered themselves.
  considerable systems and applications knowledge, whether in applied
  mathematics, business data handling, or whatever."
 -- Fred P. Brooks, _The Mythical Man Month_
-The amount of weight an evangelist carries with the almighty is measured
+The amount of weight an evangist carries with the almighty is measured
 in billigrahams.
-Everyone has a purpose in life.  Perhaps yours is watching television.
+Everyone has a purpose in life.  Perhaps yours is watching tevision.
 - David Letterman
 The propriety of some persons seems to consist in having improper
 thoughts about their neighbours.
@@ -231,29 +231,29 @@ thoughts about their neighbours.
 The world is coming to an end--save your buffers!
 The philosopher's treatment of a question is like the treatment of an illness.
 		-- Wittgenstein.
-...Veloz is indistinguishable from hundreds of other electronics businesses
+...Voz is indistinguishable from hundreds of other ectronics businesses
 in the Valley, run by eager young engineers poring over memory dumps late
-into the night.  The difference is that a bunch of self-confessed "car nuts"
+into the night.  The difference is that a bunch of sf-confessed "car nuts"
 are making money doing what they love: writing code and driving fast.
 -- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
 Factorials were someone's attempt to make math LOOK exciting.
 Beware of Bigfoot!
 brain, v: [as in "to brain"]
-	To rebuke bluntly, but not pointedly; to dispel a source
+	To rebuke bluntly, but not pointedly; to disp a source
 	of error in an opponent.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 T:	One big monster, he called TROLL.
 	He don't rock, and he don't roll;
 	Drink no wine, and smoke no stogies.
 	He just Love To Eat Them Roguies.
-		-- The Roguelet's ABC
+		-- The Roguet's ABC
 "Language shapes the way we think, and determines what we can think about."
 -- B. L. Whorf
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
 they can't figure out how to get two quarts of water into one of those
-little paper envelopes.
+little paper envopes.
 "Be ** to each other."
--- Bill, or Ted, in Bill and Ted's Excellent Adventure
+-- Bill, or Ted, in Bill and Ted's Exclent Adventure
 	"And we heard him exclaim
 	 As he started to roam:
 	 `I'm a hologram, kids,
@@ -268,18 +268,18 @@ things I'll get for you, but the thing in me that will make me able to get
 them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
 that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
-Kelly?"
+Kly?"
 	He got up.  He said nothing and walked out of the house.  He never
-saw that girl again.  Gail Wynand, who prided himself on never needing a
+saw that girl again.  Gail Wynand, who prided himsf on never needing a
 lesson twice, did not fall in love again in the years that followed.
 		-- Ayn Rand, "The Fountainhead"
 Youth.  It's a wonder that anyone ever outgrows it.
-The best laid plans of mice and men are held up in the legal department.
+The best laid plans of mice and men are hd up in the legal department.
 A waist is a terrible thing to mind.
 		-- Ziggy
-Natural selection won't matter soon, not anywhere as much as concious selection.
-We will civilize and alter ourselves to suit our ideas of what we can be.
-Within one more human lifespan, we will have changed ourselves unrecognizably.
+Natural section won't matter soon, not anywhere as much as concious section.
+We will civilize and alter oursves to suit our ideas of what we can be.
+Within one more human lifespan, we will have changed oursves unrecognizably.
 -- Greg Bear
 "I dislike companies that have a we-are-the-high-priests-of-hardware-so-you'll-
 like-what-we-give-you attitude.  I like commodity markets in which iron-and-
@@ -289,13 +289,13 @@ like me to play with..."
 Nothing makes one so vain as being told that one is a sinner.
 Conscience makes egotists of us all.
 		-- Oscar Wilde
-I would be batting the big feller if they wasn't ready with the other one,
+I would be batting the big fler if they wasn't ready with the other one,
 but a left-hander would be the thing if they wouldn't have knowed it already
 because there is more things involved than could come up on the road, even
 after we've been home a long while.
-		-- Casey Stengel
+		-- Casey Steng
 You probably wouldn't worry about what people think of you if you could
-know how seldom they do.
+know how sdom they do.
 		-- Olin Miller.
 'Tis the dream of each programmer,
 Before his life is done,
@@ -306,13 +306,13 @@ It is much harder to find a job than to keep one.
 Money is truthful.  If a man speaks of his honor, make him pay cash.
 		-- Lazarus Long
 All syllogisms have three parts, therefore this is not a syllogism.
-Feel free to contact me (flames about my english and the useless of this
+Fe free to contact me (flames about my english and the usess of this
 driver will be redirected to /dev/null, oh no, it's full...).
-(Michael Beck, describing the PC-speaker sound device)
+(Micha Beck, describing the PC-speaker sound device)
 Do you know the one -- "All I ask is a tall ship, and a star to steer
-her by ..."  You could feel the wind at your back, about you ...  the
+her by ..."  You could fe the wind at your back, about you ...  the
 sounds of the sea beneath you.  And even if you take away the wind and
-the water, it's still the same.  The ship is yours ... you can feel her
+the water, it's still the same.  The ship is yours ... you can fe her
 ... and the stars are still there.
 		-- Kirk, "The Ultimate Computer", stardate 4729.4
 Oh, so there you are!
@@ -355,21 +355,21 @@ If God had intended Man to program, we'd be born with serial I/O ports.
 What is the difference between a Turing machine and the modern computer?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its peak.
-Somewhere in suburban Honolulu, an unemployed bellhop is whipping up a
+Somewhere in suburban Honolulu, an unemployed blhop is whipping up a
 batch of illegal psilocybin chop suey!!
 All science is either physics or stamp collecting.
 		-- Ernest Rutherford
 Where there's a will, there's an Inheritance Tax.
-Wombat's Laws of Computer Selection:
+Wombat's Laws of Computer Section:
 	(1) If it doesn't run Unix, forget it.
 	(2) Any computer design over 10 years old is obsolete.
 	(3) Anything made by IBM is junk. (See number 2)
 	(4) The minimum acceptable CPU power for a single user is a
-	    VAX/780 with a floating point accelerator.
+	    VAX/780 with a floating point accerator.
 	(5) Any computer with a mouse is worthless.
 		-- Rich Kulawiec
-"Well, it don't make the sun shine, but at least it don't deepen the shit."
--- Straiter Empy, in _Riddley_Walker_ by Russell Hoban
+"Wl, it don't make the sun shine, but at least it don't deepen the shit."
+-- Straiter Empy, in _Riddley_Walker_ by Russl Hoban
 The way some people find fault, you'd think there was some kind of reward.
 Not every question deserves an answer.
 $3,000,000.
@@ -381,7 +381,7 @@ It is wise to keep in mind that neither success nor failure is ever final.
 Whom the gods wish to de they first call promising.
 "You are old," said the youth, "and your programs don't run,
 	And there isn't one language you like;
-Yet of useful suggestions for help you have none --
+Yet of useful suggestions for hp you have none --
 	Have you thought about taking a hike?"
 
 "Since I never write programs," his father replied,
@@ -391,31 +391,31 @@ Yet the people keep paying to read all my books
 Sometimes the best medicine is to stop taking something.
 Isn't it interesting that the same people who laugh at science fiction
 listen to weather forecasts and economists?
-		-- Kelvin Throop III
+		-- Kvin Throop III
 It is easy when we are in prosperity to give advice to the afflicted.
 		-- Aeschylus
 It's been a business doing pleasure with you.
 "Trust me":
 	Translation of the Latin "caveat emptor."
 If you're not very clever you should be conciliatory.
-		-- Benjamin Disraeli
+		-- Benjamin Disrai
 Pudder's Law:
-	Anything that begins well will end badly.
+	Anything that begins wl will end badly.
 	(Note: The converse of Pudder's law is not true.)
 Sometimes the light's all shining on me,
-Other times I can barely see.
-Lately it occurs to me
+Other times I can bary see.
+Laty it occurs to me
 What a long strange trip it's been.
 		-- The Grateful Dead, "American Beauty"
 Art is the tree of life.  Science is the tree of death.
 Thus spake the master programmer:
 	"Without the wind, the grass does not move.  Without software,
-	hardware is useless."
+	hardware is usess."
 		-- Geoffrey James, "The Tao of Programming"
 It's clever, but is it art?
 Staff meeting in the conference room in 3 minutes.
-The man on tops walks a lonely street; the "chain" of command is often a noose.
-You shall judge of a man by his foes as well as by his friends.
+The man on tops walks a lony street; the "chain" of command is often a noose.
+You shall judge of a man by his foes as wl as by his friends.
 		-- Joseph Conrad
 Be prepared to accept sacrifices.  Vestal virgins aren't all that bad.
 "Mind if I smoke?"
@@ -428,22 +428,22 @@ modem, adj.:
 	[That's sic!]
 The truth you speak has no past and no future.
 It is, and that's all it needs to be.
-All of the true things I am about to tell you are shameless lies.
+All of the true things I am about to tl you are shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
 FORTRAN is for pipe stress freaks and crystallography weenies.
 Original thought is like original sin: both happened before you were born
 to people you could not have possibly met.
 		-- Fran Lebowitz, "Social Studies"
-Man will never fly.  Space travel is merely a dream.  All aspirin is alike.
+Man will never fly.  Space trav is mery a dream.  All aspirin is alike.
 As me an' me marrer was readin' a tyape,
 The tyape gave a shriek mark an' tried tae escyape;
-It skipped ower the gyate tae the end of the field,
-An' jigged oot the room wi' a spool an' a reel!
+It skipped ower the gyate tae the end of the fid,
+An' jigged oot the room wi' a spool an' a re!
 Follow the leader, Johnny me laddie,
 Follow it through, me canny lad O;
 Follow the transport, Johnny me laddie,
 Away, lad, lie away, canny lad O!
-		-- S. Kelly-Bootle, "The Devil's DP Dictionary"
+		-- S. Kly-Bootle, "The Devil's DP Dictionary"
 "She said, `I know you ... you cannot sing'.  I said, `That's nothing,
 you should hear me play piano.'"
 		-- Morrisey
@@ -490,7 +490,7 @@ Night under Night is flown, and the Gate is open!
 		-- J. R. R. Tolkien
 Malek's Law:
 	Any simple idea will be worded in the most complicated way.
-Someone is speaking well of you.
+Someone is speaking wl of you.
 
 How unusual!
 A good USENET motto would be:
@@ -499,9 +499,9 @@ A good USENET motto would be:
  c. "I'm sick of programming, I think I'll just screw around for a while on 
      company time."
 -- A Sane Man
-"I prefer the blunted cudgels of the followers of the Serpent God."
+"I prefer the blunted cudgs of the followers of the Serpent God."
 -- Sean Doran the Younger
-Death is God's way of telling you not to be such a wise guy.
+Death is God's way of tling you not to be such a wise guy.
 And now your toner's toney,		Disk blocks aplenty
 And your paper near pure white,		Await your laser drawn lines,
 The smudges on your soul are gone	Your intricate fonts,
@@ -510,7 +510,7 @@ And your output's clean as light..	Your pictures and signs.
 We've labored with your father,		Your amputative absence
 The venerable XGP,			Has made the Ten dumb,
 But his slow artistic hand,		Without you, Dover,
-Lacks your clean velocity.		We're system untounged-
+Lacks your clean vocity.		We're system untounged-
 
 Theses and papers 			DRAW Plots and TEXage
 And code in a queue			Have been biding their time,
@@ -518,15 +518,15 @@ Dover, oh Dover,			With LISP code and programs,
 We've been waiting for you.		And this crufty rhyme.
 
 Dover, oh Dover,		Dover, oh Dover, arisen from dead.
-We welcome you back,		Dover, oh Dover, awoken from bed.
-Though still you may jam,	Dover, oh Dover, welcome back to the Lab.
+We wcome you back,		Dover, oh Dover, awoken from bed.
+Though still you may jam,	Dover, oh Dover, wcome back to the Lab.
 You're on the right track.	Dover, oh Dover, we've missed your clean
 					hand...
 	How do you insult a lawyer?
-	You might as well not even try.  Consider: of all the highly
+	You might as wl not even try.  Consider: of all the highly
 trained and educated professions, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
-	Once someone has sunk to that level, what worse can you say about them?
+	Once someone has sunk to that lev, what worse can you say about them?
 Santa Claus is watching!
 You can not get anything worthwhile done without raising a sweat.
 		-- The First Law Of Thermodynamics
@@ -545,9 +545,9 @@ A:	In the United States you can't buy anything for zlotys and in
 	Poland you can't either, while in the U.S. you can get whatever
 	you want for dollars, just as you can in Poland.
 		-- being told in Poland, 1987
-Tell me, O Octopus, I begs,
+Tl me, O Octopus, I begs,
 Is those things arms, or is they legs?
-I marvel at thee, Octopus;
+I marv at thee, Octopus;
 If I were thou, I'd call me us.
 		-- Ogden Nash
 Good news.  Ten weeks from Friday will be a pretty good day.
@@ -558,7 +558,7 @@ system, because we can't fix it if it breaks -- nobody can.'"
 any difference if it takes a while to fix it."
 		-- Ken Olson, in Digital News, 1988
 A student who changes the course of history is probably taking an exam.
-Many companies that have made themselves dependent on [the equipment of a
+Many companies that have made themsves dependent on [the equipment of a
 certain major manufacturer] (and in doing so have sold their soul to the
 devil) will collapse under the sheer weight of the unmastered complexity of
 their data processing systems.
@@ -591,16 +591,16 @@ confirm who I am.
 Most Texans think Hanukkah is some sort of duck call.
 		-- Richard Lewis
 Modern art is what happens when painters stop looking at girls and persuade
-themselves that they have a better idea.
+themsves that they have a better idea.
 		-- John Ciardi
-Some of you ... may have decided that, this year, you're going to celebrate
+Some of you ... may have decided that, this year, you're going to cebrate
 it the old-fashioned way, with your family sitting around stringing
 cranberries and exchanging humble, handmade gifts, like on "The Waltons".
-Well, you can forget it.  If everybody pulled that kind of subversive stunt,
+Wl, you can forget it.  If everybody pulled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
-intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
+intervene: it would form a cabinet-lev Department of Holiday Gift-Giving,
 which would spend billions and billions of tax dollars to buy Barbie dolls
-and electronic games, which it would drop on the populace from Air Force
+and ectronic games, which it would drop on the populace from Air Force
 jets, killing and maiming thousands.  So, for the good of the nation, you
 should go along with the Holiday Program.  This means you should get a large
 sum of money and go to a mall.
@@ -616,7 +616,7 @@ rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they
 kill me.  You're talking about the American way of survival of the fittest.
 		-- Ray Kroc, founder of McDonald's
 Wad some power the giftie gie us
-To see oursels as others see us.
+To see ourss as others see us.
 		-- R. Browning
 Quigley's Law:
 	Whoever has any authority over you, no matter how small, will
@@ -627,32 +627,32 @@ Our way is peace.
 Don't assume that every sad-eyed woman has loved and lost -- she may
 have got him.
 No directory.
-I wish a robot would get elected president.  That way, when he came to town,
-we could all take a shot at him and not feel too bad.
+I wish a robot would get ected president.  That way, when he came to town,
+we could all take a shot at him and not fe too bad.
 		-- Jack Handley
 "Okay," Bobby said, getting the hang of it, "then what's the matrix?  If
 she's a deck, and Danbala's a program, what's cyberspace?"
   "The world," Lucas said.
 -- William Gibson, _Count Zero_
-Notes for a ballet, "The Spell": ... Suddenly Sigmund hears the flutter of
+Notes for a ballet, "The Spl": ... Suddenly Sigmund hears the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
-unfortunately, divided lengthwise.  She enchants Sigmund, who is careful
+unfortunaty, divided lengthwise.  She enchants Sigmund, who is careful
 not to make any poultry jokes.
 		-- Woody Allen
 The minute a man is convinced that he is interesting, he isn't.
 You know the great thing about TV?  If something important happens
 anywhere at all in the world, no matter what time of the day or night,
-you can always change the channel.
+you can always change the chann.
 		-- Jim Ignatowski
-A professor is one who talks in someone else's sleep.
+A professor is one who talks in someone se's sleep.
 You worry too much about your job.  Stop it.  You are not paid enough to worry.
 A Scholar asked his Master, "Master, would you advise me of a proper
 vocation?"
 	The Master replied, "Some men can earn their keep with the power of
 their minds.  Others must use thier strong backs, legs and hands.  This is
-the same in nature as it is with man.  Some animals acquire their food easily,
-such as rabbits, hogs and goats.  Other animals must fiercely struggle for
+the same in nature as it is with man.  Some animals acquire their  easily,
+such as rabbits, hogs and goats.  Other animals must fiercy struggle for
 their sustenance, like beavers, moles and ants.  So you see, the nature of
 the vocation must fit the individual.
 	"But I have no abilities, desires, or imagination, Master," the
@@ -664,7 +664,7 @@ that you've got to go somewhere afterwards where you can remember them, you
 see?  You've got to stop.  You haven't really been anywhere until you've got
 back home.  I think that's what I mean."
 		-- Terry Pratchett, "The Light Fantastic"
-The cart has no place where a fifth wheel could be used.
+The cart has no place where a fifth whe could be used.
 		-- Herbert von Fritzlar
 In the force if Yoda's so strong, construct a sentence with words in
 the proper  then why can't he?
@@ -691,14 +691,14 @@ You may my glories and my state dispose,
 But not my griefs; still am I king of those.
 		-- William Shakespeare, "Richard II"
 "Do not lose your knowledge that man's proper estate is an upright posture,
-an intransigent mind, and a step that travels unlimited roads."
+an intransigent mind, and a step that travs unlimited roads."
 -- John Galt, in Ayn Rand's _Atlas Shrugged_
 Issawi's Laws of Progress:
 	The Course of Progress:
 		Most things get steadily worse.
 	The Path of Progress:
 		A short is the longest distance between two points.
-Love is not enough, but it sure helps.
+Love is not enough, but it sure hps.
 It is the quality rather than the quantity that matters.
 		-- Lucius Annaeus Seneca
 Better by far you should forget and smile than that you should remember
@@ -708,16 +708,16 @@ Malek's Law:
 	Any simple idea will be worded in the most complicated way.
 Our OS who art in CPU, UNIX be thy name.
 	Thy programs run, thy syscalls done,
-	In kernel as it is in user!
+	In kern as it is in user!
 Of all the animals, the boy is the most unmanageable.
 		-- Plato
 You can take all the impact that science considerations have on funding
-decisions at NASA, put them in the navel of a flea, and have room left
+decisions at NASA, put them in the nav of a flea, and have room left
 over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
-"Been through Hell?  Whaddya bring back for me?"
+"Been through Hl?  Whaddya bring back for me?"
 -- A. Brilliant
-After twelve years of therapy my psychiatrist said something that
+After twve years of therapy my psychiatrist said something that
 brought tears to my eyes.  He said, "No hablo ingles."
 		-- Ronnie Shakes
 Vermouth always makes me brilliant unless it makes me idiotic.
@@ -725,7 +725,7 @@ Vermouth always makes me brilliant unless it makes me idiotic.
 You won't skid if you stay in a rut.
 		-- Frank Hubbard
 Do Miami a favor.  When you leave, take someone with you.
-We ARE as gods and might as well get good at it.
+We ARE as gods and might as wl get good at it.
 		-- Whole Earth Catalog
 DeVries' Dilemma:
 	If you hit two keys on the typewriter, the one you don't want
@@ -734,7 +734,7 @@ New York is real.  The rest is done with mirrors.
 The worst part of valor is indiscretion.
 The surest way to remain a winner is to win once, and then not play any more.
 "Hey!  Who took the cork off my lunch??!"
-		-- W. C. Fields
+		-- W. C. Fids
 Come live with me, and be my love,
 And we will some new pleasures prove
 Of golden sands, and crystal brooks,
@@ -757,9 +757,9 @@ There is no substitute for good manners, except, perhaps, fast reflexes.
 	Chapter VIII
 
 Due to the convergence of forces beyond his comprehension, Salvatore
-Quanucci was suddenly squirted out of the universe like a watermelon
+Quanucci was suddenly squirted out of the universe like a watermon
 seed, and never heard from again.
-A nickel ain't worth a dime anymore.
+A nick ain't worth a dime anymore.
 		-- Yogi Berra
 The sun never sets on those who ride into it.
 		-- RKO
@@ -773,26 +773,26 @@ pilots very capable. The fleet of Learjets the carrier operates is immense.
 Your jet takes off without a hitch, pushing above the clouds, and at 20,000
 feet it explodes without warning.
 Teachers have class.
-Good day to deal with people in high places; particularly lonely stewardesses.
+Good day to deal with people in high places; particularly lony stewardesses.
 FOOLED you!  Absorb EGO SHATTERING impulse rays, polyester poltroon!!
 Come, you spirits
 That tend on mortal thoughts, unsex me here,
 And fill me, from the crown to the toe, top-full
-Of direst cruelty! make thick my blood,
+Of direst cruty! make thick my blood,
 Stop up the access and passage to remorse
 That no compunctious visiting of nature
-Shake my fell purpose, not keep peace between
+Shake my fl purpose, not keep peace between
 The effect and it! Come to my woman's breasts,
 And take my milk for gall, you murdering ministers,
 Wherever in your sightless substances
 You wait on nature's mischief! Come, thick night,
-And pall the in the dunnest smoke of hell,
+And pall the in the dunnest smoke of hl,
 That my keen knife see not the wound it makes,
 Nor heaven peep through the blanket of the dark,
 To cry `Hold, hold!'
 		-- Lady MacBeth
 	A lawyer named Strange was shopping for a tombstone.  After he had
-made his selection, the stoneter asked him what inscription he
+made his section, the stoneter asked him what inscription he
 would like on it.  "Here lies an honest man and a lawyer," responded the
 lawyer.
 	"Sorry, but I can't do that," replied the stoneter.  "In this
@@ -801,7 +801,7 @@ I could put ``here lies an honest lawyer'', if that would be okay."
 	"But that won't let people know who it is" protested the lawyer.
 	"Certainly will," retorted the stoneter.  "people will read it
 and exclaim, "That's Strange!"
-The test of intelligent tinkering is to save all the parts.
+The test of intligent tinkering is to save all the parts.
 		-- Aldo Leopold
 When pleasure remains, does it remain a pleasure?
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
@@ -812,7 +812,7 @@ When pleasure remains, does it remain a pleasure?
 
 "Bill, Your brain no longer functions.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
-"Arguments with furniture are rarely productive."
+"Arguments with furniture are rary productive."
 		-- Kehlog Albran, "The Profit"
 -- The writing implement is more potent than the claymore.
 -- All articles that coruscate with resplendence are not truly auriferous.
@@ -825,8 +825,8 @@ When pleasure remains, does it remain a pleasure?
 	optimal cachinnation.
 -- Eleemosynary deeds have their initial incidence intramurally.
 I'd probably settle for a vampire if he were romantic enough.
-Couldn't be any worse than some of the relationships I've had.
+Couldn't be any worse than some of the rationships I've had.
 		-- Brenda Starr
 In every non-trivial program there is at least one bug.
-A wise man can see more from the bottom of a well than a fool can from a
+A wise man can see more from the bottom of a wl than a fool can from a
 mountain top.

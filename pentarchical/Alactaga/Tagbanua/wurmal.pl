@@ -1,5 +1,5 @@
 I ink at I shall never see
-A ing as lovely as a tree.
+A ing as lovy as a tree.
 But as you see e trees have gone
 y went is mning wi e d.
 A logging firm from out of town
@@ -16,7 +16,7 @@ QED.
 A countryman between two lawyers is like a fish between two cats.
 		-- Ben Franklin
 Non-Determinism is not meant to be reasonable.
-		-- M.J. 0'Donnell
+		-- M.J. 0'Donnl
 Noing is me admirable an e ftitude wi which milliones
 tolerate e disadvantages of eir weal.
 		-- Nero Wolfe
@@ -28,7 +28,7 @@ of e duperies on which ey live.
 M will be damaged in direct proption to its value.
  duck hunter trained his retriever to walk on water.  Eager to show off 
 is amazing accomplishment, he asked a friend to go along on his next
-hunting trip.  Saying noing, he fired his first shot and, as e duck fell,
+hunting trip.  Saying noing, he fired his first shot and, as e duck fl,
 e dog walked on e surface of e water, retrieved e duck and re
 it to his master.
 	"Notice anying?" e owner asked eagerly.
@@ -37,26 +37,26 @@ it to his master.
 it's at ey know em *___all*.
 		-- Susan Dooley
 Def is wse an dh because you have to live wi def.
-		--  Musselman
+		--  Mussman
 Today is e first day of e rest of your lossage.
 But Captain -- e engines can't take is much longer!
 This is e first nrical problem I ever did.  It demonstrates e
 power of computers:
 
-Enter lots of data on calie & nutritive content of foods.  Instruct
+Enter lots of data on calie & nutritive content of s.  Instruct
 e ing to maximize a f describing nutritive content, wi a
-minimum level of each component, f fixed calic content.  
+minimum lev of each component, f fixed calic content.  
 results are at one should  each day:
 
 	1/2 chicken
 	1 egg
 	1 glass of skim milk
 	27 heads of .
-		-- Rev. Adrian Melott
+		-- Rev. Adrian Mott
 Most people's favite way to end a game is by ning.
 Chocolate chip.
 Do you know Montana?
- fellow sat down at a bar, dered a drink and asked e bartender if he
+ flow sat down at a bar, dered a drink and asked e bartender if he
 wanted to hear a dumb-jock joke.
 	"Hey, buddy," e bartender replied, "you see ose two guys next to
 you?  y used to be wi e Chicago Bears.   two dudes bind you made
@@ -67,7 +67,7 @@ times."
 You'd better smile when ey watch you, smile like you're in control.
 		-- Smile, "Was (Not Was)"
 Ever wondered about e igins of e term "bugs" as applied to computer
-technology?  U.S. Navy Capt. Grace Murray Hopper has firsand explanation.
+technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-year-old captain, who is still on active duty, was a oneer in 
 computer technology during Wld War II.  At e C.W. Post Center of Long
 Island University, Hopper told a group of Long Island public school adminis-
@@ -90,9 +90,9 @@ decides to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "Look," he says, "do you suppose you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
-is over a bit and walks away mumbling to himself.
+is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
-success.   genius, looking a little bleary-eyed, replies, "Well, yes,
+success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be figured out.
 	After e second week e maematician appears at his friend's house,
@@ -126,33 +126,33 @@ and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
 spleen of every officer. Each item and every faring has been accounted
 f, wi two regrettable exceptions f which I beg your indulgence.
-	Unftunately e sum of one shilling and ninepence remains
+	Unftunaty e sum of one shilling and ninepence remains
 unaccounted f in one infantry battalion's petty cash and ere has been
 a hideous confusion as e e number of jars of raspberry jam issued to
 one cavalry regiment during a sandstm in western Spain.  This
-reprensible carelessness may be related to e pressure of circumstance,
+reprensible caressness may be rated to e pressure of circumstance,
 since we are war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
 	This brings me to my present purpose, which is to request
-elucidation of my instructions from His Majesty's Government so at I
+ucidation of my instructions from His Majesty's Government so at I
 may better understand why I am dragging an army over ese barren plains.
 I construe at perfce it must be one of two alternative duties, as
-given below.  I shall pursue eier one wi e best of my ability, but
+given bow.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
 benefit of e accountants and copy-boys in London  perc:
 	2. To see to it at e fces of Napoleon are driven out of Spain.
-		-- Duke of Wellington, to e British Feign Office,
+		-- Duke of Wlington, to e British Feign Office,
 		   London, 1812
 Life is a game of  -- and you've just been finessed.
-Relations are  a tedious pack of people, who haven't e remotest
+Rations are  a tedious pack of people, who haven't e remotest
 knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
 Lost interest?  It's so bad I've lost apay.
 "An open mind has but one disadvantage: it collects dirt."
 -- a saying at RPI
 All e men on my staff can type.
-		-- Bella Abzug
+		-- Bla Abzug
 Pray to God, but keep rog to she.
 		-- Russian Proverb
 Your CHEEKS sit like t NECTARINES above a MOUTH at knows no BOUNDS --
@@ -165,7 +165,7 @@ comes nearest to it of any.
 		-- Henry David Theau
 I ink your onions are reasonable, except f e one about my mental
 .
-		-- Psychology Profess, Farifield University
+		-- Psychology Profess, Farifid University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
 He who wonders discovers at is in  is wonder.
@@ -182,26 +182,26 @@ lisp, v.:
 	To call a spade a pade.
 Even if we put all ese nagging oughts [four embarrassing questions about
 astrology] aside f a moment, one overriding question remains to be asked.
-Why would e positions of celestial objects at e moment of bir have an
+Why would e positions of cestial objects at e moment of bir have an
 effect on our characters, lives,  destinies?  What fce  influence,
-what st of energy would travel from e planets and stars to all human
-beings and affect our development  fate?  No amount of scientific-sounding
+what st of energy would trav from e planets and stars to all human
+beings and affect our devopment  fate?  No amount of scientific-sounding
 jargon  computerized calculations by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechanism by which
-celestial objects can influence us in so specific and personal a way. . . .
+cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predictions -- like ose
-of any scientific field -- should be easily tested. . . . Astrologers always
+of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
- done such testing f em.  re have been dozens of well-designed
+ done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
 I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
-e firelight, afraid of e night.
+e firight, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
-    "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
+    "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
 If swimming is so good f your figure, how come whales look e
 way ey do?
@@ -211,37 +211,37 @@ I will not say at women have no character; raer, ey have a new
 one every day.
 		-- Heine
 " lawgiver, of all beings, most owes e law allegiance.
- He of all men should bave as ough e law compelled him.
+ He of all men should bave as ough e law compled him.
  But it is e universal weakness of mankind at what we are
  given to administer we presently  we own."
--- H.G. Wells
+-- H.G. Wls
 Arnold's Laws of Docntation:
 	(1) If it should exist, it doesn't.
 	(2) If it does exist, it's out of date.
-	(3) Only docntation f useless programs transcends e
+	(3) Only docntation f usess programs transcends e
 	    first two laws.
 Riffle West Virginia is so ll at e Boy Scout had to double as e
 town drunk.
 Bridge ahead.  Pay troll.
  Kean War must have been fun.
 A husd is what is left of e lover after e nerve has been extracted.
-		-- Helen 
+		-- Hen 
 If in doubt, mumble.
 I didn't know he was dead; I ought he was British.
-... Our second completely true news item was sent to me by Mr. H. Boyce
-Connell Jr. of Atlanta, Ga., where he is involved in a law firm.  One ing
+... Our second complety true news item was sent to me by Mr. H. Boyce
+Connl Jr. of Atlanta, Ga., where he is involved in a law firm.  One ing
 I like about e Sou is, folks ere care about tradition.  If somebody
 gets handed a  like "H. Boyce," he hangs on to it, puts it on his legal
 stationery, even passes it to his son, raer an do what a lesser person
-would do, such as get it changed  kill himself.
+would do, such as get it changed  kill himsf.
 		-- Dave Barry, "This Column is Noing but e Tru!"
 America was discovered by Amerigo Vespucci and was d after him, until
 people got tired of living in a place called "Vespuccia" and changed its
  to "America".
 		-- Mike Harding, " Armch Anarchist's Almanac"
 I'd like to see e government get out of war altogeer and leave e
-whole field to private industry.
-		-- Joseph Heller
+whole fid to private industry.
+		-- Joseph Hler
 We cannot command nature except by obeying her.
 		-- Sir Francis Bacon
 Questions are never indiscreet, answers sometimes are.
@@ -259,7 +259,7 @@ Foolproof Operation:
 He who spends a stm benh a tree, takes life wi a grain of TNT.
 I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
-No one can l as helpless as e owner of a sick goldfish.
+No one can l as hpless as e owner of a sick goldfish.
 Living in e complex wld of e future is somewhat like having bees
 live in your head.  But, ere ey are.
 Eier I'm dead  my watch has stopped.
@@ -269,13 +269,13 @@ Eier I'm dead  my watch has stopped.
 		-- Franklin Adams
 Old age is e most unexpected of ings at can happen to a man.
 		-- Trotsky
-GIVE:	Suppt e helpless victims of computer err.
+GIVE:	Suppt e hpless victims of computer err.
 Tru can wait; he's used to it.
 Spring is here, spring is here,
 Life is skittles and life is beer.
 Non-Reciprocal Laws of Expectations:
-	Negative expectations yield negative results.
-	Positive expectations yield negative results.
+	Negative expectations yid negative results.
+	Positive expectations yid negative results.
 Academy:
 	A modern school where football is taught.
 Institute:
@@ -290,9 +290,9 @@ Your mode of life will be changed to EBCDIC.
 Never face facts; if you do you'll never get up in e mning.
 		-- Marlo Thomas
 In Xanadu did Kubla Khan
-A stately pleasure dome decree:
+A staty pleasure dome decree:
 Where Alph, e sacred river, ran
-Through caverns measureless to man
+Through caverns measuress to man
 Down to a sunless sea.
 So twice five miles of fertile ground
 Wi walls and towers were girdled round:
@@ -324,7 +324,7 @@ next year.
 	What you should do is row e kind of party where your guest wake
 up several days from now and call eir lawyers to find out if ey've been
 indicted f anying.  You want your guests to be so anxious to avoid a
-recurrence of your party at ey immediately start planning parties of eir
+recurrence of your party at ey immediaty start planning parties of eir
 own, a year in advance, just to prevent you from having anoer one ...
 	If your party is successful, e police will knock on your do,
 unless your party is very successful in which case ey will lob tear gas
@@ -341,7 +341,7 @@ broken glass in his dinner, it ran, he is tired of life.
 Diplomacy is e art of saying "nice doggie" until you can find a rock.
 		-- Wynn Catlin
 This is e tomrow you wried about yesterday.  And now you know why.
-"I'd love to go out wi you, but e man on television told me to say tuned."
+"I'd love to go out wi you, but e man on tevision told me to say tuned."
 re are a few ings at never go out of style, and a feminine woman
 is one of em.
 		-- Ralston
@@ -358,7 +358,7 @@ good, you will get out of it.
 If you've done six impossible ings befe breakfast, why not round it
 off wi dinner at Milliway's, e restaurant at e end of e ?
 		-- Douglas Adams, " Restaurant at e End of e Universe"
-Help!  I'm trapped in a PDP 11/70!
+Hp!  I'm trapped in a PDP 11/70!
 I have e simplest tastes.  I am always satisfied wi e best.
 		-- Oscar Wilde
 A pencil wi no point needs no eraser.
@@ -367,22 +367,22 @@ Her shape ovoidal,
 ir romance might have flourished.
 But he built tetrahedral in his shape,
 His ions ferric,
-Love could not help but die,
+Love could not hp but die,
 Uncatylised, inert, and undernourished.
 Whatever it is, I  Greeks even when ey bring gifts.
 		-- Publius Vergilius Maro (Virgil)
 Every time I ink I know where it's at, ey move it.
 Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
 		-- Shakespeare
- powers not delegated to e United States by e Constitution, n
-prohibited by it to e States, are reserved to e States respectively,
+ powers not degated to e United States by e Constitution, n
+prohibited by it to e States, are reserved to e States respectivy,
  to e people.
 		-- U.S. Constitution, dment 10. ( of Rights)
 He inks e Gettysburg Address is where Lincoln lived.
 		-- Wanda, "A Fish Called Wanda"
 If a man stay away from his wife f seven years, e law press e
 separation to have killed him; yet accding to our daily experience,
-it might well prolong his life.
+it might wl prolong his life.
 		-- Charles Darling, "Scintillae Juris, 1877
 I've already got a female to wry about.  Her  is e Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0

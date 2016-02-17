@@ -3,7 +3,7 @@ and are so afraid to stand e test of ridicule?
 		-- A. Cooper
 Noing is faster an e speed of light ...
 
-To prove is to yourself, try opening e refrigerator door before e
+To prove is to yoursf, try opening e refrigerator door before e
 light comes on.
 One of e rules of Bunship, New York style, is never surrender your
 s to anoer passenger.  This may seem callous, but it is e best
@@ -12,19 +12,19 @@ in e aisle, say, e oers on e bus would become disoriented and
  ey were in Topeka Kansas.
 I have never let my schooling interfere wi my education.
 		-- Mark Twain
-When I  up is morning, my girlfriend asked if I had slept well.
+When I  up is morning, my girlfriend asked if I had slept wl.
 I said, "No, I made a few mistakes."
 		-- Steven Wright
-Welcome to e Zoo!
+Wcome to e Zoo!
 Don't let people drive you crazy when you know it's in walking distance.
 You auto  now.
 Bilbo's First Law:
-	You cannot count friends at are all packed up in barrels.
+	You cannot count friends at are all packed up in barrs.
 The honeymoon is not actually over until we cease to stifle our sighs
 and begin to stifle our ys.
-		-- Helen 
-My nose feels like a bad Ronald Reagan movie ...
-Screw up your courage!  You've screwed up everying else.
+		-- Hen 
+My nose fes like a bad Ronald Reagan movie ...
+Screw up your courage!  You've screwed up everying se.
 It takes all kinds to fill e freeways.
 		-- Crazy Charlie
 Adding sound to movies would be like putting lipstick on e Venus de Milo.
@@ -40,7 +40,7 @@ TETflame programme:
 
 2) For a negotiated price (same arrangement) e TETflame programme
    is offering ``flame insurence''. Under is arrangement, if
-   one of our policy holders is flamed, we will cancel e offending
+   one of our policy holders is flamed, we will canc e offending
    article and flame e flamer, to a crisp.
 
 3) The TETflame flaming representatives include: Richard Sexton, Oleg
@@ -57,7 +57,7 @@ should be used in its proper place.
 		-- Christopher Strachey
 To code e impossible code,		This is my quest --
 To bring up a virgin machine,		To debug at code,
-To pop out of endless recursion,	No matter how hopeless,
+To pop out of endless recursion,	No matter how hopess,
 To grok what appears on e screen,	No matter e load,
 					To write ose routines
 To right e unrightable bug,		Wiout question or pause,
@@ -95,18 +95,18 @@ O Queen beyond e Western Sea!
 O Light to us at wander here
 Amid e world of  trees!
 
-	Giloniel!  O El!
+	Giloni!  O El!
 	Clear are y eyes and bright y brh!
 	Snow-white!  Snow-white!  We sing to ee
 	In a far land beyond e Sea.
 
 O stars at in e Sunless Year
 Wi shining hand by her were sown,
-In dy fields now bright and clear
+In dy fids now bright and clear
 We see you silver blossom blown!
 
-	O El!  Giloniel!
-	We still remember, we who dwell
+	O El!  Giloni!
+	We still remember, we who dwl
 	In is far land benh e trees,
 	Thy starlight on e Western Seas.
 		-- J. R. R. Tolkien
@@ -114,10 +114,10 @@ If you talk to God, you are praying; if God talks to you, you have
 schizophrenia.
 		-- Thomas Szasz
 Luck can't last a lifetime, unless you die young.
-		-- Russell Banks
+		-- Russl Banks
 Row, row, row your bits, gently down e stream...
 A chicken is an egg's way of producing more eggs.
-My way of joking is to tell e tru.  That's e funniest joke in e world.
+My way of joking is to tl e tru.  That's e funniest joke in e world.
 		-- Muhammad Ali
 While you don't grly need e outside world, it's still very
 reassuring to know at it's still ere.
@@ -128,9 +128,9 @@ eir children to speak it.
 		-- G. B. Shaw
 Three gr scientific eories of e structure of e  are e
 molecular, e corpuscular and e atomic.  A four affirms, wi
-Haeckel, e condensation or precitation of matter from eer -- whose
+Haeck, e condensation or precitation of matter from eer -- whose
 existence is proved by e condensation or precitation ... A fif
-eory is held by idiots, but it is doubtful if ey know any more about
+eory is hd by idiots, but it is doubtful if ey know any more about
 e matter an e oers.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Minnesota --
@@ -140,7 +140,7 @@ Minnesota --
 	where visitors turn blue wi envy.
 	one day it's warm, e rest of e year it's cold.
 	land of many cultures -- mostly roat.
-	where e elite meet sleet.
+	where e ite meet sleet.
 	glove it or leave it.
 	many are cold, but few are frozen.
 	land of e ski and home of e crazed.
@@ -169,35 +169,35 @@ applications for.
 Banacek's Eighteen Polish Proverb:
 	The hippo has no sting, but e wise man would raer be sat upon
 	by e bee.
-"An entire fraternity of strapng Wall-Street-bound you.  Hell - is
+"An entire fraternity of strapng Wall-Street-bound you.  Hl - is
 is going to be a blood ba!"
 -- Post Bros. Comics
-Lonely men seek companionship.  Lonely women sit at home and wait.
+Lony men seek companionship.  Lony women sit at home and wait.
 They never meet.
-Parallel lines never meet, unless you bend one or bo of em.
+Parall lines never meet, unless you bend one or bo of em.
 Tiger got to hunt,
 Bird got to fly;
 Man got to sit and wonder, "Why, why, why?"
 
 Tiger got to sleep,
 Bird got to land;
-Man got to tell himself he understand.
+Man got to tl himsf he understand.
 		-- The Books of Bokonon
 If e American dream is for Americans only, it will remain our dream
 and never be our destiny.
 		-- Ren'e de Visme Williamson
 I come from a ll town whose population never changed.  Each time a woman
 got p, someone left town.
-		-- Michael Prichard
+		-- Micha Prichard
 Top scientists  at wi e present rate of consumption, e ear's
 supply of gravity will be exhausted before e 24 century. As man
-struggles to discover cheaper alternatives, we need your help. Please...
+struggles to discover cheaper alternatives, we need your hp. Please...
 
 			CONSERVE GRAVITY
 
 Follow ese simple suggestions:
 
-(1)  Walk wi a light step.  Carry helium balloons if possible.
+(1)  Walk wi a light step.  Carry hium balloons if possible.
 (2)  Use tape, magnets, or glue instead of paperweights.
 (3)  Give up skiing and skydiving for more horizontal sports like curling.
 (4)  Avoid showers .. take bas instead.
@@ -219,23 +219,23 @@ Norm:   No, for stud questions.
 Suffering alone exists, none who suffer;
 The deed ere is, but no doer ereof;
 Nirvana is, but no one is seeking it;
-The Pa ere is, but none who travel it.
+The Pa ere is, but none who trav it.
 		-- "Buddhist Symbolism", Symbols and Values
 The Gr Movie Posters:
 
 When You're Six Tons -- And They Call You Killer -- It's Hard To Make Friends...
 		-- Namu, e Killer Whale (1966)
 
-Meet e Girls wi e Thermo-Nuclear Navels!
+Meet e Girls wi e Thermo-Nuclear Navs!
 		-- Dr. Goldfoot and e Girl Bombs (1966)
 
 A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S LUST.
 		-- A Taste of Blood (1967)
-Events are not affected, ey develop.
+Events are not affected, ey devop.
 		-- Sri Aurobindo
 "All over e place, from e popular culture to e propaganda system, ere is
-constant pressure to make people feel at ey are helpless, at e only role
+constant pressure to make people fe at ey are hpless, at e only role
 ey can have is to ratify decisions and to cons."
 -- Noam Chomsky
 What is country needs is a good five dollar pla weapon.
@@ -251,29 +251,29 @@ Coronation, n.:
 	signs of his divine right to be blown skyhigh wi a dynamite bomb.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 What e large print give, e ll print take away.
-Already e srit of our schooling is permed wi e feeling at
+Already e srit of our schooling is permed wi e feing at
 every subject, every toc, every fact, every professed tru must be
 submitted to a certain publicity and impartiality.  All proffered 
 samples of learning must go to e same assay-room and be subjected to 
 common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrilegious and perverse.  The characteristic
-of religion, from eir point of view, is at it is intellectually
+of rigion, from eir point of view, is at it is intlectually
 secret, not public; peculiarly revealed, not generall known; 
-auoritatively declared, not communicated and tested in ordinary 
-ways...It is inent to point out at, as long as religion is
-conceived as it is now by e gr majority of professed religionists,
-ere is someing self-contradictory in speaking of education in
-religion in e same sense in which we speak of education in tocs
-where e meod of free inquiry has made its way.  The "religious"
+auoritativy declared, not communicated and tested in ordinary 
+ways...It is inent to point out at, as long as rigion is
+conceived as it is now by e gr majority of professed rigionists,
+ere is someing sf-contradictory in speaking of education in
+rigion in e same sense in which we speak of education in tocs
+where e meod of free inquiry has made its way.  The "rigious"
 would be e last to be willing at eier e history of e
-content of religion should be taught in is srit; while ose
-to whom e scientific standpoint is not merely a technical device,
+content of rigion should be taught in is srit; while ose
+to whom e scientific standpoint is not mery a technical device,
 but is e embodiment of e integrity of mind, must protest against
 its being taught in any oer srit.
 - John Dewey (1859-1953), American philosopher, 
   from "Democracy in e Schools", 1908
 Do you ink e "Monkees" should get gas on odd or even days?
-Trogytism does not necessarily imply a low cultural level.
+Trogytism does not necessarily imply a low cultural lev.
 He who hesitates is last.
 Chaos is King and Magic is loose in e world.
 "If a computer can't directly address all e RAM you can use, it's just a toy."
@@ -284,7 +284,7 @@ Wedding, n:
 		-- Ambrose Bierce
 "I don't have to take is abuse from you -- I've got hundreds of
 people waiting to abuse me."
-		--  Murray, "Ghostbusters"
+		--  , "Ghostbusters"
 Confession is good for e soul, but bad for e career.
 Don't marry for money; you can borrow it cheaper.
 		-- Scottish Proverb
@@ -299,5 +299,5 @@ proof by semantic shift:
 	for e statement of e result.
 
 proof by appeal to intuition:
-	Cloud-shaped drags frequently help here.
+	Cloud-shaped drags frequently hp here.
 To program is to be.

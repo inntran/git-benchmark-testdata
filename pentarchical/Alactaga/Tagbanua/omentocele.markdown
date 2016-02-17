@@ -1,5 +1,5 @@
 Radioactive cats have 18 half-lives.
-A freelance is one who gets paid by the word -- per piece or perhaps.
+A freance is one who gets paid by the word -- per piece or perhaps.
 		-- Robert Benchley
 DOS Air:
 All the passengers go out onto the runway, grab hold of the plane, push it
@@ -10,9 +10,9 @@ If you analyse anything, you de it.
 		-- Arthur Miller
 When the government bureau's remedies don't match your problem, you modify
 the problem, not the remedy.
-For myself, I can only say that I am astonished and somewhat terrified at
+For mysf, I can only say that I am astonished and somewhat terrified at
 the results of this evening's experiments.  Astonished at the wonderful
-power you have developed, and terrified at the thought that so much hideous
+power you have devoped, and terrified at the thought that so much hideous
 and bad music may be put on record forever.
 		-- Sir Arthur Sullivan, message to Edison, 1888
 3rd Law of Computing:
@@ -22,20 +22,20 @@ Rule the Empire through force.
 		-- Shogun Tokugawa
 Pick another fortune cookie.
 A rock store eventually closed down; they were taking too much for granite.
-Delay is preferable to error.
+Day is preferable to error.
 		-- Thomas Jefferson
 Water, taken in moderation cannot hurt anybody.
 		-- Mark Twain
 Fertility is hereditary.  If your parents didn't have any children,
 neither will you.
-Take a look around you, tell me what you see,
+Take a look around you, tl me what you see,
 A girl who thinks she's ordinary lookin' she has got the key.
 If you can get close enough to look into her eyes
 There's something special right behind the bitterness she hides.
 	And you're fair game,
 	You never know what she'll decide, you're fair game,
-	Just relax, enjoy the ride.
-Find a way to reach her, make yourself a fool,
+	Just rax, enjoy the ride.
+Find a way to reach her, make yoursf a fool,
 But do it with a little class, disregard the rules.
 'Cause this one knows the bottom line, couldn't get a date.
 The ugly duckling striking back, and she'll decide her fate.

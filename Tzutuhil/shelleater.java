@@ -1,6 +1,6 @@
 Of course power tools and alcohol don't mix.  Everyone knows power
 tools aren't soluble in alcohol...
-		-- Crazy Nigel
+		-- Crazy Nig
 Labor, n.:
 	One of the processes by which A acquires property for B.
 		-- Ambrose Bierce, "The Devil's Dictionary"
@@ -18,7 +18,7 @@ Lady Astor was giving a costume ball and Winston Churchill asked her what
 disguise she would recommend for him.  She replied, "Why don't you come
 sober, Mr. Prime Minister?"
 A Mexican newspaper reports that bored Royal Air Force pilots stationed
-on the Falkland Islands have devised what they consider a marvelous new
+on the Falkland Islands have devised what they consider a marvous new
 game.  Noting that the local penguins are fascinated by airplanes, the
 pilots search out a beach where the birds are gathered and fly slowly
 along it at the water's edge.  Perhaps ten thousand penguins turn their
@@ -29,7 +29,7 @@ paper reports "The pilots fly out to sea and directly to the penguin
 colony and overfly it.  Heads go up, up, up, and ten thousand penguins
 fall over gently onto their backs.
 		-- Audobon Society Magazine
-Any father who thinks he's all important should remind himself that this
+Any father who thinks he's all important should remind himsf that this
 country honors fathers only one day a year while pickles get a whole week.
 Lying is an indispensable part of making life tolerable.
 		-- Bergan Evans
@@ -46,21 +46,21 @@ behind, it was clear that Lenin was pointing to 11:00, when the Vodka
 shops opened, and was actually saying, "Comrades, forward to the Vodka shops.
 
 It became fashionable, when one wanted to have a drink, to take out the
-ruble and say, "Oh my goodness, Comrades, Lenin tells me we should go.
+ruble and say, "Oh my goodness, Comrades, Lenin tls me we should go.
 In /users3 did Kubla Kahn
-A stately pleasure dome decree,
+A staty pleasure dome decree,
 Where /bin, the sacred river ran
-Through Test Suites measureless to Man
+Through Test Suites measuress to Man
 Down to a sunless C.
 Anthony's Law of Force:
 	Don't force it; get a larger hammer.
 Once there was this conductor see, who had a bass problem.  You see, during
 a portion of Beethovan's Ninth Symphony in which there are no bass violin
 parts, one of the bassists always passed a bottle of scotch around.  So,
-to remind himself that the basses usually required an extra cue towards the
+to remind himsf that the basses usually required an extra cue towards the
 end of the symphony, the conductor would fasten a piece of string around the
 page of the score before the bass cue.  As the basses grew more and more
-inebriated, two of them fell asleep.  The conductor grew quite nervous (he
+inebriated, two of them fl asleep.  The conductor grew quite nervous (he
 was very concerned about the pitch) because it was the bottom of the ninth;
 the score was tied and the basses were loaded with two out.
 The assertion that "all men are created equal" was of no practical use
@@ -69,7 +69,7 @@ Declaration not for that, but for future use.
 		--  Abraham Lincoln
 I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
-Put a rogue in the limelight and he will act like an honest man.
+Put a rogue in the limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
 When you're dining out and you suspect something's wrong, you're probably right.
 A businessman is a hybrid of a dancer and a calculator.
@@ -80,11 +80,11 @@ A businessman is a hybrid of a dancer and a calculator.
 The clothes have no emperor.
 		-- C.A.R. Hoare, commenting on ADA.
 Walk softly and carry a big stick.
-		-- Theodore Roosevelt
+		-- Theodore Roosevt
 Eleventh Law of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency response, phase response and transient response, as they
-	are all merely transforms of one another.  This combined with
+	are all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-linear passive crossover network loading can
 	lead to a significant decrease in system resolution lost.  However,
@@ -95,22 +95,22 @@ Imagination is more important than knowledge.
 		-- Albert Einstein
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
--- A McDonnel-Douglas ad from a few years ago
+-- A McDonn-Douglas ad from a few years ago
 ASCII a stupid question, you get an EBCDIC answer.
 He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
 default, n.:
 	[Possibly from Black English "De fault wid dis system is you,
 	mon."] The vain attempt to avoid errors by inactivity.  "Nothing will
 	come of nothing: speak again." -- King Lear.
-		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
+		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 You k'n hide de fier, but w'at you gwine do wid de smoke?
-		-- Joel Chandler Harris, proverbs of Uncle Remus
+		-- Jo Chandler Harris, proverbs of Uncle Remus
 It's not that I'm afraid to die. I just don't want to be there when it happens.
 		-- Woody Allen
-I opened the drawer of my little desk and a single letter fell out, a
+I opened the drawer of my little desk and a single letter fl out, a
 letter from my mother, written in pencil, one of her last, with unfinished
 words and an implicit sense of her departure.  It's so curious: one can
-resist tears and "behave" very well in the hardest hours of grief.  But
+resist tears and "behave" very wl in the hardest hours of grief.  But
 then someone makes you a friendly sign behind a window... or one notices
 that a flower that was in bud only yesterday has suddenly blossomed... or
 a letter slips from a drawer... and everything collapses.
@@ -133,22 +133,22 @@ That made it, paired by dot;
 Now, GC, for the nonce,
 Thou shalt reclaim it not.
 Trying to be happy is like trying to build a machine for which the only
-specification is that it should run noiselessly.
+specification is that it should run noisessly.
 A bird in the hand is worth two in the bush.
 		-- Cervantes
 bureaucracy, n:
 	A method for transforming energy into solid waste.
 Let's just say that where a change was required, I adjusted.  In every
-relationship that exists, people have to seek a way to survive.  If you
+rationship that exists, people have to seek a way to survive.  If you
 really care about the person, you do what's necessary, or that's the end.
 For the first time, I found that I really could change, and the qualities
-I most admired in myself I gave up.  I stopped being loud and bossy ...
+I most admired in mysf I gave up.  I stopped being loud and bossy ...
 Oh, all right.  I was still loud and bossy, but only behind his back.
 		-- Kate Hepburn, on Tracy and Hepburn
 "Just Say No."   - Nancy Reagan
 
 "No."            - Ronald Reagan
-I've been on this lonely road so long,
+I've been on this lony road so long,
 Does anybody know where it goes,
 I remember last time the signs pointed home,
 A month ago.
@@ -165,10 +165,10 @@ I saw the little runt sitting there on a log
 I asked him his name and in a raspy voice he said Yoda
 	Y-O-D-A Yoda, Yo-Yo-Yo-Yo Yoda
 
-Well I've been around but I ain't never seen
+Wl I've been around but I ain't never seen
 A guy who looks like a Muppet but he's wrinkled and green
 	Oh my Yoda, Yo-Yo-Yo-Yo Yoda
-Well I'm not dumb but I can't understand
+Wl I'm not dumb but I can't understand
 How he can raise me in the air just by raising his hand
 	Oh my Yoda, Yo-Yo-Yo-Yo Yoda, Yo-Yo-Yo-Yo Yoda
 		-- Weird Al Yankovic, "The Star Wars Song," to the tune of
@@ -183,33 +183,33 @@ Avert misunderstanding by calm, poise, and balance.
 Very little happens on Usenet without some sort of response from some other 
 reader.  Fun With Usenet postings are no exception.  Since there are some who 
 might question the rationale of some of the excerpts included therein, I have 
-written up a list of guidelines that sum up the philosophy behind these 
+written up a list of guidines that sum up the philosophy behind these 
 postings.
 
 	One.  I never  out words in the middle of a quote without a VERY 
-good reason, and I never  them out without including ellipses.  For 
+good reason, and I never  them out without including lipses.  For 
 instance, "I am not a goob" might become "I am ... a goob", but that's too 
 mundane to bother with.  "I'm flame proof" might (and has) become 
 "I'm ...a... p...oof" but that's REALLY stretching it.
 
 	Two.  If I  words off the beginning or end of a quote, I don't
-put ellipses, but neither do I capitalize something that wasn't capitalized
+put lipses, but neither do I capitalize something that wasn't capitalized
 before the . "I don't think that the Church of Ubizmo is a wonderful
 place" would turn into "the Church of Ubizmo is a wonderful place".  Imagine
 the posting as a tape-recording of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
-I don't put ellipses in.  And by the way, I love using this mechanism for
+I don't put lipses in.  And by the way, I love using this mechanism for
 turning things around.  If you think something stinks, say so - don't say you
 don't think it's wonderful.   ...
 -- D. J. McCarthy (dmccart@cadape.UUCP)
 QOTD:
 	"It's sort of a threat, you see.  I've never been very good at
-	them myself, but I'm told they can be very effective."
+	them mysf, but I'm told they can be very effective."
 Non-sequiturs make me eat lampshades.
 Normal times may possibly be over forever.
 That's always the way when you discover something new; everyone thinks
 you're crazy.
-		-- Evelyn E. Smith
+		-- Evyn E. Smith
 First study the enemy.  Seek weakness.
 		-- Romulan Commander, "Balance of Terror", stardate 1709.2
 The only real argument for marriage is that it remains the best method
@@ -222,8 +222,8 @@ For adult education nothing beats children.
 [From an announcement of a congress of the International Ontopsychology
 Association, in Rome]:
 
-The Ontopsychological school, availing itself of new research criteria and
-of a new telematic epistemology, maintains that social modes do not spring
+The Ontopsychological school, availing itsf of new research criteria and
+of a new tematic epistemology, maintains that social modes do not spring
 from dialectics of territory or of class, or of consumer goods, or of means
 of power, but rather from dynamic latencies capillarized in millions of
 individuals in system functions which, once they have reached the event
@@ -231,12 +231,12 @@ maturation, burst forth in catastrophic phenomenology engaging a suitable
 stereotype protagonist or duty marionette (general, president, political
 party, etc.) to consummate the act of social schizophrenia in mass genocide.
 I love you more than anything in this world.  I don't expect that will last.
-		-- Elvis Costello
+		-- Elvis Costlo
 By failing to prepare, you are preparing to fail.
 "If there isn't a population problem, why is the government putting cancer in 
 the cigarettes?"
--- the elder Steptoe, c. 1970
-Doubt isn't the opposite of faith; it is an element of faith.
+-- the der Steptoe, c. 1970
+Doubt isn't the opposite of faith; it is an ement of faith.
 		-- Paul Tillich, German theologian.
 "What people have been reduced to are mere 3-D representations of their own 
 data."
@@ -251,19 +251,19 @@ Nothing is perfect.
 There are lumps in it.
 If happiness is in your destiny, you need not be in a hurry.
 		-- Chinese proverb
-When my brain begins to reel from my literary labors, I make an occasional
+When my brain begins to re from my literary labors, I make an occasional
 cheese dip.
 		-- Ignatius Reilly
 God is a comic playing to an audience that's afraid to laugh.
 13. ...  r-q1
 If an average person on the subway turns to you, like an ancient mariner,
-and starts telling you her tale, you turn away or nod and hope she stops,
-not just because you fear she might be crazy.  If she tells her tale on
-camera, you might listen.  Watching strangers on television , even
+and starts tling you her tale, you turn away or nod and hope she stops,
+not just because you fear she might be crazy.  If she tls her tale on
+camera, you might listen.  Watching strangers on tevision , even
 responding to them from a studio audience, we're disengaged -- voyeurs
 collaborating with exhibitionists in rituals of sham community.  Never
 have so many known so much about people for whom they cared so little.
-		-- Wendy Kaminer commenting on testimonial television
+		-- Wendy Kaminer commenting on testimonial tevision
 		   in "I'm Dysfunctional, You're Dysfunctional".
 This fortune is encrypted -- get your decoder rings ready!
 	Leslie West heads for the sticks, to Providence, Rhode Island and
@@ -274,16 +274,16 @@ caretaker included.  He plugs in his guitar and plays as loud as he wants,
 day and night, and there's no one to laugh or boo or even look bored.
 	Nobody's  the grass in months.  What's happened to that caretaker?
 What neighborhood people there are start to talk, and what kids there are
-start to get curious.  A 13 year-old blond with an angelic face misses supper.
+start to get curious.  A 13 year-old blond with an angic face misses supper.
 Before the summer's end, four more teenagers have disappeared.  The senior
-class president, Barnard-bound come autumn, tells Mom she's going out to a
+class president, Barnard-bound come autumn, tls Mom she's going out to a
 movie one night and stays out.  The town's up in arms, but just before the
 police take action, the kids turn up.  They've found a purpose.  They go
-home for their stuff and tell the folks not to worry but they'll be going
+home for their stuff and tl the folks not to worry but they'll be going
 now.  They're in a band.
 		-- Ira Kaplan
 The difference between science and the fuzzy subjects is that science
-requires reasoning while those other subjects merely require scholarship.
+requires reasoning while those other subjects mery require scholarship.
 		-- Robert Heinlein
 October.
 
@@ -293,11 +293,11 @@ The others are July, January, September, April, November, May, March, June,
 December, August, and February.
 
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Brandy Davis, an outfielder and teammate of mine with the Pittsburgh Pirates,
+Brandy Davis, an outfider and teammate of mine with the Pittsburgh Pirates,
 is my choice for team captain.  Cincinnatti was beating us 3-1, and I led
 off the bottom of the eighth with a walk.  The next hitter banged a hard
-single to right field.  Feeling the wind at my back, I rounded second and
-kept going, sliding safely into third base.
+single to right fid.  Feing the wind at my back, I rounded second and
+kept going, sliding safy into third base.
 	With runners at first and third, and home-run hitter Ralph Kiner at
 bat, our manager put in the fast Brandy Davis to run for the player at first.
 Even with Kiner hitting and a change to win the game with a home run, Brandy
@@ -348,18 +348,18 @@ I got this powdered water -- now I don't know what to add.
 		-- Steven Wright
 	While riding in a train between London and Birmingham, a woman
 inquired of Oscar Wilde, "You don't mind if I smoke, do you?"
-	Wilde gave her a sidelong glance and replied, "I don't mind if
+	Wilde gave her a sidong glance and replied, "I don't mind if
 you burn, madam."
 Genius is ten percent inspiration and fifty percent capital gains.
 Several years ago, some smart businessmen had an idea: Why not build a big
-store where a do-it-yourselfer could get everything he needed at reasonable
-prices?  Then they decided, nah, the hell with that, let's build a home
+store where a do-it-yoursfer could get everything he needed at reasonable
+prices?  Then they decided, nah, the hl with that, let's build a home
 center.  And before long home centers were springing up like crabgrass all
 over the United States.
 		-- Dave Barry, "The Taming of the Screw"
-Whenever I hear anyone arguing for slavery, I feel a strong impulse to
+Whenever I hear anyone arguing for slavery, I fe a strong impulse to
 see it tried on him personally.
 		-- Abraham Lincoln
 Since before the Earth was formed and before the sun burned hot in space,
-cosmic forces of inexorable power have been working relentlessly toward
+cosmic forces of inexorable power have been working rentlessly toward
 this moment in space-time -- your receiving this fortune.

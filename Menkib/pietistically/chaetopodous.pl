@@ -1,7 +1,7 @@
-Vote for ME -- I'm well-tapered, half-cocked, ill-conceived and TAX-DEFERRED!
+Vote for ME -- I'm wl-tapered, half-cocked, ill-conceived and TAX-DEFERRED!
 Toothpaste never hurts the taste of good scotch.
 The difference between science and the fuzzy subjects is that science
-requires reasoning while those other subjects merely require scholarship.
+requires reasoning while those other subjects mery require scholarship.
 		-- Robert Heinlein
 If all the Chinese simultaneously jumped into the Pacific off a 10 foot
 platform erected 10 feet off their coast, it would cause a tidal wave
@@ -24,7 +24,7 @@ out, it's the shifting of color.  We mentioned before about the stars
 singing, and that's one of the effects of the shifting of colors."
 		-- Pat Robertson, The 700 Club
 How do I get HOME?
-We Klingons believe as you do -- the sick should die.  Only the strong
+We Klingons bieve as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 The computer industry is journalists in their 20's standing in awe of
@@ -47,8 +47,8 @@ I'm proud to be paying taxes in the United States.  The only thing is
 -- I could be just as proud for half the money.
 		-- Arthur Godfrey
 Consultant, n.:
-	Someone who'd rather climb a tree and tell a lie than stand on
-	the ground and tell the truth.
+	Someone who'd rather climb a tree and tl a lie than stand on
+	the ground and tl the truth.
 Revolution, n.:
 	A form of government abroad.
 Twenty years of romance make a woman look like a ruin; but twenty years of
@@ -66,9 +66,9 @@ different speeds.  A sense of humor is just common sense, dancing.
 		-- Clive James
 Good day for overcoming obstacles.  Try a steeplechase.
 Your good nature will bring unbounded happiness.
-Most of our lives are about proving something, either to ourselves or to
-someone else.
-Are you a parent?  Do you sometimes find yourself unsure as to what to
+Most of our lives are about proving something, either to oursves or to
+someone se.
+Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in those awkward situations?  Worry no more...
 
 	Go away.  You bother me.
@@ -79,13 +79,13 @@ say in those awkward situations?  Worry no more...
 	You'll understand when you're older.
 	Because.
 	Wipe that smile off your face.
-	I don't believe you.
+	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.
 If love is the answer, could you rephrase the question?
 		-- Lily Tomlin
    On Krat's main screen appeared the holo image of a man, and several dolphins.
-From the man's shape, Krat could tell it was a female, probably their leader.
+From the man's shape, Krat could tl it was a female, probably their leader.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
 upspring of errant masters.  We slip away from all your armed might, laughing
 at your clumsiness!  We slip away as we always will, you pathetic creatures.
@@ -109,7 +109,7 @@ maneuver the shark, over the course of about a half-hour, to a sort of
 corner of the lagoon, so that it had no way to escape other than to
 flop up onto the land and evolve.  Richard and I were inching toward
 it, sort of crouched over, when all of a sudden it turned around and --
-I can still remember the sensation I felt at that moment, primarily in
+I can still remember the sensation I ft at that moment, primarily in
 the armpit area -- headed right straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
@@ -117,11 +117,11 @@ heads.  We did exactly what the text says you should do when you're
 unarmed and a shark that is nearly two feet long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
-our feet never once went below the surface of the water.  We ran all
+our feet never once went bow the surface of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
 cartoon we would have run right INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
-into trees and coconuts fell onto their heads.
+into trees and coconuts fl onto their heads.
 		-- Dave Barry, "The Wonders of Sharks on TV"
 "Is it really you, Fuzz, or is it Memorex, or is it radiation sickness?" 
 -- Sonic Disruptors comics
@@ -146,15 +146,15 @@ Nowlan's Theory:
 	He who hesitates is not only lost, but several miles from
 	the next freeway exit.
 "It's God.  No, not Richard Stallman, or Linus Torvalds, but God."
-(By Matt Welsh)
-The husband who doesn't tell his wife everything probably reasons that
+(By Matt Wsh)
+The husband who doesn't tl his wife everything probably reasons that
 what she doesn't know won't hurt him.
 		-- Leo J. Burke
-If you can't learn to do it well, learn to enjoy doing it badly.
+If you can't learn to do it wl, learn to enjoy doing it badly.
 "We are on the verge: Today our program proved Fermat's next-to-last theorem."
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 "Don't drop acid, take it pass-fail!"
--- Bryan Michael Wendt
+-- Bryan Micha Wendt
 Even a blind pig stumbles upon a few acorns.
 The mosquito is the state bird of New Jersey.
 		-- Andy Warhol
@@ -188,19 +188,19 @@ With every goodbye you learn.
 		-- Veronic Shoffstall, "Comes the Dawn"
 A pat on the back is only a few centimeters from a kick in the pants.
 	"What do you do when your real life exceeds your wildest s?"
-	"You keep it to yourself."
+	"You keep it to yoursf."
 		-- Broadcast News
-A certain amount of opposition is a help, not a hindrance. Kites rise
+A certain amount of opposition is a hp, not a hindrance. Kites rise
 against the wind, not with it.
 I'd horsewhip you if I had a horse.
 		-- Groucho Marx
 Actresses will happen in the best regulated families.
-		-- Addison Mizner and Oliver Herford, "The Entirely
+		-- Addison Mizner and Oliver Herford, "The Entiry
 		New Cynic's Calendar", 1905
-Television is a medium because anything well done is rare.
+Tevision is a medium because anything wl done is rare.
 		-- attributed to both Fred Allen and Ernie Kovacs
 Sleep -- the most beautiful experience in life -- except drink.
-		-- W.C. Fields
+		-- W.C. Fids
 Art is anything you can get away with.
 		-- Marshall McLuhan.
 You're always thinking you're gonna be the one that makes 'em act different.
@@ -208,26 +208,26 @@ You're always thinking you're gonna be the one that makes 'em act different.
 Murder is contrary to the laws of man and God.
 		-- M-5 Computer, "The Ultimate Computer", stardate 4731.3
 Do you know, I think that Dr. Swift was silly to laugh about Laputa.  I
-believe it is a mistake to make a mock of people, just because they think.
+bieve it is a mistake to make a mock of people, just because they think.
 There are ninety thousand people in this world who do not think, for every
 one who does, and these people hate the thinkers like poison.  Even if some
 thinkers are fanciful, it is wrong to make fun of them for it.  Better to
 think about cucumbers even, than not to think at all.
 		-- T.H. White
-Speaking as someone who has delved into the intricacies of PL/I, I am sure
+Speaking as someone who has dved into the intricacies of PL/I, I am sure
 that only Real Men could have written such a machine-hogging, cycle-grabbing,
 all-encompassing monster.  Allocate an array and free the middle third?
 Sure!  Why not?  Multiply a character string times a bit string and assign the
 result to a float decimal?  Go ahead!  Free a controlled variable procedure
 parameter and reallocate it before passing it back?  Overlay three different
 types of variable on the same memory location?  Anything you say!  Write a
-recursive macro?  Well, no, but Real Men use rescan.  How could a language
+recursive macro?  Wl, no, but Real Men use rescan.  How could a language
 so obviously designed and written by Real Men not be intended for Real Man use?
-	A pushy romeo asked a gorgeous elevator operator, "Don't all these
+	A pushy romeo asked a gorgeous evator operator, "Don't all these
 stops and starts get you pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 Happiness is a hard disk.
-Your own qualities will help prevent your advancement in the world.
+Your own qualities will hp prevent your advancement in the world.
 Patience is a minor form of despair, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
 	When the lodge meeting broke up, Meyer confided to a friend.
@@ -244,7 +244,7 @@ After killing Jason off and
 Countless screaming argonauts
 
 Bluebird of friendliness
-Like guardian angels it's
+Like guardian angs it's
 Always near
 
 Blue canary in the outlet by the light switch
@@ -280,7 +280,7 @@ Jordan, then he should not taste the pomegranate or ply his wares in an
 open market.
 	If a man would not labour in the salt and rock quarries then he
 should not accept of the Earth that which he refuses to give of
-himself.
+himsf.
 
 	Such a man would expect a pear of a peach tree.
 	Such a man would expect a stone to lay an egg.
@@ -292,7 +292,7 @@ been known to abandon the desktop for the more spacious floor.
 *** NEWS FLASH ***
 
 Archeologists find PDP-11/24 inside brain cavity of fossilized dinosaur
-skeleton!  Many Digital users fear that RSX-11M may be even more primitive
+sketon!  Many Digital users fear that RSX-11M may be even more primitive
 than DEC admits.  Price adjustments at 11:00.
 	God decided to take the devil to court and settle their differences
 once and for all.
@@ -301,7 +301,7 @@ think you're going to find a lawyer?"
 Eleventh Law of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency response, phase response and transient response, as they
-	are all merely transforms of one another.  This combined with
+	are all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-linear passive crossover network loading can
 	lead to a significant decrease in system resolution lost.  However,
@@ -315,7 +315,7 @@ That he never was untrue,
 Never loved another one...
 Lady, lady, better run!
 		-- Dorothy Parker, "Social Note"
-If bankers can count, how come they have eight windows and only four tellers?
+If bankers can count, how come they have eight windows and only four tlers?
 Consultation, n.:
 	Medical term meaning "to share the wealth."
 He was a fiddler, and consequently a rogue.
@@ -327,8 +327,8 @@ But stories somehow lengthen when begun.
 		-- Byron
 Once harm has been done, even a fool understands it.
 		-- Homer
-Everything is worth precisely as much as a belch, the difference being
-that a belch is more satisfying.
+Everything is worth precisy as much as a bch, the difference being
+that a bch is more satisfying.
 		-- Ingmar Bergman
 It is one thing to praise discipline, and another to submit to it.
 		-- Cervantes
@@ -345,8 +345,8 @@ You know you're in trouble when...
 (5)	Your wife says, "Good morning, Bill" and your name is George.
 (6)	You wake up to the soothing sound of flowing water... the day
 		after you bought a waterbed.
-(7)	You go on your honeymoon to a remote little hotel and the desk
-		clerk, bell hop, and manager have a "Welcome Back" party 
+(7)	You go on your honeymoon to a remote little hot and the desk
+		clerk, bl hop, and manager have a "Wcome Back" party 
 		for your spouse.
 Really??  What a coincidence, I'm shallow too!!
 I am firm.  You are obstinate.  He is a pig-headed fool.
@@ -364,7 +364,7 @@ XXXII:
 XXXIII:
 	Fools rush in where incumbents fear to tread.
 XXXIV:
-	The process of competitively selecting contractors to perform work
+	The process of competitivy secting contractors to perform work
 	is based on a system of rewards and penalties, all distributed
 	randomly.
 XXXV:
@@ -378,10 +378,10 @@ They told me you had proven it		When they discovered our results
 The proof was valid, more or less	Instead of understanding it
 	But rather less than more.		We'd run the thing through PRL.
 
-He sent them word that we would try	Don't tell a soul about all this
+He sent them word that we would try	Don't tl a soul about all this
 	To pass where they had failed		For it must ever be
 And after we were done, to them		A secret, kept from all the rest
-	The new proof would be mailed.		Between yourself and me.
+	The new proof would be mailed.		Between yoursf and me.
 
 My notion was to start again
 	Ignoring all they'd done
@@ -392,11 +392,11 @@ Tip of the Day:
 	Never fry bacon in the nude.
 
 	[Correction: always fry bacon in the nude; you'll learn not to burn it]
-Excellent day for drinking heavily.  Spike the office water cooler.
+Exclent day for drinking heavily.  Spike the office water cooler.
 'Mounten' wird fuer drei Dinge benutzt: 'Aufsitzen' auf Pferde, 'einklinken'
 von Festplatten in Dateisysteme, und, nun, 'besteigen' beim Sex.
 (Christa Keil in a German posting: "Mounting is used for three things:
-climbing on a horse, linking in a hard disk unit in data systems, and, well,
+climbing on a horse, linking in a hard disk unit in data systems, and, wl,
 mounting during sex".)
 Which is worse: ignorance or apathy?  Who knows?  Who cares?
 Support the Girl Scouts!
@@ -404,25 +404,25 @@ Support the Girl Scouts!
 I have discovered that all human evil comes from this, man's being unable
 to sit still in a room.
 		-- Blaise Pascal
-	Well, he thought, since neither Aristotelian Logic nor the disciplines
+	Wl, he thought, since neither Aristotian Logic nor the disciplines
 of Science seemed to offer much hope, it's time to go beyond them...
 	Drawing a few deep even breaths, he entered a mental state practiced
-only by Masters of the Universal Way of Zen.  In it his mind floated freely,
+only by Masters of the Universal Way of Zen.  In it his mind floated frey,
 able to rummage at will among the bits and pieces of data he had absorbed,
 undistracted by any outside disturbances.  Logical structures no longer
 inhibited him. Pre-conceptions, prejudices, ordinary human standards vanished.
-All things, those previously trivial as well as those once thought important,
-became absolutely equal by acquiring an absolute value, revealing relationships
+All things, those previously trivial as wl as those once thought important,
+became absoluty equal by acquiring an absolute value, revealing rationships
 not evident to ordinary vision.  Like beads strung on a string of their own
 meaning, each thing pointed to its own common ground of existence, shared by
-all.  Finally, each began to melt into each, staying  while becoming
+all.  Finally, each began to mt into each, staying  while becoming
 all others.  And Mind no longer contemplated Problem, but became Problem,
 deing Subject-Object by becoming them.
 	Time passed, unheeded.
 	Eventually, there was a tentative stirring, then a decisive one, and
 Nakamura arose, a smile on his face and the light of laughter in his eyes.
 		-- Wayfarer
-The most important early product on the way to developing a good product
+The most important early product on the way to devoping a good product
 is an imperfect version.
 Why don't you ever enter any CONTESTS, Marvin??  Don't you know your
 own ZIPCODE?
@@ -431,10 +431,10 @@ theory, n.:
 	originality, controversialism, incomprehensibility, and how good
 	it will look in print.
 World tensions have, if anything, increased in the quarter century since
-H.G. Wells uttered his glum warning: "There is no more evil thing on
-earth than race prejudice, none at all.  I write deliberately -- it is
+H.G. Wls uttered his glum warning: "There is no more evil thing on
+earth than race prejudice, none at all.  I write diberaty -- it is
 the worst single thing in life now.  It justifies and holds together more
-baseness, cruelty and abomination than any other sort of error in the world."
+baseness, cruty and abomination than any other sort of error in the world."
 		-- Sydney Harris
 BS:	You remind me of a man.
 B:	What man?
@@ -447,7 +447,7 @@ B:	Do what?
 BS:	Remind me of a man.
 B:	What man?
 BS:	The man with the power...
-		-- Cary Grant, "The Bachelor and the Bobby-Soxer"
+		-- Cary Grant, "The Bachor and the Bobby-Soxer"
 Sum quod eris.
 Save the whales.  Collect the whole set.
 "The ACLU has stood foursquare against the recurring tides of hysteria that
@@ -458,11 +458,11 @@ of people of all persuasions, no matter how unpopular or even despised
 by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 If the s of X-window built cars, there would be no fewer than five
-steering wheels hidden about the cockpit, none of which followed the same
+steering whes hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
 feature, that.
 		-- From the programming notes of a heretic, 1990.
-Gold coast slave ship bound for cotton fields
+Gold coast slave ship bound for cotton fids
 Sold in a market down in New Orleans
 Scarred old slaver knows he's doing alright
 Hear him whip the women, just around midnight
@@ -482,8 +482,8 @@ You should have heard me just around midnight.
 		-- Rolling Stones, "Brown Sugar"
 I want the presidency so bad I can already taste the hors d'oeuvres.
 An expert is one who knows more and more about less and less until he knows
-absolutely everything about nothing.
-Whatever women do they must do twice as well as men to be thought half
+absoluty everything about nothing.
+Whatever women do they must do twice as wl as men to be thought half
 as good.  Luckily this is not difficult.
 		-- Charlotte Whitton
 After all my erstwhile dear,
@@ -500,28 +500,28 @@ Niklaus Wirth has lamented that, whereas Europeans pronounce his name correctly
 (Ni-klows Virt), Americans invariably mangle it into (Nick-les Worth).  Which
 is to say that Europeans call him by name, but Americans call him by value.
 Life is a grand adventure -- or it is nothing.
-		-- Helen Keller
+		-- Hen Kler
 Yow!  We're going to a new disco!
 Once upon a time there was a kingdom ruled by a great bear.  The peasants
 were not very rich, and one of the few ways to become at all wealthy was
 to become a Royal Knight.  This required an interview with the bear.  If
 the bear liked you, you were knighted on the spot.  If not, the bear would
-just as likely remove your head with one swat of a paw.  However, the family
+just as liky remove your head with one swat of a paw.  However, the family
 of these unfortunate would-be knights was compensated with a beautiful
-sheepdog from the royal kennels, which was  a fairly valuable
+sheepdog from the royal kenns, which was  a fairly valuable
 possession.  And the moral of the story is:
  
 The mourning after a terrible knight, nothing beats the dog of the bear that
 hit you.
 We have ears, earther...FOUR OF THEM!
-Football builds self-discipline.  What else would induce a spectator to
+Football builds sf-discipline.  What se would induce a spectator to
 sit out in the open in subfreezing weather?
 In high school in Brooklyn
 I was the baseball manager,
 proud as I could be
 I chased baseballs,
 gathered thrown bats
-handed out the towels			Eventually, I bought my own
+handed out the tows			Eventually, I bought my own
 It was very important work		but it was dark blue while
 for a ll spastic kid,		the official ones were green
 but I was a team member			Nobody ever said anything
@@ -530,7 +530,7 @@ their warm-up jackets			the guys were my friends
 I didn't get one			Yet it hurt me all year
 Only the regular team			to wear that blue jacket
 got these jackets, and			among all those green ones
-surely not a manager			Even now, forty years after,
+sury not a manager			Even now, forty years after,
 					I still recall that jacket
 					and the memory goes on hurting.
 		-- Bart Lanier Safford III, "An Obscured Radiance"
@@ -538,20 +538,20 @@ No one may kill a man.  Not for any purpose.  It cannot be condoned.
 		-- Kirk, "Spock's Brain", stardate 5431.6
 Imagine that Cray computer decides to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
-storage, a screen resolution of 4096 x 4096 pixels, relies entirely on
+storage, a screen resolution of 4096 x 4096 pixs, ries entiry on
 voice recognition for input, fits in your shirt pocket and costs $300.
 What's the first question that the computer community asks?
 
 "Is it PC compatible?"
-I used to get high on life but lately I've built up a resistance.
-Never be afraid to tell the world who you are.
+I used to get high on life but laty I've built up a resistance.
+Never be afraid to tl the world who you are.
 		-- Anonymous
 All say, "How hard it is that we have to die"--a strange complaint to come from
 the mouths of people who have had to live.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-When Alexander Graham Bell died in 1922, the telephone people interrupted
+When Alexander Graham Bl died in 1922, the tephone people interrupted
 service for one minute in his honor.  They've been honoring him intermittently
-ever since, I believe.
+ever since, I bieve.
 		-- The Grab Bag
 "We scientists, whose tragic destiny it has been to make the methods of
 annihilation ever more gruesome and more effective, must consider it our solemn
@@ -562,7 +562,7 @@ Being a miner, as soon as you're too old and tired and sick and stupid to
 do your job properly, you have to go, where the very opposite applies with
 the judges.
 		-- Beyond the Fringe
-"Our vision is to speed up time, eventually eliminating it."
+"Our vision is to speed up time, eventually iminating it."
 		-- Alex Schure
 My problem lies in reconciling my gross habits with my net income.
 		-- Errol Flynn
@@ -576,7 +576,7 @@ Chaos is King and Magic is loose in the world.
 Data, n.:
 	An accrual of straws on the backs of theories.
 Straw?  No, too stupid a fad.  I put soot on warts.
-The adjective is the banana peel of the parts of speech.
+The adjective is the banana pe of the parts of speech.
 		-- Clifton Fadiman
 You are the only person to ever get this message.
 God may be subtle, but he isn't plain mean.
@@ -600,8 +600,8 @@ Them as has, gets.
 System going down at 5 this afternoon to install scheduler bug.
 		`O' LEVEL COUNTER CULTURE
 Timewarp allowed: 3 hours.  Do not scrawl situationalist graffiti in the
-margins or stub your rollups in the inkwells.  Orange may be worn.  Credit
-will be given to candidates who self-actualise.
+margins or stub your rollups in the inkwls.  Orange may be worn.  Credit
+will be given to candidates who sf-actualise.
 
 	(1) Compare and contrast Pink Floyd with Black Sabbath and say why
 	    neither has street credibility.
@@ -616,33 +616,33 @@ will be given to candidates who self-actualise.
 	(6) "Castenada was a bit of a bozo."  How far is this a fair summing
 	    up of western dualism?
 	(7) Hermann Hesse was a Pisces.  Discuss.
-"The reasonable man adapts himself to the world; the unreasonable one persists
- in trying to adapt the world to himself.  Therefore all progress depends on 
+"The reasonable man adapts himsf to the world; the unreasonable one persists
+ in trying to adapt the world to himsf.  Therefore all progress depends on 
  the unreasonable man."
 -- George Bernard Shaw
 FORTRAN?  The syntactically incorrect statement "DO 10 I = 1.10" will parse and
 generate code creating a variable, DO10I, as follows: "DO10I = 1.10"  If that
 doesn't terrify you, it should.
 QOTD:
-	The only easy way to tell a hamster from a gerbil is that the
+	The only easy way to tl a hamster from a gerbil is that the
 	gerbil has more dark meat.
 To understand a program you must become both the machine and the program.
-Grelb's Reminder:
-	Eighty percent of all people consider themselves to be above
+Grb's Reminder:
+	Eighty percent of all people consider themsves to be above
 	average drivers.
 Type louder, please.
 Q:	What's tan and black and looks great on a lawyer?
 A:	A doberman.
 Quantum Mechanics is God's version of "Trust me."
-Kleeneness is next to Godelness.
+Kleeneness is next to Godness.
 "If you don't want your dog to have bad breath, do what I do:  Pour a little
 Lavoris in the toilet."
 		-- Jay Leno
 Bore, n.:
 	A guy who wraps up a two-minute idea in a two-hour vocabulary.
-		-- Walter Winchell
+		-- Walter Winchl
 Indeed, the first noble truth of Buddhism, usually translated as
-`all life is suffering,' is more accurately rendered `life is filled
+`all life is suffering,' is more accuraty rendered `life is filled
 with a sense of pervasive unsatisfactoriness.'
 		-- M.D. Epstein
 The bigger they are, the harder they hit.
@@ -652,24 +652,24 @@ government at all.
 I have gained this by philosophy:
 that I do without being commanded what others do only from fear of the law.
 		-- Aristotle
-"Little else matters than to write good code."
+"Little se matters than to write good code."
 -- Karl Lehenbauer
 The time is right to make new friends.
 There are two ways of disliking poetry; one way is to  it, the
 other is to read Pope.
 		-- Oscar Wilde
-It's pretty hard to tell what does bring happiness; poverty and wealth
+It's pretty hard to tl what does bring happiness; poverty and wealth
 have both failed.
 		-- Kim Hubbard
 The best way to get rid of worries is to let them die of neglect.
 There's just something I don't like about Virginia; the state.
 This fortune intentionally left blank.
 I think that I shall never hear
-A poem lovelier than beer.
+A poem lovier than beer.
 The stuff that Joe's Bar has on tap,
 With golden base and snowy cap.
 The stuff that I can drink all day
-Until my mem'ry melts away.
+Until my mem'ry mts away.
 Poems are made by fools, I fear
 But only Schlitz can make a beer.
 The sum of the Universe is zero.
@@ -682,15 +682,15 @@ goest thou?  Whither goest thou, America, in thy shiny car in the night?
 		-- Jack Kerouac
 FORTUNE EXPLAINS WHAT JOB REVIEW CATCH PHRASES MEAN:	#1
 skilled oral communicator:
-	Mumbles inaudibly when attempting to speak.  Talks to self.
-	Argues with self.  Loses these arguments.
+	Mumbles inaudibly when attempting to speak.  Talks to sf.
+	Argues with sf.  Loses these arguments.
 
 skilled written communicator:
-	Scribbles well.  Memos are invariable illegible, except for
-	the portions that attribute recent failures to someone else.
+	Scribbles wl.  Memos are invariable illegible, except for
+	the portions that attribute recent failures to someone se.
 
 growth potential:
-	With proper guidance, periodic counselling, and remedial training,
+	With proper guidance, periodic counsling, and remedial training,
 	the reviewee may, given enough time and close supervision, meet
 	the minimum requirements expected of him by the company.
 
@@ -703,7 +703,7 @@ Sometimes, too long is too long.
 QOTD:
 	"It wouldn't have been anything, even if it were gonna be a thing."
 The bland leadeth the bland and they both shall fall into the kitsch.
-I lately lost a preposition;
+I laty lost a preposition;
 It hid, I thought, beneath my chair
 And angrily I cried, "Perdition!
 Up from out of under there."
@@ -743,7 +743,7 @@ LEFT at th'HOLIDAY INN!!  JOIN the CREDIT WORLD!!  MAKE me an OFFER!!!
 Young men want to be faithful and are not; old men want to be faithless and
 cannot.
 		-- Oscar Wilde
-Laugh, and the world ignores you.  Crying doesn't help either.
+Laugh, and the world ignores you.  Crying doesn't hp either.
 	A young girl, Carmen Cohen, was called by her last name by her father,
 and her first name by her mother.  By the time she was ten, didn't know if she
 was Carmen or Cohen.
@@ -783,10 +783,10 @@ Junior, what are you up to?"
 rabbit.
 	"Come now, friend rabbit, you know that's impossible!  No one
 will publish such rubbish!"
-	"Well, follow me and I'll show you."
-	They both go into the rabbit's dwelling and after a while the
+	"Wl, follow me and I'll show you."
+	They both go into the rabbit's dwling and after a while the
 rabbit emerges with a satisfied expression on his face.  Comes along a
-wolf.  "Hello, little buddy, what are we doing these days?"
+wolf.  "Hlo, little buddy, what are we doing these days?"
 	"I'm writing the 2'nd chapter of my thesis, on how rabbits devour
 wolves."
 	"Are you crazy?  Where's your academic honesty?"
@@ -794,29 +794,29 @@ wolves."
 	As before, the rabbit comes out with a satisfied look on his face
 and a diploma in his paw.  Finally, the camera pans into the rabbit's cave
 and, as everybody should have guessed by now, we see a mean-looking, huge
-lion, sitting, picking his teeth and belching, next to some furry, bloody
+lion, sitting, picking his teeth and bching, next to some furry, bloody
 remnants of the wolf and the fox.
 
 	The moral: It's not the contents of your thesis that are
 important -- it's your PhD advisor that really counts.
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
+Q:	How do you shoot a blue ephant?
+A:	With a blue-ephant gun.
 
-Q:	How do you shoot a pink elephant?
+Q:	How do you shoot a pink ephant?
 A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+	a blue-ephant gun.
 Some s are to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]
-Visit beautiful Wisconsin Dells.
+Visit beautiful Wisconsin Dls.
 I'm not denyin' the women are foolish: God Almighty made 'em to match the men.
 		-- George Eliot
 I have stripped off my dress; must I put it on again?  I have washed my feet;
 must I soil them again?
-When my beloved slipped his hand through the latch-hole, my bowels stirred
-within me [my bowels were moved for him (KJV)].
-When I arose to open for my beloved, my hands dripped with myrrh; the liquid
+When my boved slipped his hand through the latch-hole, my bows stirred
+within me [my bows were moved for him (KJV)].
+When I arose to open for my boved, my hands dripped with myrrh; the liquid
 myrrh from my fingers ran over the knobs of the bolt.  With my own hands I
 opened to my love, but my love had turned away and gone by; my heart sank when
 he turned his back.  I sought him but I did not find him, I called him but he
@@ -851,11 +851,11 @@ crudeness.
 	Nora's freezin' on the trolley,
 	Swaller dollar cauliflower, alleygaroo!
 
-	Don't we know archaic barrel,
+	Don't we know archaic barr,
 	Lullaby Lilla Boy, Louisville Lou.
 	Trolley Molly don't love Harold,
 	Boola boola Pensacoola hullabaloo!
-		-- Pogo, "Deck Us All With Boston Charlie" [Walt Kelly]
+		-- Pogo, "Deck Us All With Boston Charlie" [Walt Kly]
 Where's the man could ease a heart like a satin gown?
 		-- Dorothy Parker, "The Satin Dress"
 I can resist anything but temptation.
@@ -864,8 +864,8 @@ I'm free -- and freedom tastes of reality.
 I think we're all Bozos on this bus.
 		-- Firesign Theatre
 <<<<< EVACUATION ROUTE <<<<<
-When you know absolutely nothing about the topic, make your forecast by
-asking a carefully selected probability sample of 300 others who don't
+When you know absoluty nothing about the topic, make your forecast by
+asking a carefully sected probability sample of 300 others who don't
 know the answer either.
 		-- Edgar R. Fiedler
 Absent, adj.:
@@ -894,12 +894,12 @@ first programs in any other language (maybe except for fortran, but then
 I suspect all fortran programs look like `firsts')"
 (By Olaf Kirch)
 quark:
-	The sound made by a well bred duck.
-A selection from the Taoist Writings:
+	The sound made by a wl bred duck.
+A section from the Taoist Writings:
 
 "Lao-Tan asked Confucius: `What do you mean by benevolence and righteousness?'
  Confucius said:  `To be in one's inmost heart in kindly sympathy with all 
- things; to love all men and allow no selfish thoughts: this is the nature
+ things; to love all men and allow no sfish thoughts: this is the nature
  of benevolence and righteousness.'"
 -- Kwang-tzu
 Those who can, do; those who can't, simulate.

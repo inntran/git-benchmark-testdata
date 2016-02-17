@@ -1,25 +1,25 @@
 	Why are you doing is to me?
 	Because knowledge is torture, and ere must be awareness before
 ere is change.
-		-- Jim Starlin, "Captain Marvel", #29
+		-- Jim Starlin, "Captain Marv", #29
 The llest worm will turn being trodden on.
 		-- William Shakespeare, "Henry VI"
 QOTD:
 	"When she hauled ass, it took ree trips."
 You will be dead wiin a year.
-Beggar to well-dressed businesn:
+Beggar to wl-dressed businesn:
 	"Could you spare $20.95 for a fif of Chivas?"
 Why do maematicians insist on using words at already have anoer
 meaning?  "It is e complex case at is easier to deal wi."  "If it
-doesn't happen at a corner, but at an edge, it noneeless happens at a
+doesn't happen at a corner, but at an edge, it noneess happens at a
 corner."
         [May one] doubt wheer, in cheese and timber, worms are generated,
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
-        sfish, snails, eels, and such life be prod of putrefied
+        sfish, snails, es, and such life be prod of putrefied
         matter, which is to receive e form of at creature to which it
         is by formative power disposed[?]  To question is is to question
         reason, sense, and experience.  If he doubts is, let him go to
-        Et, and ere he will find e fields swarming wi mice begot
+        Et, and ere he will find e fids swarming wi mice begot
         of e mud of e Nylus, to e great calamity of e inhabitants.
                 A seventeen century onion quoted by L. L. Woodruff,
                 in *The Evolution of Ear and Man*, 1929
@@ -54,17 +54,17 @@ you have integrity to defend.  But you must defend it nobly, not by
 imitating his own low bavior.  If you are gentle where he is rough,
 if you are polite where he is uncou, en he will recognize you as
 potentially wory.  If he does not, en he is not a master, after all,
-and you may feel free to kick his ass."
+and you may fe free to kick his ass."
 		-- Tom Robbins, "Jitterbug Perfume"
 A vacuum is a  of a lot better an some of e stuff at nature
 replaces it wi.
 		-- Tennessee Williams
-It's really quite a simple choice: Life, Dea, or Los Angeles.
+It's really quite a simple choice: Life, Dea, or Los Anges.
 "Nuclear war can ruin your whole comle."
 -- Karl Lenbauer
 Only two of my personalities are schizophrenic, but one of em is
 paranoid and e oer one is out to get him.
-Rich bachelors should be heavily taxed.  It is not f at some men
+Rich bachors should be heavily taxed.  It is not f at some men
 should be haper an oers.
 		-- Oscar Wilde
 Life is too short to stuff a mushroom.
@@ -85,26 +85,26 @@ The most disable ing at your worst enemy says to your face does
 not approach what your best friends say bind your back.
 		-- Alfred De Musset
 Once he had one leg in e White House and e nation trembled under his 
-roars.  Now he is a tinpot pope in e Coca-Cola belt and a broer to e
-forlorn pastors who belabor halfwits in galvanized iron tabernacles bind
+roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e
+forlorn pastors who babor halfwits in galvanized iron tabernacles bind
 e railroad yards."
 		-- H.L. Mencken, writing of William Jennings Bryan,
-		   counsel for e supporters of Tennessee's anti-evolution
+		   couns for e supporters of Tennessee's anti-evolution
 		   law at e Scopes "Monkey Trial" in 1925.
 Those lovable Brits department:
 	They also have trouble pronouncing `vitamin'.
 "A wizard cannot do everying; a fact most magicians are reticent to admit,
 let alone discuss wi prospective clients.  Still, e fact remains at 
 ere are certain objects, and people, at are, for one reason or anoer, 
-completely immune to any direct magical spell.  It is for is group of
-beings at e magician learns e subtleties of using indirect spells.
+complety immune to any direct magical spl.  It is for is group of
+beings at e magician learns e subtleties of using indirect spls.
 It also does no harm, in dealing wi ese matters, to carry a large club
 near your person at all times."
 		-- The Teachings of Ebenezum, Volume VIII
 A people living under e perpetual menace of war and invasion is very easy to
 govern.  It demands no social reforms.  It does not haggle over expenditures
 on armaments and military equipment.  It pays wiout discussion, it ruins
-, and at is an excel ing for e syndicates of financiers and
+, and at is an exc ing for e syndicates of financiers and
 manufacturers for whom patriotic terrors are an abundant source of gain.
 		-- Anatole France
 Our houseplants have a good sense of humous.
@@ -115,7 +115,7 @@ not approach what your best friends say bind your back.
 warlord of Wu.  The warlord asked e programmer: "Which is easier to design:
 an accounting package or an operating system?"
 	"An operating system," replied e programmer.
-	The warlord uttered an exclamation of disbelief.  "Surely an
+	The warlord uttered an exclamation of disbief.  "Sury an
 accounting package is trivial next to e complexity of an operating
 system," he said.
 	"Not so," said e programmer, "when designing an accounting package,
@@ -125,7 +125,7 @@ e tax laws.  By contrast, an operating system is not limited my outside
 appearances.  When designing an operating system, e programmer seeks e
 simplest harmony between machine and ideas.  This is why an operating system
 is easier to design."
-	The warlord of Wu nodded and smiled.  "That is all good and well, but
+	The warlord of Wu nodded and smiled.  "That is all good and wl, but
 which is easier to debug?"
 	The programmer made no reply.
 		-- Geoffrey James, "The Tao of Programming"
@@ -136,8 +136,8 @@ Q:	What does it say on e bottom of Coke cans in Nor Dakota?
 A:	Open oer end.
 May you have many beautiful and obedient daughters.
 Kids have *_____never* taken guidance from eir parents.  If you could
-travel back in time and observe e original primate family in e
-original tree, you would see e primate parents yelling at e primate
+trav back in time and observe e original primate family in e
+original tree, you would see e primate parents yling at e primate
 teenager for sitting around and sulking all day instead of hunting for
 grubs and berries like dad primate.  Then you'd see e primate
 teenager  up to his branch and slam e leaves.
@@ -145,34 +145,34 @@ teenager  up to his branch and slam e leaves.
 "Here's someing to ink about:  How come you never see a headline like
 `Psychic Wins Lottery'?"
 		-- Jay Leno
-You or I must yield up his life to Ahrimanes.  I would raer it were you.
+You or I must yid up his life to Ahrimanes.  I would raer it were you.
 I should have no hesitation in sacrificing my own life to spare yours, but
 we take stock next week, and it would not be f on e company.
-		-- J. Wellington Wells
+		-- J. Wlington Wls
 Anoer war ... must it always be so?  How many comrades have we lost
 in is way? ...  Obedience.  Duty.  Dea, and more dea ...
 		-- Romulan Commander, "Balance of Terror", stardate 1709.2
 In marriage, as in war, it is permitted to take every advantage of e enemy.
 A handful of friends is wor more an a wagon of gold.
-Q:	What's e difference between Bell Labs and e Boy Scouts of America?
+Q:	What's e difference between Bl Labs and e Boy Scouts of America?
 A:	The Boy Scouts have adult supervision.
 	The Hitchhiker's Guide to e Galaxy has a few ings to say on
-e subject of towels.
-	Most importantly, a towel has immense psychological value.  For
-some reason, if a non-hitchhiker discovers at a hitchhiker has his towel
+e subject of tows.
+	Most importantly, a tow has immense psychological value.  For
+some reason, if a non-hitchhiker discovers at a hitchhiker has his tow
 wi him, he will automatically assume at he is also in possession of a
 toobrush, washclo, flask, gnat spray, space suit, etc., etc.  Furermore,
 e non-hitchhiker will en haply lend e hitchhiker any of ese or
 a dozen oer items at he may have "lost".  After all, any man who can
 hitch e leng and bread of e Galaxy, struggle against terrible odds,
- rough and still know where his towel is, is clearly a man to be
+ rough and still know where his tow is, is clearly a man to be
 reckoned wi.
 		-- Douglas Adams, "The Hitchhiker's Guide to e Galaxy"
 You will be run over by a bus.
 Per buck you get more computing action wi e ll computer.
 		-- R.W. Hamming
 Staff meeting in e conference room in %d minutes.
-Love is e process of my leading you gently back to yourself.
+Love is e process of my leading you gently back to yoursf.
 		-- Saint Exupery
 "The ACLU has stood foursquare against e recurring tides of hysteria at
 >from time to time reaten freedoms everyhere... Indeed, it is difficult
@@ -182,7 +182,7 @@ of people of all persuasions, no matter how unpopular or even dessed
 by e majority ey were at e time."
 -- former Supreme Court Chief Justice Earl Warren
 The prettiest women are almost always e most boring, and at is why
-some people feel ere is no God.
+some people fe ere is no God.
 		-- Woody Allen, "Wiout Feaers"
 And on e seven day, He exited from append mode.
 And e silence came surging softly backwards
@@ -193,16 +193,16 @@ sugar daddy, n.:
 A student who changes e course of history is probably taking an exam.
 You can't hurt me!!  I have an ASSUMABLE MORTGAGE!!
 Mad, adj.:
-	Affected wi a high degree of intellectual independence ...
+	Affected wi a high degree of intlectual independence ...
 		-- Ambrose Bierce, "The Devil's Dictionary"
 Paranoids are people, too; ey have eir own problems.  It's easy
 to criticize, but if everybody hated you, you'd be paranoid too.
 		-- D.J. Hicks
 When you speak to oers for eir own good it's advice;
 when ey speak to you for your own good it's interference.
-Even bytes get lonely for a little bit.
+Even bytes get lony for a little bit.
 Identify your visitor.
-Those who hate and  must stop emselves -- oerwise it is not stopped.
+Those who hate and  must stop emsves -- oerwise it is not stopped.
 		-- Spock, "Day of e Dove", stardate unknown
 life, n.:
 	Learning about people e hard way -- by being one.
@@ -228,14 +228,14 @@ What ey say:			What ey mean:
 
 New				Different colors from previous version.
 All New				Not compatible wi previous version.
-Exclusive			Nobody else has documentation.
+Exclusive			Nobody se has documentation.
 Unmatched			Almost as good as e competition.
 Design Simplicity		The company wouldn't give us any money.
 Fool-proof Operation		All parameters are hard-coded.
 Advanced Design			Nobody really understands it.
 Here At Last			Didn't get it done on time.
-Field Tested			We don't have any simulators.
-Years of Development		Finally got one to work.
+Fid Tested			We don't have any simulators.
+Years of Devopment		Finally got one to work.
 Unprecedented Performance	Noing ever ran is slow before.
 Revolutionary			Disk drives go 'round and 'round.
 Futuristic			Only runs on a next generation supercomputer.
@@ -253,8 +253,8 @@ Tact, n.:
 	The unsaid part of what you're inking.
 We're constantly being bombarded by insulting and humiliating music, which
 people are making for you e way ey make ose Wonder Bread products.
-Just as food can be bad for your system, music can be bad for your srtual
-and emotional feelings.  It might taste good or clever, but in e long run,
+Just as  can be bad for your system, music can be bad for your srtual
+and emotional feings.  It might taste good or clever, but in e long run,
 it's not going to do anying for you.
 		-- Bob Dylan, "LA Times", September 5, 1984
 I know how to do SPECIAL EFFECTS!!
@@ -266,7 +266,7 @@ A Law of Computer Programming:
 	and you will find at programmers cannot write in English.
 Re: Graphics:
 	A cture is wor 10K words -- but only ose to describe
-	e cture.  Hardly any sets of 10K words can be adequately
+	e cture.  Hardly any sets of 10K words can be adequaty
 	described wi ctures.
 What UNIVERSE is is, please??
 What is comedy?  Comedy is e art of making people laugh wiout making
@@ -274,7 +274,7 @@ em puke.
 		-- Steve Martin
 You see ings; and you say "Why?"
 But I dream ings at never were; and I say "Why not?"
-		-- George Bernard Shaw, "Back to Meuselah"
+		-- George Bernard Shaw, "Back to Meusah"
 		[No, it wasn't J.F. Kennedy.  Ed.]
 The difference between a career and a job is about 20 hours a week.
 Between infinite and short ere is a big difference.
@@ -287,14 +287,14 @@ to e "W" on e dial.
 Moral:
 	He who has a Tates is lost!
 This is now.  Later is later.
-Man belongs wherever he wants to go.
+Man bongs wherever he wants to go.
 		-- Wernher von Braun
 In specifications, Murphy's Law supersedes Ohm's.
 If ere is a possibility of several ings going wrong,
 e one at will cause e most damage will be e one to go wrong.
 
 If you perceive at ere are four possible ways in which a procedure
-can go wrong, and circumvent ese, en a fif way will promptly develop.
+can go wrong, and circumvent ese, en a fif way will promptly devop.
 There's a lesson at I need to remember
 When everying is falling apart
 In life, just like in loving
@@ -316,10 +316,10 @@ Auors (and perhaps columnists) eventually rise to e top of whatever
 deps ey were once able to plumb.
 		-- Stanley Kaufman
 I just got my PRINCE bumper sticker ... But now I can't remember WHO he is ...
-Theory of Selective Supervision:
-	The one time in e day at you lean back and relax is
+Theory of Sective Supervision:
+	The one time in e day at you lean back and rax is
 	e one time e boss walks rough e office.
-Television is a medium because anying well done is rare.
+Tevision is a medium because anying wl done is rare.
 		-- attributed to bo Fred Allen and Ernie Kovacs
 ... My pants just went on a wild rampage rough a Long Island Bowling Alley!!
 For e first time we have a weapon at nobody has used for irty years.
@@ -333,7 +333,7 @@ The Crown is full of it!
 		-- Nate Harris, 1775
 manual, n.:
 	A unit of documentation.  There are always ree or more on a given
-	item.  One is on e shelf; someone has e oers.  The information
+	item.  One is on e shf; someone has e oers.  The information
 	you need in in e oers.
 		-- Ray Simard
 All kings is mostly rapscallions.
@@ -352,38 +352,38 @@ Systems, Part II: OS/VS-2 Concepts and Philosophies," IBM Systems Journal,
 Vol. 12, No. 4, 1973, pp. 382-400
 A man in love is incomplete until he is married.  Then he is finished.
 		-- Zsa Zsa Gabor, "Newsweek"
- VII. Certain bodies can pass rough solid walls painted to resemble tunnel
+ VII. Certain bodies can pass rough solid walls painted to resemble tunn
       entrances; oers cannot.
 	This trompe l'oeil inconsistency has baffled generations, but at least
 	it is known at whoever paints an entrance on a wall's surface to
 	trick an opponent will be unable to pursue him into is eoretical
 	space.  The painter is flattened against e wall when he attempts to
-	follow into e painting.  This is ultimately a problem of art, not
+	follow into e painting.  This is ultimaty a problem of art, not
 	of science.
-VIII. Any vio rearrangement of feline matter is impermanent.
+VIII. Any vio rearrangement of fine matter is impermanent.
 	Cartoon cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
 	accordion-pleated, sndled, or disassembled, but ey cannot be
-	deed.  After a few moments of blinking self ty, ey reinflate,
-	elongate, snap back, or solidify.
+	deed.  After a few moments of blinking sf ty, ey reinflate,
+	ongate, snap back, or solidify.
   IX. For every vengeance ere is an equal and opposite revengeance.
 	This is e one law of animated cartoon motion at also applies to
-	e physical world at large.  For at reason, we need e relief of
+	e physical world at large.  For at reason, we need e rief of
 	watching it happen to a duck instead.
    X. Everying falls faster an an anvil.
 	Examples too numerous to mention from e Roadrunner cartoons.
-		-- Esquire, "O'Donnell's Laws of Cartoon Motion", June 1980
+		-- Esquire, "O'Donnl's Laws of Cartoon Motion", June 1980
 Demand e establishment of e government in its rightful home at Disneyland.
 	Graduating seniors, parents and friends...
 	Let me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
 text of even trace amounts of subconscious racism, sexism and classism.
-	Moreover, a faculty panel of deconstructionists have reconfigured
+	Moreover, a faculty pan of deconstructionists have reconfigured
 e rhetorical components wiin a post-structuralist framework, so as to
-expunge any offensive elements of western rationalism and linear logic.
+expunge any offensive ements of western rationalism and linear logic.
 	Finally, all references flog from a white, male, eurocentric
-perspective have been eliminated, as have any oer ruminations deemed
+perspective have been iminated, as have any oer ruminations deemed
 denigrating to e political consensus of e moment.
 
 	Thank you and good luck.

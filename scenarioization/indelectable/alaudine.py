@@ -19,15 +19,15 @@ Mr. Rockford, this is the Thomas Crown School of Dance and Contemporary
 Etiquette.  We aren't going to call again!  Now you want these free
 lessons or what?
 		-- "The Rockford Files"
-The shifts of Fortune test the reliability of friends.
+The shifts of Fortune test the riability of friends.
 		-- Marcus Tullius Cicero
 No, my friend, the way to have good and safe government, is not to trust it
 all to one, but to divide it among the many, distributing to every one exactly
 the fs he is competent to.  It is by dividing and subdividing these
 republics from the national one down through all its subordinations, until it
-ends in the administration of every man's farm by himself; by placing under
+ends in the administration of every man's farm by himsf; by placing under
 every one what his own eye may superintend, that all will be done for the best.
-		-- Thomas Jefferson, to Joseph Cabell, 1816
+		-- Thomas Jefferson, to Joseph Cabl, 1816
 My calculator is my shepherd, I shall not want
 It maketh me accurate to ten significant figures,
 	and it leadeth me in scientific notation to 99 digits.
@@ -39,17 +39,17 @@ It prepareth a log table to comfort me, it prepareth an
 	arc sin for me in the presence of my teachers.
 It annoints my homework with correct solutions, my interpolations are
 	over.
-Surely, both precision and accuracy shall follow me all the days of my
-	life, and I shall dwell in the house of Texas instruments forever.
+Sury, both precision and accuracy shall follow me all the days of my
+	life, and I shall dwl in the house of Texas instruments forever.
 Positive, adj.:
 	Mistaken at the top of one's voice.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 You are lost in the Swamps of Despair.
 Look DEEP into the OPENINGS!!  Do you see any ELVES or EDSELS ... or a
 HIGHBALL?? ...
-A man does not look behind the door unless he has stood there himself.
+A man does not look behind the door unless he has stood there himsf.
 		-- Du Bois
-I believe a little incompatibility is the spice of life, particularly if he
+I bieve a little incompatibility is the spice of life, particularly if he
 has income and she is pattable.
 		-- Ogden Nash
 Here I am at the flea market but nobody is ing my urine sample bottles ...
@@ -59,7 +59,7 @@ Fame may be fleeting but obscurity is forever.
 A box without hinges, key, or lid,
 Yet golden treasure inside is hid.
 		-- J.R.R. Tolkien
-When all else fails, read the instructions.
+When all se fails, read the instructions.
 I am two fools, I know, for loving, and for saying so.
 		-- John Donne
 The problem with people who have no vices is that generally you can
@@ -84,7 +84,7 @@ Corporation defines a robot as 'Your Plastic Pal Who's Fun To Be With'.
 The Hitch Hiker's Guide to the Galaxy defines the marketing division of the
 Sirius Cybernetics Corporation as 'a bunch of mindless jerks who'll be the
 first against the wall when the revolution comes', with a footnote to effect
-that the editors would welcome applications from anyone interested in taking
+that the editors would wcome applications from anyone interested in taking
 over the post of robotics correspondent.
 	Curiously enough, an edition of the Encyclopaedia Galactica that
 had the good fortune to fall through a time warp from a thousand years in
@@ -97,7 +97,7 @@ Like punning, programming is a play on words.
 While most peoples' opinions change, the conviction of their
 correctness never does.
 Fishbowl, n.:
-	A glass-enclosed isolation cell where newly promoted managers are
+	A glass-enclosed isolation cl where newly promoted managers are
 	kept for observation.
 Never test for an error condition you don't know how to handle.
 		-- Steinbach
@@ -113,7 +113,7 @@ Uh, that still ain't right...
 	and the phone rings.  The President picks it up, listens for a
 	minute, and hands it to you, saying, "It's for you."
 The astronomer Francesco Sizi, a contemporary of Galileo, argues that
-Jupiter can have no satellites:
+Jupiter can have no satlites:
 
 	There are seven windows in the head, two nostrils, two ears, two
 eyes, and a mouth; so in the heavens there are two favorable stars, two
@@ -121,12 +121,12 @@ unpropitious, two luminaries, and Mercury alone undecided and indifferent.
 From which and many other similar phenomena of nature such as the seven
 metals, etc., which it were tedious to enumerate, we gather that the number
 of planets is necessarily seven. [...]
-	Moreover, the satellites are invisible to the naked eye and
-therefore can have no influence on the earth and therefore would be useless
+	Moreover, the satlites are invisible to the naked eye and
+therefore can have no influence on the earth and therefore would be usess
 and therefore do not exist.
 You have junk mail.
 Anyone who goes to a psychiatrist ought to have his head examined.
-		-- Samuel Goldwyn
+		-- Samu Goldwyn
 Eighty percent of married men cheat in America.  The rest cheat in Europe.
 		-- Jackie Mason
 "There must be some mistake," he said, "are you not a greater computer than
@@ -152,7 +152,7 @@ Please stand for the National Anthem:
 	O'er the land of the free and the home of the brave?
 
 Thank you.  You may resume your seat.
-Perilous to all of us are the devices of an art deeper than we ourselves
+Perilous to all of us are the devices of an art deeper than we oursves
 possess.
 		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
 "I have not the slightest confidence in 'spiritual manifestations.'"
@@ -161,15 +161,15 @@ At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.  The only difficulty is that the problem is NP complete and will
 take thousands of years even with the latest optical biologic technology
 available.  The best computer scientists sit down to think up some solution.
-In great diy, one of the C.S. people tells her husband about it.  There
+In great diy, one of the C.S. people tls her husband about it.  There
 is only one solution, he says.  Remember physics 103, Modern Physics, general
-relativity and all.  She replies, "What does that have to do with solving
+rativity and all.  She replies, "What does that have to do with solving
 a computer problem?"
 	"Remember the twin paradox?"
 	After a few minutes, she says, "I could put the computer on a very
 fast machine and the computer would have just a few minutes to calculate but
 that is the exact opposite of what we want... Of course!  Leave the
-computer here, and accelerate the earth!"
+computer here, and accerate the earth!"
 	The problem was so important that they did exactly that.  When
 the earth came back, they were presented with the answer:
 
@@ -199,23 +199,23 @@ Sharp-ears, Wise-nose, Swish-tail and Bumpkin,
 White-socks my little lad, and old Fatty Lumpkin!
 		-- J. R. R. Tolkien
 Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
-Those who sweat in flames of hell,	Leaden eared, some thought their bowels
-Here's the reason that they fell:	Lispeth forth the sweetest vowels.
+A:	A crisp salad, a hearty soup, a lovy entree, followed by
+	a dicious dessert.
+Those who sweat in flames of hl,	Leaden eared, some thought their bows
+Here's the reason that they fl:	Lispeth forth the sweetest vows.
 While on earth they prayed in SAS,	These they offered up in praise
 PL/1, or other crass,			Thinking all this fetid haze
 Vulgar tongue.				A rapsody sung.
 
-Some the lord did sorely try		Jabber of the mindless horde
-Assembling all their pleas in hex.	Sequel next did mock the lord
-Speech as crabbed as devil's crable	Slothful sequel so enfangled
-Hex that marked on Tower Babel		Its speaker's lips became entangled
+Some the lord did sory try		Jabber of the mindless horde
+Assembling all their pleas in hex.	Sequ next did mock the lord
+Speech as crabbed as devil's crable	Slothful sequ so enfangled
+Hex that marked on Tower Bab		Its speaker's lips became entangled
 The highest rung.			In his bung.
 
 Because in life they prayed so ill
 And offered god such swinish swill
-Now they sweat in flames of hell
+Now they sweat in flames of hl
 Sweat from lack of APL
 Sweat dung!
 Others will look to you for stability, so hide when you bite your nails.
@@ -227,22 +227,22 @@ O Queen beyond the Western Sea!
 O Light to us that wander here
 Amid the world of woven trees!
 
-	Gilthoniel!  O Elbereth!
+	Gilthoni!  O Elbereth!
 	Clear are thy eyes and bright thy breath!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
 
 O stars that in the Sunless Year
 With shining hand by her were sown,
-In windy fields now bright and clear
+In windy fids now bright and clear
 We see you silver blossom blown!
 
-	O Elbereth!  Gilthoniel!
-	We still remember, we who dwell
+	O Elbereth!  Gilthoni!
+	We still remember, we who dwl
 	In this far land beneath the trees,
 	Thy starlight on the Western Seas.
 		-- J. R. R. Tolkien
-...difference of opinion is advantageious in religion.  The several sects
+...difference of opinion is advantageious in rigion.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
 attainable?  Millions of innocent men, women, and children, since the
 introduction of Christianity, have been burnt, tortured, fined, imprisoned;
@@ -279,7 +279,7 @@ QOTD:
 A language that doesn't affect the way you think about programming is
 not worth knowing.
 Sometimes, when I think of what that girl means to me, it's all I can do
-to keep from telling her.
+to keep from tling her.
 		-- Andy Capp
 Being owned by someone used to be called slavery -- now it's called commitment.
 You scratch my tape, and I'll scratch yours.
@@ -288,10 +288,10 @@ a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
 "Text processing has made it possible to right-justify any idea, even
 one which cannot be justified on any other grounds."
 		-- J. Finnegan, USC.
-Let us, then, fellow citizens, unite with one heart and one mind.  Let us
+Let us, then, flow citizens, unite with one heart and one mind.  Let us
 restore to social intercourse that harmony and affection without which
 liberty and even life  are but dreary things.  And let us reflect
-that having banished from our land that religious intolerance under which
+that having banished from our land that rigious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
 bloody perseions.
@@ -331,14 +331,14 @@ One planet is all you get.
 Kids always brighten up a house; mostly by leaving the lights on.
 Vila: "I think I have just made the biggest mistake of my life."
 
-Orac: "It is unlikely.  I would predict there are far greater mistakes
+Orac: "It is unliky.  I would predict there are far greater mistakes
       waiting to be made by someone with your obvious talent for it."
 Lord, defend me from my friends; I can account for my enemies.
 		-- Charles D'Hericault
-In an age when the fashion is to be in love with yourself, confessing to
-be in love with somebody else is an admission of unfaithfulness to one's
-beloved.
-		-- Russell Baker
+In an age when the fashion is to be in love with yoursf, confessing to
+be in love with somebody se is an admission of unfaithfulness to one's
+boved.
+		-- Russl Baker
 	Something mysterious is formed, born in the silent void.  Waiting
 alone and unmoving, it is at once still and yet in constant motion.  It is
 the source of all programs.  I do not know its name, so I will call it the
@@ -365,14 +365,14 @@ To err is human; to admit it, a blunder.
 How can you think and hit at the same time?
 		-- Yogi Berra
 Eating chocolate is like being in love without the aggravation.
-If food be the music of love, eat up, eat up.
+If  be the music of love, eat up, eat up.
 I love Mickey Mouse more than any woman I've ever known.
 		-- Walt Disney
-Well, the handwriting is on the floor.
+Wl, the handwriting is on the floor.
 		-- Joe E. Lewis
 Q:	Why did the tachyon cross the road?
 A:	Because it was on the other side.
-"Go to Heaven for the climate, Hell for the company."
+"Go to Heaven for the climate, Hl for the company."
 -- Mark Twain
 (1) Everything depends.
 (2) Nothing is always.
@@ -384,12 +384,12 @@ and affect to despise it, are among its worst and least pleasant examples.
 		-- Charles Dickens
 sugar daddy, n.:
 	A man who can afford to raise .
-I share the belief of many of my contemporaries that the spiritual crisis
+I share the bief of many of my contemporaries that the spiritual crisis
 pervading all spheres of Western industrial society can be remedied only 
 by a change in our world view.  We shall have to shift from the materialistic,
-dualistic belief that people and their environment are separate, toward a
+dualistic bief that people and their environment are separate, toward a
 new conciousness of an all-encompassing reality, which embraces the 
-experiencing ego, a reality in which people feel their oneness with animate 
+experiencing ego, a reality in which people fe their oneness with animate 
 nature and all of creation.
 - Dr. Albert Hoffman
 When you don't know what you are doing, do it neatly.
@@ -401,7 +401,7 @@ Be circumspect in your liaisons with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
 A husband is what is left of the lover after the nerve has been extracted.
-		-- Helen Rowland
+		-- Hen Rowland
 In 1869 the waffle iron was invented for people who had wrinkled waffles.
 Be  and explicit with your lawyer ... it is his business to confuse
 the issue afterwards.
@@ -419,7 +419,7 @@ All we know is the phenomenon: we spend our time sending messages to each
 other, talking and trying to listen at the same time, exchanging information.
 This seems to be our most urgent biological f; it is what we do with
 our lives."
-		-- Lewis Thomas, "The Lives of a Cell"
+		-- Lewis Thomas, "The Lives of a Cl"
 Proof techniques #2: Proof by Oddity.
 	SAMPLE: To prove that horses have an infinite number of legs.
 (1) Horses have an even number of legs.
@@ -454,7 +454,7 @@ priests are DATING CAREER DIPLOMATS!!
 	A master was explaining the nature of Tao to one of his novices.
 "The Tao is embodied in all software -- regardless of how insignificant,"
 said the master.
-	"Is Tao in a hand-held calculator?" asked the novice.
+	"Is Tao in a hand-hd calculator?" asked the novice.
 	"It is," came the reply.
 	"Is the Tao in a video game?" continued the novice.
 	"It is even in a video game," said the master.
@@ -467,7 +467,7 @@ Tonight we will all merry be -- tomorrow we'll get sober.
 		-- John Fletcher, "The Bloody Brother", II, 2
 Alan Turing thought about criteria to settle the question of whether
 machines can think, a question of which we now know that it is about
-as relevant as the question of whether submarines can swim.
+as revant as the question of whether submarines can swim.
 		-- Dijkstra
 In the Halls of Justice the only justice is in the halls.
 		-- Lenny Bruce
@@ -475,8 +475,8 @@ Identify your visitor.
 Every man is apt to form his notions of things difficult to be apprehended,
 or less familiar, from their analogy to things which are more familiar.
 Thus, if a man bred to the seafaring life, and accustomed to think and talk
-only of matters relating to navigation, enters into discourse upon any other
-subject; it is well known, that the language and the notions proper to his
+only of matters rating to navigation, enters into discourse upon any other
+subject; it is wl known, that the language and the notions proper to his
 own profession are infused into every subject, and all things are measured
 by the rules of navigation: and if he should take it into his head to
 philosophize concerning the faculties of the mind, it cannot be doubted,

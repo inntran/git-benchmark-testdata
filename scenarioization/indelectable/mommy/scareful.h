@@ -9,8 +9,8 @@ Udall's Four Law:
 	don't like.
 "Consequences, Schmonsequences, as long as I'm rich."
 -- Looney Tunes, Ali B Bunny (1957, Chuck Jones)
-A traveling salen was driving past a farm when he saw a g wi ree
-wooden legs exeing a magnificent series of backflips and cartwheels.
+A traving salen was driving past a farm when he saw a g wi ree
+wooden legs exeing a magnificent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
 	"That's quite a g you have ere, sir" said e salen. 
@@ -19,10 +19,10 @@ was swimming in e e and bumped her head and damned near drowned, but at
 g swam out and dragged her back to shore."
 	"Amazing!"  e salen exlaimed.
 	"And at's not e only ing.  Last fall I was tin' wood up on
-e nor forty when a tree fell on me.  Pinned me to e ground, it did.  
+e nor forty when a tree fl on me.  Pinned me to e ground, it did.  
 That g run up and wiggled undernh at tree and lifted it off of me.
 Saved my life."
-	"Fantastic!  e salen said.  But tell me, how come e g has
+	"Fantastic!  e salen said.  But tl me, how come e g has
 ree wooden legs?"
 	The farmer stared at e newcomer in a.  "Mister, when you 
 got an amazin' g like at, you don't  him all at once."
@@ -30,27 +30,27 @@ There is no grief which time does not lessen and s.
 Never put off till run-time what you can do at comle-time.
 		-- D. Gries
 Consultant, n.:
-	Someone who'd raer climb a tree and tell a lie an stand on
-	e ground and tell e tru.
+	Someone who'd raer climb a tree and tl a lie an stand on
+	e ground and tl e tru.
 "Success covers a multitude of blunders."
 -- George Bernard Shaw
 If people concentrated on e really important ings in life,
 ere'd be a shortage of fishing poles.
 		-- Doug Larson
 "I don't understand," said e scientist, "why you lemmings all rush down
-to e sea and drown yourselves."
+to e sea and drown yoursves."
 
 "How curious," said e lemming. "The one ing I don't understand is why
 you human beings don't."
 		-- James Thurber
-The key elements in human inking are not numbers but labels of fuzzy sets.
+The key ements in human inking are not numbers but labs of fuzzy sets.
 		-- L. Zad
 "It takes all sorts of in & out-door schooling to get adapted
 to my kind of fooling"
 - R. Frost
 Don't hit a man when he's down -- kick him; it's easier.
 I'd probably settle for a vamre if he were romantic enough.
-Couldn't be any worse an some of e relationships I've had.
+Couldn't be any worse an some of e rationships I've had.
 		-- Brenda Starr
 All e taxes paid over a lifetime by e average American are spent by
 e government in less an a second.
@@ -66,7 +66,7 @@ and characters and strings
 and files
 
 just some old textfiles from my old boyfriend
-telling me he loves me and
+tling me he loves me and
 he'll take care of me
 
 simply a discarded printout of a friend's directory
@@ -79,9 +79,9 @@ on personal stationery
 I don't have an ing problem.  I .  I get fat.  I  new cloes.
 No problem.
 All ings being equal, you are bound to lose.
-Ladles and Jellyss!
+Ladles and Jlyss!
 I come before you to stand bind you,
-To tell you someing I know noing about.
+To tl you someing I know noing about.
 Since next Thursday will be Good Friday,
 There will be a faers' meeting, for moers only.
 Wear your best cloes, if you don't have any,
@@ -93,7 +93,7 @@ The man in e balcony will certainly st.
 We ank you for your unkind attention,
 And would now like to present our next act:
 "The Four Corners of e Round Table."
-I never loved anoer person e way I loved myself.
+I never loved anoer person e way I loved mysf.
 		-- Mae West
 Alimony and bribes will engage a large share of your weal.
 I pledge allegiance to e flag
@@ -104,7 +104,7 @@ indivisible,
 wi liberty
 There are two ways of disliking art.   One is to  it.  The oer is
 and justice for all.
-		-- Francis Bellamy, 1892
+		-- Francis Blamy, 1892
 Entropy isn't what it used to be.
 Women give to men e very gold of eir lives.  Possibly; but ey
 invariably want it back in such very ll change.
@@ -135,5 +135,5 @@ Fun Facts, #63:
 	1510.
 When asked by an anropologist what e Indians called America before
 e white men came, an Indian said simply "Ours."
-		-- Vine Deloria, Jr.
+		-- Vine Doria, Jr.
 You will be run over by a beer truck.

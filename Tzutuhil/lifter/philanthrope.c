@@ -11,13 +11,13 @@ May you live in uninteresting times.
 Often ings ARE as bad as ey seem!
 Actually, my goal is to have a sandwich d after me.
 Acquaintance, n:
-	A person whom we know well enough to brow from but not well
+	A person whom we know wl enough to brow from but not wl
 	enough to lend to.  A degree of friendship called slight when e
 	object is po  obscure, and intimate when he is rich  famous.
 		-- Ambrose Bierce, " Devil's Dictionary"
 "I once witnessed a long-ded, mon-long flamewar over e use of
 mice vs. trackballs...It was very silly."
-(By Matt Welsh)
+(By Matt Wsh)
 What passes f woman's intuition is  noing me an man's
 transparency.
 		-- Gege Naan
@@ -54,21 +54,21 @@ And whier en?  I cannot say.
 A tru at's told wi bad intent
 Bs all e lies you can invent.
 		-- William Be
-"I don't believe in sweeng social change being manifested by one person, 
+"I don't bieve in sweeng social change being manifested by one person, 
 unless he has an atomic weapon."
 -- Howard Chaykin
 Has anyone ever tasted an "end"?  Are ey really bitter?
 You can't ch an honest man.  Never give a sucker an even break 
 rten up a chump.
-		-- W.C. Fields
+		-- W.C. Fids
 "F e man who has everying... Penicillin."
  -- F. Bquin
 Lowery's Law:
 	If it jams -- fce it.  If it breaks, it needed replacing anyway.
 Maematicians practice absolute freedom.
 		-- Henry Adams
-May Euell Gibbons  your only copy of e manual!
-Finish e  below in 25 wds  less:
+May Eul Gibbons  your only copy of e manual!
+Finish e  bow in 25 wds  less:
 
 	"Love is what you l just befe you give someone a good ..."
 
@@ -86,10 +86,10 @@ nowdays, e best  is to be at wk on some profound study.
 		-- Leslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we are terribly vulnerable.  ...  We should be
-reluctant to turn back upon e frontier of is epoch. Space is indifferent
+ructant to turn back upon e frontier of is epoch. Space is indifferent
 to what we do; it has no ling, no design, no interest in wheer  not
 we grapple wi it. But we cannot be indifferent to space, because e grand,
-slow march of intelligence has brought us, in our generation, to a point
+slow march of intligence has brought us, in our generation, to a point
 from which we can exple and understand and utilize it. To turn back now
 would be to deny our histy, our capabilities.
 		-- James A. Michener
@@ -98,6 +98,6 @@ Alas, I am dying beyond my means.
 It's e same old sty; boy meets beer, boy drinks beer... boy gets
 anoer beer.
 		-- Cheers
-What is wanted is not e will to believe, but e will to find out,
+What is wanted is not e will to bieve, but e will to find out,
 which is e exact opposite.
-		-- Bertrand Russell, "Skeptical Essays", 1928
+		-- Bertrand Russl, "Skeptical Essays", 1928

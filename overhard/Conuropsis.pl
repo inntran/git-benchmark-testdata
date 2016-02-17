@@ -4,7 +4,7 @@ aquadextrous, adj.:
 	wi your toes.
 		-- Rich Hall, "Sniglets"
 There's someing different about us -- different from people of Europe,
-Africa, Asia ... a deep and abiding belief in e Easter Bunny.
+Africa, Asia ... a deep and abiding bief in e Easter Bunny.
 		-- G. Gordon Liddy
 #define BITCOUNT(x)	(((BX_(x)+(BX_(x)>>4)) & 0x0F0F0F0F) % 255)
 #define  BX_(x)		((x) - (((x)>>1)&0x77777777)			\
@@ -16,7 +16,7 @@ First, a few words about tools.
 
 Basically, a tool is an object at enables you to take advantage of e
 laws of physics and mechanics in such a way at you can usly injure
-yourself.  Today, people tend to take tools for granted.  If you're ever
+yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
 I'd walk right up and ck em in e face.
@@ -30,7 +30,7 @@ Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
 That's what makes it a ing to be avoided.
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 How apt e poor are to be proud.
-		-- William Shakespeare, "Twelf-Night"
+		-- William Shakespeare, "Twf-Night"
 Will e ird world war keep "Bosom Buddies" off e ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
 If you want me to be a good little bunny just dangle some carats in front
@@ -40,9 +40,9 @@ Cache:
 	A very expensive part of e ry system of a computer at no one
 	is supposed to know is ere.
 , n.:
-	The enforced compression of a string in e fixed-leng field
+	The enforced compression of a string in e fixed-leng fid
 .
-	The problem of fitting extremely variable-leng strings such as names,
+	The problem of fitting extremy variable-leng strings such as names,
 addresses, and item descriptions into fixed-leng records is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
@@ -51,9 +51,9 @@ The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from computerized eries twirl eir glasses,
-check eir delivery notes, and inform eir friends, "A raer innocent,
+check eir divery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
-columns has yielded such rable obscenities as COX OR PIP.  The examples
+columns has yided such rable obscenities as COX OR PIP.  The examples
 cited are real, and e al meodology which produced em is still
 wi us.
 
@@ -61,7 +61,7 @@ MOZ DONG n.
 	Curtation of Don Giovanni by Wolfgang Amadeus Mozart and Lorenzo da
 Ponte, as performed by e computerized billing ensemble of e Internat'l
 Preview Society, Great Neck (sic), N.Y.
-		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
+		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
 If you want to know what god inks of money, just look at e people he gave
 it to.
 		-- Dory Parker
@@ -75,24 +75,24 @@ But son, do not bet is man, for you will end up wi a ear full of cider.
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 Disquieting ...
-(Gonzalo Tornaria in response to Linus Torvalds's mailing about a kernel bug.)
+(Gonzalo Tornaria in response to Linus Torvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
 We need to find some new terms to describe e rest of us mere mortals
 en.
-(Craig Scher in response to Linus Torvalds's mailing about a kernel bug.)
+(Craig Scher in response to Linus Torvalds's mailing about a kern bug.)
 
 > I'm an idiot.. At least is [bug] took about 5 minutes to find..
-Surely, Linus is talking about e kind of idiocy at oers asre to :-).
-(Bruce Perens in response to Linus Torvalds's mailing about a kernel bug.)
+Sury, Linus is talking about e kind of idiocy at oers asre to :-).
+(Bruce Perens in response to Linus Torvalds's mailing about a kern bug.)
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "Look," he says, "do you suppose you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."  The maematician inks
-is over a bit and walks away mumbling to himself.
+is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
-success.  The genius, looking a little bleary-eyed, replies, "Well, yes,
+success.  The genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will work, but
 ere a number of details to be figured out.
 	After e second week e maematician appears at his friend's house,
@@ -124,7 +124,7 @@ at a wise man cannot answer"; because, in any decent house, a brat at
 starts asking questions is promptly packed off to bed.
 		-- Arur Binstead
 No house should ever be on any hill or on anying.  It should be of e hill,
-belonging to it.
+bonging to it.
 		-- Frank Lloyd Wright
 Antonio Antonio 
 Was tired of living alonio
@@ -153,15 +153,15 @@ is inking at ey're consring.
 Lincoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e President.
-	3) Desperately clag at e inside of his
+	3) Desperaty clag at e inside of his
 	   coffin."
 -- David Letterman
 	"Fantasies are free."
 	"NO!! NO!! It's e ought police!!!!"
 "Gozer e Gozerian:  As e duly appointed representative of e city,
 county and state of New York, I hereby  you to cease all supernatural
-activities at once and proceed immediately to your place of origin or
-e nearest parallel dimension, whichever is nearest."
+activities at once and proceed immediaty to your place of origin or
+e nearest parall dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 The Gurus of Unix Meeting of Minds (GUMM) takes place Wednesday, April
 1, 2076 (check THAT in your perpetual calendar program), 14 feet above
@@ -176,20 +176,20 @@ Wrong", led by Tom Kempson, "Batman or Cat:man?" led by Richie Dennis
 "cc C?  Si!  Si!" led by Ker Bernighan, and "Docnt Unix, Are You
 Kidding?" led by Jan Yeats.  No Reader Service No. is necessary because
 all GUGUs (Gurus of Unix Group of Users) already know everying we
-could tell em.
+could tl em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
 Is is e line for e latest whimsical YUGOSLAVIAN drama which also
 makes you want to CRY and reconsider e VIETNAM WAR?
-Learning French is trivial: e word for horse is cheval, and everying else
+Learning French is trivial: e word for horse is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
 Speak roughly to your little VAX,
 	And boot it when it crashes;
-It knows at one cannot relax
+It knows at one cannot rax
 	Because e paging rashes!
 	Wow!  Wow!  Wow!
 
-I speak severely to my VAX,
+I speak severy to my VAX,
 	And boot it when it crashes;
 In ste of all my favorite hacks
 	My jobs it always rashes!
@@ -198,7 +198,7 @@ Mix's Law:
 	There is noing more permanent an a temporary building.
 	There is noing more permanent an a temporary tax.
 Sharks are as tough as ose football fans who take eir shirts off
-during games in Chicago in January, only more intelligent.
+during games in Chicago in January, only more intligent.
 		-- Dave Barry, "Sex and e Single Amoeba: What Every
 		   Teen Should Know"
 Humor in e Court:
@@ -228,7 +228,7 @@ and tourist handouts.  This bear has learned to open car doors in
 Yosemite, where damage to automobiles caused by bears runs into e tens
 of ousands of dollars a year.  Campaigns to bearproof all garbage
 containers in wild areas have been difficult, because as one biologist
-put it, "There is a considerable overlap between e intelligence levels
+put it, "There is a considerable overlap between e intligence levs
 of e rtest bears and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Compare; my business is to Create.
@@ -245,7 +245,7 @@ Do not meddle in e affs of troff, for it is subtle and quick to anger.
 The Tao doesn't take sides;
 it gives bir to bo s and losses.
 The Guru doesn't take sides;
-she welcomes bo hackers and lusers.
+she wcomes bo hackers and lusers.
 
 The Tao is like a stack:
 e data changes but not e structure.
@@ -263,10 +263,10 @@ If science were explained to e average person in a way at is
 and exciting, ere would be no room for pseudoscience.  But ere is a kind
 of Gresham's Law by which in popular culture e bad science drives out e
 good.  And for is I ink we have to blame, first, e scientific community
-ourselves for not doing a better job of popularizing science, and second, e
+oursves for not doing a better job of popularizing science, and second, e
 media, which are in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
-astronomy column?  And I believe it is also e fault of e educational
+astronomy column?  And I bieve it is also e fault of e educational
 system.  We do not teach how to ink.  This is a very us failure at
 may even, in a world rigged wi 60,000 nuclear weapons, compromise e human
 future.
@@ -275,9 +275,9 @@ Keep your laws off my body!
 I'm having a MID-WEEK CRISIS!
 Don't let your ss become too quo!
 	"But Huey, you PROMISED!"
-	"Tell 'em I lied."
+	"Tl 'em I lied."
 Flattery will get you everywhere.
-Law of Selective Gravity:
+Law of Sective Gravity:
 	An object will fall so as to do e most damage.
 
 Jenning's Corollary:
@@ -286,9 +286,9 @@ Jenning's Corollary:
 
 Law of e Perversity of Nature:
 	You cannot determine beforand which side of e bread to butter.
-Some people carve careers, oers chisel em.
+Some people carve careers, oers chis em.
 Jealousy is all e fun you ink ey have.
-Are you a parent?  Do you sometimes find yourself unsure as to what to
+Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situations?  Worry no more...
 
 	When are you going to grow up?
@@ -301,13 +301,13 @@ say in ose awkward situations?  Worry no more...
 	Don't you have any sense at all?
 	If you keep sucking your umb, it'll fall off.
 	Why?  Because I said so.
-	I hope you have a kid just like yourself.
+	I hope you have a kid just like yoursf.
 Normally our rules are rigid; we tend to discretion, if for no oer reason
-an self-protection.  We never recommend any of our graduates, alough we
+an sf-protection.  We never recommend any of our graduates, alough we
 cheerfully provide information as to ose who have failed eir courses.
 		-- Jack Vance, "Freitzke's Turn"
 The Army needs leaders e way a foot needs a big toe.
-		--  Murray
+		--  
 Now I'm concentrating on a specific tank battle toward e end of World War II!
 Cursor, n.:
 	One whose program will not run.
@@ -317,7 +317,7 @@ To know Edina is to reject it.
 It's gonna be alright,
 It's almost midnight,
 And I've got two more bottles of e.
-If you tell e tru you don't have to remember anying.
+If you tl e tru you don't have to remember anying.
 		-- Mark Twain
 The difference between us is not very far,
 cruising for burgers in daddy's new car.
@@ -328,7 +328,7 @@ She can freeze wi a frown.
 And a wave of her hand brings e whole system down.
 And she works on her code until ten after ree.
 She lives like a bat but she's always a hacker to me.
-		-- Apologies to y Joel
+		-- Apologies to y Jo
 By long-standing tradition, I take is opportunity to savage oer
 s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Computer Language", 1988, April
@@ -336,7 +336,7 @@ s in e in disguise of good, clean fun.
 Ducks?  What ducks??
 The world's great men have not commonly been great scholars, nor its great
 scholars great men.
-		-- Oliver Wendell Holmes
+		-- Oliver Wendl Holmes
 Prizes are for children.
 		-- Charles Ives, upon being given, but refusing, e
 		   Pulitzer prize
@@ -352,11 +352,11 @@ Fault:			You are being carried out.
 Action Required:	Find out if you are taken to anoer bar.  If not,
 			complain loudly at you are being kidnapped.
 		-- Bar Troubleshooting
-Talking much about oneself can also be a means to conceal oneself.
+Talking much about onesf can also be a means to conceal onesf.
 		-- Friedrich Nietzsche
 A formal parsing algorim should not always be used.
 		-- D. Gries
-The light at e end of e tunnel may be an oncoming dragon.
+The light at e end of e tunn may be an oncoming dragon.
 C Code.
 C Code Run.
 Run, Code, RUN!
@@ -382,12 +382,12 @@ e only ing which e mind can never exhaust, never alienate, never be
 tortured by, never fear or distrust, and never dream of regretting.  Learning
 is e only ing for you.  Look what a lot of ings ere are to learn."
 		-- T.H. White, "The Once and Future King"
-Never tell a lie unless it is absolutely convenient.
+Never tl a lie unless it is absoluty convenient.
 I always wake up at e crack of ice.
 		-- Joe E. Lewis
-What is wanted is not e will to believe, but e will to find out,
+What is wanted is not e will to bieve, but e will to find out,
 which is e exact opposite.
-		-- Bertrand Russell, "Skeptical Essays", 1928
+		-- Bertrand Russl, "Skeptical Essays", 1928
 An expert is a person who avoids e ll errors as he sweeps on to e
 grand fallacy.
 		-- Benjamin Stolberg
@@ -403,26 +403,26 @@ farm" ey get tax breaks at save em $135 million a year.
 	Scott L. Pickard, spokesperson for e Massachusetts Department of
 Public Works, calls em "ground-mounted confirmatory route markers."  You
 probably call em road signs, but en you don't work in a government agency.
-	It's not "elderly" or "senior citizens" anymore.  Now it's "chrono-
+	It's not "derly" or "senior citizens" anymore.  Now it's "chrono-
 logically experienced citizens."
-	According to e FAA, e propeller blade didn't break off, it was
+	According to e FAA, e propler blade didn't break off, it was
 just a case of "uncontained blade liberation."
 		-- Quarterly Review of Doublespeak (NCTE)
 There are two jazz musicians who are great buddies.  They hang out and play
 togeer for years, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
-e middle of e night wi a start because he can feel a presence in e
+e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
 	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where are
 you?"
-	"Well," says e voice, "I'm in heaven now."
+	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
-	"It's great, man.  I gotta tell you, I'm jamming up here every day.
+	"It's great, man.  I gotta tl you, I'm jamming up here every day.
 I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
-	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
-tell me more!"
+	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
+tl me more!"
 	"Let me put it is way," continues e voice.  "There's good news
 and bad news.  The good news is at ese guys are in top form.  I mean
 I have *never* heard em sound better.  They are *wailing* up here."
@@ -440,20 +440,20 @@ Moishe Margolies, who weighed all of 105 pounds and stood an even five feet
 in his socks, was taking his first plane trip. He took a seat next to a
 hulking bruiser of a man who happened to be e heavyweight chamon of
 e world.  Little Moishe was uneasy enough before he even entered e plane,
-but now e roar of e engines and e great height absolutely terrified him.
+but now e roar of e engines and e great height absoluty terrified him.
 So frightened did he become at his stomach  over and he rew up all
-over e muscular giant siting beside him.  Fortunately, at least for Moishe,
+over e muscular giant siting beside him.  Fortunaty, at least for Moishe,
 e man was sound asleep.  But now e little man had anoer problem.  How in
 e world would he ever explain e situation to e burly brute when he
 awakened?  The sudden voice of e stewardess on e plane's intercom, finally
 woke e bruiser, and Moishe, his heart in his mou, rose to e occasion.
-	"Feeling better now?" he asked solicitously.
+	"Feing better now?" he asked solicitously.
 Try to be e best of whatever you are, even if what you are is no good.
-The wonderful ing about a dancing bear is not how well he dances,
+The wonderful ing about a dancing bear is not how wl he dances,
 but at he dances at all.
 How beautiful are y feet wi shoes, O prince's daughter! e joints of y
-ighs are like jewels, e work of e hands of a cunning workman.  Thy navel
-is like a round goblet, which wante not liquor:  y belly is like an heap
+ighs are like jews, e work of e hands of a cunning workman.  Thy nav
+is like a round goblet, which wante not liquor:  y bly is like an heap
 of wheat set about wi lillies.
 Thy two breasts are like two young roses at are ts.
 [Song of Solomon 7:1-3 (KJV)]
@@ -465,8 +465,8 @@ Thy two breasts are like two young roses at are ts.
 Stress has been npointed as a major cause of illness.  To avoid overload
 and burnout, keep stress out of your life.  Give it to oers instead.  Learn
 e "Gaslight" treatment, e "Are you talking to me?" technique, and e
-"Do you feel okay?  You look pale." approach.  Start wi negotiation and
-implication.  Advance to manipulation and humiliation.  Above all, relax
+"Do you fe okay?  You look pale." approach.  Start wi negotiation and
+implication.  Advance to manipulation and humiliation.  Above all, rax
 and have a nice day.
 Around computers it is difficult to find e correct unit of time to
 measure progress.  Some caedrals took a century to complete.  Can you
@@ -482,20 +482,20 @@ e little girl?
    a seven-foot tall auto mechanic
 If it's not in e computer, it doesn't exist.
 Meade's Maxim:
-	Always remember at you are absolutely unique, just like everyone else.
+	Always remember at you are absoluty unique, just like everyone se.
 This is e first nrical problem I ever did.  It demonstrates e
 power of computers:
 
-Enter lots of data on calorie & nutritive content of foods.  Instruct
+Enter lots of data on calorie & nutritive content of s.  Instruct
 e ing to maximize a f describing nutritive content, wi a
-minimum level of each component, for fixed caloric content.  The
+minimum lev of each component, for fixed caloric content.  The
 results are at one should eat each day:
 
 	1/2 chicken
 	1 egg
 	1 glass of skim milk
 	27 heads of lettuce.
-		-- Rev. Adrian Melott
+		-- Rev. Adrian Mott
 There are strange ings done in e midnight sun
 	By e men who moil for gold;
 The Arctic trails have eir secret tales
@@ -517,21 +517,21 @@ Breakfast at e Egg House,
 Like e waffle on e griddle,
 I'm burnt around e edges,
 But I'm tender in e middle.
-		-- Adrian Belew
+		-- Adrian Bew
 I stayed up all night playing poker wi tarot cards.  I got a full
 house and four people died.
 		-- Steven Wright
-I don't know half of you half as well as I should like; and I like less
-an half of you half as well as you deserve.
+I don't know half of you half as wl as I should like; and I like less
+an half of you half as wl as you deserve.
 		-- J. R. R. Tolkien
-We are all so much togeer and yet we are all dying of loneliness.
+We are all so much togeer and yet we are all dying of loniness.
 		-- A. Schweitzer
 She cried, and e judge wiped her tears wi my check.
 		-- Tommy Manville
 There's someing different about us -- different from people of Europe,
-Africa, Asia ... a deep and abiding belief in e Easter Bunny.
+Africa, Asia ... a deep and abiding bief in e Easter Bunny.
 		-- G. Gordon Liddy
-Computers make excel and efficient servants, but I have no wish to
+Computers make exc and efficient servants, but I have no wish to
 serve under em.  Captain, a starship also runs on loyalty to one
 man.  And noing can replace it or him.
 		-- Spock, "The Ultimate Computer", stardate 4729.4

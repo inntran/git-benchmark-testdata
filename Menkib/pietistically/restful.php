@@ -7,7 +7,7 @@ Money doesn't talk, it swears.
 		-- Bob Dylan
 ...I don't care for the term 'mechanistic'. The word 'cybernetic' is a lot
 more apropos. The mechanistic world-view is falling further and further behind
-the real world where even simple systems can produce the most marvellous
+the real world where even simple systems can produce the most marvlous
 chaos. 
 -- Peter da Silva
 You go down to the pickup station,
@@ -19,9 +19,9 @@ And the closing lights strip off the shadows
 Clutching the night to you like a fig leaf
 	you hurry to the blackness
 	and the blankets to lay down an impression
-	and your loneliness.
-		-- Joni Mitchell
-	Home centers are designed for the do-it-yourselfer who's willing to
+	and your loniness.
+		-- Joni Mitchl
+	Home centers are designed for the do-it-yoursfer who's willing to
 pay higher prices for the convenience of being able to shop for lumber,
 hardware, and toasters all in one location.  Notice I say "shop for," as
 opposed to "obtain." This is the major drawback of home centers: they are
@@ -34,11 +34,11 @@ and screw -- in the entire store ...
 broken part, take it to the home center, and ask an employee if he has a
 replacement.  The employee, who has never is his life even seen the inside
 of a toilet tank, will peer at the broken part in very much the same way
-that a member of a primitive Amazon jungle tribe would look at an electronic
+that a member of a primitive Amazon jungle tribe would look at an ectronic
 calculator, and then say, "We're expecting a shipment of these sometime
 around the middle of next week."
 		-- Dave Barry, "The Taming of the Screw"
-Beware of computerized fortune-tellers!
+Beware of computerized fortune-tlers!
 The difference between this place and yogurt is that yogurt has a live culture.
 QOTD:
 	I'm not bald -- I'm "hair challenged".

@@ -1,7 +1,7 @@
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
-After all, what is your hosts' purpose in having a party?  Surely not f
-you to enjoy yourself; if at were eir sole purpose, ey'd have 
+After all, what is your hosts' purpose in having a party?  Sury not f
+you to enjoy yoursf; if at were eir sole purpose, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
 On account of being a democracy and run by e people, we are e only
@@ -14,14 +14,14 @@ and especially from inactivity in e affs of oers.
 		-- Ambrose Bierce, " Devil's Dictionary"
 X dows:
 	 ultimate bottleneck.
-	Flawed beyond belief.
+	Flawed beyond bief.
 	 only ing you have to .
 	Somewhere between chaos and insanity.
 	On autop to oblivion.
 	 joke at kills.
 	A disgrace you can be proud of.
 	A mistake carried out to perfection.
-	Belongs me to e problem set an e solution set.
+	Bongs me to e problem set an e solution set.
 	To err is X dows.
 	Ignance is our most imptant resource.
 	Complex nonsolutions to simple nonproblems.
@@ -46,10 +46,10 @@ especially at which is prohibited.
 By diligent efft, I learned to like it.
 		-- Winston Churchill
 Good advice is one of ose insults at ought to be fgiven.
-Life is like an onion: you peel off layer after layer and en you find
+Life is like an onion: you pe off layer after layer and en you find
 ere is noing in it.
 		-- James Huneker
-"All snakes who wish to remain in Ireland will please raise eir right hands."
+"All snakes who wish to remain in Irand will please raise eir right hands."
 		-- Saint Patrick
 While Europe's eye is fix'd on mighty ings,
  fate of emres and e fall of kings;
@@ -66,7 +66,7 @@ Amid is mighty fuss just let me mention,
     1/2 CUT CHIVES.
     STIR AND SPRINKLE WITH BACON BITS.
 
-"I've just GOT to start labeling my software..."
+"I've just GOT to start labing my software..."
 		-- Bloom County
 If you are shooting under 80 you are neglecting your business;
 over 80 you are neglecting your golf.
@@ -80,19 +80,19 @@ A waist is a terrible ing to mind.
 OS/2 Skyways:
  terminal is almost empty, wi only a few prospective passengers milling
 about.  announcer says at eir flight has just departed, wishes em a
-good flight, ough ere are no planes on e runway. Airline personnel
-walk around, apologising profusely to ers in hushed voices, pointing
+good flight, ough ere are no planes on e runway. Airline personn
+walk around, apologising profusy to ers in hushed voices, pointing
 from time to time to e sleek, powerful jets outside e terminal on e
-field. y tell each passenger how good e real flight will be on ese
+fid. y tl each passenger how good e real flight will be on ese
 new jets and how much safer it will be an Windows Airlines, but at ey
 will have to wait a little longer f e technicians to finish e flight
 systems. Maybe until mid-1995. Maybe longer.
-If what ey've been doing hasn't solved e problem, tell em to
-do someing else.
+If what ey've been doing hasn't solved e problem, tl em to
+do someing se.
 	-- Gerald Weinberg, " Secrets of Consulting"
 You know e gr ing about TV?  If someing imptant happens
 anywhere at all in e wld, no m what time of e day  night,
-you can always change e channel.
+you can always change e chann.
 		-- Jim Ignatowski
 news: gotcha
 "sic transit discus mundi"
@@ -116,7 +116,7 @@ Etiquette is f ose wi no breeding; fashion f ose wi no taste.
 Your wise men don't know how it ls
 To be ick as a brick.
 		-- Jero Tull, "Thick As A Brick"
-Poverty must have its satisfactions, else ere would not be so many po
+Poverty must have its satisfactions, se ere would not be so many po
 people.
 		-- Don Herold
 Disease can be cured; fate is incurable.
@@ -132,7 +132,7 @@ Famous last wds:
 	(7) y'd never (be stud enough to) make him a manager.
 	(8) Don't wry!  Women love it!
 I've always considered statesmen to be me expendable an soldiers.
-Conscience is what hurts when everying else ls so good.
+Conscience is what hurts when everying se ls so good.
 	 salen and e system analyst took off to spend a weekend in e
 fest, hunting bear.  y'd rented a cabin, and, when ey got ere, took
 eir backpacks off and put em .  At which point e salen 
@@ -149,10 +149,10 @@ rough e do and into e cabin.   salen slammed e do closed
 and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
 one and I'll go rustle us up anoer!"
 "Once he had one leg in e White House and e nation trembled under his 
-roars.  Now he is a tinpot pope in e Coca-Cola belt and a broer to e
-fln pasts who belab halfwits in galvanized iron tabernacles bind
+roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e
+fln pasts who bab halfwits in galvanized iron tabernacles bind
 e railroad yards."
-- H. L. Mencken, writing of William Jennings Bryan, counsel f e suppters
+- H. L. Mencken, writing of William Jennings Bryan, couns f e suppters
   of Tennessee's anti-evolution law at e Scopes "Monkey Trial" in 1925.
 What's love but a second-hand emotion?
 		-- Tina Turner
@@ -161,10 +161,10 @@ fats and sugar, it can duplicate chocolate in col and texture.  Of course,
 e same can be said of dirt.
 	... wi liberty and justice f all ... who can affd it.
 Any circuit design must contain at least one part which is obsolete, two parts
-which are unobtainable, and ree parts which are still under development.
+which are unobtainable, and ree parts which are still under devopment.
 "A fractal is by definition a set f which e Hausdff Besicovitch
 dimension strictly exceeds e topological dimension."
--- Mandelbrot, _ Fractal Geometry of Nature_
+-- Mandbrot, _ Fractal Geometry of Nature_
 Iam
 not
 very
@@ -175,17 +175,17 @@ whenever
 prominent
 scientists
 overmagnify
-intellectual
+intlectual
 enlightenment
-Ftunately, e responsibility f providing evidence is on e part of
+Ftunaty, e responsibility f providing evidence is on e part of
 e person making e claim, not e critic.  It is not e responsibility
 of UFO skeptics to prove at a UFO has never existed, n is it e
 responsibility of paranmal-heal-claims skeptics to prove at crystals
  coled lights never healed anyone.   skeptic's role is to point out
-claims at are not adequately suppted by acceptable evidcence and to
+claims at are not adequaty suppted by acceptable evidcence and to
 provide plausible alternative explanations at are me in keeng wi
 e accepted body of scientific evidence.
 		-- Thomas L. Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215
  proof of e pudding is in e ing.
-		-- Miguel de Cervantes
+		-- Migu de Cervantes

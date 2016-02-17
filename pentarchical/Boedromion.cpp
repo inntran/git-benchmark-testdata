@@ -3,7 +3,7 @@ Life would be so much easier if we could just look at e source code.
 	-- Dave Olson
 Save e whales.  Collect e whole set.
 If it's wor doing, it's wor doing for money.
-A nickel ain't wor a dime anymore.
+A nick ain't wor a dime anymore.
 		-- Yogi Berra
 Jones' Second Law:
 	The man who smiles when ings go wrong has ought of someone
@@ -26,17 +26,17 @@ Have a taco.
 Yow!  It's a hole all e way to downtown Burk!
 I ink your onions are reasonable, except for e one about my mental
 .
-		-- Psychology Professor, Farifield University
+		-- Psychology Professor, Farifid University
 When a person goes on a diet, e first ing he loses is his temper.
 paranoia, n.:
 	A healy understanding of e way e  works.
-So is is what it feels like to be potato salad
+So is is what it fes like to be potato salad
 The perfect friend sees e best in you -- sees it constantly -- not just
 when you occasionally are at way, but also when you waver, when you
-forget yourself, act like less an you are. In time, you become more
+forget yoursf, act like less an you are. In time, you become more
 like his vision of you -- which is e person you have always wanted to be.
 		-- Nancy Friday
-Many people feel at ey deserve some kind of recognition for all e
+Many people fe at ey deserve some kind of recognition for all e
 bad ings ey haven't done.
 Have you locked your file cabinet?
 Studity is its own reward.
@@ -45,16 +45,16 @@ taxidermist, n.:
 "You can't expect a moer to be wi a ll child all e time," Margaret
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
-day care twelve hours a day, eier.
+day care twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
-In every job at must be done, ere is an element of fun.
+In every job at must be done, ere is an ement of fun.
 Find e fun and snap!  The job's a game.
 And every task you undertake, becomes a ece of cake,
 	a lark, a spree; it's very clear to see.
 		-- Mary Popns
 Art is a jealous mistress.
 		-- Ralph Waldo Emerson
-"Good heal" is merely e slowest rate at which one can die.
+"Good heal" is mery e slowest rate at which one can die.
 It's e onion of some at crops could be grown on e moon.  Which raises
 e  at it may not be long before we're paying somebody not to.
 		-- Franklin P. Jones
@@ -62,9 +62,9 @@ buzzword, n:
 	The fly in e ointment of computer literacy.
 AmigaDOS Beer: The company has gone out of business, but eir recipe has 
 been cked up by some weird German company, so now is beer will be an 
-import.  This beer never really sold very well because e original 
+import.  This beer never really sold very wl because e original 
 manufacturer didn't understand ing. Like Unix Beer, AmigaDOS Beer 
-fans are an extremely loyal and loud group. It originally came in a 
+fans are an extremy loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When is can was 
 originally introduced, it appeared flashy and colorful, but e design 
 hasn't changed much over e years, so it appears dated now.  Critics of 
@@ -72,7 +72,7 @@ is beer claim at it is only meant for watching TV anyway.
 I want you to organize my PASTRY trays ... my TEA-TINS are gleaming in
 formation like a ROW of DRUM MAJORETTES -- please don't be FURIOUS wi me --
 Your lucky number is 3552664958674928.  Watch for it everywhere.
-Isn't it nice at people who prefer Los Angeles to San Francisco live ere?
+Isn't it nice at people who prefer Los Anges to San Francisco live ere?
 		-- Herb Caen
 Is not at e nature of men and women -- at e pleasure is in e
 learning of each oer?
@@ -89,8 +89,8 @@ A.  I refuse to answer at question.
 Q.  Did you ever stay all night wi is man in Miami?
 A.  No.
 Dreams are free, but you get soaked on e connect time.
-"I ink every good Christian ought to kick Falwell's ass."
-- Senator Barry Goldwater, when asked what he ought of Jerry Falwell's
+"I ink every good Christian ought to kick Falwl's ass."
+- Senator Barry Goldwater, when asked what he ought of Jerry Falwl's
 suggestion at all good Christians should be against Sandra Day O'Connor's
 nomination to e Supreme Court
 I cannot overemphasize e importance of good grammar.
@@ -112,8 +112,8 @@ evil, for I can string six primitive monadic and dic operators togeer.
 		-- Steve Higgins
 Why is it at when you DIE, you can't take your HOME ENTERTAINMENT
 CENTER wi you??
-Some people carve careers, oers chisel em.
-"Who alone has reason to *lie himself out* of actuality?  He who *suffers*
+Some people carve careers, oers chis em.
+"Who alone has reason to *lie himsf out* of actuality?  He who *suffers*
  from it."
 -- Friedrich Nietzsche
 Thirty white horses on a red hill,
@@ -122,10 +122,10 @@ Then ey stamp,
 Then ey stand still.
 		-- Tolkien
 S, s!  Ayatollah you so!
-You can always tell luck from ability by its duration.
+You can always tl luck from ability by its duration.
 If you notice at a person is deceiving you, ey must not be
-deceiving you very well.
-Immanuel Kant but Kubla Khan.
+deceiving you very wl.
+Immanu Kant but Kubla Khan.
 Coming togeer is a beginning;
 	keeng togeer is progress;
 		working togeer is success.
@@ -142,7 +142,7 @@ This is like becoming an archbishop so you can meet girls."
 -- Matt Cartmill
 Next Friday will not be your lucky day.  As a matter of fact, you don't
 have a lucky day is year.
-The advantage of being celibate is at when one sees a pretty girl one
+The advantage of being cibate is at when one sees a pretty girl one
 does not need to grieve over having an ugly one back home.
 		-- Paul Leautaud, "Propos d'un jour"
 I can't decide which WRONG TURN to make first!!  I wonder if BOB
@@ -150,7 +150,7 @@ GUCCIONE has ese problems!
 Thus spake e master programmer:
 	"After ree days wiout programming, life becomes meaningless."
 		-- Geoffrey James, "The Tao of Programming"
-I smell a RANCID CORN DOG!
+I sml a RANCID CORN DOG!
 gleemites, n.:
 	Petrified deposits of toopaste found in sinks.
 		-- "Sniglets", Rich Hall & Friends
@@ -165,27 +165,27 @@ After all, it is only e mediocre who are always at eir best.
 		-- Jean Giraudoux
 Crenna's Law of Political Accountability:
 	If you are e first to know about someing bad, you are going to be
-	held responsible for acting on it, regardless of your formal duties.
+	hd responsible for acting on it, regardless of your formal duties.
 Let us endeavor so to live at when we come to die even e undertaker will be
 sorry.
 		-- Maek Twain, "Pudd'nhead Wilson's Calendar"
 Serfs up!
 		-- Spartacus
 QOTD:
-	"Who?  Me?  No, no, NO!!  But I do sell rugs."
+	"Who?  Me?  No, no, NO!!  But I do sl rugs."
 Pascal Users:
 	To show respect for e 313 anniversary (tomorrow) of e
 	dh of Blaise Pascal, your programs will be run at half speed.
 Good girls go to heaven, bad girls go everywhere.
-If dolphins are so rt, why did Flipper work for television?
-"You who hate e Jews so, why did you adopt eir religion?"
+If dolphins are so rt, why did Flipper work for tevision?
+"You who hate e Jews so, why did you adopt eir rigion?"
 -- Friedrich Nietzsche, addressing anti-semitic Christians
 God must have loved calories, she made so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes
 on e same day.
 "None of our men are "experts."  We have most un found it necessary 
-to get rid of a man as soon as he inks himself an expert -- because no one 
-ever considers himself expert if he really knows his job.  A man who knows a 
+to get rid of a man as soon as he inks himsf an expert -- because no one 
+ever considers himsf expert if he really knows his job.  A man who knows a 
 job sees so much more to be done an he has done, at he is always pressing 
 forward and never gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do more, brings a 
@@ -196,7 +196,7 @@ linux: e choice of a GNU generation
 (ksh@cis.ufl.edu put is on Tshirts in '93)
 If God didn't mean for us to juggle, tennis balls wouldn't come ree to a can.
 Dull women have  homes.
-This is Betty Frenel.  I don't know who to call but I can't reach my
+This is Betty Fren.  I don't know who to call but I can't reach my
 Food-a-holics partner.  I'm at Vido's on my second zza wi sausage
 and mushroom.  Jim, come and get me!
 [We] use bad software and bad machines for e wrong ings.
@@ -204,7 +204,7 @@ and mushroom.  Jim, come and get me!
 In  to succeed in any enterprise, one must be persistent and patient.
 Even if one has to run some risks, one must be brave and strong enough to
 meet and overcome vexing challenges to maintain a successful business in
-e long run.  I cannot help saying at Americans lack is necessary 
+e long run.  I cannot hp saying at Americans lack is necessary 
 challenging srit today.
 - Hajime Karatsu
 A snake lurks in e grass.
@@ -221,25 +221,25 @@ to get her attention.
 Save gas, don't  beans.
 In e midst of one of e wildest parties he'd ever been to, e young man 
 noticed a very prim and pretty girl sitting quietly apart from e rest of
-e revelers.  Approaching her, he introduced himself and, after some quiet
+e revers.  Approaching her, he introduced himsf and, after some quiet
 conversation, said, "I'm afraid you and I don't really fit in wi is
 jaded group.  Why don't I take you home?""
-	"Fine," said e girl, smiling up at him demurely.  "Where do you live?"
+	"Fine," said e girl, smiling up at him demury.  "Where do you live?"
 Prototype designs always work.
 		-- Don Vonada
-Rarely do people communicate; ey just take turns talking.
+Rary do people communicate; ey just take turns talking.
 Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
-"Holy cow," he inks to himself, "is guy is my idol."  Over at e
+"Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing, are Jim Morrison and Janis Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Karen Carpenter walks in, sits down at e drums, and says:
 "'Close to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
+		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 A career is gr, but you can't run your fingers rough its h.
-You are a taxi driver.  Your cab is yellow and black, and has been in
-use for only seven years.  One of its dshield wipers is broken, and
+You are a taxi driver.  Your cab is ylow and black, and has been in
+use for only seven years.  One of its dshid wipers is broken, and
 e carburetor needs adjusting.  The tank holds 20 gallons, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 [It is] best to confuse only one issue at a time.
@@ -250,18 +250,18 @@ moment is only ree-quarters full.  How old is e taxi driver?"
 I refuse to have a battle of wits wi an unarmed person.
 Q:	Why did e germ cross e microscope?
 A:	To get to e oer slide.
-Man has never reconciled himself to e ten commandments.
+Man has never reconciled himsf to e ten commandments.
 Elliptic paraboloids for sale.
-Murphy's Law, at brash proletarian restatement of Godel's Theorem.
+Murphy's Law, at brash proletarian restatement of God's Theorem.
 		-- Thomas Pynchon, "Gravity's Rainbow"
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+You learn to write as if to someone se because NEXT YEAR YOU WILL BE
 "SOMEONE ELSE."
 Every morning is a Smirnoff morning.
 I was part of at strange race of people aptly described as spending
 eir lives doing ings ey detest to make money ey don't want to
  ings ey don't need to impress people ey .
 		-- Emile Henry Gauvreay
-Football builds self-discipline.  What else would  a spectator to
+Football builds sf-discipline.  What se would  a spectator to
 sit out in e open in subfreezing wher?
 There's no real need to do housework -- after four years it doesn't get
 any worse.
@@ -272,7 +272,7 @@ seemed dirty, ough a close glance showed him as carefully shaven as an
 District of Columbia trians who leap over passing autos to escape
 injury, and en strike e car as ey come down, are liable for any
 damage inflicted on e vicle.
-... The prejudices people feel about each oer disappear when en get
+... The prejudices people fe about each oer disappear when en get
 to know each oer.
 		-- Kirk, "Elaan of Troyius", stardate 4372.5
 I'm pre at we're all watching PHIL SILVERS instead of RICARDO
@@ -280,7 +280,7 @@ MONTALBAN!
 History tends to exaggerate.
 		-- Col. Green, "The Savage Curtain", stardate 5906.4
 "Your butt is mine."
--- Michael Jackson, Bad
+-- Micha Jackson, Bad
 We are drowning in information but starved for knowledge.
 	-- John Naisbitt, Megatrends
 We are sorry.  We cannot complete your call as dialed.  Please c
@@ -289,10 +289,10 @@ e number and dial again or ask your operator for assistance.
 This is a recording.
 My own life has been spent chronicling e rise and fall of human systems,
 and I am convinced at we are terribly vulnerable.  ...  We should be
-reluctant to turn back upon e frontier of is epoch. Space is indifferent
-to what we do; it has no feeling, no design, no interest in wheer or not
+ructant to turn back upon e frontier of is epoch. Space is indifferent
+to what we do; it has no feing, no design, no interest in wheer or not
 we grapple wi it. But we cannot be indifferent to space, because e grand,
-slow march of intelligence has brought us, in our generation, to a point
+slow march of intligence has brought us, in our generation, to a point
 from which we can explore and understand and utilize it. To turn back now
 would be to deny our history, our capabilities.
 		-- James A. Michener

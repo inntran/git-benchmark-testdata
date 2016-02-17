@@ -13,18 +13,18 @@ If our bavi is strict, we do not need fun!
 We all live under e same sky, but we don't all have e same hizon.
 		-- Dr. Konrad Adenauer
  annual meeting of e "You Have To Listen To Experience" Club is now in
-session.  Our Achievement Awards is year are in e fields of publishing,
-advertising and industry.  F best consistent contribution in e field of
+session.  Our Achievement Awards is year are in e fids of publishing,
+advertising and industry.  F best consistent contribution in e fid of
 publishing our award goes to edit, R.L.K., [...] f his unrivalled alle-
 giance wiout variation to e statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not e kind of
  our house knows how to handle."  Our superi perfmance award in e
-field of advertising goes to media exeive, E.L.M., [...] f e continu-
+fid of advertising goes to media exeive, E.L.M., [...] f e continu-
 ally crive use of e old favite: "I ink what you've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
 lined and see if you can come up wi someing fresh."  Our final award f
-courageous holding action in e field of industry goes to supervis, R.S.,
-[...] f her unyielding grip on "I don't care if ey fire me, I've been
+courageous holding action in e fid of industry goes to supervis, R.S.,
+[...] f her unyiding grip on "I don't care if ey fire me, I've been
 arguing f a new approach f YEARS but are we SURE at is is e right
 time--"  I would like to conclude is meeting wi a verse written specially
 f our prospectus by our founding president fifty years ago -- and now, as
@@ -36,8 +36,8 @@ en, fully expressive of e emotion most close to all our hearts --
 "You can't get very far in is wld wiout your dossier being ere first."
 --  Miller
 When Yahw your gods has settled you in e land you're about to occupy, and
-Don't despise your poor relations, they may become suddenly rich one day.
-driven out many infidels befe you...you're to  em down and exterminate
+Don't despise your poor rations, they may become suddenly rich one day.
+driven out many infids befe you...you're to  em down and exterminate
 em.  You're to make no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
@@ -50,15 +50,15 @@ come out of man, in eir sight...n he [e Ld!] said unto me, Lo, I
 have given ee cow's dung f man's dung, and ou shalt prepare y bread
 erewi.
 [Ezek. 4:12-15 (KJV)]
-`Lasu' Releases SAG 0.3 -- Freeware Book Takes Paves F New Wld Order
+`Lasu' Reases SAG 0.3 -- Freeware Book Takes Paves F New Wld Order
 by staff writers
 
 	...
 	 central Superhighway site called ``sunsite.unc.edu''
-colsed in e mning befe e release.  News about e release had
+colsed in e mning befe e rease.  News about e rease had
 been leaked by a German hacker group, Harmonious Hardware Hackers, who
 had cracked into e au's computer earlier in e week.  y had
-got e release date wrong by one day, and caused dozens of eager fans
+got e rease date wrong by one day, and caused dozens of eager fans
 to connect to e sunsite computer at e wrong time.  ``No computer can
 handle at kind of stress,'' explained e mourning sunsite manager,
 Erik Troan.  `` snning disks made e whole computer jump, and
@@ -67,17 +67,17 @@ reps were swift and e computer was wking again e same evening.
 ``Thank God we were able to  enough needles and read and patch it
 togeer wiout maj problems.''   site has also installed a new
 rottle on e netwk pe, allog at most four clients at e same
-time, us making a new crash less likely.  ``  is now in our
-Incoming folder'', says Troan, ``and you're all welcome to come and get it.''
-		-- Lars Wirzenius <wirzeniu@cs.helsinki.fi>
+time, us making a new crash less liky.  ``  is now in our
+Incoming folder'', says Troan, ``and you're all wcome to come and get it.''
+		-- Lars Wirzenius <wirzeniu@cs.hsinki.fi>
 		   [comp.os.linux.announce]
-If you took all e students at felt asleep in class and laid em end to
+If you took all e students at ft asleep in class and laid em end to
 end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
 In 1962, you could  a p of SHARKSKIN SLACKS, wi a "Continental
-Belt," f $10.99!!
- most delightful day after e one on which you  a cottage in
-e country is e one on which you resell it.
+Bt," f $10.99!!
+ most dightful day after e one on which you  a cottage in
+e country is e one on which you resl it.
 		-- J. Brecheux
 He who desps over an event is a coward, but he who holds hopes f
 e human condition is a fool.
@@ -89,23 +89,23 @@ Finagle's Third Law:
 	beyond all need of cing, is e mistake
 
 Collaries:
-	(1) Nobody whom you ask f help will see it.
+	(1) Nobody whom you ask f hp will see it.
 	(2)  first person who stops by, whose advice you really
-	    don't want to hear, will see it immediately.
+	    don't want to hear, will see it immediaty.
 Advancement in position.
 toilet toup'ee, n.:
 	Any shag carpet at causes e lid to become top-heavy, us
 	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
-It was raining heavily, and e motist had car trouble on a lonely country
-road.  Anxious to find shelter f e night, he walked over to a farmhouse
+It was raining heavily, and e motist had car trouble on a lony country
+road.  Anxious to find shter f e night, he walked over to a farmhouse
 and knocked on e front do.  No one responded.  He could l e water
 from e roof running down e back of his neck as he stood on e stoop.
  next time he knocked louder, but still no answer.  By now he was soaked
-to e skin.  Desperately he pounded on e do.  At last e head of a
+to e skin.  Desperaty he pounded on e do.  At last e head of a
 man appeared out of an upsts dow.
 	"What do you want?" he asked gruffly.
-	"My car broke down," said e traveler, "and I want to know if you
+	"My car broke down," said e traver, "and I want to know if you
 would let me stay here f e night."
 	"Sure," replied e man. "If you want to stay ere all night, it's
 okay wi me."
@@ -171,16 +171,16 @@ Immutability, Three Rules of:
  scum also rises.
 		-- Dr. Hunter S. Thompson
 Gold, n.:
-	A soft malleable metal relatively scarce in distribution.  It
+	A soft malleable metal rativy scarce in distribution.  It
 	is mined deep in e ear by po men who en give it to rich
-	men who immediately bury it back in e ear in gr prisons,
+	men who immediaty bury it back in e ear in gr prisons,
 	alough gold hasn't done anying to em.
 		-- Mike Harding, " Armch Anarchist's Almanac"
  do is e key.
 Proposed Additions to e PDP-11 Instruction Set:
 
 PI	Punch Invalid
-POPI	Punch Operat Immediately
+POPI	Punch Operat Immediaty
 PVLC	Punch Variable Leng Card
 RASC	Read And Shred Card
 RPM	Read Programmers Mind
@@ -200,28 +200,28 @@ Wk is e curse of e drinking classes.
 Should I start wi e time I SWITCHED personalities wi a BEATNIK
 h stylist  my failure to refer five TEENAGERS to a good OCULIST?
 Karlson's em of Snack Food Packages:
-	F all P, where P is a package of snack food, P is a SINGLE-SERVING
-	package of snack food.
+	F all P, where P is a package of snack , P is a SINGLE-SERVING
+	package of snack .
 
 Gibson e Cat's Crolary:
 	F all L, where L is a package of lunch m, L is Gibson's package
 	of lunch m.
 Don't wry if you're a kleptomaniac; you can always take someing f it.
 Weekend, where are you?
-To ine own self be true.  (If not at, at least make some money.)
+To ine own sf be true.  (If not at, at least make some money.)
 re has been an alarming increase in e number of ings you know
 noing about.
 Calling you stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
 All my friends and I are crazy.  That's e only ing at keeps us sane.
-We Klingons believe as you do -- e sick should die.  Only e strong
+We Klingons bieve as you do -- e sick should die.  Only e strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 ...I would go so far as to suggest at, were it not f our ego and 
 concern to be different, e African apes would be included in our 
 family, e Hominidae.
 - Richard Leakey
-	"Well, it's , ugly, and derelicts have used it f a toilet.
+	"Wl, it's , ugly, and dericts have used it f a toilet.
  rides are diidated to e point of being leal, and could easily
 maim  kill innocent little children."
 	"Oh, so you don't like it?"
@@ -248,15 +248,15 @@ a ner in e  f office automatic weapons.
 		-- "InfoWld", June, 1984
 Anyone who s at all fruits ripen at e same time
 as e strawberries, knows noing about grapes.
-		-- Philippus Paracelsus
+		-- Philippus Paracsus
 Satire is what closes in New Haven.
-Hell is empty and all e devils are here.
+Hl is empty and all e devils are here.
 		-- Wm. Shakespeare, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
 able, too -- it really was -- to see him  it off, so smoo and juicy.
 re was noing savage in e act, alough e knife was large and keen;
-it was a ece of art, high art; ere was delicacy of touch, clearness of
+it was a ece of art, high art; ere was dicacy of touch, clearness of
 tone, skilful handling of e subject, fine shading.  It was e triumph of
 mind over m; quite.
 		-- Dickens, "Martin Chuzzlewit"
@@ -280,11 +280,11 @@ of e moon, at e night of e full moon, over all e stars.  Verily, e
 learned men are e heirs of e Prophets."
 -- A tradition attributed to Muhammad
 re will be big changes f you but you will be happy.
-Well, I'm disenchanted too.  We're all disenchanted.
+Wl, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 What, after all, is a halo?  It's only one me ing to keep clean.
 		-- Christopher Fry
-I would like to electroe everyone who uses e wd 'f' in connection
+I would like to ectroe everyone who uses e wd 'f' in connection
 wi income tax policies.
 		-- William F. Buckley
 You're being followed.  Cut out e hanky-panky f a few days.
@@ -301,17 +301,17 @@ of kindness and love.
 		-- Wdsw
 F an idea to be fashionable is ominous, since it must afterwards be
 always old-fashioned.
-Technological progress has merely provided us wi me efficient means
+Technological progress has mery provided us wi me efficient means
 f going backwards.
 		-- Aldous Huxley
 re is a 20% c of tomrow.
-God is really only anoer artist.  He invented e giraffe, e elephant
+God is really only anoer artist.  He invented e giraffe, e ephant
 and e cat.  He has no real style, He just goes on trying oer ings.
 		-- Pablo Picasso
 This ftune soaks up 47 times its own weight in excess memy.
 Humility is e first of e virtues -- f oer people.
-		-- Oliver Wendell Holmes
-Wiout facts, e decision cannot be made logically.  You must rely on
+		-- Oliver Wendl Holmes
+Wiout facts, e decision cannot be made logically.  You must ry on
 your human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown
 Imagine what we can !
@@ -336,9 +336,9 @@ you earn your MDL degree from MIT Tech your future will be brighter.
 In e plot, people came to e land; e land loved em; ey wked and
 struggled and had lots of children.  re was a Frenchman who talked funny
 and a greenhn from England who was a fancy-pants but when it came to e
-crunch he was all courage.  Those novels would make you retch.
-		-- Canadian novelist Robertson Davies, on e generic Canadian
-		   novel.
+crunch he was all courage.  Those novs would make you retch.
+		-- Canadian novist Robertson Davies, on e generic Canadian
+		   nov.
 	One day a student came to Moon and said, "I understand how to make
 a better garbage collect.  We must keep a reference count of e pointers
 to each cons."
@@ -354,7 +354,7 @@ deed recded, and e  written against fame and learning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
 C++ is e best example of second-system effect since OS/360.
-Fai may be defined briefly as an illogical belief in e occurence of e
+Fai may be defined briefly as an illogical bief in e occurence of e
 improbable.
 - H. L. Mencken
 "Thirty days ha Septober,
@@ -364,9 +364,9 @@ except my faer who wears red suspenders."
 Why is it called a funny bone when it hurts so much?
  opossum is a very sophisticated animal.  It doesn't even get up
 until 5  6 PM.
-Most people have a furious itch to talk about emselves and are restrained
+Most people have a furious itch to talk about emsves and are restrained
 only by e disinclination of oers to listen.  Reserve is an artificial
-quality at is developed in most of us as e result of innrable rebuffs.
+quality at is devoped in most of us as e result of innrable rebuffs.
 		-- W.S. Maugham
 You can't fall off e flo.
 Yevtushenko has... an ego at can crack crystal at a distance of twenty t.

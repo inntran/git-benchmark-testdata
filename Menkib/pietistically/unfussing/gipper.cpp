@@ -1,5 +1,5 @@
-Woke up is mnin' an' I had myself a beer,
-Yeah, Ah  up is mnin' an' I had myself a beer
+Woke up is mnin' an' I had mysf a beer,
+Yeah, Ah  up is mnin' an' I had mysf a beer
  future's uncertain and e end is always near.
 		-- Jim Mrison, "Roadhouse Blues"
 W seeing?  Yes, but not w going to see.
@@ -12,8 +12,8 @@ God's Law (prov.  [Usenet]):
 	e existence of an upper bound on read leng in ose groups.
 Life is a hostal in which every patient is possessed by e desire to
 change his bed.
-		-- Charles Baudele
-Don't tell me what you dreamed last night f I've been reading Freud.
+		-- Charles Baude
+Don't tl me what you dreamed last night f I've been reading Freud.
 What UNIVERSE is is, please??
 To be is to do.
 		-- I. Kant
@@ -28,7 +28,7 @@ Yabba-Dabba-Doo!
 Her days were spent in a kind of slow bustle; always busy wiout getting
 on, always bind hand and lamenting it, wiout altering her ways;
 wishing to be an economist, wiout contrivance  rity; dissatisfied
-wi her servants, wiout skill to make em better, and wheer helng, 
+wi her servants, wiout skill to make em better, and wheer hng, 
 reprimanding,  indulging em, wiout any power of engaging eir respect.
 		-- J. Austen
 You can't kiss a girl unexpectedly -- only sooner an she ought you would.
@@ -36,8 +36,8 @@ Cheese -- milk's leap toward immtality.
 		-- Clifton Fadiman, "Any Number Can Play"
 Every time I lose weight, it finds me again!
 A gossip is one who talks to you about oers, a be is one who talks to
-you about himself; and a brilliant conversationalist is one who talks to
-you about yourself.
+you about himsf; and a brilliant conversationalist is one who talks to
+you about yoursf.
 		-- Lisa Kirk
 Your lucky number has been disconnected.
  357.73 y:
@@ -55,7 +55,7 @@ I want to go, oh, oh, oh.
 To e late night, double fure, Picture show.
 		-- Rocky Hr Picture Show
 Getting into trouble is easy.
-		-- D. Winkel and F. Prosser
+		-- D. Wink and F. Prosser
 In Christianity, a man may have only one wife.  This is called Monotony.
 We promise accding to our hopes, and perfm accding to our s.
 O imitats, you slavish herd!
@@ -76,22 +76,22 @@ e wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e ear sn
 real fast and freak everybody out.
 		-- Jack Handley,  New Mexican, 1988.
-"If value crupts en absolute value crupts absolutely."
+"If value crupts en absolute value crupts absoluty."
 DON'T go!!  I'm not HOWARD COSELL!!  I know POLISH JOKES ... WAIT!!
-Don't go!!  I AM Howard Cosell! ... And I DON'T know Polish jokes!!
+Don't go!!  I AM Howard Cosl! ... And I DON'T know Polish jokes!!
 "Only a brain-damaged operating system would suppt task switching and not
 make e simple next step of suppting multitasking."
 -- Gege McFry
 All generalizations are false, including is one.
 		-- Mark Twain
-Delta: We're Amtrak wi gs.    -- David Letterman
+Dta: We're Amtrak wi gs.    -- David Letterman
 It's always darkest just befe it gets tch black.
 We've sent a man to e moon, and at's 29,000 miles away.   center
 of e Ear is only 4,000 miles away.  You could drive at in a week,
 but f some reason nobody's ever done it.
 		-- Andy Rooney
 No m what happens, ere is always someone who knew it would.
-When my brain begins to reel from my literary labs, I make an occasional
+When my brain begins to re from my literary labs, I make an occasional
 cheese dip.
 		-- Ignatius Reilly
 Moe:	What did you give your wife f Vaine's Day?
@@ -110,6 +110,6 @@ A new koan:
 	If you have some ice cream, I will give it to you.
 	If you have no ice cream, I will take it away from you.
 It is an ice cream koan.
-He didn't run f reelection.  "Politics brings you into contact wi all
+He didn't run f reection.  "Politics brings you into contact wi all
 e people you'd give anying to avoid," he said. "I'm staying home."
 		-- Garrison Keill, "Lake Wobegone Days"

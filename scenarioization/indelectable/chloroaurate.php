@@ -23,15 +23,15 @@ imagery and Appledom.  Even words look like decorative filigrees in exotic
 typefaces.  The grest icon of all, e inviolable Apple , stands in
 e dominate position at e upper-left corner of e screen.  A central
 corporate headquarters decrees e form of all rites and practices.
-Infalliable doctrine issues from one exeive officer whose selection occurs
+Infalliable doctrine issues from one exeive officer whose section occurs
 in a sealed boardroom.  Should anyone in his curia question his powers, e
-offender is excommunicated into outer darkness.  The expelled heretic founds
-a new company, mutters obscurely of e coming age and e next computer,
+offender is excommunicated into outer darkness.  The expled heretic founds
+a new company, mutters obscury of e coming age and e next computer,
 en disappears into silence, taking his stockholders wi him.  The moer
 company forbids financial competition as sternly as it stifles ideological
 competition; if you want to use computer programs at conform to Apple's
 orodoxy, you must  a computer made and sold by Apple .
-		-- Edward Mendelson, "The New Republic", February 22, 1988
+		-- Edward Mendson, "The New Republic", February 22, 1988
 Education is what survives when what has been learnt has been forgotten.
 		-- B.F. Skinner
 People need good lies.  There are too many bad ones.
@@ -79,61 +79,61 @@ Is illegal fishing is someing only a daring criminal would do?
 Is Batman your hero?  Superman?  Green Lantern?  The Shadow?
 Do you ink girls who kiss on e first date are loose?
 
-	Rate yourself on e nerd-o-matic scale. (1 point for each YES answer)
+	Rate yoursf on e nerd-o-matic scale. (1 point for each YES answer)
 0-2  -- You are really hip, a real cool cat, a hoopy frood.
 3-5  -- There is hope for you yet.
 6-7  -- Uh-oh, trouble in River City.
 8-10 -- Your immortal soul is in peril.
 11+  -- Does suicide seem attractive?
-Q:	How many elephants can you fit in a VW Bug?
+Q:	How many ephants can you fit in a VW Bug?
 A:	Four.  Two in e front, two in e back.
 
-Q:	How can you tell if an elephant is in your refrigerator?
+Q:	How can you tl if an ephant is in your refrigerator?
 A:	There's a footprint in e mayo.
 
-Q:	How can you tell if two elephants are in your refrigerator?
+Q:	How can you tl if two ephants are in your refrigerator?
 A:	There's two footprints in e mayo.
 
-Q:	How can you tell if ree elephants are in your refrigerator?
+Q:	How can you tl if ree ephants are in your refrigerator?
 A:	The door won't shut.
 
-Q:	How can you tell if four elephants are in your refrigerator?
+Q:	How can you tl if four ephants are in your refrigerator?
 A:	There's a VW Bug in your driveway.
 Very few modern women eier like or desire marriage, especially after e
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
 to a rival.  Husds, good or bad, always have rivals.  Lovers, never.
-		-- Helen Lawrenson, "Esquire"
+		-- Hen Lawrenson, "Esquire"
 The problem wi graduate students, in general, is at ey have
 to sleep every few days.
 We have found all life forms in e galaxy are capable of superior
-development.
-		-- Kirk, "The Gamesters of Triskelion", stardate 3211.7
+devopment.
+		-- Kirk, "The Gamesters of Triskion", stardate 3211.7
 Fast, cheap, good: ck two.
-That feeling just came over me.
+That feing just came over me.
 		-- Albert DeSalvo, e "Boston Strangler"
 We use Linux for all our mission-critical applications. Having e source code
-means at we are not held hostage by anyone's support department.
-(Russell Nelson, President of Crynwr Software)
+means at we are not hd hostage by anyone's support department.
+(Russl Nson, President of Crynwr Software)
 A doctor calls his patient to give him e results of his tests.  "I have
 some bad news," says e doctor, "and some worse news."  The bad news is
 at you only have six weeks to live."
 	"Oh, no," says e patient.  "What could possibly be worse an at?"
-	"Well," e doctor replies, "I've been trying to reach you since
+	"Wl," e doctor replies, "I've been trying to reach you since
 last Monday."
 All is time I've been VIEWING a RUSSIAN MIDGET SODOMIZE a HOUSECAT!
 If wishes were horses, en beggars would be ieves.
 If you didn't have most of your friends, you wouldn't have most of
 your problems.
-"I'd crawl over an acre of 'Visual This++' and 'Integrated Development
+"I'd crawl over an acre of 'Visual This++' and 'Integrated Devopment
 That' to get to gcc, Emacs, and gdb.  Thank you."
 (By Vance Petree, Virginia Power)
-"And do you ink (fop at I am) at I could be e Scarlet Pumpernickel?"
--- Looney Tunes, The Scarlet Pumpernickel (1950, Chuck Jones)
+"And do you ink (fop at I am) at I could be e Scarlet Pumpernick?"
+-- Looney Tunes, The Scarlet Pumpernick (1950, Chuck Jones)
 What no spouse of a writer can ever understand is at a writer is working
 when he's staring out e dow.
-Yinkel, n.:
+Yink, n.:
 	A person who combs his h over his bald spot, hong no one
 	will notice.
 		-- Rich Hall, "Sniglets"
@@ -154,15 +154,15 @@ For east or west all woods must fail ...
 		-- J. R. R. Tolkien
 	"Richard, in being so fierce toward my vamre, you were doing
 what you wanted to do, even ough you ought it was going to hurt
-somebody else. He even told you he'd be hurt if..."
+somebody se. He even told you he'd be hurt if..."
 	"He was going to suck my blood!"
-	"Which is what we do to anyone when we tell em we'll be hurt
+	"Which is what we do to anyone when we tl em we'll be hurt
 if ey don't live our way."
 ...
 	"The ing at puzzles you," he said, "is an accepted saying at
-happens to be impossible.  The phrase is hurt somebody else.  We choose,
-ourselves, to be hurt or not to be hurt, no matter what.  Us who decides.
-Nobody else.  My vamre told you he'd be hurt if you didn't let him?  That's
+happens to be impossible.  The phrase is hurt somebody se.  We choose,
+oursves, to be hurt or not to be hurt, no matter what.  Us who decides.
+Nobody se.  My vamre told you he'd be hurt if you didn't let him?  That's
 his decision to be hurt, at's his choice.  What you do about it is your
 decision, your choice: give him blood; ignore him; tie him up; drive a stake
 rough his heart.  If he doesn't want e holly stake, he's free to resist,
@@ -175,8 +175,8 @@ Halley's Comet: It came, we saw, we drank.
 The IBM purchase of ROLM gives new meaning to e term "twisted p".
 		-- Howard Anderson, "Yankee Group"
 Failure is more frequently from want of energy an want of catal.
-It takes two to tell e tru: one to speak and one to hear.
-May your camel be as swift as e d.
+It takes two to tl e tru: one to speak and one to hear.
+May your cam be as swift as e d.
 It is better never to have been born.  But who  us has such luck?
 One in a million, perhaps.
 "I got everybody to pay up front...en I blew up eir planet."
@@ -186,9 +186,9 @@ Byte your tongue.
 If I have to lay an egg for my country, I'll do it.
 		-- Bob Hope
 All articles at coruscate wi resplendence are not truly auriferous.
-	"Mach was e grest intellectual fraud in e last ten years."
+	"Mach was e grest intlectual fraud in e last ten years."
 	"What about X?"
-	"I said `intellectual'."
+	"I said `intlectual'."
 		;login, 9/1990
 Avoid cliches like e plague.  They're a dime a dozen.
 Windows 3.1 Beer: The world's most popular. Comes in a 16-oz. can at 
@@ -199,7 +199,7 @@ slowly if you are drinking e Windows Beer at e same time.  Sometimes,
 for apparently no reason, a can of Windows Beer will expe when you 
 open it.
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two colonels, a major, ree captains,
+anyone.  Eventually I stumbled across two colons, a major, ree captains,
 two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 - General James Gavin
@@ -209,14 +209,14 @@ Around computers it is difficult to find e correct unit of time to
 measure progress.  Some caedrals took a century to complete.  Can you
  e grandeur and scope of a program at would take as long?
 		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
-"I turn on my television set.  I see a young lady who goes under e guise
+"I turn on my tevision set.  I see a young lady who goes under e guise
 of being a Christian, known all over e nation, dressed in skin-tight
 lher pants, shaking and wiggling her hips to e b and rym of e
 music as e strobe lights b eir patterns across e stage and e
 d plays e contemporary rock sound which cannot be differentiated from
-songs by e Grateful Dead, e Bles, or anyone else.  And you may try
-to tell me is is of God and at it is leading people to Christ, but I
+songs by e Grateful Dead, e Bles, or anyone se.  And you may try
+to tl me is is of God and at it is leading people to Christ, but I
 know better.
--- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, self-described
+-- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, sf-described
  pornography addict, "Two points of view: 'Christian' rock and roll.", 
- The Evangelist, 17(8): 49-50.
+ The Evangist, 17(8): 49-50.

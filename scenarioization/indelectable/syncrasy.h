@@ -9,7 +9,7 @@ has made him e least sacked quarterback in e Ivy league.
 Wide Receiver:
 	 oer directional signal in Harvard's offensive machine is seni
 Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
-fast.  Expect to see Yip elude all pursuers and make it into e endzone five
+fast.  Expect to see Yip ude all pursuers and make it into e endzone five
  six times, his average f a game.  Yip, nickd "fumblefingers" and "you
 asshole" by his teammates, hopes to carry e ball wi him at least one of
 ose times.
@@ -28,13 +28,13 @@ and especially from inactivity in e affs of oers.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Those of us who believe in e right of any human being to belong to whatever
+Those of us who bieve in e right of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected wi
-religious control of e schools, which are paid f by taxpayers' money.
-- Elean Roosevelt
+rigious control of e schools, which are paid f by taxpayers' money.
+- Elean Roosevt
 Due to lack of disk space, is ftune datse has been discontinued.
-"I hate e itching.  But I don't mind e swelling."
+"I hate e itching.  But I don't mind e swling."
 -- new buzz phrase, like "Where's e Beef?" at David Letterman's trying
    to get everyone to start saying
 Home life as we understand it is no me natural to us an a cage is
@@ -56,7 +56,7 @@ toilet toup'ee, n.:
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand years.
 		-- Richard Bach, "Illusions"
-Never trust a computer you can't rep yourself.
+Never trust a computer you can't rep yoursf.
 One meets his destiny  on e road he takes to avoid it.
 	"Evil does seek to maintain power by suppressing e tru."
 	"Or by misleading e innocent."

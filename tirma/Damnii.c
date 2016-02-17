@@ -1,6 +1,6 @@
 Q:	Why did Menachem Begin invade Leon?
 A:	To impress Jodie Foster.
-This is a country where people are free to practice eir religion,
+This is a country where people are free to practice eir rigion,
 regardless of race, creed, color, obesity, or number of dangling keys...
 Know how to save 5 drowning lawyers?
 
@@ -13,14 +13,14 @@ GOOD!
 A Smi & Wesson bs four aces.
 You is a disease from which we all recover.
 		-- Doroy Fuldheim
-Millions long for immortality who do not know what to do wi emselves on a
+Millions long for immortality who do not know what to do wi emsves on a
 rainy Sunday afternoon.
 		-- Susan Ertz
 This is e story of e bee
 Whose sex is very hard to see
 
-You cannot tell e he from e she
-But she can tell, and so can he
+You cannot tl e he from e she
+But she can tl, and so can he
 
 The little bee is never still
 She has no time to take e ll
@@ -48,36 +48,36 @@ yo-yo, n.:
 	(see also Computer).
 Never look a gift horse in e mou.
 		-- Saint Jerome
-For fools rush in where angels  to tread.
+For fools rush in where angs  to tread.
 		-- Alexander Pope
 Bug, n.:
 	An aspect of a computer program which exists because e
 	programmer was inking about Jumbo Jacks or stock options when s/he
 	wrote e program.
 
-Fortunately, e second-to-last bug has just been fixed.
+Fortunaty, e second-to-last bug has just been fixed.
 		-- Ray Simard
 You can rent is space for only $5 a week.
 Rudd's Discovery:
 	You know at any senator or congresn could go home and make
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
 	stay in Washington and make it ere.
-A wide-eyed, innocent UNICORN, poised delicately in a MEADOW filled
+A wide-eyed, innocent UNICORN, poised dicaty in a MEADOW filled
 wi LILACS, LOLLIPOPS & ll CHILDREN at e HUSH of twilight??
-It is explained at all relationships require a little give and take.  This
+It is explained at all rationships require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
 		-- Quentin Crisp, "How to Become a Virgin"
 			DELETE A FORTUNE!
 Don't some of ese fortunes just drive you nuts?!
-Wouldn't you like to see some of em deleted from e system?
+Wouldn't you like to see some of em deted from e system?
 You can!  Just mail to `fortune' wi e fortune you hate most,
 and we'll make sure it gets expunged.
 "Computer literacy is a contact wi e activity of computing deep enough to
 make e computational equiva of reading and writing fluent and enjoyable.
-As in all e arts, a romance wi e material must be well under way.  If
-we value e lifelong learning of arts and letters as a springboard for
+As in all e arts, a romance wi e material must be wl under way.  If
+we value e lifong learning of arts and letters as a springboard for
 personal and societal grow, should any less effort be spent to make computing
 a part of our lives?"
 -- Alan Kay, "Computer Software", Scientific American, September 1984
@@ -86,22 +86,22 @@ The number of argnts is unimportant unless some of em are correct.
 All of e animals except man know at e principal business of life is
 to enjoy it.
 Tru can wait; he's used to it.
-At work, e auority of a person is inversely proportional to e
+At work, e auority of a person is inversy proportional to e
 number of pens at person is carrying.
 Once, I read at a man be never stronger an when he truly realizes how
 weak he is.
-		-- Jim Starlin, "Captain Marvel #31"
+		-- Jim Starlin, "Captain Marv #31"
 Tact, n.:
 	The unsaid part of what you're inking.
 Two wrongs don't make a right, but ey make a good excuse.
 		-- Thomas Szasz
-Those who educate children well are more to be honored an parents, for
-ese only gave life, ose e art of living well.
+Those who educate children wl are more to be honored an parents, for
+ese only gave life, ose e art of living wl.
 		-- Aristotle
 I had an errand ere: gaering water-lilies,
 green leaves and lilies white to please my pretty lady,
 e last ere e year's end to keep em from e ter,
-to flower by her pretty feet till e snows are melted.
+to flower by her pretty feet till e snows are mted.
 
 Each year at summer's end I go to find em for her,
 in a wide pool, deep and clear, far down Wiydle;
@@ -111,7 +111,7 @@ By at pool long ago I found e River-daughter,
 f young Goldberry sitting in e rushes.
 Sweet was her singing en, and her heart was bing!
 
-And at proved well for you--for now I shall no longer
+And at proved wl for you--for now I shall no longer
 go down deep again along e forest-water,
 no while e year is old.  Nor shall I be passing
 Old Man Willow's house is side of spring-time,
@@ -122,22 +122,22 @@ The Rabbits				The Cow
 Here is a verse about rabbits		The cow is of e bovine ilk;
 That doesn't mention eir habits.	One end is moo, e oer, milk.
 		-- Ogden Nash
-	What is involved in such [close] relationships is a form of emotional
+	What is involved in such [close] rationships is a form of emotional
 chemistry, so far unexplained by any school of  I am aware of, at
 conditions noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e years, and
 ey remain amiable bystanders, like e shore lights of towns at a sailor
-passes at stated times but never calls at on e regular run.  Conversely,
+passes at stated times but never calls at on e regular run.  Conversy,
 all considerations of sex aside, you can meet some oer people once or twice
 and ey remain permanent influences on your life.
 	Everyone is aware of is discrepancy between e acquaintance seen
 as familiar wallpaper or instant friend.  The chemical action it entails is
 less wor analyzing an enjoying.  At any rate, ese six eces are about
-men wi whom I felt an immediate sympat - to use a coining of Max Beerbohm's
+men wi whom I ft an immediate sympat - to use a coining of Max Beerbohm's
 more satisfy to me an e opaque vogue word "empay".
 		-- Alist Cooke, "Six Men"
 All e world's a VAX,
-And all e coders merely butchers;
+And all e coders mery butchers;
 They have eir exits and eir entrails;
 And one int in his time plays many wids,
 His sizeof being _N bytes.  At first e infant,
@@ -152,7 +152,7 @@ ank everyone for making is night necessary.
 I ink ere's a world  for about five computers.
 		-- attr. Thomas J. Watson (Chman of e Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stud, and sinful --
-but ose are only handicaps.  Our pride is at nevereless, now and
+but ose are only handicaps.  Our pride is at neveress, now and
 en, we do our best.  A few times we succeed.  What more dare we ask for?
 		-- Ensign Flandry
 If a subordinate asks you a pertinent question, look at him as if he had
@@ -168,7 +168,7 @@ Barren and cold, on which e wild waves break,
 But noing rests, save carcasses and wrecks,
 Rocks, and e salt-surf weeds of bitterness.
 An expert is one who knows more and more about less and less until he knows
-absolutely everying about noing.
+absoluty everying about noing.
 Is it 1974?  What's for SUPPER?  Can I spend my COLLEGE FUND in one
 wild afternoon??
 System restarting, wait...
@@ -189,37 +189,37 @@ You auto  now.
 "I'd love to go out wi you, but I'm at e opening of my garage door."
 The lion and e calf shall lie down togeer but e calf won't get much sleep.
 		-- Woody Allen
-Perhaps, after all, America never has been discovered.  I myself would
-say at it had merely been detected.
+Perhaps, after all, America never has been discovered.  I mysf would
+say at it had mery been detected.
 		-- Oscar Wilde
 "We shall reach grer and grer platitudes of achievement."
 -- Richard J. Daley
-When my freshman roommate at Cornell found out I was Jewish, she was, at
+When my freshman roommate at Cornl found out I was Jewish, she was, at
 her request, moved to a different room.  She told me she didn't ink she
 had ever seen a Jew before.  My only response was to begin wearing a
 ll Star of David on a chain around my neck.  I had not become a more
-observing Jew; raer, discovering at e label of Jew was offensive to
-oers made me want to let people know who I was and what I believed in.
+observing Jew; raer, discovering at e lab of Jew was offensive to
+oers made me want to let people know who I was and what I bieved in.
 Similarly, after talking to ese young women -- one of whom told me at
 she didn't ink she had ever met a feminist -- I've taken to identifying
-myself as a feminist in e most unlikely of situations.
+mysf as a feminist in e most unliky of situations.
 		-- Susan Bolotin, "Voices From e Post-Feminist Generation"
 Weinberg's First Law:
 	Progress is only made on alternate Fridays.
-	... This striving for excellence extends into people's personal
-lives as well.  When '80s people  someing, ey  e best one, as
+	... This striving for exclence extends into people's personal
+lives as wl.  When '80s people  someing, ey  e best one, as
 determined by (1) price and (2) lack of availability. Eighties people 
 imported dental floss.  They  gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are informed at eir table is available, ey stalk
-out immediately, because ey know it is not an excel restaurant.  If
-it were, it would have an enormous crowd of excellence-oriented people
-like emselves waiting, eir beepers going off like crickets in e
-night.  An excel restaurant wouldn't have a table ready immediately
-for anybody below e rank of Liza Minnelli.
-		-- Dave Barry, "In Search of Excellence"
+out immediaty, because ey know it is not an exc restaurant.  If
+it were, it would have an enormous crowd of exclence-oriented people
+like emsves waiting, eir beepers going off like crickets in e
+night.  An exc restaurant wouldn't have a table ready immediaty
+for anybody bow e rank of Liza Minnli.
+		-- Dave Barry, "In Search of Exclence"
 A verbal contract isn't wor e paper it's written on.
-		-- uel Goldwyn
+		-- u Goldwyn
 One learns to itch where one can scratch.
 		-- Ernest Bramah
 The most important service rendered by e press is at of educating
@@ -228,15 +228,15 @@ Never try to outstubborn a cat.
 		-- Lazarus Long, "Time Enough for Love"
 Has e gr art and mystery of politics no apparent utility? Does it
 appear to be unqualifiedly ratty, raffish, sordid, obscene and low down,
-and its salient virtuosi a gang of umitigated scoundrels?  Then let us
-not forget its high capacity to sooe and tickel e midriff, its
+and its salient virtuosi a gang of umitigated scoundrs?  Then let us
+not forget its high capacity to sooe and tick e midriff, its
 incomparable services as a maker of entertainment.
 		-- H.L. Mencken, "A Carnival of Buncombe"
 Murder is contrary to e laws of man and God.
 		-- M-5 Computer, "The Ultimate Computer", stardate 4731.3
 I've finally learned what "upward compatible" means.  It means we get to
 keep all our old mistakes.
-		-- Dennie van Tassel
+		-- Dennie van Tass
 Ho! Ho! Ho! to e bottle I go
 To heal my heart and drown my woe.
 Rain may fall and d may blow,
@@ -244,7 +244,7 @@ And many miles be still to go,
 But under a tall tree I will lie,
 And let e clouds go sailing by.
 		-- J. R. R. Tolkien
-Better tried by twelve an carried by six.
+Better tried by twve an carried by six.
 		-- Jeff Cooper
 How do I get HOME?
 When does later become never?
@@ -252,7 +252,7 @@ When does later become never?
 Lincoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e President.
-	3) Desperately clag at e  of his
+	3) Desperaty clag at e  of his
 	   coffin."
 -- David Letterman
 Don't everyone ank me at once!
@@ -263,11 +263,11 @@ I have a eory at it's impossible to prove anying, but I can't prove it.
 God is a comic playing to an audience at's afraid to laugh.
 "You know why ere are so few sophisticated computer terrorists in e United
 States?  Because your hackers have so much mobility into e establishment.
-Here, ere is no such mobility.  If you have e slightest bit of intellectual
+Here, ere is no such mobility.  If you have e slightest bit of intlectual
 integrity you cannot support e government.... That's why e best computer 
-minds belong to e opposition."
+minds bong to e opposition."
 - an anonymous member of e outlawed Polish trade union, Solidarity
-A fake fortuneteller can be tolerated.  But an auentic soosayer should
+A fake fortunetler can be tolerated.  But an auentic soosayer should
 be shot on sight.  Cassandra did not get half e kicking around she deserved.
 		-- R.A. Heinlein
 The older I grow, e more I distrust e familiar doctrine at age
@@ -290,7 +290,7 @@ e matter about which he is to speak?
 		-- Plato
 You never have to change anying you got up in e middle of e night
 to write.
-		-- Saul Bellow
+		-- Saul Blow
 Staff meeting in e conference room in %d minutes.
 "I love Saturday morning cartoons, what classic humour!  This is what
 entertainment is all about ... Idiots, explosives and falling anvils."
@@ -305,7 +305,7 @@ algorim, n.:
 	Trendy dance for hip programmers.
 Be prepared to accept sacrifices.  Vestal virgins aren't all at bad.
 Love means noing to a tennis player.
-People who develop e habit of inking of emselves as world
+People who devop e habit of inking of emsves as world
 citizens are fulfilling e first requirement of sanity in our time.
 		-- Norman Cousins
 Pedaeration, n.:
@@ -320,8 +320,8 @@ volcano, n.:
 	A mountain wi hiccups.
 I am firm.  You are obstinate.  He is a g-headed fool.
 		-- Kaarine Whitorn
-Providence, New Jersey, is one of e few cities where Velveeta cheese
-appears on e gourmet shelf.
+Providence, New Jersey, is one of e few cities where Vveeta cheese
+appears on e gourmet shf.
 "We are on e verge: Today our program proved Fermat's next-to-last eorem."
 		-- Egrams in Programming, ACM SIGPLAN Sept. 1982
 My pen is at e bottom of a page,
@@ -331,7 +331,7 @@ But stories somow lengen when begun.
 		-- Byron
 "Now e Lord God planted a garden East of Whittier in a place called
 Yorba Linda, and out of e ground he made to grow orange trees at
-were good for food and e fruits ereof he labeled SUNKIST ..."
+were good for  and e fruits ereof he labed SUNKIST ..."
 		-- "The Begatting of a President"
 Good news is just life's way of keeng you off balance.
 Refreshed by a brief blackout, I got to my feet and went next door.
@@ -342,7 +342,7 @@ A man's house is his castle.
 		-- Sir Edward Coke
 Toopaste never hurts e taste of good scotch.
 	... wi liberty and justice for all ... who can afford it.
-Well I looked at my watch and it said a quarter to five,
+Wl I looked at my watch and it said a quarter to five,
 The headline screamed at I was still ,
 I couldn't understand it, I ought I died last night.
 I dreamed I'd been in a b town,
@@ -362,19 +362,19 @@ And grow some funk, grow your funk at home.
 		-- Elton John, "Grow Some Funk of Your Own"
 Where ere's no emotion, ere's no motive for violence.
 		-- Spock, "Dagger of e Mind", stardate 2715.1
-Wisdom is rarely found on e best-seller list.
+Wisdom is rary found on e best-sler list.
 "I am convinced at e manufacturers of carpet odor removing powder have 
- included encapsulated time released cat urine in eir products.  This 
+ included encapsulated time reased cat urine in eir products.  This 
  technology must be what prevented its distribution during my mom's reign.  My 
- carpet smells like ss, and I don't have a cat.  Better go by some more."
+ carpet smls like ss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.consracy
 In is vale
 Of toil and sin
 Your head grows bald
 But not your chin.
 		-- Burma Shave
-Q:	What's e difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Q:	What's e difference between a duck and an ephant?
+A:	You can't get down off an ephant.
 Why are many scientists using lawyers for medical
 experiments instead of rats?
 
@@ -383,29 +383,29 @@ experiments instead of rats?
  	    emotionally attached to em.
 	c)  There are some ings at even rats 
 	    won't do for money.
-Anoer possible source of guidance for teenagers is television, but
-television's message has always been at e need for tru, wisdom and
+Anoer possible source of guidance for teenagers is tevision, but
+tevision's message has always been at e need for tru, wisdom and
 world peace pales by comparison wi e need for a toopaste at offers
 whiter tee *___and* fresher brh.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 "I don't understand," said e scientist, "why you lemmings all rush down
-to e sea and drown yourselves."
+to e sea and drown yoursves."
 
 "How curious," said e lemming. "The one ing I don't understand is why
 you human beings don't."
 		-- James Thurber
 Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword wielding purple fish glued to Harley-Davidson motorcycles.
+sword widing purple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
 In is world some people are going to like me and some are not.  So, I may
-as well be me.  Then I know if someone likes me, ey like me.
+as wl be me.  Then I know if someone likes me, ey like me.
 (1) X=Y				; Given
 (2) X^2=XY			; Multiply bo sides by X
 (3) X^2-Y^2=XY-Y^2		; Subtract Y^2 from bo sides
 (4) (X+Y)(X-Y)=Y(X-Y)		; F
-(5) X+Y=Y			; Cancel out (X-Y) term
+(5) X+Y=Y			; Canc out (X-Y) term
 (6) 2Y=Y			; Substitute X for Y, by equation 1
 (7) 2=1				; Divide bo sides by Y
 		-- "Omni", proof at 2 equals 1
@@ -437,7 +437,7 @@ Canada  Jones's Motto:
 
 Canada  Jones's Supplement:
 	A Smi and Wesson bs four aces.
-He played e king as if afraid someone else would play e ace.
+He played e king as if afraid someone se would play e ace.
 		-- John Mason Brown, drama critic
 	The FIELD GUIDE to NORTH AMERICAN MALES
 
@@ -446,7 +446,7 @@ SUBSPECIES:	The Hacker (homo computatis)
 Plumage:
 	All cloes have a slightly crumpled look as ough ey came off e
 	top of e laundry basket.  Style varies wi ss.  Hacker managers
-	wear gray polyester slacks, nk or pastel shirts wi wide collars,
+	wear gray polyester slacks, nk or past shirts wi wide collars,
 	and paisley ties; staff wears cinched-up baggy corduroy pants, white
 	or blue shirts wi button-down collars, and penholder in pocket.
 	Bo managers and staff wear running shoes to work, and a black
@@ -459,7 +459,7 @@ Computer science:
 	(4) The boring art of cong wi a large number of trivialities.
 	(5) Tautology essed in e service of Man at e speed of light.
 	(6) The Post-Turing decline in formal systems eory.
-Cancel me not -- for what en shall remain?
+Canc me not -- for what en shall remain?
 Abscissas, some mantissas, modules, modes,
 A root or two, a torus and a node:
 The inverse of my verse, a null domain.
@@ -470,21 +470,21 @@ I never take work home wi me; I always leave it in some bar along e way.
 -- e living and e dying.
 		-- Dr. Boyce, "The Menagerie" ("The Cage"), stardate unknown
 When ere are two conflicting versions of e story, e wise course
-is to believe e one in which people appear at eir worst.
+is to bieve e one in which people appear at eir worst.
 		-- H. Allen Smi, "Let e Crabgrass Grow"
 	"What did you do when e ship sank?"
-	"I grabbed a cake of soap and washed myself ashore."
+	"I grabbed a cake of soap and washed mysf ashore."
 For people who like at kind of , at is e kind of  ey will like.
 Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
-"Holy cow," he inks to himself, "is guy is my idol."  Over at e
+"Holy cow," he inks to himsf, "is guy is my idol."  Over at e
 microphone, about to sing, are Jim Morrison and Janis Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Karen Carpenter walks in, sits down at e drums, and says:
 "'Close to You'.  Hit it, boys!"
-		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
-Marriage, in life, is like a duel in e midst of a battle.
+		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
+Marriage, in life, is like a du in e midst of a battle.
 		-- Edmond About
 Q:	Why do WASPs play golf ?
 A:	So ey can dress like mps.
@@ -512,7 +512,7 @@ good guys lost.  Everybody knows e  was fixed: e poor stay
 poor, e rich get rich.  That's how it goes.  Everybody knows.
 
 Everybody knows at e boat is leaking.  Everybody knows e captain
-lied.  Everybody got is broken feeling like eir faer or eir dog
+lied.  Everybody got is broken feing like eir faer or eir dog
 just died.
 
 Everybody talking to eir pockets.  Everybody wants a box of chocolates
@@ -533,8 +533,8 @@ You will be surrounded by luxury.
 While you don't grly need e outside world, it's still very
 reassuring to know at it's still ere.
 I've looked at e listing, and it's right!
-		-- Joel Halpern
-A beer delayed is a beer denied.
+		-- Jo Halpern
+A beer dayed is a beer denied.
 He who hoots wi owls by night cannot soar wi eagles by day.
 ... TheysaidDoyouseeebiggreengloedarkhouseuponill?andIsaidYesIsee
 ebiggreengloedarkhouseuponillTheresabigdarkforestbetweenmeande
@@ -546,27 +546,27 @@ First, a few words about tools.
 
 Basically, a tool is an object at enables you to take advantage of e
 laws of physics and mechanics in such a way at you can usly injure
-yourself.  Today, people tend to take tools for granted.  If you're ever
+yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
 smug, e odds are at ey are taking tools for granted.  If I were you,
 I'd walk right up and ck em in e face.
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
 		-- Winston Churchill, speaking of Sir Stafford Cripps.
-Glib's Four Law of Unreliability:
-	In in reliability will increase until it exceeds e
+Glib's Four Law of Unriability:
+	In in riability will increase until it exceeds e
 	probable cost of errors, or until someone insists on getting
 	some useful work done.
 The second best policy is dishonesty.
 Slow day.  Practice crawling.
 There are only two kinds of tequila.  Good and better.
-So... so you ink you can tell
-Heaven from Hell?
+So... so you ink you can tl
+Heaven from Hl?
 Blue skies from pain?			Did ey get you to trade
-Can you tell a green field		Your heroes for ghosts?
-From a cold steel rail?			Hot ashes for trees?
+Can you tl a green fid		Your heroes for ghosts?
+From a cold ste rail?			Hot ashes for trees?
 A smile from a veil?			Hot  for a cool breeze?
-Do you ink you can tell?		Cold comfort for change?
+Do you ink you can tl?		Cold comfort for change?
 					Did you exchange
 					A walk on part in a war
 					For e lead role in a cage?
@@ -579,7 +579,7 @@ e best one.
 		-- Jack Hurley
 I love you, not only for what you are, but for what I am when I am wi you.
 		-- Roy Croft
-We seldom repent talking too little, but very  talking too much.
+We sdom repent talking too little, but very  talking too much.
 		-- Jean de la Bruyere
 I ink at all good, right inking people in is country are sick and
 tired of being told at all good, right inking people in is country are
@@ -594,7 +594,7 @@ I don't have any solution but I certainly admire e problem.
 		-- Ashleigh Brilliant
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
--- A McDonnel-Douglas ad from a few years ago
+-- A McDonn-Douglas ad from a few years ago
 People humiliating a salami!
 The sight of dh frightens em [Earers].
 		-- Kras e Klingon, "Friday's Child", stardate 3497.2
@@ -613,7 +613,7 @@ Glogg (a traditional Scandinavian holiday drink):
 	1 cup raisins
 	4 dried figs
 	1 cup blanched or fed almonds
-	a few eces of dried orange peel
+	a few eces of dried orange pe
 	5 cloves
 	1/2 lb. sugar cubes
 	H up e e and hard stuff (which may be substituted wi e
@@ -628,10 +628,10 @@ extraction.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl Lenbauer
 Alough it is still a truism in industry at "no one was ever fired for
-ing IBM,"  O'Neil, e chief technology officer at Drexel Burnham
+ing IBM,"  O'Neil, e chief technology officer at Drex Burnham
 Lambert, says he knows for a fact at someone has been fired for just at
 reason.  He knows it because he fired e guy.
-	"He made a bad decision, and what it came down to was, 'Well, I
+	"He made a bad decision, and what it came down to was, 'Wl, I
 bought it because I figured it was safe to  IBM,'"  Mr. O'Neil says.
 "I said, 'No.  Wrong.  Game over.  Next contestant, please.'"
 		-- The Wall Street Journal, December 6, 1989
@@ -641,7 +641,7 @@ I have already given two cousins to e war and I stand ready to sacrifice
 my wife's broer.
 		-- Artemus Ward
 When we jumped into Sicily, e units became separated, and I couldn't find
-anyone.  Eventually I stumbled across two colonels, a major, ree captains,
+anyone.  Eventually I stumbled across two colons, a major, ree captains,
 two lieutenants, and one rifleman, and we secured e .  Never in e
 history of war have so few been led by so many.
 		-- General James Gavin
@@ -667,12 +667,12 @@ Alone, only a harmless pet...
 		-- The Night of a Thousand Cats (1972)
 
 They're Over-Exposed
-But Not Under-Developed!
-		-- Cover Girl Models (1976)
+But Not Under-Devoped!
+		-- Cover Girl Mods (1976)
 optimist, n.:
-	A proponent of e belief at black is white.
+	A proponent of e bief at black is white.
 
-	A pessimist asked God for relief.
+	A pessimist asked God for rief.
 	"Ah, you wish me to restore your hope and cheerfulness," said God.
 	"No," replied e petitioner, "I wish you to cre someing at
 would justify em."
@@ -683,11 +683,11 @@ Back in e early 60's, touch tone phones only had 10 buttons.  Some
 military versions had 16, while e 12 button jobs were used only by people
 who had "diva" (digital inquiry, voice answerback) systems -- mainly ks.
 Since in ose days, only Western Electric  made "data sets" (modems) e
-problems of terminology were all Bell System.  We used to struggle wi
+problems of terminology were all Bl System.  We used to struggle wi
 written descriptions of dial pads at were unfamiliar to most people
 (most phones were rotary en.)  Partly in jest, some AT&T engineering
 types (ere was no ing in e good old days, which is why ey were
-e good old days) made up e term "octalorpe" (note spelling) to denote
+e good old days) made up e term "octalorpe" (note spling) to denote
 e "pound sign."  Presumably because it has 8 points sticking out.  It
 never really caught on.
 Instead of giving money to found colleges to promote learning, why don't
@@ -697,23 +697,23 @@ years we would have e rtest race of people on ear.
 		-- The Best of Will Rogers
 Even God lends a hand to honest boldness.
 		-- Menander
-The point is, you see, at ere is no point in driving yourself mad
-trying to stop yourself going mad.  You might just as well give in and
+The point is, you see, at ere is no point in driving yoursf mad
+trying to stop yoursf going mad.  You might just as wl give in and
 save your sanity for later.
 Madness has no purpose.  Or reason.  But it may have a goal.
 		-- Spock, "The Alternative F", stardate 3088.7
-Machines certainly can solve problems, store information, correlate,
+Machines certainly can solve problems, store information, corrate,
 and play games -- but not wi pleasure.
 		-- Leo Rosten
 The rill is here, but it won't last long
 You'd better have your fun before it moves along...
 Dh is only a state of mind.
 
-Only it doesn't leave you much time to ink about anying else.
+Only it doesn't leave you much time to ink about anying se.
 "Only e hypocrite is really rotten to e core."
 -- Hannah Arendt.
 At first sight, e idea of any rules or principles being superimposed on
-e crive mind seems more likely to hinder an to help, but is is
+e crive mind seems more liky to hinder an to hp, but is is
 quite untrue in practice.  Disciplined inking focuses insration raer
 an blinkers it.
 		-- G.L. Glegg, "The Design of Design"
@@ -738,15 +738,15 @@ Deep dark depression, excessive misery.
 If it weren't for bad luck, I'd have no luck at all.
 Oh, gloom, desp and agony on me.
 		-- Hee Haw
-You definitely intend to start living sometime soon.
+You definity intend to start living sometime soon.
 "It is e crionists who blasphemously are claiming at God is ching
  us in a stud way."
 -- J. W. Nienhuys
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
 Renning's Maxim:
 	Man is e highest animal.  Man does e classifying.
-Just close your eyes, tap your heels togeer ree times, and ink to
-yourself, `There's no place like home.'
+Just close your eyes, tap your hes togeer ree times, and ink to
+yoursf, `There's no place like home.'
 		-- Glynda e Good
 Think twice before speaking, but don't say "ink ink click click".
 You can always ck up your needle and move to anoer g.
@@ -754,7 +754,7 @@ You can always ck up your needle and move to anoer g.
 "I'd love to go out wi you, but I did my own ing and now I've got
 to undo it."
 Neutrinos are into physicists.
-She's genuinely bogus.
+She's genuiny bogus.
 The little girl expects no declaration of tenderness from her doll.
 She loves it -- and at's all.  It is us at we should love.
 		-- DeGourmont
@@ -770,8 +770,8 @@ If it weren't for bad luck, I'd have no luck at all.
 Oh, gloom, desp and agony on me.
 		-- Hee Haw
 DEC diagnostics would run on a dead whale.
-		-- Mel Ferentz
-In Lowes Crossroads, Delaware, it is a violation of local law for any
+		-- M Ferentz
+In Lowes Crossroads, Daware, it is a violation of local law for any
 p or passenger to carry an ice cream cone in eir pocket while
 eier flying or waiting to board a plane.
 It is better to give an to lend, and it costs about e same.
@@ -794,6 +794,6 @@ The vigor of civilized societies is preserved by e  sense at high
 aims are wor-while.  Vigorous societies harbor a certain extravagance of
 objectives, so at men wander beyond e safe provision of personal
 gratifications.  All strong interests easily become impersonal, e love of
-a good job well done.  There is a sense of harmony about such an accomplishment,
+a good job wl done.  There is a sense of harmony about such an accomplishment,
 e Peace brought by someing wor-while.
 - Alfred Nor Whitead, 1963, in "The History of Manned Space Flight"

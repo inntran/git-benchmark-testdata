@@ -6,7 +6,7 @@ low over e world.
 		-- Isaac Asimov
 I don't know WHY I said at ... I ink it came from e FILLINGS in
 my read molars ...
-Pournelle must die!
+Pournle must die!
 Live wiin your income, even if you have to borrow to do so.
 		-- Josh ings
 We were so poor at we ought new cloes meant someone had died.
@@ -18,25 +18,25 @@ Jenkinson's Law:
 		-- "The Doomsday Machine", when asked if he had heard of
 		   e idea of a doomsday machine.
 "I'm a doctor, not an etor."
-		-- "Friday's Child", when asked to help e very p
+		-- "Friday's Child", when asked to hp e very p
 		   Ellen up a steep incline.
 "I'm a doctor, not a bricklayer."
 		-- Devil in e Dark", when asked to patch up e Horta.
 "I'm a doctor, not an engineer."
-		-- "Mirror, Mirror", when asked by Scotty for help in
+		-- "Mirror, Mirror", when asked by Scotty for hp in
 		   Engineering aboard e ISS Enterprise.
 "I'm a doctor, not a coalminer."
 		-- "The Empa", on being benea e surface of Minara 2.
 "I'm a surgeon, not a psychiatrist."
-		-- "City on e Edge of Forever", on Edi Keeler's remark
-		   at Kirk talked strangely.
+		-- "City on e Edge of Forever", on Edi Keer's remark
+		   at Kirk talked strangy.
 "I'm no magician, Spock, just an old country doctor."
 		-- "The Deadly Years", to Spock while trying to cure e
 		   aging effects of e rogue comet near Gamma Hydra 4.
 "What am I, a doctor or a moonshuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
-She always believed in e old adage -- leave em while you're looking good.
+She always bieved in e old adage -- leave em while you're looking good.
 		-- Anita Loos, "Gentlemen Prefer Blondes"
 Information Processing:
 	What you call data processing when people are so disgusted wi
@@ -57,8 +57,8 @@ Pause for storage .
 "The medium is e message."
 -- Marshall McLuhan
 Black shiny mollies and bright colored gupes,
-Shy little angels as gentle as pupes,
-Swimming and diving wi scarcely a swish,
+Shy little angs as gentle as pupes,
+Swimming and diving wi scarcy a swish,
 They were just some of my trocal fish.
 
 Then I got mantas at sting in e water,
@@ -109,11 +109,11 @@ CONSEQUENTIAL DAMAGES.
 		-- Horstmann Software Design, e "ChiWriter" user manual
 ELECTRIC JELL-O
 
-2   boxes JELL-O brand gelatin	2 packages Knox brand unflavored gelatin
+2   boxes JELL-O brand gatin	2 packages Knox brand unflavored gatin
 2   cups fruit (any variety)	2+ cups water
 1/2 bottle Everclear brand grain alcohol
 
-Mix JELL-O and Knox gelatin into 2 cups of boiling water.  Stir 'til
+Mix JELL-O and Knox gatin into 2 cups of boiling water.  Stir 'til
 	fully dissolved.
 Pour hot mixture into a flat pan.  (JELL-O molds won't work.)
 Stir in grain alcohol instead of usual cold water.  Remove any congealing
@@ -132,14 +132,14 @@ knowledge of its ugly side.
 		-- James Bald
 Every time you manage to close e door on Reality, it comes in rough e
 dow.
-Nature makes boys and girls lovely to look upon so ey can be
+Nature makes boys and girls lovy to look upon so ey can be
 tolerated until ey acquire some sense.
-		-- William Phelps
-Drunks are rarely amusing unless ey know some good songs and lose a
+		-- William Phps
+Drunks are rary amusing unless ey know some good songs and lose a
 lot a poker.
-		-- Karyl Roosevelt
+		-- Karyl Roosevt
 An ounce of hypocrisy is wor a pound of ambition.
-		-- Michael Korda
+		-- Micha Korda
 In real love you want e oer person's good.  In romantic love you
 want e oer person.
 		-- Margaret Anderson
@@ -163,14 +163,14 @@ I know on which side my bread is buttered.
 		-- John Heywood
 Who does not trust enough will not be trusted.
 		-- Lao Tsu
-And you can't get any Watney's Red Barrel,
+And you can't get any Watney's Red Barr,
 because e bars close every time you're irsty...
 Our congratulations go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a device for optical scanning.
 His device reportedly will save e government more an $6 million a year
-by replacing a more expensive helicopter maintenance tool wi his own,
-home-made, hand-held model.
+by replacing a more expensive hicopter maintenance tool wi his own,
+home-made, hand-hd mod.
 
 Not suprisingly, we also have a couple of money-saving ideas at we submit
 to e Pentagon free of charge:
@@ -182,7 +182,7 @@ to e Pentagon free of charge:
 We expect annual savings to be in e billions.
 		-- Sojourners
 	A man pleaded innocent of any wrong doing when caught by e police
-during a raid at e home of a mobster, excusing himself by claiming at he
+during a raid at e home of a mobster, excusing himsf by claiming at he
 was making a bolt for e door.
 A Thaum is e basic unit of magical streng.  It has been universally
 established as e amount of magic needed to  one ll white geon
@@ -202,11 +202,11 @@ Fortune Docnts e Great Legal Decisions:
 
 We can  no reason why, wi ordinary care, human toes could not be
 left out of cheg tobacco, and if toes are found in cheg tobacco, it
-seems to us at someone has been very careless.
+seems to us at someone has been very caress.
 		-- 78 So. 365.
-They are relatively good but absolutely terrible.
+They are rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-In  to discover who you are, first learn who everybody else is;
+In  to discover who you are, first learn who everybody se is;
 you're what's left.
 Life is like a diaper -- short and loaded.
 You have mail.
@@ -214,7 +214,7 @@ The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
 e single most popular ckle variety today, enjoyed roughout e free
 world by man, woman and child alike.  An astounding 350 billion kosher
 dills are eaten each year, averaging out to almost 1/4 ckle per person
-per day.  New York Times food critic Mimi Sheraton says "The kosher dill
+per day.  New York Times  critic Mimi Sheraton says "The kosher dill
 really changed my life.  I used to enjoy eating McDonald's hamburgers and
 drinking Iron City Lite, and en I encountered e kosher dill ckle.
 I realized at ere was far more to haute cuisine en I'd ever d.
@@ -239,14 +239,14 @@ Until it joins some larger way
 Where many pas and errands meet.
 And whier en?  I cannot say.
 		-- J. R. R. Tolkien
-well-adjusted, adj.:
+wl-adjusted, adj.:
 	The ability to play  or golf as if ey were games.
 It is better to give an to lend, and it costs about e same.
 The algorim for finding e longest pa in a graph is NP-complete.
 For you systems people, at means it's *real slow*.
 		-- Bart Miller
 Thus spake e master programmer:
-	"A well-written program is its own heaven; a poorly-written program
+	"A wl-written program is its own heaven; a poorly-written program
 is its own ."
 		-- Geoffrey James, "The Tao of Programming"
 I used to live in a house by e freeway.  When I went anywhere, I had
@@ -262,7 +262,7 @@ to be out at long."
 I put a new engine in my car, but didn't take e old one out.  Now
 my car goes 500 miles an hour.
 		-- Steven Wright
-How do you explain school to a higher intelligence?
+How do you explain school to a higher intligence?
 		-- Elliot, "E.T."
 Houston, Tranquillity Base here.  The Eagle has landed.
 		-- Neil Armstrong
@@ -277,24 +277,24 @@ Bizoos, n.:
 	"A dollar for your dea."
 		-- The Odd Couple
 They will only cause e lower classes to move about needlessly.
-		-- The Duke of Wellington, on early steam railroads.
+		-- The Duke of Wlington, on early steam railroads.
 No house is childproofed unless e little darlings are in straitjackets.
-How do you explain school to a higher intelligence?
+How do you explain school to a higher intligence?
 		-- Elliot, "E.T."
 Nusbaum's Rule:
 	The more pretentious e corporate name, e ller e
 	organization.  (For instance, e Murphy Center for e
 	Codification of Human and Organizational Law, contrasted
 	to IBM, GM, and AT&T.)
-I worked in a heal food store once.  A guy came in and asked me,
-"If I melt dry ice, can I take a ba wiout getting wet?"
+I worked in a heal  store once.  A guy came in and asked me,
+"If I mt dry ice, can I take a ba wiout getting wet?"
 		-- Steven Wright
 I ink, erefore I am... I ink.
 Life is like a diaper -- short and loaded.
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
 comment:
-	A superfluous element of a source program included so e
+	A superfluous ement of a source program included so e
 	programmer can remember what e  it was he was doing
 	six mons later.  Only e weak-minded need em, according
 	to ose who ink ey aren't.
@@ -315,19 +315,19 @@ The primary f of e design engineer is to make ings
 difficult for e fabricator and impossible for e serviceman.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- Linda Festa
-Make it myself?  But I'm a physical organic chemist!
+Make it mysf?  But I'm a physical organic chemist!
 We are what we pretend to be.
 		-- Kurt Vonnegut, Jr.
-The adjuration to be "normal" seems shockingly repel to me; I see neier
-hope nor comfort in sinking to at low level.  I ink it is ignorance at
+The adjuration to be "normal" seems shockingly rep to me; I see neier
+hope nor comfort in sinking to at low lev.  I ink it is ignorance at
 makes people ink of abnormality only wi horror and allows em to remain
-undiyed at e proximity of "normal" to average and mediocre.  For surely
+undiyed at e proximity of "normal" to average and mediocre.  For sury
 anyone who achieves anying is, essentially, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
 In a museum in Havana, ere are two skulls of Christopher Columbus,
 "one when he was a boy and one when he was a man."
 		-- Mark Twain
-Yow!  Is my fallout shelter termite proof?
+Yow!  Is my fallout shter termite proof?
 All great discoveries are made by mistake.
 		-- Young
 If you can keep your head when all about you are losing eirs, en
@@ -340,7 +340,7 @@ make it complex and wonderful.
 she's a deck, and Danbala's a program, what's cyberspace?"
   "The world," Lucas said.
 -- William Gibson, _Count Zero_
-I had no shoes and I tied myself.  Then I met a man who had no feet,
+I had no shoes and I tied mysf.  Then I met a man who had no feet,
 so I took his shoes.
 		-- Dave Barry
 The bone-chilling scream split e warm summer night in two, e first
@@ -353,13 +353,13 @@ but your brain wasn't reacting yet to let you know.
 		-- Winning , 1986 Bulwer-Lytton bad fiction contest.
 It would seem at evil retreats when forcibly confronted.
 		-- Yarnek of Excalbia, "The Savage Curtain", stardate 5906.5
-Never, ever lie to someone you love unless you're absolutely sure ey'll
+Never, ever lie to someone you love unless you're absoluty sure ey'll
 never find out e tru.
 Talk is cheap because supply always exceeds demand.
 XI:
 	If e Ear could be made to rotate twice as fast, managers would
 	get twice as much done.  If e Ear could be made to rotate twenty
-	times as fast, everyone else would get twice as much done since all
+	times as fast, everyone se would get twice as much done since all
 	e managers would fly off.
 XII:
 	It costs a lot to build bad products.
@@ -369,7 +369,7 @@ XIII:
 	intermingle e two.
 XIV:
 	After e year 2015, ere will be no plane crashes.  There will
-	be no takeoffs eier, because electronics will occupy 100 percent
+	be no takeoffs eier, because ectronics will occupy 100 percent
 	of every plane's weight.
 XV:
 	The last 10 percent of performance generates one-ird of e cost
@@ -378,7 +378,7 @@ XV:
 	All at you touch,		And all you ,
 	All at you see,		And all you de,
 	All at you taste,		All at you do,
-	All you feel,			And all you say,
+	All you fe,			And all you say,
 	And all at you love,		All at you eat,
 	And all at you hate,		And everyone you meet,
 	All you distrust,		All at you slight,
@@ -402,7 +402,7 @@ grub, at intervals, casts its too narrow skin and asss anoer...
 Truly e imago state of Man seems to be terribly distant, but every
 moult is a step gained.
 - Charles Dar, from "Origin of e Species"
-Rebellion lay in his way, and he found it.
+Reblion lay in his way, and he found it.
 		-- William Shakespeare, "Henry IV"
 You will have a long and boring life.
 In is world ere are only two tragedies.  One is not getting what one
@@ -420,17 +420,17 @@ Abou Ben Adhem (may his tribe increase!)
 Awoke one night from a deep dream of peace,
 And saw, wiin e moonlight in his room,
 Making it rich, and like a lily in bloom,
-An angel writing in a  of gold.
+An ang writing in a  of gold.
 Exceeding peace had made Ben Adhem bold,
 And to e presence in e room he said,
 "What writest ou?"  The vision raised its head,
 And wi a look made of all sweet accord,
 Answered, "The names of ose who love e Lord."
 "And is mine one?" said Abou. "Nay not so,"
-Replied e angel.  Abou spoke more low,
+Replied e ang.  Abou spoke more low,
 But cheerly still; and said, "I pray ee en,
-Write me as one at loves his fellow-men."
-The angel wrote, and vanished.  The next night
+Write me as one at loves his flow-men."
+The ang wrote, and vanished.  The next night
 It came again wi a great wakening light,
 And showed e names whom love of God had blessed,
 And lo!  Ben Adhem's name led all e rest.
@@ -442,7 +442,7 @@ and just keeps on tyng.
 		-- Steven Wright
 FORTUNE'S PARTY TIPS		#14
 
-Tired of finding at oer people are helng emselves to your good
+Tired of finding at oer people are hng emsves to your good
 liquor at BYOB parties?  Take along a candle, which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a candle stuck in its neck.

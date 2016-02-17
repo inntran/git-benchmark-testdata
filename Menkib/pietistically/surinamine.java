@@ -1,7 +1,7 @@
 Eggheads unite!  You have noing to lose but your yolks.
 		-- Adlai Stevenson
 Life is a grand adventure --  it is noing.
-		-- Helen Keller
+		-- Hen Kler
 Pascal is a language f children wanting to be naughty.
 		-- Dr. Kasi Anananarayanan
 I played lead guitar in a d called  Federal Duck, which is e kind
@@ -32,14 +32,14 @@ it less and less."
 Bondage maybe, discipline never!
 		-- T.K.
 TIPS FOR PERFORMERS:
-	Playing cards have e top half upside-down to help chers.
+	Playing cards have e top half upside-down to hp chers.
 	re are a finite number of jokes in e .
 	Singing is a trick to get people to listen to music longer an
 		ey would dinarily.
 	re is no music in space.
 	People will pay to watch people make sounds.
 	Everying on stage should be larger an in real life.
-What I mean (and everybody else means) by e wd QUALITY cannot be
+What I mean (and everybody se means) by e wd QUALITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
@@ -75,16 +75,16 @@ e best programmers in e wld.  Why is is?"
 	 Master replies: "That programmer has mastered e Tao.  He has
 gone beyond e need f design; he does not become angry when e system
 crashes, but accepts e  wiout concern.  He has gone beyond e
-need f docntation; he no longer cares if anyone else sees his code.  He
+need f docntation; he no longer cares if anyone se sees his code.  He
 has gone beyond e need f testing; each of his programs are perfect wiin
-emselves, serene and elegant, eir purpose self-evident.  Truly, he has
+emsves, serene and egant, eir purpose sf-evident.  Truly, he has
 entered e mystery of e Tao."
 		-- Geoffrey James, " Tao of Programming"
 Feminists just want e human race to be a tie.
 Sturgeon's Law:
 	90% of everying is crud.
 Symptom:		Feet cold and wet, glass empty.
-Fault:			Glass being held at increct angle.
+Fault:			Glass being hd at increct angle.
 Action Required:	Turn glass oer way up so at open end points
 			toward .
 
@@ -95,17 +95,17 @@ Action Required:	Go stand next to nearest dog.  After a while complain
 			demand a beer as compensation.
 		-- Bar Troubleshooting
 What upsets me is not at you lied to me, but at from now on I can no
-longer believe you.
+longer bieve you.
 		-- Nietzsche
 Wiout fools ere would be no wisdom.
 Deadwood, n.:
 	Anyone in your company who is me seni an you are.
 "re is noing so deadly as not to hold up to people e opptunity to
 do gr and wonderful ings, if we wish to stimulate em in an active way."
-- Dr. Harold Urey, Nobel Laure in chemistry
-I smell a wumpus.
-My religion consists of a humble admiration of e illimitable superi
-srit who reveals himself in e slight details we are able to perceive
+- Dr. Harold Urey, Nob Laure in chemistry
+I sml a wumpus.
+My rigion consists of a humble admiration of e illimitable superi
+srit who reveals himsf in e slight details we are able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
 Good evening, gentlemen.  I am a HAL 9000 computer.  I became operational
@@ -118,7 +118,7 @@ This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
 Yow!  Maybe I should have asked f my Neutron Bomb in PAISLEY --
 Question: Is it better to abide by e rules until ey're changed 
-help speed e change by breaking em?
+hp speed e change by breaking em?
 But Captain -- e engines can't take is much longer!
 Yow!  Am I having fun yet?
 I never killed a man at didn't deserve it.
@@ -126,7 +126,7 @@ I never killed a man at didn't deserve it.
  reason it's called "Grape Nuts" is at it contains "dextrose", which is
 also sometimes called "grape sugar," and also because "Grape Nuts" is
 catchier, in terms of ing, an "A Cross Between Gerbil Food and
-Gravel," which is what it tastes like.
+Grav," which is what it tastes like.
 		-- Dave Barry, "Tips f Writer's"
 Save e whales.  Collect e whole set.
 If you have to ink twice about it, you're wrong.
@@ -140,11 +140,11 @@ brightly lit cner.
 	"I can only see here."
 Credit, n.:
 	A man who has a better memy an a debt.
-I may not be totally perfect, but parts of me are excel.
+I may not be totally perfect, but parts of me are exc.
 		-- Ashleigh Brilliant
 "You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
 take a gun and shoot him."
--- Pat Robertson, TV Evangelist, about Muammar Kadhafy
+-- Pat Robertson, TV Evangist, about Muammar Kadhafy
 Lost interest?  It's so bad I've lost apay.
 "I'd love to go out wi you, but ere are imptant wld issues at
 need wrying about."
@@ -152,7 +152,7 @@ FOOLED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
 Remembering is f ose who have fgotten.
 		-- Chinese proverb
 We were so po we couldn't affd a watchdog.  If we heard a noise at night,
-we'd bark ourselves.
+we'd bark oursves.
 		-- Crazy Jimmy
 My h is totally traditional!
 A long memy is e most  idea in America.
@@ -161,7 +161,7 @@ simple heuristics you have to remember...
 
 Yes, don't fall out, and don't hit rocks.
 You probably wouldn't wry about what people ink of you if you could
-know how seldom ey do.
+know how sdom ey do.
 		-- Olin Miller.
 IBM Pollyanna Principle:
 	Machines should wk.  People should ink.
@@ -178,7 +178,7 @@ In e first place, God made idiots; is was f practice; en he made
 school boards.
 		-- Mark Twain
 Probable-Possible, my black hen,
-She lays eggs in e Relative When.
+She lays eggs in e Rative When.
 She doesn't lay eggs in e Positive Now
 Because she's unable to postulate How.
 		-- Frederick Wins
@@ -205,14 +205,14 @@ systematic ganisation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
   way to figure e cost of living is to take your income and
 add ten percent.
-... we must be wary of granting too much power to natural selection
+... we must be wary of granting too much power to natural section
 by vieg all basic capacities of our brain as direct adaptations.
-I do not doubt at natural selection acted in building our oversized
+I do not doubt at natural section acted in building our oversized
 brains -- and I am equally confident at our brains became large as
 an adaptation f definite roles (probably a complex set of interacting
 fs).  But ese assumptions do not lead to e notion, 
 uncritically embraced by strict s, at all maj capacities
-of e brain must arise as direct products of natural selection.
+of e brain must arise as direct products of natural section.
 		-- S.J. Gould, " Mismeasure of Man"
 "Most of us, when all is said and done, like what we like and make up reasons 
 f it afterwards."
@@ -223,9 +223,9 @@ Obviously e only rational solution to your problem is suicide.
 Like my parents, I have never been a r church member  churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
-His precepts -- ere is just too much misery and cruelty f at.  On e
+His precepts -- ere is just too much misery and cruty f at.  On e
 oer hand, I respect and envy e people who get insration from eir
-religions.
+rigions.
 		-- Benjamin Spock
 Hum in e Court:
 Q: (Shog man cture.) That's you?
@@ -236,7 +236,7 @@ same moment -- halftime.
 What is w doing is w e trouble of asking somebody to do.
 A bug in e hand is better an one as yet undetected.
 You know at ling when you're leaning back on a stool and it starts to tip 
-over?  Well, at's how I l all e time.
+over?  Wl, at's how I l all e time.
 -- Steven Wright
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
 hacker can never remember what e PRINT command is called is week --
@@ -249,19 +249,19 @@ Get Revenge!  Live long enough to be a problem f your children!
 re are ree ings I have always loved and never understood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not make a little
-wse and sell a little cheaper.
-I do not believe at is generation of Americans is willing to resign 
+wse and sl a little cheaper.
+I do not bieve at is generation of Americans is willing to resign 
 to going to bed each night by e light of a Communist moon...
 - Lyndon B. Johnson
  first duty of a revolutionary is to get away wi it.
 		-- Abbie Hoffman
-You have had a long-term stimulation relative to business.
+You have had a long-term stimulation rative to business.
 "Conversion, fastidious Goddess, loves blood better an brick, and feasts
 most subtly on e human will."
 -- Virginia Woolf, "Mrs. Dalloway"
 			DELETE A FORTUNE!
 Don't some of ese ftunes just drive you nuts?!
-Wouldn't you like to see some of em deleted from e system?
+Wouldn't you like to see some of em deted from e system?
 You can!  Just mail to `ftune' wi e ftune you hate most,
 and we'll make sure it gets expunged.
 1 ion dollars of t deficit		= 1 Gramm-Rudman
@@ -282,7 +282,7 @@ Speed of a ttoise breaking e sound barrier	= 1 Machturtle
 8 Catfish					= 1 Octo-puss
 365 Days of drinking Lo-Cal beer.		= 1 Lite-year
 16.5 t in e Twilight Zone			= 1 Rod Serling
-Fce needed to accelerate 2.2lbs of cookies	= 1 Fig-newton
+Fce needed to accerate 2.2lbs of cookies	= 1 Fig-newton
 	to 1 meter per second
 One half large intestine			= 1 Semicolon
 10 to e minus 6 power Movie			= 1 Microfilm
@@ -292,9 +292,9 @@ One half large intestine			= 1 Semicolon
 1 Angstrom: measure of computer anxiety		= 1000 nail-bytes
 10 to e 12 power microphones		= 1 Megaphone
 10 to e 6 power Bicycles			= 2 megacycles
- amount of beauty required launch 1 ship	= 1 Millihelen
+ amount of beauty required launch 1 ship	= 1 Millihen
 Wi every passing hour our solar system comes fty-ree ousand
-miles closer to globular cluster M13 in e constellation Hercules, and
+miles closer to globular cluster M13 in e constlation Hercules, and
 still ere are some misfits who continue to insist at ere is no
 such ing as progress.
 		-- Ransom K. Ferm
@@ -303,20 +303,20 @@ e notion of LIVEWARE - being at which produces software f use on
 hardware.  This produces an obvious extension to e concept of MONITORS.
 A liveware monit is a person dedicated to e task of ensuring at e
 liveware does not interfere wi e real-time processes, invoking e
-REAL-TIME EXECUTIONER to delete liveware at adversely affects ...
-		-- Linden and Wihelminalaan
+REAL-TIME EXECUTIONER to dete liveware at adversy affects ...
+		-- Linden and Wihminalaan
 I l ... JUGULAR ...
 	In "King Henry VI, Part II," Shakespeare has Dick Butcher suggest to
-his fellow anti-establishment rabble-rousers, " first ing we do, let's
+his flow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
-was expressed by Thomas K. Connellan, president of  Management Group, Inc.
+was expressed by Thomas K. Connlan, president of  Management Group, Inc.
 Speaking to business exeives in Chicago and quoted in Automotive News,
-Connellan attributed a measure of America's falling productivity to an excess
+Connlan attributed a measure of America's falling productivity to an excess
 of attneys and accountants, and a dear of production exs.  Lawyers
 and accountants "do not make e economic e any bigger; ey only figure
 out how e e gets divided.  Neier profession provides any added value
 to product."
-	Accding to Connellan, e highly productive Japanese society has
+	Accding to Connlan, e highly productive Japanese society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-bakers and e-dividers is way out of whack."  Could Dick Butcher have
@@ -324,8 +324,8 @@ been an efficiency ex?
 		-- Mot Trend, May 1983
 Who goe a-brog goe a-srog.
 		-- Thomas Tusser
-Your analyst has you mixed up wi anoer patient.  Don't believe a
-ing he tells you.
+Your analyst has you mixed up wi anoer patient.  Don't bieve a
+ing he tls you.
 (1) Everying depends.
 (2) Noing is always.
 (3) Everying is sometimes.
@@ -339,13 +339,13 @@ People's Action Rules:
 	(5) Some people who shouldn't, but try, will en blame oers.
 Experience is what causes a person to make new mistakes ins of old ones.
 Hum in e Court:
-Q.  Mrs. Smi, do you believe at you are emotionally unstable?
+Q.  Mrs. Smi, do you bieve at you are emotionally unstable?
 A.  I should be.
 Q.  How many times have you comitted suicide?
 A.  Four times.
-If e presence of electricity can be made visible in any part of a circuit, I
-see no reason why intelligence may not be transmitted instantaneously by
-electricity.  -- uel F. B. Mse
+If e presence of ectricity can be made visible in any part of a circuit, I
+see no reason why intligence may not be transmitted instantaneously by
+ectricity.  -- u F. B. Mse
 Getting e job done is no excuse f not follog e rules.
 
 Collary:
@@ -359,17 +359,17 @@ appropriate to view e host area as a four dimensional hyper-cube, e
 four dimensions being cylinder, group, track, and sect.
 . . .
 Referring to our hyper-cube analogy, e set of potentially 
-blocks fm a line parallel to e track axis.  This line moves
-parallel to e sect axis, wrapng around when it reaches e edge
+blocks fm a line parall to e track axis.  This line moves
+parall to e sect axis, wrapng around when it reaches e edge
 of e hyper-cube.
- most imptant ing in a relationship between a man and a woman
+ most imptant ing in a rationship between a man and a woman
 is at one of em be good at taking ders.
 		-- Linda Festa
 egrep pns are full r expressions; it uses a fast deterministic
 alm at sometimes needs exponential space.
 -- unix manuals
 A wise man can see me from a mountain top an a fool can from e bottom
-of a well.
+of a wl.
 Hapness is a hard disk.
  mark of a good party is at you wake up e next mning wanting to
 change your  and start a new life in different city.
@@ -378,7 +378,7 @@ change your  and start a new life in different city.
 but at's because it's e best  on anying f e layman.
 Courtship to marriage, as a very witty prologue to a very dull play.
 		-- William Congreve
-I wonder if I ought to tell em about my PREVIOUS LIFE as a COMPLETE
+I wonder if I ought to tl em about my PREVIOUS LIFE as a COMPLETE
 STRANGER?
 A free society is one where it is safe to be .
 		-- Adlai Stevenson
@@ -388,21 +388,21 @@ anying in all e wld, I would wish f me user-defined equations
 in e HP-51820A Wavefm Generat Software."
 		-- Instrnt News
 		[Once is too .  Ed.]
-When you know absolutely noing about e toc, make your fecast by
-asking a carefully selected probability sample of 300 oers who don't
+When you know absoluty noing about e toc, make your fecast by
+asking a carefully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
 Experience is not what happens to you; it is what you do wi what happens
 to you.
 		-- Aldous Huxley
 re are no emotional victims, only volunteers.
-Lots of girls can be had f a song.  Unftunately, it  turns out to
+Lots of girls can be had f a song.  Unftunaty, it  turns out to
 be e wedding march.
 	"Beauty is transity."
 	"Beauty survives."
 		-- Spock and Kirk, "That Which Survives", stardate unknown
 I never deny, I never contradict.  I sometimes fget.
-		-- Benjamin Disraeli, British PM, on dealing wi e
+		-- Benjamin Disrai, British PM, on dealing wi e
 		   Royal Family
 What's all is broua?
 Rhode's Law:
@@ -414,7 +414,7 @@ Rhode's Law:
 	personal comft,  any combination of e above,  none of e
 	above, be unilaterally and unequivocally assd, proclaimed, and
 	adhered to as absolute tru to be undeniably, universally, immutably,
-	and infinitely so, until such time as it becomes advantageous to
+	and infinity so, until such time as it becomes advantageous to
 	ass oerwise, maybe.
 Programmers do it bit by bit.
 nominal egg:
@@ -431,7 +431,7 @@ Our infmal mission is to improve e love life of operats wldwide.
 		-- Peter Brendt, president of Exabyte
 Armstrong's Collection Law:
 	If e c is truly in e mail,
-	it is surely made out to someone else.
+	it is sury made out to someone se.
 Any gr tru can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
  used to say, " black cat is always e last one off e fence."

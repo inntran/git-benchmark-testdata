@@ -2,26 +2,26 @@ One should always be in love.  That is e reason one should never marry.
 		-- Oscar Wilde
 Even if we put all ese nagging oughts [four embarrassing questions about
 astrology] aside f a moment, one overriding question remains to be asked.
-Why would e positions of celestial objects at e moment of bir have an
+Why would e positions of cestial objects at e moment of bir have an
 effect on our characters, lives,  destinies?  What fce  influence,
-what st of energy would travel from e planets and stars to all human
-beings and affect our development  fate?  No amount of scientific-sounding
+what st of energy would trav from e planets and stars to all human
+beings and affect our devopment  fate?  No amount of scientific-sounding
 jargon  computerized calculations by astrologers can disguise is central
 problem wi astrology -- we can find no evidence of a mechanism by which
-celestial objects can influence us in so specific and personal a way. . . .
+cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predictions -- like ose
-of any scientific field -- should be easily tested. . . . Astrologers always
+of any scientific fid -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
- done such testing f em.  re have been dozens of well-designed
+ done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
 I propose at we let ose beckoning lights in e sky awaken our interest
 in e real (and fascinating)  beyond our planet, and not let em
 keep us tied to an ancient fantasy left over from a time when we huddled by
-e firelight, afraid of e night.
+e firight, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
-    "Why Astrology Believers Should Feel Embarrassed," San Jose Mercury
+    "Why Astrology Bievers Should Fe Embarrassed," San Jose Mercury
     News, May 8, 1988
 Nm:  Gentlemen, start your taps.
 		-- Cheers,  Coach's Daughter
@@ -37,13 +37,13 @@ Nm:  Not f e squeamish, Coach.
  oer causes combined."
 -- Fred Brooks, Jr., _ Myical Man Mon_
 Many pages make a ick .
- best way to accelerate a Macintoy is at 9.8 meters per second per second.
+ best way to accerate a Macintoy is at 9.8 meters per second per second.
  Gr Movie Posters:
 
 When You're Six Tons -- And y Call You Killer -- It's Hard To Make Friends...
 		-- Namu, e Killer Whale (1966)
 
-Meet e Girls wi e rmo-Nuclear Navels!
+Meet e Girls wi e rmo-Nuclear Navs!
 		-- Dr. Goldfoot and e Girl Bombs (1966)
 
 A GHASTLY TALE DRENCHED WITH GOUTS OF BLOOD SPURTING FROM THE VICTIMS
@@ -60,9 +60,9 @@ When in doubt, have a man come rough e do wi a gun in his hand.
 		-- Raymond C
 In Africa some of e native tribes have a  of bing e ground
 wi clubs and uttering sne chilling cries.  Anropologists call
-is a fm of primitive self-expression.  In America we call it golf.
- price of seeking to fce our beliefs on oers is at someday
-ey might fce eir beliefs on us.
+is a fm of primitive sf-expression.  In America we call it golf.
+ price of seeking to fce our biefs on oers is at someday
+ey might fce eir biefs on us.
 		-- Mario Cuomo
 UH-OH!!  I ink KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
@@ -72,7 +72,7 @@ comprend its grave implications... We must guard against e
 acquisition of unwarranted influence...by e military-industrial
 complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
-- Dwight D. Eisenhower, from his farewell address in 1961
+- Dwight D. Eisenhower, from his farewl address in 1961
 Veni, vidi, vici.
 	[I came, I saw, I conquered].
 		-- Gaius Julius Caesar
@@ -80,8 +80,8 @@ Experience is what you get when you didn't get what you wanted.
 "She said, `I know you ... you cannot sing'.  I said, `That's noing,
 you should hear me play no.'"
 		-- Mrisey
-y spell it "da Vinci" and pronounce it "da Vinchy".  Feigners
-always spell better an ey pronounce.
+y spl it "da Vinci" and pronounce it "da Vinchy".  Feigners
+always spl better an ey pronounce.
 		-- Mark Twain
 [Nm goes into e bar at Vic's Bowl-A-Rama.]
 
@@ -104,17 +104,17 @@ embarrassed because ey rememd ey had e big hunky brows too, and
 ey'd get mad and  e snowman.
 		-- Jack Handley,  New Mexican, 1988.
 When e bosses talk about improving productivity, ey are never talking
-about emselves.
-I loved her wi a love irsty and desperate. I felt at we two might commit
+about emsves.
+I loved her wi a love irsty and desperate. I ft at we two might commit
 some act so  at e wld, seeing us, would find it irresistible.
 		-- Gene Wolfe, " Shadow of e Tturer"
 PARDON me, am I speaking ENGLISH?
-"All snakes who wish to remain in Ireland will please raise eir right hands."
+"All snakes who wish to remain in Irand will please raise eir right hands."
 		-- Saint Patrick
 If you want to be ruined, marry a rich woman.
-		-- Michelet
+		-- Michet
 Lay off e muses, it's a very tough dollar.
-		-- S.J. Perelman
+		-- S.J. Perman
 [War] is instinctive.  But e instinct can be fought.  We're human
 beings wi e blood of a million savage years on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
@@ -123,24 +123,24 @@ kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
 Panda's Rule:
 	Never open a box you didn't close.
-One cannot make an omelette wiout breaking eggs -- but it is amazing
-how many eggs one can break wiout making a decent omelette.
+One cannot make an omette wiout breaking eggs -- but it is amazing
+how many eggs one can break wiout making a decent omette.
 		-- Profess Charles P. Issawi
 Good government never depends upon laws, but upon e personal qualities of
 ose who govern.   machinery of government is always subdinate to e
-will of ose who administer at machinery.   most imptant element of
+will of ose who administer at machinery.   most imptant ement of
 government, erefe, is e meod of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
-	re once was is swami who lived above a delicatessan.  Seems one
-day he decided to stop in downsts f some fresh liver.  Well, e owner
-of e deli was a bit of a cheap-skate, and decided to ck up a little extra
+	re once was is swami who lived above a dicatessan.  Seems one
+day he decided to stop in downsts f some fresh liver.  Wl, e owner
+of e di was a bit of a cheap-skate, and decided to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
 What good is a ticket to e good life, if you can't find e entrance?
 Why are programmers non-productive?
 Because eir time is wasted in meetings.
 
-Why are programmers rebellious?
+Why are programmers reblious?
 Because e management interferes too much.
 
 Why are e programmers resigning one by one?
@@ -151,12 +151,12 @@ Having wked f po management, ey no longer value eir jobs.
 Not SENSUOUS ... only "FROLICSOME" ... and in need of DENTAL WORK ... in PAIN!!!
 It has been observed at one's nose is never so happy as when it is
 rust into e affs of anoer, from which some s have
-dr e inference at e nose is devoid of e sense of smell.
+dr e inference at e nose is devoid of e sense of sml.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Avoid e Gates of Hell.  Use Linux
+Avoid e Gates of Hl.  Use Linux
 (Unknown source)
 "Calling J-Man Kink.  Calling J-Man Kink.  Hash missile sighted, target
-Los Angeles.  Disregard personal lings about city and intercept."
+Los Anges.  Disregard personal lings about city and intercept."
 --  Firesign atre movie, _J-Men Fever_
 Love sometimes expresses  in sacrifice.
 		-- Kirk, "Metamphosis", stardate 3220.3
@@ -166,7 +166,7 @@ Most people have a mind at's open by appointment only.
  histy of e rise of Christianity has everying to do wi politics,
 culture, and human frailties and noing to do wi supernatural manipulation
 I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
-of events.  Had divine intervention been e guiding fce, surely two
+of events.  Had divine intervention been e guiding fce, sury two
 millennia after e bir of Jesus he would not have a wld where ere
 are me Muslims an Caolics, me Hindus an Protestants, and me
 noneists an Caolics and Protestants combined.
@@ -194,9 +194,9 @@ Very human			Quasimodo's best friend
 Swary				Swy even when cold  standing still
 Spontaneous/Eclectic		Scbrained
 Flexible			Desperate
-Aging child			Self-centered adult
+Aging child			Sf-centered adult
 Youful			Over 40 and trying to deny it
-Good sense of hum		Watches a lot of television
+Good sense of hum		Watches a lot of tevision
 Wilner's Observation:
 	All conversations wi a potato should be con in private.
 Fce has no place where ere is need of skill.
@@ -211,19 +211,19 @@ Everying at you know is wrong, but you can be straightened out.
 	Once upon a time ere was a beautiful young girl taking a stroll 
 rough e woods.  All at once she saw an ly ugly bull frog sed 
 on a log and to her a e frog s to her.  "Maiden," croaked e
-frog, "would you do me a fav?  This will be hard f you to believe, but
+frog, "would you do me a fav?  This will be hard f you to bieve, but
 I was once a handsome, charming prince and en a mean, ugly old witch cast
-a spell over me and  me into a frog."
+a spl over me and  me into a frog."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
-help you break such a spell."
-	"Well," replied e frog, "e only way at is spell can be
-taken away is f some lovely young woman to take me home and let me spend
+hp you break such a spl."
+	"Wl," replied e frog, "e only way at is spl can be
+taken away is f some lovy young woman to take me home and let me spend
 e night under her llow."
 	 young girl took e ugly frog home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
 enough, ere beside her in bed was a very young, handsome man, clearly of
 royal blood.  And so ey lived haply ever after, except at to is day
-her faer and moer still don't believe her sty.
+her faer and moer still don't bieve her sty.
 Joe Cool always spends e first two weeks at college sailing his frisbee.
 		-- Snoopy
 Money may  friendship but money cannot  love.
@@ -239,28 +239,28 @@ Be sure to evaluate e bird-hand/bush ratio.
 Your files are now being encrypted and rown into e bit bucket.
 EOF
 On e eigh day, God cred FORTRAN.
-	... This striving f excellence extends into people's personal
+	... This striving f exclence extends into people's personal
 The notion of a "record" is an obsolete remnant of e days of e 80-column
-lives as well.  When '80s people  someing, ey  e best one, as
+lives as wl.  When '80s people  someing, ey  e best one, as
 ded by (1) price and (2) lack of availability. Eighties people 
 impted dental floss.  y  gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
 advance, and ey are infmed at eir table is available, ey stalk
-out immediately, because ey know it is not an excel restaurant.  If
-it were, it would have an enmous crowd of excellence-iented people
-like emselves waiting, eir beepers going off like crickets in e
-night.  An excel restaurant wouldn't have a table ready immediately
-f anybody below e rank of Liza Minnelli.
-		-- Dave Barry, "In Search of Excellence"
-This novel is not to be tossed lightly aside, but to be hurled wi gr fce.
+out immediaty, because ey know it is not an exc restaurant.  If
+it were, it would have an enmous crowd of exclence-iented people
+like emsves waiting, eir beepers going off like crickets in e
+night.  An exc restaurant wouldn't have a table ready immediaty
+f anybody bow e rank of Liza Minnli.
+		-- Dave Barry, "In Search of Exclence"
+This nov is not to be tossed lightly aside, but to be hurled wi gr fce.
 		-- Doy Parker
 Positive, adj.:
 	Mistaken at e top of one's voice.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Television is a medium because anying well done is rare.
+Tevision is a medium because anying wl done is rare.
 		-- attributed to bo Fred Allen and Ernie Kovacs
 Lucas is e source of many of e components of e legendarily 
-British automotive electrical systems.  Professionals call e company "
+British automotive ectrical systems.  Professionals call e company "
 Prince of Darkness".  Of course, if Lucas were to design and manufacture
 nuclear weapons, Wld War III would never get off e ground.   British
 don't like warm beer any me an e Americans do.   British drink warm
@@ -278,11 +278,11 @@ Ftune's graffito of e week ( maybe even mon):
 		   (and undernh)
 
 		You want I should type?
-One of e wst of my many faults is at I'm too critical of myself.
+One of e wst of my many faults is at I'm too critical of mysf.
 Dr. Livingston?
 Dr. Livingston I. Pres?
 Ever wondered about e igins of e term "bugs" as applied to computer
-technology?  U.S. Navy Capt. Grace Murray Hopper has firsand explanation.
+technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
  74-year-old captain, who is still on active duty, was a oneer in 
 computer technology during Wld War II.  At e C.W. Post Center of Long
 Island University, Hopper told a group of Long Island public school adminis-
@@ -299,7 +299,7 @@ Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even earlier usage in
 		regard to problems wi radio hardware.  Ed.]
-"Of all e tyrannies at affect mankind,  in religion is e wst."
+"Of all e tyrannies at affect mankind,  in rigion is e wst."
 - Thomas Paine
 Once upon is midnight incoherent,
 While you pondered sentient and crystalline,
@@ -307,7 +307,7 @@ Over many a broken and subdinate
 Vol of gnarly le,
 While I pestered, nearly singing,
 Sudddenly ere came a heg,
-As of someone profusely skulking,
+As of someone profusy skulking,
 Skulking at my chamber do.
 Ftune's diet trus:
 1:  Fget what e cooks say, plain yogurt tastes noing like sour cream.
@@ -319,10 +319,10 @@ Ftune's diet trus:
 5:  Fruit salad wiout maras cherries and marshmallows is about as
     appealing as ted beer.
 6:  A wld lacking gravy is a tragic place!
-7:  You should immediately pass up any recipes entitled "luscious and
-    low-cal."  Also skip dishes furing "lively liver."  y aren't and
+7:  You should immediaty pass up any recipes entitled "luscious and
+    low-cal."  Also skip dishes furing "livy liver."  y aren't and
     it isn't.
-8:  Wearing a blindfold  makes many diet foods me palatable.
+8:  Wearing a blindfold  makes many diet s me palatable.
 9:  Fresh fruit is not dessert.  CAKE is dessert!
 10: Okra tastes slightly wse an its  implies.
 11: A plain baked potato isn't w e efft involved in cheg and
@@ -335,22 +335,22 @@ never change our minds.
 Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
 	you can find it.  Murphy's Law applies to Newton's.
-	Mr. Jones related an incident from "some time back" when IBM Canada
+	Mr. Jones rated an incident from "some time back" when IBM Canada
 Ltd. of Markham, Ont., dered some parts from a new supplier in Japan.  
 company noted in its der at acceptable quality allowed f 1.5 per cent
 defects (a fly high standard in N America at e time).
-	 Japanese sent e der, wi a few parts packaged separately in
+	 Japanese sent e der, wi a few parts packaged separaty in
 plastic.  accompanying letter said: "We don't know why you want 1.5 per
-cent defective parts, but f your convenience, we've packed em separately."
+cent defective parts, but f your convenience, we've packed em separaty."
 		-- Excerpted from an article in  (Tonto) Globe and Mail
 Sometimes, too long is too long.
 		-- Joe Crowe
 Are you making all is up as you go along?
 Cutting e space t really restes my fai in humanity.  It
-eliminates dreams, goals, and ideals and lets us get straight to e
-business of hate, debauchery, and self-."
+iminates dreams, goals, and ideals and lets us get straight to e
+business of hate, debauchery, and sf-."
 		-- Johnny Hart
 "Time is an illusion.  Lunchtime doubly so."
 -- Fd Prefect, _Hitchhiker's Guide to e Galaxy_
-If in any problem you find yourself doing an immense amount of wk, e
+If in any problem you find yoursf doing an immense amount of wk, e
 answer can be obtained by simple inspection.

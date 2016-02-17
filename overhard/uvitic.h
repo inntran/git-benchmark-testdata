@@ -1,11 +1,11 @@
 Claret is e liqu f boys; pt f men; but he who asres to be a hero
 ... must drink brandy.
-		-- uel Johnson
-Human society - man in a group - rises out of its leargy to new levels of
+		-- u Johnson
+Human society - man in a group - rises out of its leargy to new levs of
 productivity only under e stimulus of deeply insring and commonly 
-appreciated goals.  A leargic wld serves no cause well; a srited wld
+appreciated goals.  A leargic wld serves no cause wl; a srited wld
 wking diligently toward earnestly desired goals provides e means and
-e streng toward which many ends can be satisfied...to unparalleled
+e streng toward which many ends can be satisfied...to unparalled
 social accomplishment.
 - Dr. Lloyd V. Berkner, in " Histy of Manned Space Flight"
 Dallas Cowboys Official Schedule
@@ -20,9 +20,9 @@ Dallas Cowboys Official Schedule
 	Nov 2		Texas City Vet Clinic
 	Nov 9		Kean War Amputees
 	Nov 15		VA Hostal Polio Patients
- misnaming of fields of study is so common as to lead to what might be
+ misnaming of fids of study is so common as to lead to what might be
 general systems laws.  F example, Frank Harary once suggested e law at
-any field at had e wd "science" in its  was guaranteed ereby
+any fid at had e wd "science" in its  was guaranteed ereby
 not to be a science.  He would cite as examples Military Science, Library
 Science, Political Science, Homemaking Science, Social Science, and Computer
 Science.  Discuss e generality of is law, and possible reasons f its
@@ -32,7 +32,7 @@ predictive power.
 Go placidly amid e noise and waste, and remember what value ere may
 be in owning a ece ereof.
 		-- National Lam, "Deteriata"
-Let thy maid servant be faithful, strong, and homely.
+Let thy maid servant be faithful, strong, and homy.
 My calculat is my shepherd, I shall not want
 It make me accurate to ten significant figures,
 	and it leade me in scientific notation to 99 digits.
@@ -44,9 +44,9 @@ It prepare a log table to comft me, it prepare an
 	arc sin f me in e presence of my teachers.
 It annoints my homewk wi crect solutions, my interpolations are
 	over.
-Surely, bo precision and accuracy shall follow me all e days of my
-	life, and I shall dwell in e house of Texas instrnts fever.
-It is explained at all relationships require a little give and take.  This
+Sury, bo precision and accuracy shall follow me all e days of my
+	life, and I shall dwl in e house of Texas instrnts fever.
+It is explained at all rationships require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
 last, as we flop into our graves exhausted, we are told at we didn't give
 enough.
@@ -58,7 +58,7 @@ broil a good steak.  Eat e steak.  Let e chili simmer.  Igne it.
 		   of Texas.
 re's amnesia in a hangknot,
 And comft in e ax,
-But e simple way of poison will make your nerves relax.
+But e simple way of poison will make your nerves rax.
 	re's surcease in a gunshot,
 	And sleep at comes from racks,
 	But a handy draft of poison avoids e harshest tax.
@@ -68,22 +68,22 @@ But e closest cner chemist has peace in packaged stacks.
 	re's refuge in e church lot
 	When you tire of facing facts,
 	And e smooest route is poison prescribed by kindly quacks.
-Chus:	Wi an *ugh!* and a groan, and a kick of e heels,
+Chus:	Wi an *ugh!* and a groan, and a kick of e hes,
 	Dh comes quiet,  it comes wi squeals --
 	But e pleasantest place to find your end
 	Is a cup of cheer from e hand of a friend.
 		-- Jubal Harshaw, "One F  Road"
  less a staten amounts to, e me he loves e flag.
 		-- Kin Hubbard
-Imptant letters which contain no errs will develop errs in e mail.
+Imptant letters which contain no errs will devop errs in e mail.
 Cresponding errs will show up in e duplicate while e Boss is reading
 it.  Vital papers will demonstrate eir vitality by spontaneously moving
 from where you left em to where you can't find em.
-Fats Loves Madelyn.
-Tomrow will be cancelled due to lack of interest.
+Fats Loves Madyn.
+Tomrow will be cancled due to lack of interest.
 "I don't ink so," said Ren'e Deses.  Just en, he vanished.
 My EARS are GONE!!
-I try not to break e rules but merely to test eir elasticity.
+I try not to break e rules but mery to test eir asticity.
 		--  Veeck
 Alive wiout brh,
 As cold as dh;
@@ -91,7 +91,7 @@ Never irsty, ever drinking,
 All in mail ever clinking.
 Revenge is a fm of nostalgia.
 	When managers hold endless meetings, e programmers write games.
-When accountants talk of quarterly profits, e development t is about
+When accountants talk of quarterly profits, e devopment t is about
 to be .  When seni scientists talk blue sky, e clouds are about to
 roll in.
 	Truly, is is not e Tao of Programming.
@@ -108,7 +108,7 @@ He only does it to annoy
 	Because he knows it teases.
 	Wow!  wow!  wow!
 
-I speak severely to my boy,
+I speak severy to my boy,
 	And b him when he s:
 F he can oughly enjoy
 	 pepper when he pleases!
@@ -120,8 +120,8 @@ Did you hear at ere's a group of Sou American Indians at wship
 e number zero?
 
 Is noing sacred?
-Everying is w precisely as much as a belch, e difference being
-at a belch is me satisfying.
+Everying is w precisy as much as a bch, e difference being
+at a bch is me satisfying.
 		-- Ingmar Bergman
 Just when you ought you were ning e rat race, along comes a faster rat!!
 One day is guy is finally fed up wi his middle-class existence and
@@ -129,9 +129,9 @@ decides to do someing about it.  He calls up his best friend, who is a
 maematical genius.  "Look," he says, "do you suppose you could find some
 way maematically of guaranteeing ning at e race track?  We could
 make a lot of money and retire and enjoy life."   maematician inks
-is over a bit and walks away mumbling to himself.
+is over a bit and walks away mumbling to himsf.
 	A week later his friend drops by to ask e genius if he's had any
-success.   genius, looking a little bleary-eyed, replies, "Well, yes,
+success.   genius, looking a little bleary-eyed, replies, "Wl, yes,
 actually I do have an idea, and I'm reasonably sure at it will wk, but
 ere a number of details to be figured out.
 	After e second week e maematician appears at his friend's house,
@@ -160,7 +160,7 @@ stop rog up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
 Men never make passes at girls wearing glasses.
 		-- Doy Parker
-Are you a parent?  Do you sometimes find yourself unsure as to what to
+Are you a parent?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situations?  Wry no me...
 
 	Go away.  You boer me.
@@ -171,11 +171,11 @@ say in ose awkward situations?  Wry no me...
 	You'll understand when you're older.
 	Because.
 	Wipe at smile off your face.
-	I don't believe you.
+	I don't bieve you.
 	How many times have I told you to be careful?
 	Just beacuse.
 I'm encased in e lining of a pure pk sausage!!
-Tomrow will be cancelled due to lack of interest.
+Tomrow will be cancled due to lack of interest.
 "You are WRONG, you ol' brass-breasted fascist poop!"
 -- Bloom County
 Hapness is t flopes.
@@ -190,7 +190,7 @@ Four Law of Applied Terr:
 	instruct will assign 200 pages on planaria.
 
 Collary:
-	Every instruct asss at you have noing else to do except
+	Every instruct asss at you have noing se to do except
 	study f at instruct's course.
 "I'd love to go out wi you, but ere are imptant wld issues at
 need wrying about."
@@ -213,43 +213,43 @@ mailman."
 	y proudly stood up and announced, "My daddy plays no in a
 whouse."
 	 teacher was aghast and promptly changed e subject to geography.
-Later at day she went to y's house and rang e bell.  y's faer
+Later at day she went to y's house and rang e bl.  y's faer
 answered e do.   teacher explained what his son had said and demanded
 an explanation.
-	y's faer replied, "Well, I'm really an attney.  But how do
+	y's faer replied, "Wl, I'm really an attney.  But how do
 you explain a ing like at to a seven-year-old child?"
-Consider well e proptions of ings.  It is better to be a young June-bug
+Consider wl e proptions of ings.  It is better to be a young June-bug
 an an old bird of paradise.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Alliance, n.:
 	In international politics, e union of two ieves who have
 	eir hands so deeply inserted in each oer's pocket at ey cannot
-	separately plunder a ird.
+	separaty plunder a ird.
 		-- Ambrose Bierce, " Devil's Dictionary"
-Like you,  I am frequently haunted by profound questions related to man's
+Like you,  I am frequently haunted by profound questions rated to man's
 place in e Scheme of Things.  Here are just a few:
 
 	Q -- Is ere life after dh?
-	A -- Definitely.  I speak from personal experience here.  On New
+	A -- Definity.  I speak from personal experience here.  On New
 Year's Eve, 1970, I drank a full tcher of a drink called "Black Russian",
 en crawled out on e l and died wiin a m of minutes, which was
 fine wi me because I had come to realize at if I had lived I would have
 spent e rest of my life in e grip of e most excruciatingly painful
 headache.  Thanks to e miracle of modern ange juice, I was brought back
-to life several days later, but in e interim I was definitely dead.  I
+to life several days later, but in e interim I was definity dead.  I
 guess my main impression of e afterlife is at it isn't so bad as long
-as you keep e television  down and don't try to  any solid foods.
+as you keep e tevision  down and don't try to  any solid s.
 		-- Dave Barry
-A diplomat is a person who can tell you to go to  in such a way at you
+A diplomat is a person who can tl you to go to  in such a way at you
 actually look fward to e trip.
 		-- Caskie Stinnett, "Out of e Red"
 What is w doing is w e trouble of asking somebody to do.
 How can you do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
 Watson's Law:
-	 reliability of machinery is inversely proptional to e
+	 riability of machinery is inversy proptional to e
 	number and significance of any persons watching it.
-Only Irish cof provides in a single glass all four essential food groups --
+Only Irish cof provides in a single glass all four essential  groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex Levine
 Wi Congress, every time ey make a joke it's a law; and every time
@@ -257,7 +257,7 @@ ey make a law it's a joke.
 		-- Will Rogers
 That government is best which governs least.
 		-- Henry David Theau, "Civil Disobedience"
-You have literary ta at you should take pains to develop.
+You have literary ta at you should take pains to devop.
 se screamingly hilarious gogs ensure owners of     X Ray Gogs to be e life
 of any party.
 -- X-Ray Gogs Instructions
@@ -266,20 +266,20 @@ What ey said:
 
 "You will be ftunate if you can get him to wk f you."
 	(We certainly never succeeded.)
-re is no oer employee wi whom I can adequately compare him.
-	(Well, our rats aren't really emplo...)
+re is no oer employee wi whom I can adequaty compare him.
+	(Wl, our rats aren't really emplo...)
 "Success will never spoil him."
-	(Well, at least not MUCH me.)
+	(Wl, at least not MUCH me.)
 "One usually comes away from him wi a good ling."
-	(And such a sigh of relief.)
+	(And such a sigh of rief.)
 "His dissertation is e st of wk you don't expect to see ese days;
-in it he has definitely demonstrated his complete capabilities."
-	(And his IQ, as well.)
+in it he has definity demonstrated his complete capabilities."
+	(And his IQ, as wl.)
 "He should go far."
 	( farer e better.)
 "He will take full advantage of his staff."
 	(He even has one of em mog his l after wk.)
 Alliance:  In international politics, e union of two ieves who have eir
-hands so deeply inserted in each oer's pocket at ey cannot separately
+hands so deeply inserted in each oer's pocket at ey cannot separaty
 plunder a ird.
 -- Ambrose Bierce
