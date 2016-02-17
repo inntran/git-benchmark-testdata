@@ -240,6 +240,7 @@ Your files are now being encrypted and thrown into the bit bucket.
 EOF
 On the eighth day, God cred FORTRAN.
 	... This striving f excellence extends into people's personal
+The notion of a "record" is an obsolete remnant of the days of the 80-column
 lives as well.  When '80s people buy something, they buy the best one, as
 ded by (1) price and (2) lack of availability. Eighties people buy
 impted dental floss.  y buy gourmet baking soda.  If an '80s couple

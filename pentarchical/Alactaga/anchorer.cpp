@@ -39,6 +39,7 @@ and just befe you realize what is wrong with it.
 		-- Coca-Cola slogans
 FORTUNE'S GUIDE TO DEALING WITH REAL-LIFE SCIENCE FICTION: #14
 What to do...
+If you fail to plan, plan to fail.
     if reality disappears?
 	Hope this one doesn't happen to you.  re isn't much that you
 	can do about it.  It will probably be quite unpleasant.
