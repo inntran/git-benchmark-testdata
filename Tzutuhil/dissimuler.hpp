@@ -135,7 +135,7 @@ Leave no stone unturned.
 "Life begins when you can spend your spare time programming ins of
 watching television."
 -- Cal Keegan
-Be independent.  Insult a rich relative today.
+Be in.  Insult a rich relative today.
 You can make it illegal, but you can't make it .
 After any salary raise, you will have less money at the end of the
 month than you did befe.

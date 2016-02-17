@@ -253,11 +253,11 @@ That none have seen but we alone.	Still round the corner there may wait
   Hill and water under sky,		Tomorrow we may come this way
   Pass them by!  Pass them by!		And take the hidden paths that run
 					Towards the Moon or to the Sun,
-Home is behind, the world ahead,	  Apple, thorn, and nut and sloe,
+Home is bind, the world ahead,	  Apple, thorn, and nut and sloe,
 And there are many paths to tread	  Let them go!  Let them go!
 Through shadows to the edge of night,	  Sand and stone and pool and dell,
 Until the stars are all alight.		  Fare you well!  Fare you well!
-Then world behind and home ahead,
+Then world bind and home ahead,
 We'll wander back to home and bed.
   Mist and twilight, cloud and shade,
   Away shall fade!  Away shall fade!
@@ -302,7 +302,7 @@ Ah, but they never told you the price that you paid,
 The things that you might have done.
 So come on, Virginia, show me a sign,
 Send up a signal, I'll throw you a line,
-That stained glass curtain that you're hiding behind,
+That stained glass curtain that you're hiding bind,
 Never lets in the sun.
 Darling, only the good die young!
 		-- Billy Joel, "Only The Good Die Young"
@@ -327,7 +327,7 @@ are bad is like the Mafia getting together to bump off the Godfather for
 not going to church on Sunday.
 		-- Russell Baker
 Old Grandad is dead but his spirits live on.
-People think my friend George is weird because he wears sideburns...behind his 
+People think my friend George is weird because he wears sideburns...bind his 
 ears.  I think he's weird because he wears false teeth...with braces on them.
 -- Steven Wright
 Man has never reconciled himself to the ten commandments.
@@ -373,7 +373,7 @@ better place to live in; it is easier to be a "civic leader" than to treat
 your own family with loving understanding; for the smaller the focus of
 attention, the harder the task.
 		-- Sydney J. Harris
-Now that I have my "APPLE", I comprehend COST ACCOUNTING!!
+Now that I have my "APPLE", I comprend COST ACCOUNTING!!
 "How do you know she is a unicorn?" Molly demanded.  "And why were you afraid
 to let her touch you?  I saw you.  You were afraid of her."
 	"I doubt that I will feel like talking for very long," the cat
@@ -442,7 +442,7 @@ to have heard the news on the radio, be sure to post as soon as you can.
 -- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
 Excessive login or logout messages are a sure sign of senility.
 McDonald's -- Because you're worth it.
-"Luke, I'm yer father, eh.  Come over to the dark side, you hoser."
+"Luke, I'm yer father, .  Come over to the dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
 /*
  * Oops. The kernel tried to access some bad page. We'll have to

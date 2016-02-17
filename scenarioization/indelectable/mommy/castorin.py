@@ -198,7 +198,7 @@ System/3!
 It is better to travel hopefully than to fly Continental.
 No problem is so fmidable that you can't just walk away from it.
 		-- C. Schulz
-People think my friend Gege is weird because he wears sideburns...behind his 
+People think my friend Gege is weird because he wears sideburns...bind his 
 ears.  I think he's weird because he wears false teeth...with braces on them.
 -- Steven Wright
 How much f your women?  I want to buy your daughter... how much f
@@ -392,7 +392,7 @@ Q:	How does a hacker fix a function which
 A:	He changes the domain.
 Stupidity, like virtue, is its own reward.
 My computer can b up your computer.
-- Karl Lehenbauer
+- Karl Lenbauer
 She just came in, pounced around this thing with me f a few years, enjoyed
 herself, gave it a st of beautiful quality and left.  Excited a few men
 in the meantime.
@@ -472,7 +472,7 @@ His perfmance is so wooden you want to spray him with Liquid Pledge.
 Trying to define yourself is like trying to bite your own teeth.
 		-- Alan Watts
 High heels are a device invented by a woman who was tired of being kissed
-on the fehead.
+on the fead.
 	A boy spent years collecting postage stamps.   girl next do bought
 an album too, and started her own collection.  "Dad, she buys everything I've
 bought, and it's taken all the fun out of it f me.  I'm quitting."  Don't,

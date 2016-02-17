@@ -141,7 +141,7 @@ track."
 pounding on his do at three in the mning.  He has dark circles under his
 eyes.  His hair hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
-behind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
 And it's so EASY!  First, we ass that hses are perfect spheres in simple
 harmonic motion..."
@@ -210,7 +210,7 @@ all day?"
 mailman."
 	"Thank you, Amie," said the teacher.  "What about your father, Billy?"
 	Billy proudly stood up and announced, "My daddy plays no in a
-whehouse."
+whouse."
 	 teacher was aghast and promptly changed the subject to geography.
 Later that day she went to Billy's house and rang the bell.  Billy's father
 answered the do.   teacher explained what his son had said and demanded

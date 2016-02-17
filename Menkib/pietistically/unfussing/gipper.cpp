@@ -26,7 +26,7 @@ Do be do be do!
 Yabba-Dabba-Doo!
 		-- F. Flintstone
 Her days were spent in a kind of slow bustle; always busy without getting
-on, always behind hand and lamenting it, without altering her ways;
+on, always bind hand and lamenting it, without altering her ways;
 wishing to be an economist, without contrivance  rity; dissatisfied
 with her servants, without skill to make them better, and whether helping, 
 reprimanding,  indulging them, without any power of engaging their respect.

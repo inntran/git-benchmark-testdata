@@ -17,7 +17,7 @@ you should blame when you make a mistake.
 
 *** Our Slogan:  Top down programming f the masses. ***
 Base 8 is just like base 10, if you are missing two fingers.
-		-- Tom Lehrer
+		-- Tom Lrer
 Show business is just like high school, except you get paid.
 		-- Martin Mull
 We don't care how they do it in New Yk.
@@ -56,7 +56,7 @@ XLVI:
 I thought there was something fishy about the butler.  Probably a Pisces,
 wking f scale.
 		-- Firesign atre, " Further Adventures of Nick Danger"
- herd instinct  economists makes sheep look like independent thinkers.
+ herd instinct  economists makes sheep look like in thinkers.
 You can learn many things from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
@@ -167,9 +167,9 @@ in the same way as us.
 		-- Johann Wolfgang von Goethe
 Complex system:
 	One with real problems and imaginary profits.
-Meanehwael, baccat meaddehaele, monstaer lurccen;
+Meanwael, baccat meaddaele, monstaer lurccen;
 Fulle few too many drincce, hie luccen f fyht.
-[D]en Hrefneht[d]hwr, son of Hrwaerow[p]hethwl,
+[D]en Hrefnt[d]hwr, son of Hrwaerow[p]hethwl,
 AEsccen aewful jek to steop outsyd.
 [P]hud!  Bashe!  Crasch!  Beoom!  [D]e bigge gye
 Eallum his bon brak, byt his nose offe;
@@ -182,7 +182,7 @@ Sond feth to fyht [d]e grimlic foe.
 "Me," Godsylla saed, "mac [d]e minsemete."
 Heo cwyc geten heold wi[p] faemed half-nelson
 Ond flyng him lic frisbe bac to fen.
-Beowulf belly up to meaddehaele bar,
+Beowulf belly up to meaddaele bar,
 Saed, "Ne foe ben mie faersom cung-fu."
 Ederen cocca-colha yce-coeld, [d]e reol [p]yng.
 		-- Not Chaucer, f certain
@@ -307,7 +307,7 @@ NEGATIVE IONS!!
 Laws are like sausages.  It's better not to see them being made.
 		-- Otto von Bismarck
 strategy, n.:
-	A comprehensive plan of inaction.
+	A comprensive plan of inaction.
 I'm ZIPPY the PINHEAD and I'm totally committed to the  mode.
 APL hackers do it in the quad.
 You auto buy now.

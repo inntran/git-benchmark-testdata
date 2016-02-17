@@ -33,7 +33,7 @@ X windows:
 
 Elevating brain damage to an art fm.
 	X windows.
-After 35 years, I have finished a comprehensive study of European
+After 35 years, I have finished a comprensive study of European
 comparative law.  In Germany, under the law, everything is prohibited,
 except that which is permitted.  In France, under the law, everything
 is permitted, except that which is prohibited.  In the Soviet Union,
@@ -149,7 +149,7 @@ and grinned at his friend.  "Got him!", he exclaimed, "now, you skin this
 one and I'll go rustle us up another!"
 "Once he had one leg in the White House and the nation trembled under his 
 roars.  Now he is a tinpot pope in the Coca-Cola belt and a brother to the
-fln pasts who belab halfwits in galvanized iron tabernacles behind
+fln pasts who belab halfwits in galvanized iron tabernacles bind
 the railroad yards."
 - H. L. Mencken, writing of William Jennings Bryan, counsel f the suppters
   of Tennessee's anti-evolution law at the Scopes "Monkey Trial" in 1925.

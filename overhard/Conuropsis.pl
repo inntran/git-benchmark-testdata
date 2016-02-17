@@ -103,7 +103,7 @@ track."
 pounding on his door at three in the morning.  He has dark circles under his
 eyes.  His hair hasn't been combed for many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
-behind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
 And it's so EASY!  First, we ass that horses are perfect spheres in simple
 harmonic motion..."
@@ -285,7 +285,7 @@ Jenning's Corollary:
 	down is directly proportional to the cost of the carpet.
 
 Law of the Perversity of Nature:
-	You cannot determine beforehand which side of the bread to butter.
+	You cannot determine beforand which side of the bread to butter.
 Some people carve careers, others chisel them.
 Jealousy is all the fun you think they have.
 Are you a parent?  Do you sometimes find yourself unsure as to what to

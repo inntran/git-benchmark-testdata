@@ -44,7 +44,7 @@ to the sea and drown yourselves."
 you human beings don't."
 		-- James Thurber
 The key elements in human thinking are not numbers but labels of fuzzy sets.
-		-- L. Zadeh
+		-- L. Zad
 "It takes all sorts of in & out-door schooling to get adapted
 to my kind of fooling"
 - R. Frost
@@ -80,7 +80,7 @@ I don't have an ing problem.  I .  I get fat.  I buy new clothes.
 No problem.
 All things being equal, you are bound to lose.
 Ladles and Jellyspoons!
-I come before you to stand behind you,
+I come before you to stand bind you,
 To tell you something I know nothing about.
 Since next Thursday will be Good Friday,
 There will be a fathers' meeting, for mothers only.

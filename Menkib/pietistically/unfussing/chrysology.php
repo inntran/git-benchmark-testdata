@@ -48,7 +48,7 @@ complete text:
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c f (ONE-FIFTEENTH OF
      THE AMOUNT WE TOOK) directly to the (YOUR LAST NAME)
-     household at (YOUR ADDRESS), f you to spend in any way
+     housold at (YOUR ADDRESS), f you to spend in any way
      you please! Which just goes to show you, (YOUR FIRST
      NAME), that it pays to file the sht fm!"
 
@@ -157,7 +157,7 @@ round container filled with little red fruits on sticks.
 You know you've been sitting in front of your Lisp machine too long
 when you go out to the junk food machine and start wondering how to
 make it give you the CADR of Item H so you can get that yummie
-chocolate cupcake that's stuck behind the disgusting vanilla one.
+chocolate cupcake that's stuck bind the disgusting vanilla one.
 A gr nation is any mob of people which produces at least one honest
 man a century.
 F those who like this st of thing, this is the st of thing they like.
@@ -211,7 +211,7 @@ I've always thought that Minix was a fine idea, and competently done.
 As f the size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 
 -- Dennis Ritchie, 1989
-Histy teaches us that men and nations behave wisely once they have
+Histy teaches us that men and nations bave wisely once they have
 exhausted all other alternatives.
 		-- Abba E
 He who always plows a straight furrow is in a rut.
@@ -315,7 +315,7 @@ beta test, v:
 	In earlier days, virgins were  selected to beta test volcanos.
 What foods these msels be!
  lawgiver, of all beings, most owes the law allegiance.  He of all men
-should behave as though the law compelled him.  But it is the universal
+should bave as though the law compelled him.  But it is the universal
 weakness of mankind that what we are given to administer we presently imagine
 we own.
 		-- H.G. Wells
@@ -572,7 +572,7 @@ I am the mother of all things, and all things should wear a swer.
 BYTE edits are people who separate the wh from the chaff, and then
 carefully print the chaff.
 Life is like a sewer.  What you get out of it depends on what you put into it.
-		-- Tom Lehrer
+		-- Tom Lrer
 Many people l that if you won't let them make you happy, they'll make you
 suffer.
 In the midst of one of the wildest parties he'd ever been to, the young man 
@@ -801,7 +801,7 @@ Onward through the fog.
 Today is what happened to yesterday.
 One man's folly is another man's wife.
 		-- Helen 
-So you see Antonio, why wry about one little ce dump, eh?  In reality
+So you see Antonio, why wry about one little ce dump, ?  In reality
 all ce dumps happen at the same instant, so the ce dump you will have
 tomrow, why, it already happened.  You see, it's just a little universal
 recursive joke which threads our lives through the infinite potential of
@@ -813,7 +813,7 @@ Advertising wondrous things.
 
 Angels we have heard on High
 Tell us to go out and Buy.
-		-- Tom Lehrer
+		-- Tom Lrer
 Is that really YOU that is reading this?
 Never trust an operating system.
 A general leading the State Department resembles a dragon commanding ducks.

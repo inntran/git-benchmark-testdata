@@ -54,7 +54,7 @@ Tom Bom, jolly Tom, Tom Bombadillo!
 If it happens once, it's a bug.
 If it happens twice, it's a feature.
 If it happens more than twice, it's a design philosophy.
-We want to create puppets that pull their own strings.
+We want to  puppets that pull their own strings.
 - Ann Marion
 Even if you persuade me, you won't persuade me.
 		-- Aristophanes

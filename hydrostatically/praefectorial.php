@@ -14,7 +14,7 @@ The program isn't debugged until the last user is dead.
 Meade's Maxim:
 	Always remember that you are absolutely unique, just like everyone else.
 "Arguments with furniture are rarely productive."
-		-- Kehlog Albran, "The Profit"
+		-- Klog Albran, "The Profit"
 A visit to a fresh place will bring strange work.
 Davis' Law of Traffic Density:
 	The density of rush-hour traffic is directly proportional to
@@ -62,7 +62,7 @@ Chance is perhaps the work of God when He did not want to sign.
 		-- Anatole France
 To every Ph.D. there is an equal and opposite Ph.D.
 		-- B. Duggan
-Behind all the political rhetoric being hurled at us from abroad, we are 
+Bind all the political rhetoric being hurled at us from abroad, we are 
 bringing home one unassailable fact -- [terrorism is] a crime by any civilized
 standard, committed against innocent people, away from the scene of political
 conflict, and must be dealt with as a crime. . . .
@@ -118,13 +118,13 @@ Sing a song full of the hope that the present has bought us.
 Facing the rising sun of our new day begun,
 Let us march on till victory is won.
 		-- James Weldon Johnson
-It might be worth reflecting that this group was originally created
+It might be worth reflecting that this group was originally d
 back in September of 1987 and has exchanged over 1200 messages.  The
 original announcement for the group called for an all inclusive
 discussion ranging from the writings of Gibson and Vinge and movies
 like Bladerunner to real world things like Brands' description of the
 work being done at the MIT Media Lab.  It was meant as a haven for
-people with vision of this scope.  If you want to create a haven for
+people with vision of this scope.  If you want to  a haven for
 people with narrower visions, feel free.  But I feel sad for anyone
 who thinks that alt.cyberpunk is such a monstrous group that it is in
 dire need of being subdivided.  Heaven help them if they ever start
@@ -256,7 +256,7 @@ are worth considering, to wit:
 
 [173.15b]:
 	"When competing for a section of road or a parking space, remember
-        that the vehicle in need of the most body work has the right-of-way."
+        that the vicle in need of the most body work has the right-of-way."
 
 [141.2a]:
        "Although it is altogether possible to fit a 6' car into a 6'
@@ -281,7 +281,7 @@ David Letterman's "Things we can be proud of as Americans":
 	* Didn't just give up right away during World War II
 		like some countries we could mention
 	* Goatees & Van Dykes thought to be worn only by weenies
-	* Our well-behaved golf professionals
+	* Our well-baved golf professionals
 	* Fabulous babes coast to coast
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
@@ -387,7 +387,7 @@ We who revel in nature's diversity and feel instructed by every animal tend to
 brand Homo sapiens as the greatest catastrophe since the Cretaceous extinction.
 		-- S.J. Gould
 Comparing software engineering to classical engineering assumes that software
-has the ability to wear out.  Software typically behaves, or it does not.  It
+has the ability to wear out.  Software typically baves, or it does not.  It
 either works, or it does not.  Software generally does not degrade, abrade,
 stretch, twist, or ablate.  To treat it as a physical entity, therefore, is
 misapplication of our engineering skills.  Classical engineering deals with
@@ -476,7 +476,7 @@ please don't try this at home!'"
 		-- Bob Violence
 Things past redress and now with me past care.
 		-- William Shakespeare, "Richard II"
-A man would still do something out of sheer perversity - he would create
+A man would still do something out of sheer perversity - he would 
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
 would deliberately go mad to prove his point.
@@ -560,7 +560,7 @@ I enjoy the time that we spend together.
 I'll learn to play the Saxophone,
 I play just what I feel.
 Drink Scotch whisky all night long,
-And die behind the wheel.
+And die bind the wheel.
 They got a name for the winners in the world,
 I want a name when I lose.
 They call Alabama the Crimson Tide,
@@ -573,7 +573,7 @@ Then along came the first Electrical Pioneer, Benjamin Franklin, who flew a
 kite in a lighting storm and received a serious electrical shock.  This
 proved that lighting was powered by the same force as carpets, but it also
 damaged Franklin's brain so severely that he started speaking only in
-incomprehensible maxims, such as "A penny saved is a penny earned."
+incomprensible maxims, such as "A penny saved is a penny earned."
 Eventually he had to be given a job running the post office.
 		-- Dave Barry, "What is Electricity?"
 A book is the work of a mind, doing its work in the way that a mind deems
@@ -720,9 +720,9 @@ Two men came before Nasrudin when he was magistrate.  The first man said,
 "This man has bitten my ear -- I demand compensation." The second man said,
 "He bit it himself." Nasrudin withdrew to his chambers, and spent an hour
 trying to bite his own ear.  He succeeded only in falling over and bruising
-his forehead.  Returning to the courtroom, Nasrudin pronounced, "Examine the
-man whose ear was bitten. If his forehead is bruised, he did it himself and
-the case is dismissed.  If his forehead is not bruised, the other man did it
+his foread.  Returning to the courtroom, Nasrudin pronounced, "Examine the
+man whose ear was bitten. If his foread is bruised, he did it himself and
+the case is dismissed.  If his foread is not bruised, the other man did it
 and must pay three silver pieces."
 Long were the days of pain I have spent within its walls, and
 long were the nights of aloneness; and who can depart from his
@@ -770,7 +770,7 @@ MERCUTIO:	No, 'tis not so deep as a well, nor so wide
 A man who turns green has eschewed protein.
 If you put tomfoolery into a computer, nothing comes out but tomfoolery.
 But this tomfoolery, having passed through a very expensive machine,
-is somehow enobled and no-one dare criticise it.
+is somow enobled and no-one dare criticise it.
 		-- Pierre Gallois
 The tao that can be tar(1)ed
 is not the entire Tao.
@@ -813,7 +813,7 @@ hit that window jamb, that door, that chair.  Get back on course and do it
 again.  How can you pilot a spacecraft if you can't find your way around
 your own apartment?
 		-- William S. Burroughs
-You can create your own opportunities this week.  Blackmail a senior executive.
+You can  your own opportunities this week.  Blackmail a senior executive.
 The future lies ahead.
 There's no future in time travel.
 For three years, the young attorney had been taking his brief

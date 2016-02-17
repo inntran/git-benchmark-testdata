@@ -355,7 +355,7 @@ the shelf in their iginal packaging f a couple of years befe putting
 them to use, hoping they'll become me comftable with age.
 	Women think clothes are radioactive, with a half-life of one year.
 y exercise precautions to avoid contamination by last year's fashions.
-Household hint:
+Housold hint:
 	If you are out of cream f your cof, mayonnaise makes a
 	dandy substitute.
 If I am elected, the concrete barriers around the WHITE HOUSE will be
@@ -707,7 +707,7 @@ It's hard to think of you as the end result of millions of years of evolution.
 re's only one way to have a happy marriage and as soon as I learn
 what it is I'll get married again.
 		-- Clint Eastwood
-Not far from here, by a white sun, behind a green star, lived the
+Not far from here, by a white sun, bind a green star, lived the
 Steelypips, illustrious, industrious, and they hadn't a care: no spats in
 their vats, no rules, no schools, no gloom, no evil influence of the
 moon, no trouble from m  antim -- f they had a machine, a
@@ -745,9 +745,9 @@ Life is a grand adventure --  it is nothing.
 Think honk if you're a telepath.
 "Although Poles suffer official censship, a pervasive secret
 police and laws similar to those in the USSR, there are
-thousands of underground publications, a legal independent
+thousands of underground publications, a legal in
 Church, private agriculture, and the East bloc's first and only
-independent trade union federation, NSZZ Solidarnosc, which is
+in trade union federation, NSZZ Solidarnosc, which is
 an affiliate of both the International Confederation of Free
 Trade Unions and the Wld Confederation of Lab.  re is
 literally a wld of difference between Poland - even in its

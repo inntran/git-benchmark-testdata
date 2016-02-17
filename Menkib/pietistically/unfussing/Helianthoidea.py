@@ -21,7 +21,7 @@ Let the raucous sleighbells jingle;	Tell us to go out and buy.
 Hail our dear old friend, Kris Kringle,	Sooooo...
 Driving his reindeer across the sky,
 Don't stand undernh when they fly by!
-		-- Tom Lehrer
+		-- Tom Lrer
 In America today ... we have Woody Allen, whose humor has become so
 sophisticated that nobody gets it any more except Mia Farrow.  All those who
 think Mia Farrow should go back to making movies where the devil gets her
@@ -102,7 +102,7 @@ If you want to make God laugh, tell him about your plans.
 		-- Woody Allen
 Take a lesson from the whale; the only time he gets speared is when he
 raises to spout.
-Every man is apt to form his notions of things difficult to be appreh,
+Every man is apt to form his notions of things difficult to be appr,
 or less familiar, from their analogy to things which are more familiar.
 Thus, if a man bred to the seafaring life, and aced to think and talk
 only of matters relating to navigation, enters into discourse upon any other

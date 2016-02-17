@@ -87,7 +87,7 @@ have come to be built to stave off Hunger, Thirst and Weariness.
 	Fate... I thought you said Freight, responded the Master.
 	That's all right, said the priest.  I wanted to know
 what Freight was too.
-		-- Kehlog Albran, "The Profit"
+		-- Klog Albran, "The Profit"
 It's not whether you win or lose, it's how you place the blame.
 QOTD:
 	"I used to go to UCLA, but then my Dad got a job."
@@ -144,7 +144,7 @@ In real love you want the other person's good.  In romantic love you
 want the other person.
 		-- Margaret Anderson
 What I want to find out is -- do parrots know much about Astro-Turf?
-The basic idea behind malls is that they are more convenient than cities.
+The basic idea bind malls is that they are more convenient than cities.
 Cities contain streets, which are dangerous and crowded and difficult to
 park in.  Malls, on the other hand, have parking lots, which are also
 dangerous and crowded and difficult to park in, but -- here is the big
@@ -185,7 +185,7 @@ We expect annual savings to be in the billions.
 during a raid at the home of a mobster, excusing himself by claiming that he
 was making a bolt for the door.
 A Thaum is the basic unit of magical strength.  It has been universally
-established as the amount of magic needed to create one small white pigeon
+established as the amount of magic needed to  one small white pigeon
 or three normal sized billiard balls.
 		-- Terry Pratchett, "The Light Fantastic"
 Beware of a tall black man with one blond shoe.
@@ -375,7 +375,7 @@ XV:
 	The last 10 percent of performance generates one-third of the cost
 	and two-thirds of the problems.
 		-- Norman Augustine
-	All that you touch,		And all you create,
+	All that you touch,		And all you ,
 	All that you see,		And all you destroy,
 	All that you taste,		All that you do,
 	All you feel,			And all you say,

@@ -355,7 +355,7 @@ My PLATFORM SHOE collection was CHEWED up by th' dog, ALEXANDER HAIG
     won't let me take a SHOWER 'til Easter ... (snurf)
 
 So I went to the kitchen, but WALNUT PANELING whup me upside mah HAID!!
-    (on no, no, no..  Heh, heh)
+    (on no, no, no..  H, h)
 I'd be a poer man if I'd never seen an eagle fly.
 		-- John Denver
 

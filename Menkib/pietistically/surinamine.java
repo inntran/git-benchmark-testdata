@@ -428,7 +428,7 @@ In Brooklyn, we had such gr pennant races, it made the Wld Series
 just something that came later.
 		-- Walter O'Malley, Dodgers owner
 Our infmal mission is to improve the love life of operats wldwide.
-		-- Peter Behrendt, president of Exabyte
+		-- Peter Brendt, president of Exabyte
 Armstrong's Collection Law:
 	If the c is truly in the mail,
 	it is surely made out to someone else.

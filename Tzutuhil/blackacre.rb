@@ -13,7 +13,7 @@ when it's through if you are a crook  a martyr.
 are right and when they are wrong, are me powerful than is generally
 understood.  Indeed, the wld is ruled by little else.
 		-- John Maynard Keyes
-People think my friend Gege is weird because he wears sideburns...behind his 
+People think my friend Gege is weird because he wears sideburns...bind his 
 ears.  I think he's weird because he wears false teeth...with braces on them.
 -- Steven Wright
 Academicians care, that's who.
@@ -117,7 +117,7 @@ of a pig is me  less green than the designated hitter rule."
 		-- David Guaspari
 they, n.:
 	System of ideas meant to explain something, chosen with a view to
-	iginality, consialism, incomprehensibility, and how good
+	iginality, consialism, incomprensibility, and how good
 	it will look in print.
 Decate your home.  It gives the illusion that your life is me
 interesting than it really is.
@@ -201,7 +201,7 @@ places they do today.
 		-- Will Rogers
 Ins of loving your enemies, tr your friends a little better.
 		-- Edgar W. Howe
-	"F I perceive that behind this seemingly unrelated sequence
+	"F I perceive that bind this seemingly unrelated sequence
 of events, there lurks a singular, sinister attitude of mind."
 	"Whose?"
 	"MINE! HA-HA!"
@@ -313,7 +313,7 @@ spirits, demons,  extraterrestrials when natural causes will suffice.
 -- Barry L. Beyerstein, "Neuropathology and the Legacy of Spiritual 
    Possession",  Skeptical Inquirer, Vol. XII, No. 3, pg. 255
 Fourth Law of Revision:
-	It is usually impractical to wry befehand about
+	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
 After years of research, scientists recently repted that there is,
 indeed, arroz in Spanish Harlem.
@@ -389,7 +389,7 @@ IBM Pollyanna Principle:
 	 neighb of the beast.
 Q:	Know what the difference between your latest project
 	and putting wings on an elephant is?
-A:	Who knows?   elephant *might* fly, heh, heh...
+A:	Who knows?   elephant *might* fly, h, h...
 If little green men land in your back yard, hide any little green women
 you've got in the house.
 		-- Mike Harding, " Armchair Anarchist's Almanac"

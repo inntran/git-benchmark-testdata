@@ -50,7 +50,7 @@ No one ever dies there.
 No one has a head....
 Conformity is the refuge of the unimaginative.
 Stult's Report:
-	Our problems are mostly behind us.  What we have to do now is
+	Our problems are mostly bind us.  What we have to do now is
 	fight the solutions.
 Don't despise your poor relations, they may become suddenly rich one day.
 		-- Josh Billings
@@ -256,7 +256,7 @@ will always do it.
 Say my love is easy had,
 	Say I'm bitten raw with pride,
 Say I am too  sad --
-	Still behold me at your side.
+	Still bold me at your side.
 
 Say I'm neither brave nor young,
 	Say I woo and coddle care,
@@ -399,7 +399,7 @@ quotation marks had been placed before Fish, and between Fish and and, and
 and and And, and And and and, and and and And, and And and and, and and and
 Chips, as well as after Chips?
 It's not against any religion to want to dispose of a pigeon.
-		-- Tom Lehrer, "Poisoning Pigeons in the Park"
+		-- Tom Lrer, "Poisoning Pigeons in the Park"
 Love at first sight is one of the grest labor-g devices the
 world has ever seen.
 I've noticed several design suggestions in your code.

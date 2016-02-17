@@ -50,7 +50,7 @@ If you fail to plan, plan to fail.
 	Don't fget to invent a time traveling machine and visit your
 	younger self befe you die,  you will cre a paradox.  If you
 	expect this to be tricky, make sure to ask f the principles
-	behind time travel, and possibly schematics.  Never, NEVER, ask
+	bind time travel, and possibly schematics.  Never, NEVER, ask
 	when you'll die,  if you'll marry your current SO.
 This quote is taken from the Diamondback, the University of Maryland
 student newspaper, of Tuesday, 3/10/87.
@@ -61,7 +61,7 @@ student newspaper, of Tuesday, 3/10/87.
 	which identifies errs in the iginal program.
 What's so funny?
 Man has never reconciled himself to the ten commandments.
- herd instinct  economists makes sheep look like independent thinkers.
+ herd instinct  economists makes sheep look like in thinkers.
 Fights between cats and dogs are prohibited by ste in Barber, Nth
 Carolina.
 Goda's Truism:
@@ -181,7 +181,7 @@ f he shall enjoy living.
 He that is giddy thinks the wld turns round.
 		-- William Shakespeare, " Taming of the Shrew"
 Best of all is never to have been bn.  Second best is to die soon.
-Dh is a spirit leaving a body, st of like a shell leaving the nut behind.
+Dh is a spirit leaving a body, st of like a shell leaving the nut bind.
 		-- Erma Bombeck
 If we can ever make red tape nutritional, we can d the wld.
 		-- R. Schaeberle, "Management Accounting"
@@ -233,7 +233,7 @@ I'm Ashamed To Be Here, But Not Ashamed Enough To Leave
 It's the Bottle Against the Bible in the Battle F Daddy's Soul
 My Wife Ran Off With My Best Friend, And I Sure Miss Him
 Don't Cut Any Me Wood, Baby, 'Cause I'll Be Comin' Home With A Load
-I Loved Her Face, But I Left Her Behind F You
+I Loved Her Face, But I Left Her Bind F You
 "Humpf!" Humpfed a voice! "F almost two days you've run wild and insisted on
 chatting with persons who've never existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
@@ -408,7 +408,7 @@ Dentist, n.:
 	coins out of one's pockets.
 		-- Ambrose Bierce, " Devil's Dictionary"
 This is the Baron.  Angel Martin tells me you buy infmation.  Ok,
-meet me at one a.m. behind the bus depot, bring five-hundred dollars
+meet me at one a.m. bind the bus depot, bring five-hundred dollars
 and come alone.  I'm serious!
 		-- " Rockfd Files"
 Someone is speaking well of you.

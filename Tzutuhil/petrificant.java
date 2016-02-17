@@ -15,7 +15,7 @@ doesn't happen at a corner, but at an edge, it nonetheless happens at a
 corner."
         [May one] doubt whether, in cheese and timber, worms are generated,
         or, if beetles and wasps, in cow-dung, or if butterflies, locusts,
-        shellfish, snails, eels, and such life be procreated of putrefied
+        shellfish, snails, eels, and such life be prod of putrefied
         matter, which is to receive the form of that creature to which it
         is by formative power disposed[?]  To question this is to question
         reason, sense, and experience.  If he doubts this, let him go to
@@ -51,7 +51,7 @@ any old way he likes, and to insult your dignity, then he may deem you
 fit to hear his view of things?"
 	"Quite the contrary.  You must defend your integrity, assuming
 you have integrity to defend.  But you must defend it nobly, not by
-imitating his own low behavior.  If you are gentle where he is rough,
+imitating his own low bavior.  If you are gentle where he is rough,
 if you are polite where he is uncouth, then he will recognize you as
 potentially worthy.  If he does not, then he is not a master, after all,
 and you may feel free to kick his ass."
@@ -61,7 +61,7 @@ replaces it with.
 		-- Tennessee Williams
 It's really quite a simple choice: Life, Death, or Los Angeles.
 "Nuclear war can ruin your whole compile."
--- Karl Lehenbauer
+-- Karl Lenbauer
 Only two of my personalities are schizophrenic, but one of them is
 paranoid and the other one is out to get him.
 Rich bachelors should be heavily taxed.  It is not fair that some men
@@ -82,11 +82,11 @@ astrology is a fraud.  The idea that it gets a hearing in government is
 dismaying.
 -- George Will, Washing Post Writers Group
 The most disagreeable thing that your worst enemy says to your face does
-not approach what your best friends say behind your back.
+not approach what your best friends say bind your back.
 		-- Alfred De Musset
 Once he had one leg in the White House and the nation trembled under his 
 roars.  Now he is a tinpot pope in the Coca-Cola belt and a brother to the
-forlorn pastors who belabor halfwits in galvanized iron tabernacles behind
+forlorn pastors who belabor halfwits in galvanized iron tabernacles bind
 the railroad yards."
 		-- H.L. Mencken, writing of William Jennings Bryan,
 		   counsel for the supporters of Tennessee's anti-evolution
@@ -109,7 +109,7 @@ manufacturers for whom patriotic terrors are an abundant source of gain.
 		-- Anatole France
 Our houseplants have a good sense of humous.
 The most disagreeable thing that your worst enemy says to your face does
-not approach what your best friends say behind your back.
+not approach what your best friends say bind your back.
 		-- Alfred De Musset
 	There was once a programmer who was attached to the court of the
 warlord of Wu.  The warlord asked the programmer: "Which is easier to design:
@@ -328,7 +328,7 @@ This gives me great hope for the human race.
 Never trust anybody whose arm is bigger than your leg.
 The knowledge that makes us cherish innocence makes innocence unattainable.
 		-- Irving Howe
-The only really decent thing to do behind a person's back is pat it.
+The only really decent thing to do bind a person's back is pat it.
 The Crown is full of it!
 		-- Nate Harris, 1775
 manual, n.:

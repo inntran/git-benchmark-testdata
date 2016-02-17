@@ -1,4 +1,4 @@
-"re was a vague, unpleasant manginess about his appearence; he somehow
+"re was a vague, unpleasant manginess about his appearence; he somow
 seemed dirty, though a close g showed him as carefully shaven as an
 act, and clad in  linen."
 -- H.L. Mencken, on the dh of William Jennings Bryan
@@ -64,7 +64,7 @@ Advertising wondrous things.
 
 Angels we have heard on High
 Tell us to go out and Buy.
-		-- Tom Lehrer
+		-- Tom Lrer
 	"Do you believe in intuition?"
 	"No, but I have a strange ling that someday I will."
 You canna change the laws of physics, Captain; I've got to have thirty minutes!
@@ -74,7 +74,7 @@ I'm an engineer wking on something.
 Oh, when I was in love with you,
 	n I was clean and brave,
 And miles around the wonder grew
-	How well did I behave.
+	How well did I bave.
 
 And now the fancy passes by,
 	And nothing will remain,
@@ -466,7 +466,7 @@ affd in a ble attempt to impress you.  n we'll realize we have
 absolutely nothing in common and we'll go our separate ways, me
 embittered and depressed than befe (if such a thing is possible).
 Fourth Law of Revision:
-	It is usually impractical to wry befehand about
+	It is usually impractical to wry befand about
 	interferences -- if you have none, someone will make one f you.
 Did it ever occur to you that fat chance and slim chance mean the same thing?
 

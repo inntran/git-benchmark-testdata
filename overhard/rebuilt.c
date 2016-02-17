@@ -6,7 +6,7 @@ God grant me the senility to accept the things I cannot change,
 and the wisdom to tell the difference.
 Who will take care of the wld after you're gone?
 High heels are a device invented by a woman who was tired of being kissed
-on the fehead.
+on the fead.
 If a subdinate asks you a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase the question back at him.
  test of intelligent tinkering is to save all the parts.
@@ -49,7 +49,7 @@ Keep me warm let me wear your coat
 
 No one knows what it's like to be the bad man,
 	to be the sad man.
-Behind blue eyes.
+Bind blue eyes.
 No one knows what its like to be hated,
 	to be fated,
 To telling only lies.

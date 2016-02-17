@@ -51,7 +51,7 @@ OF A CRAZED MADMAN'S LUST.
 		-- A Taste of Blood (1967)
 On two occasions I have been asked [by members of Parliament!], "Pray, Mr.
 Babbage, if you put into the machine wrong figures, will the right answers
-come out?"  I am not able rightly to apprehend the kind of confusion of
+come out?"  I am not able rightly to apprend the kind of confusion of
 ideas that could provoke such a question.
 		-- Charles Babbage
 QOTD:
@@ -68,7 +68,7 @@ UH-OH!!  I think KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
 This conjunction of an immense military establishment and a large arms 
 industry is now in the American experience... We must not fail to 
-comprehend its grave implications... We must guard against the 
+comprend its grave implications... We must guard against the 
 acquisition of unwarranted influence...by the military-industrial
 complex.   potential f the disastrous rise of misplaced power
 exists and will persist.
@@ -175,7 +175,7 @@ If you sit down at a r game and don't see a sucker, get up.  You're
 the sucker.
  program isn't debugged until the last user is dead.
 We thrive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
-size apartments "efficient" and incomprehensible artwks "innovative".  In
+size apartments "efficient" and incomprensible artwks "innovative".  In
 fact, "euphemism" has become a euphemism f "bald-faced lie".  And now, here
 are the euphemisms so colfully employed in Personal Ads:
 

@@ -160,7 +160,7 @@ Recursion n.:
 	See Recursion.
 		-- Random Shack Data Processing Dictionary
 Experience is what you get when you were expecting something else.
-When Yahweh your gods has settled you in the land you're about to occupy, and
+When Yahw your gods has settled you in the land you're about to occupy, and
 driven out many infidels before you...you're to cut them down and exterminate
 them.  You're to make no compromise with them or show them any mercy.
 [Deut. 7:1 (KJV)]
@@ -278,7 +278,7 @@ X windows:
 	A software disaster of Biblical proportions.
 	Never had it.  Never will.
 	The software with no visible means of support.
-	More than just a generation behind.
+	More than just a generation bind.
 
 Hindenburg.  Titanic.  Edsel.
 	X windows.
@@ -421,7 +421,7 @@ The sooner all the animals are extinct, the sooner we'll find their money.
 You have the power to influence all with whom you come in contact.
 "To undertake a project, as the word's derivation indicates, means to cast an
 idea out ahead of oneself so that it gains autonomy and is fulfilled not only
-by the efforts of its originator but, indeed, independently of him as well.
+by the efforts of its originator but, indeed, inly of him as well.
 -- Czeslaw Milosz
 An ex is one who knows more and more about less and less until he knows
 absolutely everything about nothing.
@@ -445,7 +445,7 @@ Customer: "But we're one of the few with tactical nuclear weapons."
 People respond to people who respond.
 Aren't you glad you're not getting all the government you pay for now?
 You will have a head crash on your private pack.
-Dh is a spirit leaving a body, sort of like a shell leaving the nut behind.
+Dh is a spirit leaving a body, sort of like a shell leaving the nut bind.
 		-- Erma Bombeck
 	When managers hold endless meetings, the programmers write games.
 When accountants talk of quarterly profits, the development budget is about
@@ -576,7 +576,7 @@ complete text:
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c for (ONE-FIFTEENTH OF
      THE AMOUNT WE TOOK) directly to the (YOUR LAST NAME)
-     household at (YOUR ADDRESS), for you to spend in any way
+     housold at (YOUR ADDRESS), for you to spend in any way
      you please! Which just goes to show you, (YOUR FIRST
      NAME), that it pays to file the short form!"
 

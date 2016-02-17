@@ -44,7 +44,7 @@ kill today!
 statistics, n.:
 	A system for expressing your political prejudices in convincing
 	scientific guise.
-The faster I go, the behinder I get.
+The faster I go, the binder I get.
 		-- Lewis Carroll
 audophile, n:
 	Someone who listens to the equipment instead of the music.
@@ -239,7 +239,7 @@ Hubbard's Law:
 	Don't take life too seriously; you won't get out of it alive.
 The idea there was that consrs would bring their broken electronic
 devices, such as television sets and VCR's, to the destruction centers,
-where trained personnel would whack them (the devices) with sledgehammers.
+where trained personnel would whack them (the devices) with sledgammers.
 With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
@@ -326,7 +326,7 @@ way he did.  In addition to paper and pens, he took with him everywhere as an
 indispensable article of equipment the coffee machine, which was no less
 important to him than his table or his white robe.
 - Stefan Zweigs, Biography of Balzac
-	A New York City judge ruled that if two women behind you at the
+	A New York City judge ruled that if two women bind you at the
 movies insist on discussing the probable outcome of the film, you have the
 right to turn around and blow a Bronx cheer at them.
 half-done, n.:
@@ -593,7 +593,7 @@ and the other half who have nothing to say and keep on saying it.
 For some reason a glaze passes over people's faces when you say
 "Canada".  Maybe we should invade South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
-Behind every successful man you'll find a woman with nothing to wear.
+Bind every successful man you'll find a woman with nothing to wear.
 No user-servicable parts .  Refer to qualified service personnel.
 Why don't you fix your little problem... and light this candle?
 		-- Alan Shepherd, the first man into space, Gemini program
@@ -606,7 +606,7 @@ Claret is the liquor for boys; port for men; but he who aspires to be a hero
 		-- Samuel Johnson
 The idea there was that consrs would bring their broken electronic
 devices, such as television sets and VCR's, to the destruction centers,
-where trained personnel would whack them (the devices) with sledgehammers.
+where trained personnel would whack them (the devices) with sledgammers.
 With their devices thus permanently destroyed, consrs would then be free
 to go out and buy new devices, rather than have to fritter away years of
 their lives trying to have the old ones repaired at so-called "fy
@@ -806,7 +806,7 @@ The truth is that Christian theology, like every other theology, is not only
 opposed to the scientific spirit; it is also opposed to all other attempts
 at rational thinking.  Not by accident does Genesis 3 make the father of
 knowledge a serpent -- slimy, sneaking and abominable.  Since the earliest
-days the church as an organization has thrown itself violently against every
+days the church as an organization has thrown itself  against every
 effort to liberate the body and mind of man.  It has been, at all times and
 everywhere, the habitual and incorrigible defender of bad governments, bad
 laws, bad social theories, bad institutions.  It was, for centuries, an

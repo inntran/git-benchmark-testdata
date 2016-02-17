@@ -14,7 +14,7 @@ There are not stars enough in heaven.
 I used to be a FUNDAMENTALIST, but then I heard about the HIGH
 RADIATION LEVELS and bought an ENCYCLOPEDIA!!
 We thrive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
-size apartments "efficient" and incomprehensible artworks "innovative".  In
+size apartments "efficient" and incomprensible artworks "innovative".  In
 fact, "euphemism" has become a euphemism for "bald-faced lie".  And now, here
 are the euphemisms so colorfully employed in Personal Ads:
 
@@ -208,7 +208,7 @@ mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
 Blinding speed can compensate for a lot of deficiencies.
 		-- David Nichols
-"In order to make an apple pie from scratch, you must first create the
+"In order to make an apple pie from scratch, you must first  the
 universe."
 		-- Carl Sagan, Cosmos
 Objects are lost only because people look where they are not rather than
@@ -334,7 +334,7 @@ FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#5
 
 Trust:
 	The average woman would really like to be told if her mate is fooling
-around behind her back.  This same woman wouldn't tell her best friend if
+around bind her back.  This same woman wouldn't tell her best friend if
 she knew the best friends' mate was having an affair.  She'll tell all her
 OTHER friends, however.  The average man won't say anything if he knows that
 one of his friend's mates is fooling around, and he'd rather not know if
@@ -343,12 +343,12 @@ of his friends.  He will tell all his friends about his own affairs, though,
 so they can be ready if he needs an alibi.
 
 Driving:
-	A typical man thinks he's Mario Andretti as soon as he slips behind
+	A typical man thinks he's Mario Andretti as soon as he slips bind
 the wheel of his car.  The fact that it's an 8-year-old Honda doesn't keep
 him from trying to out-accelerate the guy in the Porsche who's attempting
 to cut him off; freeway on-ramps are exciting challenges to see who has The
 Right Stuff on the morning commute.  Does he or doesn't he?  Only his body
-shop knows for sure.  Insurance companies understand this behavior, and
+shop knows for sure.  Insurance companies understand this bavior, and
 price their policies accordingly.
 	A woman will slow down to let a car merge in front of her, and get
 rear-ended by another woman who was busy adding the finishing touches to
@@ -529,7 +529,7 @@ grown-up.
 A man said to the Universe:
 	"Sir, I exist!"
 	"However," replied the Universe,
-	"the fact has not created in me a sense of obligation."
+	"the fact has not d in me a sense of obligation."
 		-- Stephen Crane
 	Graduating seniors, parents and friends...
 	Let me begin by reassuring you that my remarks today will stand up
@@ -606,7 +606,7 @@ a message with a line like that.  Don't use a subject like "My sex is female
 but I demand to be addressed as male." because such articles are read in depth
 by all USEnauts.
 		-- Emily Postnews Answers Your Questions on Netiquette
-"There was a vague, unpleasant manginess about his appearence; he somehow
+"There was a vague, unpleasant manginess about his appearence; he somow
 seemed dirty, though a close glance showed him as carefully shaven as an
 actor, and clad in immaculate linen."
 -- H.L. Mencken, on the death of William Jennings Bryan

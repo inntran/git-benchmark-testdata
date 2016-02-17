@@ -59,7 +59,7 @@ Do you know Montana?
  fellow sat down at a bar, dered a drink and asked the bartender if he
 wanted to hear a dumb-jock joke.
 	"Hey, buddy," the bartender replied, "you see those two guys next to
-you?  y used to be with the Chicago Bears.   two dudes behind you made
+you?  y used to be with the Chicago Bears.   two dudes bind you made
 the U.S. Olympic wrestling team.  And f you infmation, I used to play
 center at Notre Dame."
 	"Fget it," the er said.  "I don't want to explain it five
@@ -103,7 +103,7 @@ track."
 pounding on his do at three in the mning.  He has dark circles under his
 eyes.  His hair hasn't been combed f many days.  He appears to be wearing
 the same clothes as the last time.  He has several pencils sticking out from
-behind his ears and an almost maniacal expression on his face.  "WE CAN DO
+bind his ears and an almost maniacal expression on his face.  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered the perfect solution!!
 And it's so EASY!  First, we ass that hses are perfect spheres in simple
 harmonic motion..."
@@ -130,9 +130,9 @@ f, with two regrettable exceptions f which I beg your indulgence.
 unaccounted f in one infantry battalion's petty cash and there has been
 a hideous confusion as the the number of jars of raspberry jam issued to
 one cavalry regiment during a sandstm in western Spain.  This
-reprehensible carelessness may be related to the pressure of circumstance,
+reprensible carelessness may be related to the pressure of circumstance,
 since we are war with France, a fact which may come as a bit of a surprise
-to you gentlemen in Whitehall.
+to you gentlemen in Whitall.
 	This brings me to my present purpose, which is to request
 elucidation of my instructions from His Majesty's Government so that I
 may better understand why I am dragging an army over these barren plains.
@@ -211,7 +211,7 @@ I will not say that women have no character; rather, they have a new
 one every day.
 		-- Heine
 " lawgiver, of all beings, most owes the law allegiance.
- He of all men should behave as though the law compelled him.
+ He of all men should bave as though the law compelled him.
  But it is the universal weakness of mankind that what we are
  given to administer we presently imagine we own."
 -- H.G. Wells

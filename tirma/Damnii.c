@@ -34,13 +34,13 @@ Your wig steers the gig.
 Correction notice in the Miami Herald: "Last Sunday, The Herald erroneously
 reported that original Dolphin Johnny Holmes had been an insurance salesman
 in Raleigh, North Carolina, that he had won the New York lottery in 1982 and
-lost the money in a land swindle, that he had been charged with vehicular
+lost the money in a land swindle, that he had been charged with vicular
 homicide, but acquitted because his mother said she drove the car, and that
 he stated that the funniest thing he ever saw was Flipper spouting water on
 George Wilson.  Each of these items was erroneous material published
 inadvertently.  He was not an insurance salesman in Raleigh, did not win the
 lottery, neither he nor his mother was charged or involved in any way with
-vehicular homicide, and he made no comment about Flipper or George Wilson.
+vicular homicide, and he made no comment about Flipper or George Wilson.
 The Herald regrets the errors."
 		-- "The Progressive", March, 1987
 yo-yo, n.:
@@ -123,7 +123,7 @@ Here is a verse about rabbits		The cow is of the bovine ilk;
 That doesn't mention their habits.	One end is moo, the other, milk.
 		-- Ogden Nash
 	What is involved in such [close] relationships is a form of emotional
-chemistry, so far unexplained by any school of psychiatry I am aware of, that
+chemistry, so far unexplained by any school of  I am aware of, that
 conditions nothing so simple as a choice between the poles of attraction and
 repulsion.  You can meet some people thirty, forty times down the years, and
 they remain amiable bystanders, like the shore lights of towns that a sailor
@@ -319,7 +319,7 @@ But Officer, I stopped for the last one, and it was green!
 volcano, n.:
 	A mountain with hiccups.
 I am firm.  You are obstinate.  He is a pig-headed fool.
-		-- Katharine Whitehorn
+		-- Katharine Whitorn
 Providence, New Jersey, is one of the few cities where Velveeta cheese
 appears on the gourmet shelf.
 "We are on the verge: Today our program proved Fermat's next-to-last theorem."
@@ -327,7 +327,7 @@ appears on the gourmet shelf.
 My pen is at the bottom of a page,
 Which, being finished, here the story ends;
 'Tis to be wished it had been sooner done,
-But stories somehow lengthen when begun.
+But stories somow lengthen when begun.
 		-- Byron
 "Now the Lord God planted a garden East of Whittier in a place called
 Yorba Linda, and out of the ground he made to grow orange trees that
@@ -428,7 +428,7 @@ He's the only DJ you can get after three,
 I'm an all-night musician in a rock and roll d,
 And why he don't like me I don't understand.
 		-- The Byrds
-"Luke, I'm yer father, eh.  Come over to the dark side, you hoser."
+"Luke, I'm yer father, .  Come over to the dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
 "I've seen it.  It's rubbish."
 -- Marvin the Paranoid Android
@@ -499,7 +499,7 @@ keyboard was designed,  other things, to facilitate the even use
 of both hands.  It follows, therefore, that writing about databases is
 not only unnatural, but a lot harder than it appears.
 Nondeterminism means never having to say you are wrong.
-The plot was designed in a light vein that somehow became varicose.
+The plot was designed in a light vein that somow became varicose.
 		-- David Lardner
 Bower's Law:
 	Talent goes where the action is.
@@ -536,9 +536,9 @@ I've looked at the listing, and it's right!
 		-- Joel Halpern
 A beer delayed is a beer denied.
 He who hoots with owls by night cannot soar with eagles by day.
-... TheysaidDoyouseethebiggreenglowinthedarkhouseuponthehill?andIsaidYesIsee
-thebiggreenglowinthedarkhouseuponthehillTheresabigdarkforestbetweenmeandthe
-biggreenglowinthedarkhouseuponthehillandalittleoldladyridingonaHoovervacuum
+... TheysaidDoyouseethebiggreenglowinthedarkhouseuponthill?andIsaidYesIsee
+thebiggreenglowinthedarkhouseuponthillTheresabigdarkforestbetweenmeandthe
+biggreenglowinthedarkhouseuponthillandalittleoldladyridingonaHoovervacuum
 cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 
 	I don't even *HAVE* a dog Toto...
@@ -626,7 +626,7 @@ hot in cups with a few raisins and almonds in each cup.
 if you really have a deep-sed desire to be fussy, or if you are of Swedish
 extraction.
 "If Diet Coke did not exist it would have been neccessary to invent it."
--- Karl Lehenbauer
+-- Karl Lenbauer
 Although it is still a truism in industry that "no one was ever fired for
 buying IBM," Bill O'Neil, the chief technology officer at Drexel Burnham
 Lambert, says he knows for a fact that someone has been fired for just that
@@ -796,4 +796,4 @@ objectives, so that men wander beyond the safe provision of personal
 gratifications.  All strong interests easily become impersonal, the love of
 a good job well done.  There is a sense of harmony about such an accomplishment,
 the Peace brought by something worth-while.
-- Alfred North Whitehead, 1963, in "The History of Manned Space Flight"
+- Alfred North Whitead, 1963, in "The History of Manned Space Flight"

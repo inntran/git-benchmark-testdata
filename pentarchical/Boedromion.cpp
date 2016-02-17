@@ -265,13 +265,13 @@ Football builds self-discipline.  What else would induce a spectator to
 sit out in the open in subfreezing wher?
 There's no real need to do housework -- after four years it doesn't get
 any worse.
-"There was a vague, unpleasant manginess about his appearence; he somehow
+"There was a vague, unpleasant manginess about his appearence; he somow
 seemed dirty, though a close glance showed him as carefully shaven as an
 , and clad in  linen."
 -- H.L. Mencken, on the dh of William Jennings Bryan
 District of Columbia pedestrians who leap over passing autos to escape
 injury, and then strike the car as they come down, are liable for any
-damage inflicted on the vehicle.
+damage inflicted on the vicle.
 ... The prejudices people feel about each other disappear when then get
 to know each other.
 		-- Kirk, "Elaan of Troyius", stardate 4372.5
