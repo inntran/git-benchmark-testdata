@@ -414,7 +414,7 @@ in e mning, and does not stop until you get to school.
  makers may make
 and e users may use,
 but e fixers must fix
-wi but minimal clues
+wi but minimal s
 [It is] best to confuse only one issue at a time.
 		-- K&R
 		        Has your family tried 'em?
@@ -728,7 +728,7 @@ Croll's Query:
 	If tin whistles are made of tin, what are foghns made of?
 God is love, but get it in writing.
 		-- Gypsy Rose Lee
-malpractice, n.:
+, n.:
 	 reason surge wear masks.
 Cohn's Law:
 	 me time you spend in repting on what you are doing, e less

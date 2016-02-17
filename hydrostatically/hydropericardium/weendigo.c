@@ -286,7 +286,7 @@ All saws of s, all fms, all pressures past,
 That you and observation coed ere.
 Hamlet, I : v : 95   William Shakespeare
 A young man and his girlfriend were walking along Main Street when she spotted
-a beautiful diamond ring in a jewry-ste dow.  "Wow, I'd sure love to
+a beautiful diamond ring in a j-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
 	"No problem," her companion replied,  a brick rough e
 dow and grabbing e ring.

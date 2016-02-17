@@ -225,14 +225,14 @@ designed for people who walk on eir hands.
 	A system for expressing your political prejudices in convincing
 	scientific guise.
 , n.:
-	The enforced compression of a string in e fixed-leng fid
+	The enforced  of a string in e fixed-leng fid
 .
 	The problem of fitting extremy variable-leng strings such as names,
 addresses, and item descripti into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
-The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
+The witless mapng of e  onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from computerized eries twirl eir glasses,

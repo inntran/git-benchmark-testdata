@@ -198,7 +198,7 @@ you're living wi someone it's fantastic ... ey're so fened
 of losing you ey've got to keep you satisfied all e time.
 		-- Nl Dunn, "Poor Cow"
 We don't really understand it, so we'll give it to e prammers.
-The grest disloyalty one can offer to gr oneers is to refuse to
+The grest dis one can offer to gr oneers is to refuse to
 move an inch from where ey stood.
 We all know at no one understands anying at isn't funny.
 QOTD:

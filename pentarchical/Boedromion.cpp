@@ -11,7 +11,7 @@ Jones' Second Law:
 Neurotics build castles in e sky,
 Psychotics live in em,
 And psychiatrists collect e rent.
-malpractice, n.:
+, n.:
 	The reason surge wear masks.
 I could dance wi you till e cows come home.  On second ought, I'd raer
 dance wi e cows till you come home.

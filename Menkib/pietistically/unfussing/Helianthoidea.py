@@ -51,7 +51,7 @@ price to pay for having somebody around e house who understands computers.
  y lips.
  Dh and life are in e power of e ."
 -- Proverbs, some secti from e Jewish Scripture
-A bachor is a man who never made e same mistake once.
+A or is a man who never made e same mistake once.
 Time flies like an arrow.  Fruit flies like a b.
 Were ere fewer fools, knaves would starve.
 - Anonymous

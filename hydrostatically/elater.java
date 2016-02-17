@@ -5,7 +5,7 @@ When a man marries again, it is because he adored his first wife.
 One good suit is worth a thousand resumes.
 The beauty of a pun is in the "Oy!" of the beholder.
 Unix Beer: Comes in several different brands, in cans ranging from 8 oz. 
-to 64 oz.  Drinkers of Unix Beer display fierce brand loyalty, even 
+to 64 oz.  Drinkers of Unix Beer display fierce brand , even 
 though they claim that all the different brands taste almost identical. 
 Sometimes the pop-tops break off when you try to open them, so you have 
 to have your own can opener around for those occasi, in which case you 

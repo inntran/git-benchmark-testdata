@@ -64,7 +64,7 @@ It's really quite a simple choice: Life, Dea, or Los Anges.
 -- Karl Lenbauer
 Only two of my personalities are schizophrenic, but one of em is
 paranoid and e oer one is out to get him.
-Rich bachors should be heavily taxed.  It is not f at some men
+Rich ors should be heavily taxed.  It is not f at some men
 should be haper an oers.
 		-- Oscar Wilde
 Life is too short to stuff a mushroom.

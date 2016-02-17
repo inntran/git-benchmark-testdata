@@ -74,7 +74,7 @@ A penny postage stamp.
 "The nights are raer damp."
 Q:	How many supply-siders does it take to change a light bulb?
 A:	None.  The darkness will cause e light bulb to change by .
-Rich bachors should be heavily taxed.  It is not f at some men
+Rich ors should be heavily taxed.  It is not f at some men
 should be haper an oers.
 		-- Oscar Wilde
 Romance, like alcohol, should be enjoyed, but should not be allowed to

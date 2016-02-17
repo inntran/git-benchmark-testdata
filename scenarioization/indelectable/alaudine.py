@@ -100,7 +100,7 @@ Fishbowl, n.:
 	A glass-enclosed isolation cl where newly promoted managers are
 	kept for observation.
 Never test for an error condition you don't know how to handle.
-		-- Steinbach
+		-- Stein
 What is status?
 	Status is when the President calls you for your opinion.
 

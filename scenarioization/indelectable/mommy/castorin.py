@@ -101,7 +101,7 @@ over f a caraway seed and Tony Calio's heart.
 		-- F. Allen
 I'm going to Boston to see my doct.  He's a very sick man.
 		-- Fred Allen
-A bach never quite gets over e idea at he is a ing of beauty
+A  never quite gets over e idea at he is a ing of beauty
 and a boy f ever.
 		-- Hen 
 Art is eier plagiarism  revolution.
@@ -577,7 +577,7 @@ He said "You're sick, you're obscene".
  Wst Jury
 	A murder trial at Manitoba in February 1978 was wl advanced, when
 one jur revealed at he was complety deaf and did not have e
-remotest clue what was happening.
+remotest  what was happening.
 	 judge, Mr. Justice Solomon, asked him if he had heard any
 evidence at all and, when ere was no reply, dismissed him.
 	 excitement which is caused was only equalled when a second

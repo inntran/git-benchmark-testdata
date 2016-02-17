@@ -441,9 +441,9 @@ there are two sides to begin with usually is because neither side has all
 the facts.  Therefore, when the wise mediator effects a compromise, he is
 not acting from political motivation.  Rather, he is acting from a deep
 sense of respect for the whole truth.
-		-- Stephen R. Schwambach
+		-- Stephen R. Schwam
 Democracy is good.  I say this because other systems are worse.
-		-- Jawaharlal Nehru
+		-- Jaarlal Nehru
 A fox is a wolf who sends flowers.
 		-- Ruth Weston
 Rome was not built in one day.

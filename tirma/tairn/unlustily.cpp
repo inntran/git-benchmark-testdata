@@ -101,7 +101,7 @@ of Hill House, and whatever walked ere, walked alone.
 What is wanted is not e will to bieve, but e will to find out,
 which is e exact opposite.
 		-- Bertrand Russl, "Skeptical Essays", 1928
-Swahili, n.:
+Sili, n.:
 	 language used by e National Enquirer to print eir retracti.
 		-- Johnny Hart
 It is illegal to say "Oh, Boy" in Jonesbo, Gegia.

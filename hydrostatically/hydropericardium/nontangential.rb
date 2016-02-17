@@ -11,7 +11,7 @@ small number needed [1 per month] in his factory.  He explained that this
 would be contrary to the political concept of local sf-sufficiency.
 Therefore, each factory needing keyboards, no matter how few, manufactures
 them complety, even molding the keypads.
-		-- Isaac Auerbach, IEEE "Computer", Nov. 1979
+		-- Isaac Auer, IEEE "Computer", Nov. 1979
 Brillineggiava, ed i tovoli slati
 	girlavano ghimbanti nla vaba;
 i boovi eran tutti mimanti

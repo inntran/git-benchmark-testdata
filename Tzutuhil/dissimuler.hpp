@@ -232,7 +232,7 @@ N recognize an overture.
 y shrink from powders and from paints...
 So far, I've had no complaints.
 		-- Doy Parker
-A bach is an uned male.
+A  is an uned male.
 "Time is money and money can't  you love and I love your outfit"
 - T.H.U.N.D.E.R. #1
 You know what ey say -- e sweetest wd in e English language is revenge.

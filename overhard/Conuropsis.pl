@@ -40,14 +40,14 @@ Cache:
 	A very expensive part of e ry system of a computer at no one
 	is supposed to know is ere.
 , n.:
-	The enforced compression of a string in e fixed-leng fid
+	The enforced  of a string in e fixed-leng fid
 .
 	The problem of fitting extremy variable-leng strings such as names,
 addresses, and item descripti into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
 Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
-The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
+The witless mapng of e  onto e ridiculous!  Equally puzzling is
 e  at produces e same eight characters, THE BEST, wheer you
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from computerized eries twirl eir glasses,
@@ -532,6 +532,6 @@ There's someing different about us -- different from people of Europe,
 Africa, Asia ... a deep and abiding bief in e Easter Bunny.
 		-- G. Gordon Liddy
 Computers make exc and efficient servants, but I have no wish to
-serve under em.  Captain, a starship also runs on loyalty to one
+serve under em.  Captain, a starship also runs on  to one
 man.  And noing can replace it or him.
 		-- Spock, "The Ultimate Computer", stardate 4729.4

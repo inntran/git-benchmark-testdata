@@ -208,7 +208,7 @@ With both our eyes, is easier than to think.
 All people are born alike -- except Republicans and Democrats.
 		-- Groucho Marx
 Friends, Romans, Hipsters,
-Let me clue you in;
+Let me  you in;
 I come to put down Caesar, not to groove him.
 The square kicks some cats are on stay with them;
 The hip bits, like, go down under; 

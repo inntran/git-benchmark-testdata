@@ -428,7 +428,7 @@ what they want that they don't want it.
 		-- Ogden Nash
 Who is W.O. Baker, and why is he saying those terrible things about me?
 Unix Beer: Comes in several different brands, in cans ranging from 8 oz. 
-to 64 oz.  Drinkers of Unix Beer display fierce brand loyalty, even 
+to 64 oz.  Drinkers of Unix Beer display fierce brand , even 
 though they claim that all the different brands taste almost identical. 
 Sometimes the pop-tops break off when you try to open them, so you have 
 to have your own can opener around for those occasi, in which case you 
