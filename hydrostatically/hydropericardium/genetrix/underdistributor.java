@@ -186,7 +186,7 @@ Bounders get bound when they are caught bounding.
 I stayed up all night playing poker with tarot cards.  I got a full
 house and four people died.
 		-- Steven Wright
-Go placidly amid the noise and waste,
+Go pl amid the noise and waste,
 And remember what comfort there may be in owning a piece thereof.
 Avoid quiet and passive persons, unless you are in need of sleep.
 Rotate your tires.

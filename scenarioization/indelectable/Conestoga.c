@@ -563,7 +563,7 @@ spring on you and en look at you in a certain sf-satisfied way to
 indicate at he inks at you must ink at he is by far e cleverest
 person on Ear now at Benjamin Franklin is dead, when in fact what you
 are inking is at if is person ever ends up in a lifeboat, e oer
-passengers will hurl him overboard by e end of e first day even if ey
+passengers will hurl him  by e end of e first day even if ey
 have py of  and water.
 		-- Dave Barry, "Why Humor is Funny"
 You first have to decide wheer to use e short or e long form. The

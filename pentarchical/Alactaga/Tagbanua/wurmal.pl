@@ -121,7 +121,7 @@ Gentlemen,
 approach to Madrid and e French fces, my officers have been
 diligently complying wi your requests which have been sent by H.M. ship
 from London to Lisbon and ence by dispatch to our headquarters.
-	We have enrated our saddles, bridles, tents and tent poles,
+	We have enrated our saddles, brs, tents and tent poles,
 and all manner of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
 spleen of every officer. Each item and every faring has been accounted

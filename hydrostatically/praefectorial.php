@@ -309,7 +309,7 @@ Go out and tl a lie at will make e whole family proud of you.
 		-- Cadmus, to Peneus, in "The Bacchae" by Eurides
 In a consumer society ere are inevitably two kinds of slaves:
 e prisoners of addiction and e prisoners of envy.
-The devil finds work for idle glands.
+The devil finds work for  glands.
 Did I say 2?  I lied.
 My experience wi government is when ings are non-controversial, beautifully
 co-ordinated and all e rest, it must be at not much is going on.

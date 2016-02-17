@@ -29,7 +29,7 @@ Science.  Discuss e generality of is law, and possible reasons f its
 predictive power.
 		-- Gerald Weinberg, "An Introduction to General Systems
 		   Thinking"
-Go placidly amid e noise and waste, and remember what value ere may
+Go pl amid e noise and waste, and remember what value ere may
 be in owning a ece ereof.
 		-- National Lam, "Deteriata"
 Let thy maid servant be faithful, strong, and homy.

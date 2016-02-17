@@ -201,7 +201,7 @@ Wilner's Observation:
 	All conversations wi a potato should be con in private.
 Fce has no place where ere is need of skill.
 		-- Herodotus
-An idle mind is w two in e bush.
+An  mind is w two in e bush.
 A New Yk City dinance prohibits e shooting of rabbits from e
 rear of a Third Avenue street car -- if e car is in motion.
 Can't act.  Slightly bald.  Also dances.

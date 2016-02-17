@@ -510,7 +510,7 @@ Trogytism does not necessarily imply a low cultural lev.
 	Francis Fd Coppola presents a Gege Lucas Production:
 			"Ftune Cookie"
 	Directed by Steven Sberg.
-	Starring  Harrison Fd  Bette Midler  Marlon Brando
+	Starring  Harrison Fd  Bette Mr  Marlon Brando
 		  Christopher Reeves  Marilyn Chambers
 		  and Bob Hope as " Waiter".
 	Costs Designed by Pierre Cardin.
