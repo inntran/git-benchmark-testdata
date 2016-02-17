@@ -274,7 +274,7 @@ From night 'til ly in e mn;
 		-- University of Texas' school song
 Extradinary claims demand extradinary proof.  re  many examples of
 outsiders who eventually overrew entrenched scientific odoxies, but
-ey prevailed wi irrefutable data.  Me , egregious findings at
+ey prevailed wi irrefutable data.  Me , egreus findings at
 contradict wl-established resch turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
 and e like, would entail  revisi of e foundati of

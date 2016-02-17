@@ -63,7 +63,7 @@ Where do I find the time for not reading so many books?
 You will win success in whatever calling you adopt.
 Disks travel in packs.
 Far back in the mists of ancient time, in the great and glorious days of the
-former Galactic Empire, life was wild, rich and largely tax free.
+former Galactic , life was wild, rich and largely tax free.
 
 Mighty starships plied their way between exotic suns, seeking adventure and
 reward among the furthest reaches of Galactic space.  In th days, spirits
@@ -71,7 +71,7 @@ were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures
 from Alpha Centauri.  And all dd to brave unknown terrors, to do mighty
 deeds, to boldly split infinitives that no man had split before -- and thus
-was the Empire forged.
+was the  forged.
 -- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
 ink, n.:
 	A villainous compound of tannogallate of iron, gum-arabic,
@@ -144,7 +144,7 @@ over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
 Authors  easy to get on with -- if you're fond of children.
 		-- Michael Jph, "Observer"
-Uh-oh -- WHY am I suddenly thinking of a VENERABLE religious leader
+Uh-oh -- WHY am I suddenly thinking of a VENERABLE relius leader
 frolicking on a FORT LAUDERDALE weekend?
 In the long run we  all dead.
 		-- John Maynard Keynes
@@ -228,7 +228,7 @@ i borogovi eran tutti mimanti
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
-fuggi l'uccello Giuggiolo, e nel sacco
+fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 "Interesting survey in the current Journal of Abnormal Psychology: New York 

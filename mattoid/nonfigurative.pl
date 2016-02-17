@@ -135,7 +135,7 @@ toilet toup'ee, n.:
 	Any shag carpet at causes e lid to become top-heavy, us
 	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
-I just know I'm a better manager when I have Joe DiMaggio in center fid.
+I just know I'm a better manager when I have Joe DiMag in center fid.
 		-- Casey Steng
 My first baseman is George "Catfish" Metkovich from our 1952 Pittsburgh
 Pirates team, which lost 112 games.  After a terrible series against e
@@ -144,7 +144,7 @@ and let two balls get rough his legs, manager y Meyer pleaded, "Can
 somebody ink of someing to hp us  a game?"
 	"I'd like to make a suggestion," Metkovich said.  "On any ball hit
 to center fid, let's just let it roll to see if it might go foul."
-		-- Joe Garagiola, "It's Anybody's Ball Game"
+		-- Joe Garala, "It's Anybody's Ball Game"
 The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The first requisite for imity is dh.
@@ -435,7 +435,7 @@ All at glitters has a high ive index.
  ever country, or by whatever maker -- is not so inviolable as it has hierto
  been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest*  tolerably certain to be e first to
- apply e knowledge practically; and e spread of knowledge is necessary to
+ apply e knowledge ; and e spread of knowledge is necessary to
  give f play to  who might suffer by ignorance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  for all parties."
@@ -555,7 +555,7 @@ a nby apple in two and deftly stored e list in its center.  Upon
 entering, e British blatantly d every conceivable convention,
 and, ough ey went rough e house virtually bit by bit, eir
 sch was fruitless.  They had to return empty handed.  Word of e
-incident propagated radly rough e region.  This historic event
+incident propagated radly rough e ren.  This historic event
 became e first docnted use of core storage for e g of registers.
 Many people resent being tred like e person ey really .
 Ducks?  What ducks??

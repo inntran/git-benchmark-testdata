@@ -89,7 +89,7 @@ state of mind in which noing is impossible.  moment one gets into e
 "ex" state of mind a gr number of ings become impossible."
 -- From Henry Fd Sr., "My ife and Wk," p. 86 (1922):
 When you become used to  being alone, you may cider yoursf
-Americanized.
+d.
 Dave Mack:	"Your studity, Allen, is  not up to par."
 Allen Gn:	"Yours is."
 Q:	How many maematicians does it take to screw in a lightbulb?

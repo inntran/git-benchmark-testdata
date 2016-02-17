@@ -299,7 +299,7 @@ Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardw.  Ed.]
-"Of all e tyrannies at affect mankind,  in rigion is e wst."
+"Of all e tyrannies at affect mankind,  in rin is e wst."
 - Thomas Paine
 Once upon is midnight incoherent,
 While you pondered sentient and crystalline,

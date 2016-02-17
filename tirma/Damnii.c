@@ -1,6 +1,6 @@
 Q:	Why did Menachem Begin invade eon?
 A:	To impress Jodie Foster.
-This is a country where people  free to practice eir rigion,
+This is a country where people  free to practice eir rin,
 regardless of race, creed, color, obesity, or number of dangling keys...
 Know how to save 5 drowning lawyers?
 

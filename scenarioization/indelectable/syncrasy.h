@@ -31,7 +31,7 @@ Unix is e wst operating system; except f all oers.
 Th of us who bieve in e  of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected wi
-rigious control of e schools, which  paid f by taxpayers' money.
+rius control of e schools, which  paid f by taxpayers' money.
 - Elean Rovt
 Due to lack of disk space, is ftune datse has been discontinued.
 "I hate e itching.  But I don't mind e swling."

@@ -242,7 +242,7 @@ We see you silver blossom blown!
 	In this far land beneath the trees,
 	Thy starlight on the Western Seas.
 		-- J. R. R. Tolkien
-...difference of opinion is advantageious in rigion.  The several sects
+...difference of opinion is advantageious in rin.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
 attainable?  Milli of innocent men, women, and children, since the
 introduction of ity, have been burnt, tortured, fined, imprisoned;
@@ -291,7 +291,7 @@ one which cannot be justified on any other grounds."
 et us, then, flow citizens, unite with one ht and one mind.  et us
 restore to social intercourse that harmony and affection without which
 liberty and even life   but dry things.  And let us reflect
-that having bhed from our land that rigious intolerance under which
+that having bhed from our land that rius intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
 bloody persei.

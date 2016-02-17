@@ -197,7 +197,7 @@ See how it runs!  See how it runs!
 System/3!
 It is better to trav hopefully an to fly Continental.
 No problem is so fmidable at you can't just walk away from it.
-"Of all the tyrannies that affect mankind, tyranny in religion is the worst."
+"Of all the tyrannies that affect mankind, tyranny in relin is the worst."
 		-- C. Schulz
 People ink my friend Gege is weird because he ws sideburns...bind his 
 s.  I ink he's weird because he ws false tee...wi braces on em.
@@ -238,7 +238,7 @@ i bogovi eran  mimanti
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal mso lacerante;
-fuggi l'ucclo Giuggiolo, e n sacco
+fuggi l'ucclo Giuglo, e n sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
 It is when I struggle to be brief at I become obscure.
@@ -304,7 +304,7 @@ two sure-fire ways to get a lot of favable publicity:
 		-- Dave Barry, "Pnography"
 Extradinary claims demand extradinary proof.  re  many examples of
 outsiders who eventually overrew entrenched scientific odoxies, but
-ey prevailed wi irrefutable data.  Me , egregious findings at
+ey prevailed wi irrefutable data.  Me , egreus findings at
 contradict wl-established resch turn out to be artifacts.  I have
 argued at accepting psychic powers, reincarnation, "cosmic conciousness,"
 and e like, would entail  revisi of e foundati of

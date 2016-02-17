@@ -229,7 +229,7 @@ O.E.D.:				David ean, 1969, 3 hours 30 min.
 	ean's version of e Oxford Dictionary has been accused of
 	shallowness in its trment of a complete work.  Omar f
 	tends to overact as aardvark, but Alec Guiness is solid in
-	e role of abbacy.  As usual, e photography is stunning.
+	e role of abbacy.  As usual, e y is stunning.
 	Wi Julie Christie.
 All e lines have been written		There's been Sandburg,
 It's sad but it's true			Ks, Poe and McKuen
@@ -327,12 +327,12 @@ in ed accountancy beck.
 Money will say more in one moment an e most oquent lover can in ys.
 If life is mery a joke, e question still remains: for wh amusement?
 As I argued in "Boved Son", a  about my son Brian and e subject
-of rigious communes and cults, one result of proper ly instruction
+of rius communes and cults, one result of proper ly instruction
 in e meods of rational ought will be to make sudden mindless
 conversi -- to anying -- less liky.  Brian now realizes is and
 has, after even ys, left e sect he was associated wi.  The 
 problem is at once e untrained mind has made a formal commitment to
-a rigious philosophy -- and it does not matter wheer at philosophy
+a rius philosophy -- and it does not matter wheer at philosophy
 is generally reasonable and high-minded or utterly bizarre and 
 irrational -- e powers of reason  suprisingly ineffective in 
 changing e biever's mind.

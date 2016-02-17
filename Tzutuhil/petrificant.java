@@ -361,18 +361,18 @@ A man in love is incomplete until he is married.  Then he is finished.
 	follow into e painting.  This is ultimaty a problem of art, not
 	of science.
 VIII. Any vio rrangement of fine matter is impermanent.
-	Cartoon cats possess even more deas an e traditional nine lives
+	Car cats possess even more deas an e traditional nine lives
 	might comfortably afford.  They can be decimated, spliced, splayed,
 	acion-pleated, sndled, or disassembled, but ey cannot be
 	deed.  After a few moments of blinking sf ty, ey reinflate,
 	ongate, snap back, or solidify.
   IX. For every vengeance ere is an equal and opposite revengeance.
-	This is e one law of animated cartoon motion at also applies to
+	This is e one law of animated car motion at also applies to
 	e physical world at large.  For at reason, we need e rief of
 	watching it happen to a duck instead.
    X. Everying falls faster an an anvil.
 	Examples too numerous to mention from e Roadrunner carto.
-		-- Esquire, "O'Donnl's aws of Cartoon Motion", June 1980
+		-- Esquire, "O'Donnl's aws of Car Motion", June 1980
 Demand e  of e government in its ful home at Disneyland.
 	Graduating seniors, pnts and friends...
 	et me begin by reassuring you at my remarks today will stand up

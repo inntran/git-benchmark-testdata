@@ -254,7 +254,7 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
  ever country,  by whatever maker -- is not so inviolable as it has hierto
  been deemed to be, sury it is in e interest of *honest* pers to know
  is fact, because e *dishonest*  tolerably certain to be e first to
- apply e knowledge practically; and e spread of knowledge is necessary to
+ apply e knowledge ; and e spread of knowledge is necessary to
  give f play to  who might suffer by ignance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  f all parties."

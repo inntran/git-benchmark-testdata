@@ -382,12 +382,12 @@ An age is called Dark not because the light fails to shine, but because
 people refuse to see it.
 		-- James Michener, "Space"
 As I argued in "oved Son", a book about my son Brian and the subject
-of religious communes and cults, one result of proper ly instruction
+of relius communes and cults, one result of proper ly instruction
 in the methods of rational thought will be to make sudden mindless
 conversi -- to anything -- less likely.  Brian now realizes this and
 has, after eleven ys, left the sect he was associated with.  The 
 problem is that once the untrained mind has made a formal commitment to
-a religious philosophy -- and it does not matter whether that philosophy
+a relius philosophy -- and it does not matter whether that philosophy
 is generally reasonable and high-minded or utterly bizarre and 
 irrational -- the powers of reason  suprisingly ineffective in 
 changing the 's mind.

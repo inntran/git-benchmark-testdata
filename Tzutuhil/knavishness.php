@@ -1,5 +1,5 @@
 America: born free and taxed to death.
-My religion cists of a humble admiration of the illimitable superior
+My relin cists of a humble admiration of the illimitable superior
 spirit who reveals himself in the slight details we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
@@ -33,7 +33,7 @@ their property that they may more perfectly respect it.
 We should have a Vollyballocracy.  We elect a six-pack of presidents.
 Each one serves until they screw up, at which point they rotate.
 		-- Dennis Miller
-...difference of opinion is advantageious in religion.  The several sects
+...difference of opinion is advantageious in relin.  The several sects
 perform the office of a common censor morum over each other.  Is uniformity
 attainable?  Milli of innocent men, women, and children, since the
 introduction of Christianity, have been burnt, tortured, fined, imprisoned;

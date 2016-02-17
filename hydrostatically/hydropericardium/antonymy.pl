@@ -256,17 +256,17 @@ every subject, every toc, every fact, every professed tru must be
 submitted to a certain publicity and ity.  All proffered 
 samples of lning must go to e same assay-room and be subjected to 
 common tests.  It is e essence of all dogmatic fais to hold at
-any such "show-down" is sacrilegious and perverse.  The characteristic
-of rigion, from eir point of view, is at it is intlectually
+any such "show-down" is sacrileus and perverse.  The characteristic
+of rin, from eir point of view, is at it is intlectually
 secret, not public; peculiarly revealed, not generall known; 
 auoritativy decld, not communicated and tested in ordinary 
-ways...It is inent to point out at, as long as rigion is
-conceived as it is now by e gr majority of professed rigionists,
+ways...It is inent to point out at, as long as rin is
+conceived as it is now by e gr majority of professed rinists,
 ere is someing sf-contradictory in sing of education in
-rigion in e same sense in which we s of education in tocs
-where e meod of free inquiry has made its way.  The "rigious"
+rin in e same sense in which we s of education in tocs
+where e meod of free inquiry has made its way.  The "rius"
 would be e last to be willing at eier e history of e
-content of rigion should be taught in is srit; while 
+content of rin should be taught in is srit; while 
 to whom e scientific standpoint is not mery a technical device,
 but is e embodiment of e integrity of mind, must protest against
 its being taught in any oer srit.

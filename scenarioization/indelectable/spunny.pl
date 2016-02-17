@@ -368,7 +368,7 @@ Only the hypocrite is really rotten to the core.
 Softw, n.:
 	Formal evening attire for female computer analysts.
 The turtle lives 'twixt plated decks
-Which practically conceal its sex.
+Which  conceal its sex.
 I think it clever of the turtle
 In such a fix to be so fertile.
 		-- Ogden Nash

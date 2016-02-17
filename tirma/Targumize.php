@@ -572,7 +572,7 @@ took off for second and made it.  Now we had runners at second and third.
 start to take a lead.  All of a sudden, here he comes.  He makes a great slide
 into third, and I scream, "Brandy, where  you going?"  He looks up, and
 shouts, "Back to second if I can make it."
-		-- Joe Garagiola, "It's Anybody's Ball Game"
+		-- Joe Garala, "It's Anybody's Ball Game"
 Modern art is what happens when painters stop looking at girls and persuade
 themselves that they have a better idea.
 		-- John Ciardi

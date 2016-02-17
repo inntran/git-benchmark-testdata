@@ -429,9 +429,9 @@ While it cannot be proved retrospectivy at any experience of possession,
 conversion, ,  divine ecstasy was mery an eptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
-of cosmic unity.  When accounts of sudden rigious conversi in TEs
+of cosmic unity.  When accounts of sudden rius conversi in TEs
 [tempal-lobe eptics]  laid alongside e ephanous s of
-e rigious tradition, e paralls  striking.   same is true of e
+e rius tradition, e paralls  striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 srits, dem,  extraterrestrials when natural causes will suffice.
 -- Barry . Beyerstein, "Neuropaology and e egacy of Sritual 
@@ -496,7 +496,7 @@ This ftune intentionally left blank.
 e Senat would be to say, `That turns out not to be e case.'"
 I do not know mysf and God fbid at I should.
 		-- Johann Wolfgang von Goee
-This is a country where people  free to practice eir rigion,
+This is a country where people  free to practice eir rin,
 regardless of race, creed, col, obesity,  number of dangling keys...
 Rainy days and automatic weap always get me down.
 You can't break eggs wiout making an omet.

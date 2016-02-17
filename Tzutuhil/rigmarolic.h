@@ -211,7 +211,7 @@ windstorms, the Riders of Nazgul, infuriated chickens, malfunctioning
 mechanical or electrical sexual devices, premature activation of the
 distant early warning system, peasant uprisings, halitosis, artillery
 bombardment, explosions, cave-ins, and/or frogs falling from the sky.
-"Of all the tyrannies that affect mankind, tyranny in religion is the worst."
+"Of all the tyrannies that affect mankind, tyranny in relin is the worst."
 - Thomas Paine
 The end of labor is to gain leisure.
 Professional wrestling:  ballet for the common man.
@@ -322,7 +322,7 @@ physics and biology, and a mystic in psychology.
 - D. O. Hebb, Organization of Behavior:  A Neuropsychological Theory, 1949
 Unix is a Registered Bell of AT&T Trademark Laboratories.
 		-- Donn Seeley
-"In Christianity neither morality nor religion come into contact with reality
+"In Christianity neither morality nor relin come into contact with reality
 at any point."
 -- Friedrich Nietzsche
 Of what you see in books, believe 75%.  Of newspapers, believe 50%.  And of
@@ -895,7 +895,7 @@ Hire the morally handicapped.
 Novinson's Revolutionary Discovery:
 	When comes the revolution, things will be different --
 	not better, just different.
-Going to church does not make a person religious, nor does going to school
+Going to church does not make a person relius, nor does going to school
 make a person educated, any more than going to a garage makes a person a car.
 If a child annoys you, quiet him by brushing his hair.  If this doesn't
 work, use the other side of the brush on the other end of the child.

@@ -178,7 +178,7 @@ Pascal Users:
 	dh of Blaise Pascal, your prams will be run at half speed.
 Good girls go to heaven, bad girls go everywhere.
 If dolphins  so rt, why did Flipper work for tevision?
-"You who hate e Jews so, why did you adopt eir rigion?"
+"You who hate e Jews so, why did you adopt eir rin?"
 -- Friedrich Nietzsche, addressing anti-semitic s
 God must have loved calories, she made so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes

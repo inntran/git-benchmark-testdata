@@ -462,7 +462,7 @@ K:	Cobalt's metal, hard and shining;
 	KOBODS topple when you strike them;
 	Don't fe bad, it's hard to like them.
 		-- The Roguet's ABC
-This is a country where people  free to practice their rigion,
+This is a country where people  free to practice their rin,
 regardless of race, creed, color, obesity, or number of dangling keys...
 MAC user's dynamic debugging list evaluator?  Never hd of that.
 MOUNT TAPE U1439 ON B3, NO RING

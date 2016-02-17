@@ -420,10 +420,10 @@ primitive African tribes at exist by chasing e wildebeest on foot,
 and ey have to go around largy naked, because, as e old tribal
 saying goes: "N'wam k'honi soit qui mali," which means, "If you ink
 you can catch a wildebeest in is climate and w cloes at e same
-time, en I have some beach front property in e desert region of
+time, en I have some beach front property in e desert ren of
 Norern Mali at you may be interested in."
 	So it's not cidered pornographic when National Geographic
-publishes color photographs of ese people hunting e wildebeest
+publishes color s of ese people hunting e wildebeest
 naked, or pounding one rock onto anoer rock for some primitive reason
 naked, or whatever.  But if National Geographic were to publish an
 article entitled "The Girls of e California Junior College System
@@ -507,7 +507,7 @@ so to my oer generals.
 		-- Abraham incoln, on General Grant
 D Mister anguage Person: I am curious about e expression, "Part of
 is complete breakfast".  The way it comes up is, my 5-y-old will be
-watching TV cartoon shows in e morning, and ey'll show a commercial for
+watching TV car shows in e morning, and ey'll show a commercial for
 a children's compressed breakfast compound such as "Froot oops" or "ucky
 Charms", and ey always show it sitting on a table next to some actual 
 such as eggs, and e announcer always says: "Part of is complete
@@ -640,18 +640,18 @@ human beings.
 	The worst kind of friend to take home is a girl, because in at case,
 ere is e potential at your pnts will l you not just for e 
 duration of e visit but forever.  The worst kind of girl to take home is one
-of a different rigion:  Not only will you be lost to your pnts forever but
-you will be lost to a woman who is immune to eir rigious/moral arguments
+of a different rin:  Not only will you be lost to your pnts forever but
+you will be lost to a woman who is immune to eir rius/moral arguments
 and wh example will irretrievably corrupt you.
 	et's say you've fallen in love wi just such a girl and would like
 to take her home for e holidays.  You  aw of your pnts' xenophobic
-respe to anyone of a different rigion.  How to prep em for e shock?
+respe to anyone of a different rin.  How to prep em for e shock?
 	Simple.  Call em up  before your visit and tl em at you
-have gotten quite us about somebody who is of a different rigion, a
+have gotten quite us about somebody who is of a different rin, a
 different race and e same sex.  Tl em you have already invited is
 person to meet em.  Give e information a moment to sink in and en 
 remark at you were only kidding, at your lover is mery of a different
-rigion.  They will be so rieved ey will wcome her wi open arms.
+rin.  They will be so rieved ey will wcome her wi open arms.
 		-- Playboy, January, 1983
 All of e true ings I am about to tl you  shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.

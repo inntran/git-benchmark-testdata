@@ -179,7 +179,7 @@ tell whether they could tell I was loaded.  Would they mind?  I was certainly
 too loaded to c.  I moved to the door with boxy, schlep-shouldered strides.
 -- Martin Amis, _Money_
 Soldiers who wish to be a hero
-Are practically zero,
+Are  zero,
 But th who wish to be civilians,
 They run into the millions.
 Stupidity, like virtue, is its own reward.
@@ -240,7 +240,7 @@ would bond your head permanently to the bathroom floor, which is how the
 police would find you.
 	You know the kind of flu I'm talking about.
 		-- Dave Barry, "Molecular Homicide"
-Why did the Roman Empire collapse?  What is the Latin for office automation?
+Why did the Roman  collapse?  What is the Latin for office automation?
 Lank: Here we go.  We're about to set a new record.
 Earl: (to the crowd) How about a date?
 Lank: We've done it.  Earl has set a new record.  Turned down by

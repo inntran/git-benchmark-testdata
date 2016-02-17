@@ -18,7 +18,7 @@ and bad music may be put on re forever.
 3rd aw of Computing:
 	Anything that can go wr
 fortune: Segmentation violation -- Core dumped
-Rule the Empire through force.
+Rule the  through force.
 		-- Shogun Tokugawa
 Pick another fortune cookie.
 A rock store eventually cld down; they were taking too much for granite.

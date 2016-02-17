@@ -1,7 +1,7 @@
 When you're dining out and you suspect someing's wrong, you're probably .
 Resch is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
-Till en we shall be content to admit openly, what you (rigionists)
+Till en we shall be content to admit openly, what you (rinists)
 whisper under your brh  hide in technical jargon, at e ancient
 secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about

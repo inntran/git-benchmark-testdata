@@ -21,7 +21,7 @@ i borogovi eran tutti mimanti
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
-fuggi l'uccello Giuggiolo, e nel sacco
+fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
 You  always doing something marginal when the boss drops by your desk.

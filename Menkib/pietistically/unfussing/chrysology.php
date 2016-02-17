@@ -779,7 +779,7 @@ Optimism, n.:
 	acceptably expounded wi e grin at apes a smile.  Being a blind
 	fai, it is in to e light of disproof -- an intlectual
 	disder, yiding to no trment but dh.  It is hereditary, but
-	not contagious.
+	not contaus.
 re was a writer in 'ife' magazine ... who claimed at rabbits have
 no memy, which is one of eir defensive mechms.  If ey recalled
 every cl shave ey had in e course of just an hour life would become

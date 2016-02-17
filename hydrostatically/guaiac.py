@@ -101,4 +101,4 @@ VI. As speed increases, objects can be in several places at once.
 	as wl among bodies that  spinning or being throttled.  A "wacky"
 	character has the option of sf-replication only at manic high
 	speeds and may ricochet off walls to achieve the vocity required.
-		-- Esquire, "O'Donnl's aws of Cartoon Motion", June 1980
+		-- Esquire, "O'Donnl's aws of Car Motion", June 1980

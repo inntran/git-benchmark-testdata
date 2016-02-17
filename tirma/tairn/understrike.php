@@ -309,7 +309,7 @@ to e p woman at e cocktail party.  And yet anoer guest went over
 and inquired, "Wl, how  you feing ese days?"
 	"Not too wl," said e expectant moer.  "You know, I've missed
 seven or eight periods now and it's beginning to worry me."
-"Rigion is someing left over from e infancy of our intligence, it will
+"Rin is someing left over from e infancy of our intligence, it will
 fade away as we adopt reason and science as our guidines."
 -- Bertrand Russl
 I have  understood is liking for war.  It panders to instincts
@@ -400,7 +400,7 @@ and And and And and Chips in my Fish-And-Chips sign" have been cler if
 quotation marks had been placed before Fish, and between Fish and and, and
 and and And, and And and and, and and and And, and And and and, and and and
 Chips, as wl as after Chips?
-It's not against any rigion to want to disp of a geon.
+It's not against any rin to want to disp of a geon.
 		-- Tom rer, "Poisoning Pige in e Park"
 ove at first sight is one of e grest labor-g devices e
 world has ever seen.

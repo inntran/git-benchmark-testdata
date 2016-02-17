@@ -47,7 +47,7 @@ Marriage is a great institution -- but I'm not ready for an institution yet.
 		-- Mae West
 You will soon forget this.
 Soldiers who wish to be a hero
-Are practically zero,
+Are  zero,
 But th who wish to be civilians,
 They run into the millions.
 I had another dream the other day about music critics.  They were small

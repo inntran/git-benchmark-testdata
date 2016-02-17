@@ -107,7 +107,7 @@ Ma l is a mean mother!
 "I'd love to go out with you, but I'm attending the opening of my garage door."
 Extraordinary claims demand extraordinary proof.  There  many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
-they prevailed with irrefutable data.  More often, egregious findings that
+they prevailed with irrefutable data.  More often, egreus findings that
 contradict well-established resch turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisi of the foundati of
@@ -153,7 +153,7 @@ Every nonzero finite dimensional inner product space has an orthonormal basis.
 It makes sense, when you don't think about it.
 Anyone who knows history, particularly the history of Europe, will, I think,
 recognize that the domination of education or of government by any one
-particular religious faith is  a happy arrangement for the people.
+particular relius faith is  a happy arrangement for the people.
 - Eleanor Rovelt
 In this vale
 Of toil and sin
@@ -228,7 +228,7 @@ You will always find something in the last place you look.
 The time was the 19th of May, 1780.  The place was Hartford, Connecticut.
 The day has gone down in New England history as a terrible foretaste of
 Judgement Day.  For at noon the skies turned from blue to grey and by
-mid-afternoon had blackened over so densely that, in that religious age,
+mid-afternoon had blackened over so densely that, in that relius age,
 men fell on their knees and begged a final blessing before the end came.
 The Connecticut House of Representatives was in session.  And, as some of
 the men fell down and others clamored for an immediate adjournment, the
@@ -482,7 +482,7 @@ Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, president of Exabyte
 Extraordinary claims demand extraordinary proof.  There  many examples
 of outsiders who eventually overthrew entrenched scientific orthodoxies,
-but they prevailed with irrefutable data.  More often, egregious findings
+but they prevailed with irrefutable data.  More often, egreus findings
 that contradict well-established resch turn out to be artifacts.  I have
 argued that accepting psychic powers, reincarnation, "cosmic conciousness,"
 and the like, would entail fundamental revisi of the foundati of
@@ -504,7 +504,7 @@ killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
 the gnus and here, once again,  the head li."
-A woman was in love with fourteen soldiers.  It was clly platoonic.
+A woman was in love with fourteen soldiers.  It was clly plaic.
 This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 You're not my type.  For that matter, you're not even my species!!!
 "We  make asserti, Miss Taggart," said Hugh Akston.  "That is
@@ -704,7 +704,7 @@ and which judges, therefore, rule out, even of proceedings before themselves
 alone.  Hsay evidence is inadmissible because the person quoted was
 unsworn and is not before the court for examination; yet most momentous 
 acti, military, political, commercial and of every other kind, 
-daily undertaken on hsay evidence.  There is no religion in the world
+daily undertaken on hsay evidence.  There is no relin in the world
 that has any other basis than hsay evidence.  Revelation is hsay
 evidence; that the Scriptures  the word of God we have only the
 testimony of men long dead wh identy is not clly established and
@@ -751,7 +751,7 @@ But get thee to a nunnery -- go!
 Q:	How many psychiatrists does it take to change a light bulb?
 A:	Only one, but it takes a long time, and the light bulb has
 	to really want to change.
-Why did the Roman Empire collapse?  What is the atin for office automation?
+Why did the Roman  collapse?  What is the atin for office automation?
 The ly worm gets the late bird.
 The new Congressmen say they're going to turn the government around.  I
 hope I don't get run over again.
@@ -871,7 +871,7 @@ The sunlights differ, but there is only one darkness.
 Writers who use a computer sw to its liberating power in tones that b
 witness to the apocalyptic power of a new divinity.  Their conviction results
 from something deeper than mere gratitude for the computer's conveniences.
-Every new medium of writing brings about new intensities of religious belief
+Every new medium of writing brings about new intensities of relius belief
 and new schisms among s.  In the 16th century the printed book helped
 make possible the split between Catholics and Protestants.  In the 20th
 century this history of tragedy and triumph is repeating itself as a farce.

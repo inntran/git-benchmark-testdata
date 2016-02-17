@@ -565,7 +565,7 @@ While John Bide was guided by a compassion for vegetables:
 George Crabbe (1754-1832) wrote:
 	"And I was ask'd and auorized to go
 	To seek e firm of Clutterbuck and Co."
-William Balmford explored e possibilities of rigious verse:
+William Balmford explored e possibilities of rius verse:
 	"So 'tis wi s, Nature being weak
 	While in is world,  liable to leak."
 And William Wordswor showed at he could do it if he really tried when

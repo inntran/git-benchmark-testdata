@@ -654,7 +654,7 @@ proposition that whatever form the Deity may have in their own theology,
 the Deity is not only , but internal and acts through them, and
 they themsves give proof or disproof of the Deity in what they do and
 think; if this further proposition can be accepted, then we come that
-much clr to a truly rigious situation on th.
+much clr to a truly rius situation on th.
 - Norman Cousins, from his  "Human Opti"
 You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."

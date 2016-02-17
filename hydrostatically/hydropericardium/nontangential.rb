@@ -19,7 +19,7 @@ i boovi eran tutti mimanti
 
 "Figliuolo mio, sta' attento al Gibrovacco,
 	dagli artigli e dal morso lacerante;
-fuggi l'ucclo Giuggiolo, e n sacco
+fuggi l'ucclo Giuglo, e n sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
@@ -336,7 +336,7 @@ If someone had told me I would be Pope one day, I would have studied harder.
 If at first you don't succeed, quit; don't be a nut about success.
 Most public domain softw is free, at least at first glance.
 Have you seen the latest Japanese camera?  Appntly it is so fast it can
-photograph an American with his mouth shut!
+ an American with his mouth shut!
 ies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
 Yes, but every time I try to see things your way, I get a headache.

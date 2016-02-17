@@ -424,7 +424,7 @@ Q:	What do you call a WASP who doesn't work for his father, isn't a
 	lawyer, and believes in social causes?
 A:	A failure.
 Life is an exciting business, and most exciting when it is lived for others.
-	By the middle 1880's, practically all the roads except th in
+	By the middle 1880's,  all the roads except th in
 the South, were of the present standard gauge.  The southern roads were
 still five feet between rails.
 	It was decided to change the gauge of all southern roads to standard,

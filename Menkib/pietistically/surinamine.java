@@ -104,7 +104,7 @@ Deadwood, n.:
 do gr and wonderful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob aure in chemistry
 I sml a wumpus.
-My rigion cists of a humble admiration of e illimitable superi
+My rin cists of a humble admiration of e illimitable superi
 srit who reveals himsf in e slight details we  able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein

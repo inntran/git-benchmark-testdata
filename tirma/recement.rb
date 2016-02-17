@@ -122,7 +122,7 @@ must.  But the changes need to be quantized.  Then each user has periods of
 productive stability, interrupted by bursts of test-bed change.  This seems
 to be much less  than a ctant rippling and trembling.
 - Frederick Bs Jr., "The Mythical Man Month" 
-My rigion cists of a humble admiration of the illimitable superior
+My rin cists of a humble admiration of the illimitable superior
 spirit who reveals himsf in the slight details we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
