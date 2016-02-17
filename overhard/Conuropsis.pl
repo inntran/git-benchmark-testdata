@@ -49,7 +49,7 @@ people than any other aspect of data processing.  You order Mozart's "Don
 Giovanni" from your record club, and they invoice you $24.95 for MOZ DONG.
 The witless mapping of the sublime onto the ridiculous!  Equally puzzling is
 the curtation that produces the same eight characters, THE BEST, whether you
-order "The Best of Wagner", "The Best of Schubert", or "The Best of the Turds".
+order "The Best of Wagner", "The Best of Scert", or "The Best of the Turds".
 Similarly, wine lovers buying from computerized wineries twirl their glasses,
 check their delivery notes, and inform their friends, "A rather innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10

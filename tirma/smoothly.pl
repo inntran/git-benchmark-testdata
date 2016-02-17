@@ -85,7 +85,7 @@ Frankft, Kentucky, makes it against the law to shoot off a policeman's tie.
 Symptom:		Feet cold and wet, glass empty.
 Fault:			Glass being held at increct angle.
 Action Required:	Turn glass other way up so that open end points
-			toward ceiling.
+			toward .
 
 Symptom:		Feet warm and wet.
 Fault:			Improper bladder control.

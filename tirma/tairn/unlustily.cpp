@@ -387,7 +387,7 @@ Far back in the mists of ancient time, in the gr and glious days of the
 fmer Galactic Empire, life was wild, rich and largely tax free.
 
 Mighty starships plied their way between exotic suns, seeking adventure and
-reward  the furthest reaches of Galactic space.  In those days, spirits
+reward  the  reaches of Galactic space.  In those days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry crures from Alpha Centauri were real small furry crures
 from Alpha Centauri.  And all dared to brave unknown terrs, to do mighty

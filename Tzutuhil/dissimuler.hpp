@@ -307,7 +307,7 @@ I turned my air conditioner the other way around, and it got cold out.
  wherman said "I don't understand it.  I was supposed to be 80
 degrees today," and I said "Oops."
 
-In my house on the ceilings I have paintings of the rooms above... so
+In my house on the s I have paintings of the rooms above... so
 I never have to go upstairs.
 
 I just bought a microwave fireplace... You can spend an evening in

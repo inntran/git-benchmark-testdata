@@ -130,7 +130,7 @@ APL is a mistake, carried through to perfection.  It is the language of the
 future f the programming techniques of the past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Vol 17, Number 5
-Badges?  We don't need no stinking badges.
+Badges?  We don't need no  badges.
 Old MacDonald had an agricultural real estate tax tement.
 "A radioactive cat has eighteen half-lives."
 It was raining heavily, and the motist had car trouble on a lonely country

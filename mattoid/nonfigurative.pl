@@ -181,7 +181,7 @@ and has his being.
 > Subject: Returned mail: unknown mailer error 255
 
 "Dale, your address no longer functions.  Can you fix it at your end?"
--- Bill Wolfe (wtwolfe@hubcap.clemson.edu)
+-- Bill Wolfe (wtwolfe@cap.clemson.edu)
 
 "Bill, Your brain no longer functions.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)

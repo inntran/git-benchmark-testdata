@@ -71,7 +71,7 @@ the same thing.
 		-- A. Lincoln
 " Soviet Union, which has complained recently about alleged anti-Soviet 
 themes in American advertising, lodged an official protest this week against 
-the Fd Mot Company's new campaign: `Hey you stinking fat Russian, get
+the Fd Mot Company's new campaign: `Hey you  fat Russian, get
  off my Fd Esct.'"
 -- Dennis Miller, Saturday Night Live
 What good is an obscenity trial except to popularize literature?

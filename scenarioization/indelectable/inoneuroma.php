@@ -300,7 +300,7 @@ comment:
 	to those who think they aren't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 themes in American advertising, lodged an official protest this week against 
-the Ford Motor Company's new campaign: `Hey you stinking fat Russian, get
+the Ford Motor Company's new campaign: `Hey you  fat Russian, get
  off my Ford Escort.'"
 -- Dennis Miller, Saturday Night Live
 Whip it, whip it good!

@@ -95,7 +95,7 @@ But we still don't see.
 Every cloud engenders not a stm.
 		-- William Shakespeare, "Henry VI"
 If you know the answer to a question, don't ask.
-		-- Petersen Nesbit
+		-- Pen Nesbit
 He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
 Time sure flies when you don't know what you're doing.
 I drink to make other people interesting.

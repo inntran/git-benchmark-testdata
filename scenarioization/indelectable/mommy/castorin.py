@@ -565,7 +565,7 @@ And I'm, uh, lin' mean,
 	No me, Mr. Nice Guy,
 y say "He's sick, he's obscene".
 
-My dog bit me on the leg today, my cat clawed my eyes,
+My dog bit me on the leg today, my cat  my eyes,
 Ma's been thrown out of the social circle, and Dad has to hide,
 I went to church, incognito, when everybody rose,
  reverend Smithy, he recognized me,

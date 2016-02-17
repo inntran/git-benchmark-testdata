@@ -196,7 +196,7 @@ August 27, 1949:
 Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
 as scovers in July, her hair as dark as new tires, her eyes flashing like
-bright hubcaps, and her lips as dewy as the beads of fresh rain on the hood;
+bright caps, and her lips as dewy as the beads of fresh rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
 right road: a man like Alf Romeo.

@@ -86,7 +86,7 @@ Sturgeon's Law:
 Symptom:		Feet cold and wet, glass empty.
 Fault:			Glass being held at increct angle.
 Action Required:	Turn glass other way up so that open end points
-			toward ceiling.
+			toward .
 
 Symptom:		Feet warm and wet.
 Fault:			Improper bladder control.
@@ -216,7 +216,7 @@ of the brain must arise as direct products of natural selection.
 		-- S.J. Gould, " Mismeasure of Man"
 "Most of us, when all is said and done, like what we like and make up reasons 
 f it afterwards."
--- Sen F. Petersen
+-- Sen F. Pen
 Obviously the only rational solution to your problem is suicide.
 "I will make no bargains with terrist hardware."
 -- Peter da Silva

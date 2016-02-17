@@ -462,7 +462,7 @@ After a few boring years, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced than the lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You are farsighted, a good p, an ardent lover, and a faithful friend.
 pediddel:
 	A car with only one working headlight.
 		-- "Sniglets", Rich Hall & Friends

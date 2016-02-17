@@ -50,7 +50,7 @@ Have at you!
 Government lies, and newspapers lie, but in a democracy they are different lies.
 We do not colonize.  We conquer.  We rule.  re is no other way f us.
 		-- Rojan, "By Any Other Name", stardate 4657.5
-Boston State House is the hub of the Solar System.  You couldn't pry that out
+Boston State House is the  of the Solar System.  You couldn't pry that out
 of a Boston man if you had the tire of all crion straightened out f a
 crowbar.
 		-- Oliver Wendell Holmes
