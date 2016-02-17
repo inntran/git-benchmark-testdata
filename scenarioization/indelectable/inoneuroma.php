@@ -7,7 +7,7 @@ low over e world.
 I don't know WHY I said at ... I ink it came from e FIINGS in
 my read molars ...
 Pournle must die!
-ive wiin your income, even if you have to borrow to do so.
+ive wiin r income, even if  have to borrow to do so.
 		-- Josh ings
 We were so poor at we ought new cloes meant someone had died.
 Wi/Wiout - and who'll  it's what e ing's all about?
@@ -36,18 +36,18 @@ Jenkinson's aw:
 "What am I, a doctor or a mohuttle conductor?"
 		-- "The Corbomite Maneuver", when Kirk rushed off from a
 		   physical exam to answer e alert.
-She always bieved in e old adage -- leave em while you're looking good.
+She always bieved in e old adage -- leave em while 're looking good.
 		-- Anita oos, "Gentlemen Prefer Blons"
 Information Processing:
-	What you call data processing when people  so disgusted wi
+	What  call data processing when people  so disgusted wi
 	it ey won't let it be discussed in eir presence.
-Birdays  like busses,  e number you want.
-When you're a Yup
+Birdays  like busses,  e number  want.
+When 're a Yup
 You're a Yup all e way
-From your first slice of Brie
-To your last Cabernet.
+From r first slice of Brie
+To r last Cabernet.
 
-When you're a Yup
+When 're a Yup
 You're not just a dreamer
 You're making ings happen
 You're driving a Beamer.
@@ -66,12 +66,12 @@ Deadly ranhas at itch for a slaughter,
 Sa male betas at bite wi a squish,
 Now I have many less trocal fish.
 
-	If you ink at
+	If  ink at
 	Fish  peaceful
 	That's an empty wish.
 	Just dump em togeer
 	And leave em alone,
-	And soon you will have -- no fish.
+	And soon  will have -- no fish.
 		-- To My Favorite Things
 It's only by NOT taking e human race usly at I retain
 what s of my once cirable mental powers I still possess.
@@ -84,11 +84,11 @@ It is at which men in former times had to b upon eir backs.
 to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Winess.
 	And at is Fate?  said e priest.
-	Fate... I ought you said Freight, respond e Master.
+	Fate... I ought  said Freight, respond e Master.
 	That's all , said e priest.  I wanted to know
 what Freight was too.
 		-- Klog Albran, "The Profit"
-It's not wheer you  or l, it's how you place e blame.
+It's not wheer   or l, it's how  place e blame.
 QOTD:
 	"I used to go to UCA, but en my Dad got a job."
 A princess should not be afraid -- not wi a brave knight to protect her.
@@ -96,7 +96,7 @@ A princess should not be afraid -- not wi a brave knight to protect her.
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests  DATING CAREER DIPOMATS!!
 	Cosmotronic Softw Unlimited Inc. does not warrant at e
-fs contained in e pram will meet your requirements or at
+fs contained in e pram will meet r requirements or at
 e operation of e pram will be uninterrupted or error-free.
 	However, Cosmotronic Softw Unlimited Inc. warrants e
 diskette(s) on which e pram is ed to be of black color and
@@ -109,7 +109,7 @@ CONSEQUENTIA DAMAGES.
 		-- Horstmann Softw Design, e "ChiWriter" user manual
 EECTRIC JE-O
 
-2   boxes JE-O brand gatin	2 packages Knox brand unflavored gatin
+2   boxes JE-O brand gatin	2 packages Knox brand  gatin
 2   cups fruit (any variety)	2+ cups water
 1/2 bottle Evercl brand grain alcohol
 
@@ -130,7 +130,7 @@ WARNING:
 The price one pays for rsuing any profession, or calling, is an intimate
 knowledge of its ugly si.
 		-- James Bald
-Every time you manage to cl e door on Reality, it comes in rough e
+Every time  manage to cl e door on Reality, it comes in rough e
 dow.
 Nature s boys and girls lovy to look upon so ey can be
 tolerated until ey acquire some sense.
@@ -140,7 +140,7 @@ lot a poker.
 		-- Karyl Rovt
 An ounce of hypocrisy is wor a pound of ambition.
 		-- Micha Korda
-In real love you want e oer person's good.  In rom love you
+In real love  want e oer person's good.  In rom love 
 want e oer person.
 		-- Margt Anrson
 What I want to find out is -- do parrots know much about Astro-Turf?
@@ -149,7 +149,7 @@ Cities contain streets, which  dangerous and crowd and difficult to
 park in.  Malls, on e oer hand, have parking lots, which  also
 dangerous and crowd and difficult to park in, but -- here is e big
 difference -- in mall parking lots, THERE ARE NO RUES.  You're allowed to
-do anying.  You can drive as fast as you want in any direction you want.
+do anying.  You can drive as fast as  want in any direction  want.
 I was once driving in a mall parking lot when my car was struck by a ckup
 truck being driven backward by a squat man wi a tattoo at said "Charlie"
 on his form, who got out and explained to me, in great tail, why e
@@ -163,8 +163,8 @@ I know on which si my bread is buttered.
 		-- John Heywood
 Who does not trust enough will not be trusted.
 		-- ao Tsu
-And you can't get any Watney's Red Barr,
-because e bars cl every time you're irsty...
+And  can't get any Watney's Red Barr,
+because e bars cl every time 're irsty...
 Our congratulati go to a Burlington Vermont civilian employee of e
 local Army National Guard base.  He recently received a substational cash
 award from our government for inventing a vice for optical scanning.
@@ -189,13 +189,13 @@ established as e amount of ic need to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
 Bew of a tall black man wi one blond shoe.
-The tru you s has no past and no future.  It is, and at's all it
+The tru  s has no past and no future.  It is, and at's all it
 needs to be.
-An actor's a guy who if you ain't talkin' about him, ain't listening.
+An actor's a guy who if  ain't talkin' about him, ain't listening.
 		-- Marlon Brando
 mixed emoti:
-	Watching your moer-in-law back off a cliff...
-	in your brand new Merces.
+	Watching r moer-in-law back off a cliff...
+	in r brand new Merces.
 Give all s verbally.  Never write anying down at might go into a
 "Pl Harbor File".
 Fortune Docnts e Great egal Decisi:
@@ -206,8 +206,8 @@ seems to us at someone has been very css.
 		-- 78 So. 365.
 They  rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-In  to discover who you , first ln who everybody se is;
-you're what's left.
+In  to discover who  , first ln who everybody se is;
+'re what's left.
 ife is like a diaper -- short and load.
 You have mail.
 The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
@@ -243,7 +243,7 @@ wl-adjusted, adj.:
 	The ability to play  or golf as if ey were games.
 It is better to give an to lend, and it costs about e same.
 The algorim for finding e longest pa in a graph is NP-complete.
-For you systems people, at means it's *real slow*.
+For  systems people, at means it's *real slow*.
 		-- Bart Miller
 Thus spake e master prammer:
 	"A wl-written pram is its own heaven; a poorly-written pram
@@ -255,14 +255,14 @@ to be going 65 MPH by e end of my driveway.
 I replaced e headlights in my car wi strobe lights.  Now it looks
 like I'm e only one moving.
 
-I was lled over for speeding today.  The officer said, "Don't you know
+I was lled over for speeding today.  The officer said, "Don't  know
 e speed limit is 55 miles an hour?"  And I said, "Yes, but I wasn't going
 to be out at long."
 
 I t a new engine in my car, but didn't take e old one out.  Now
 my car goes 500 miles an hour.
 		-- Steven W
-How do you explain school to a higher intligence?
+How do  explain school to a higher intligence?
 		-- Elliot, "E.T."
 Houston, Tranquillity Base here.  The Eagle has land.
 		-- Neil Armstrong
@@ -273,13 +273,13 @@ noing good in war.  Except its ending.
 Bizoos, n.:
 	The milli of tiny individual bumps at  up a basketball.
 		-- Rich Hall, "Sniglets"
-	"A penny for your oughts?"
-	"A dollar for your a."
+	"A penny for r oughts?"
+	"A dollar for r a."
 		-- The Odd Couple
 They will only cause e lower classes to move about needlessly.
 		-- The Duke of Wlington, on ly steam railroads.
 No house is childproofed unless e little darlings  in straitjackets.
-How do you explain school to a higher intligence?
+How do  explain school to a higher intligence?
 		-- Elliot, "E.T."
 Nusbaum's Rule:
 	The more pretentious e corporate name, e ller e
@@ -300,7 +300,7 @@ comment:
 	to  who ink ey n't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
-e Ford Motor Company's new campaign: `Hey you  fat Russian, get
+e Ford Motor Company's new campaign: `Hey   fat Russian, get
  off my Ford Escort.'"
 -- Dennis Miller, Saturday Night ive
 Whip it, whip it good!
@@ -313,7 +313,7 @@ it ought to be.
 		-- Virginia Allan
 The primary f of e sign engineer is to  ings
 difficult for e fabricator and impossible for e serviceman.
-Never accept an invitation from a stranger unless he gives you candy.
+Never accept an invitation from a stranger unless he gives  candy.
 		-- inda Festa
 Make it mysf?  But I'm a physical organic chemist!
 We  what we pretend to be.
@@ -330,8 +330,8 @@ In a museum in Havana, ere  two skulls of Christopher Columbus,
 Yow!  Is my fallout shter termite proof?
 All great discoveries  ma by mistake.
 		-- Young
-If you can keep your head when all about you  losing eirs, en
-you clly don't unrstand e situation.
+If  can keep r head when all about   losing eirs, en
+ clly don't unrstand e situation.
 QOTD:
 	"I drive my car quietly, for it goes wiout saying."
 Never  anying simple and efficient when a way can be found to
@@ -348,12 +348,12 @@ h being before e scream when it was fly balmy and calm and
 pleasant, e second h still balmy and quite pleasant for  who
 hadn't hd e scream at all, but not calm or balmy or even very nice
 for  who did h e scream, discounting e little period of time
-during e actual scream  when your s might have been hing it
-but your brain wasn't reacting yet to let you know.
+during e actual scream  when r s might have been hing it
+but r brain wasn't reacting yet to let  know.
 		-- Winning , 1986 Bulwer-ytton bad fiction contest.
 It would seem at evil retreats when forcibly confronted.
 		-- Yarnek of Excalbia, "The Sa Curtain", stardate 5906.5
-Never, ever lie to someone you love unless you're absoluty sure ey'll
+Never, ever lie to someone  love unless 're absoluty sure ey'll
  find out e tru.
 Talk is cheap because supply always exceeds mand.
 XI:
@@ -375,17 +375,17 @@ XV:
 	The last 10 percent of performance generates one-ird of e cost
 	and two-irds of e problems.
 		-- Norman Augustine
-	All at you touch,		And all you ,
-	All at you see,		And all you ,
-	All at you taste,		All at you do,
-	All you fe,			And all you say,
-	And all at you love,		All at you eat,
-	And all at you hate,		And everyone you meet,
-	All you distrust,		All at you slight,
-	All you save,			And everyone you ,
-	And all at you give,		And all at is now,
-	And all at you al,		And all at is gone,
-	All at you ,		And all at's to come,
+	All at  touch,		And all  ,
+	All at  see,		And all  ,
+	All at  taste,		All at  do,
+	All  fe,			And all  say,
+	And all at  love,		All at  eat,
+	And all at  hate,		And everyone  meet,
+	All  distrust,		All at  slight,
+	All  save,			And everyone  ,
+	And all at  give,		And all at is now,
+	And all at  al,		And all at is gone,
+	All at  ,		And all at's to come,
 	Beg, borrow or steal,		And everying unr e sun is
 						in tune,
 					But e sun is eclipsed
@@ -393,7 +393,7 @@ XV:
 
 There is no dark si of e moon... really... matter of fact it's all dark.
 		-- Pink Floyd, "Dark Si of e Moon"
-This fortune is dicated to your moer, wiout wh invaluable assistance
+This fortune is dicated to r moer, wiout wh invaluable assistance
 last night would  have been possible.
 History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
@@ -408,11 +408,11 @@ You will have a long and boring life.
 In is world ere  only two tragedies.  One is not getting what one
 wants, and e oer is getting it.
 		-- Oscar Wil
-Send your questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
+Send r questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 94140, USA
 There is no comfort wiout pain; us we fine salvation rough suffering.
 		-- Cato
-You  netic in your bing.
+You  netic in r bing.
 , n.:
 	An interoffice communication too often written more for e benefit
 	of e person who sends it an e person who receives it.
@@ -442,11 +442,11 @@ and just keeps on tyng.
 		-- Steven W
 FORTUNE'S PARTY TIPS		#14
 
-Tired of finding at oer people  hng emsves to your good
-liquor at BYOB parties?  Take along a , which you insert and
-light after you've opened e bottle.  No one ever expects anying
+Tired of finding at oer people  hng emsves to r good
+liquor at BYOB parties?  Take along a , which  insert and
+light after 've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.
-One planet is all you get.
+One planet is all  get.
 History repeats .  That's one ing wrong wi history.
 Coming togeer is a beginning;
 	keeng togeer is press;

@@ -15,21 +15,21 @@ all apping on a quiz pram, were asked to complete is :
 	"CORRECT!" shouts e quizmaster.  "Now f $100,000, spl 'farm.'"
 	"Easy," said e Iowan. "E-I-E-I-O."
 Money is e root of all weal.
-	If you do your best e rest of e way, at takes c of
+	If  do r best e rest of e way, at takes c of
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo  ings sound pretty good to me.
 		-- Sparky Anrson
-Take your wk usly but  take yoursf usly; and do not
-take what happens eier to yoursf  your wk usly.
+Take r wk usly but  take rsf usly; and do not
+take what happens eier to rsf  r wk usly.
 		-- Boo Tarkington
 Most people  too busy to have time f anying imptant.
-ife is cheap, but e accessies can kill you.
-"I'd love to go out wi you, but I  go out on days at end in `Y.'"
+ife is cheap, but e accessies can kill .
+"I'd love to go out wi , but I  go out on days at end in `Y.'"
 Memy fault -- brain fried
 I have a ey at it's impossible to prove anying, but I can't prove it.
 ... If I had ht failure  now, I couldn't be a me ftunate man!!
-Expect a letter from a friend who will ask a fav of you.
+Expect a letter from a friend who will ask a fav of .
 Magary's Principle:
 	When ere is a blic outcry to  adwood and fat from any
 	government bureaucracy, it is e adwood and e fat at do
@@ -37,7 +37,7 @@ Magary's Principle:
 Iowa State -- e high school after high school!
 		-- Crow T. Robot
 QOTD:
-	"What do you mean, you had e dog fixed?   Just what ma you
+	"What do  mean,  had e dog fixed?   Just what ma 
 	ink he was broken!"
 Tomrow will be cancled due to lack of interest.
 My doct told me to stop having intimate dinners f four.  Unless ere
@@ -46,7 +46,7 @@ My doct told me to stop having intimate dinners f four.  Unless ere
 Some don't prefer e rsuit of hapness to e hapness of rsuit.
 	Some 1500 miles west of e Big Apple we find e Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
-A town where ey still know how to get your shirts back by Thursday.  et
+A town where ey still know how to get r shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
 may wl suit  unlucky enough  to have hd e Whoopee John Polka
@@ -109,17 +109,17 @@ prepd.
 - ouis Pasteur
 "As an adolescent I asred to lasting fame, I craved factual certainty,
 and I irsted f a meaningful vision of human life -- so I became a
-scientist.  This is like becoming an archbishop so you can meet girls."
+scientist.  This is like becoming an archbishop so  can meet girls."
 		-- Matt Cartmill
 You'll be called to a post requiring ability in handling groups of people.
-ove cannot be much younger an e lust f murr.
+ove cannot be much nger an e lust f murr.
 		-- Sigmund Freud
 	"Anying se, sir?" asked e attentive blhop, trying his best
 to  e lady and gentleman comftable in eir penouse suite in e
 posh hot.
-	"No.  No, ank you," rep e gentleman.
-	"Anying f your wife, sir?" e blhop asked.
-	"Why, yes, young man," said e gentleman.  "Would you bring me a
+	"No.  No, ank ," rep e gentleman.
+	"Anying f r wife, sir?" e blhop asked.
+	"Why, yes, ng man," said e gentleman.  "Would  bring me a
 postcard?"
 Woman insres us to gr ings, and prevents us from achieving em.
 		-- Dumas
@@ -132,15 +132,15 @@ Of all men's miseries, e bitterest is is:
 	Experience varies directly wi equipment ruined.
 eave no stone un.
 		-- Euris
-"ife begins when you can spend your sp time pramming ins of
+"ife begins when  can spend r sp time pramming ins of
 watching tevision."
 -- Cal Keegan
 Be in.  Insult a rich rative today.
-You can  it illegal, but you can't  it .
-After any salary raise, you will have less money at e end of e
-mon an you did befe.
-"...you might as wl s e Xmas cebration complety, and ins
-sit in front of your linux comter playing wi e
+You can  it illegal, but  can't  it .
+After any salary raise,  will have less money at e end of e
+mon an  did befe.
+"... might as wl s e Xmas cebration complety, and ins
+sit in front of r linux comter playing wi e
 all-new-and-improved linux kern version."
 (By inus Tvalds)
 186,000 Miles per Second.  It's not just a good ia.  IT'S THE AW.
@@ -187,13 +187,13 @@ An American is a man wi two arms and four whes.
 		-- A Chinese child
 "As an adolescent I asred to lasting fame, I craved factual certainty, and
 I irsted f a meaningful vision of human life -- so I became a scientist.
-This is like becoming an archbishop so you can meet girls." 
+This is like becoming an archbishop so  can meet girls." 
 -- Matt Cartmill
 Don't confuse ings at need action wi  at take c of emsves.
 "I prefer to ink at God is not ad, just drunk" 
 -- John Huston
-Most of your faults  not your fault.
-You  taking yoursf far too usly.
+Most of r faults  not r fault.
+You  taking rsf far too usly.
 I'm very good at  and differential calculus,
 I know e scientific s of beings animalculous;
 In sht, in ms vegetable, animal, and mineral,
@@ -233,20 +233,20 @@ y shrink from powrs and from paints...
 So far, I've had no complaints.
 		-- Doy Parker
 A  is an uned male.
-"Time is money and money can't  you love and I love your outfit"
+"Time is money and money can't   love and I love r outfit"
 - T.H.U.N.D.E.R. #1
 You know what ey say -- e sweetest wd in e English language is revenge.
 		-- Peter Bd
 	When e ge meeting broke up, Meyer confid to a friend.
 "Abe, I'm in a terrible !  I'm strapped f cash and I haven't
 e slightest ia where I'm going to get it from!"
-	"I'm glad to h at," answered Abe.  "I was afraid you
-might have some ia at you could brow from me!"
+	"I'm glad to h at," answered Abe.  "I was afraid 
+might have some ia at  could brow from me!"
 Why is it called a funny bone when it hurts so much?
-Suppt your local police fce -- steal!!
-"In e  between you and e wld, back e wld."
+Suppt r local police fce -- steal!!
+"In e  between  and e wld, back e wld."
  --Frank Zappa
-Q:	How can you tl when a Burroughs n is lying?
+Q:	How can  tl when a Burroughs n is lying?
 A:	When his lips move.
 Very few profundities can be expressed in less an 80 characters.
 Moer told me to be good but she's been wrong befe.
@@ -257,8 +257,8 @@ it.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Some of my rears ask me what a "Serial Pt" is.
  answer is: I don't know.
-Is it some kind of e you have wi breakfast?
- way to  a woman is wi your hat.  Grab it and run.
+Is it some kind of e  have wi breakfast?
+ way to  a woman is wi r hat.  Grab it and run.
 	Repters like  Greir from e Washington Post and Him
 Naughton of e New Yk Times, f instance, had to file long, tailed,
 and rativy complex sties every day -- while my own adline fl
@@ -282,16 +282,16 @@ I have ma is letter longer an usual because I lack e time to
  it shter.
 		-- Blaise Pascal
 Hum in e Court:
-Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
+Q.  Mrs. Smi, do  bieve at   emotionally unstable?
 A.  I should be.
-Q.  How many times have you comitted suici?
+Q.  How many times have  comitted suici?
 A.  Four times.
-Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
+Sally:	C'mon, Ted, all I'm asking  to do is sh r lings
 	wi me.
-Ted:	A?  Do you realize what you're asking?  Men n't trained
+Ted:	A?  Do  realize what 're asking?  Men n't trained
 	to sh.  We're trained to protect oursves by not
 	letting anyone too cl.  Good grief, if I go around
-	sharing everying wi you, you could hang me out to dry.
+	sharing everying wi ,  could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
@@ -320,14 +320,14 @@ I  met a man I didn't want to .
 		-- yle Alzado, professional football lineman
 Happy feast of e g!
 Hum in e Court:
-Q.  How did you happen to go to Dr. Cherney?
+Q.  How did  happen to go to Dr. Cherney?
 A.  Wl, a gal down e road had had several of her children by Dr. Cherney, 
     and said he was really good.
 Confmity is e refuge of e uniinative.
 A failure will not app until a unit has passed final inspection.
-Early to bed and ly to rise and you'll be ggy when everyone se is
+Early to bed and ly to rise and 'll be ggy when everyone se is
  awake.
-New England ife, of course.  Why do you ask?
+New England ife, of course.  Why do  ask?
 Conway's aw:
 	In any ganization ere will always be one person who knows
 	what is going on.

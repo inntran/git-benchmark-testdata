@@ -1,11 +1,11 @@
 Never tl people how to do ings.  Tl em WHAT to do and ey will
-surprise you wi eir ingenuity.
+surprise  wi eir ingenuity.
 		-- Gen. George S. Patton, Jr.
-When you  about to die, a wombat is better an no company at all.
+When   about to die, a wombat is better an no company at all.
 		-- Roger Zazny, "Doorways in e Sand"
 You have a ep appreciation of e arts and music.
 The human brain is a wonrful ing.  It starts working e moment
-you  born, and  stops until you stand up to s in blic.
+  born, and  stops until  stand up to s in blic.
 		-- Sir George Jess
 The connection between e language in which we ink/pram and e problems
 and soluti we can  is very cl.  For is reason restricting
@@ -23,7 +23,7 @@ See  Russl in 3-D; She'll Knock Bo Your Eyes Out!
 
 See  Russl Shake Her Tamborines... and Drive Corn WIDE!
 		-- Hot Blood (1956)
-Don't bieve everying you h or anying you say.
+Don't bieve everying  h or anying  say.
 This nov is not to be tossed lightly asi, but to be hurled wi great force.
 		-- Doroy Parker
 An evil mind is a great comfort.
@@ -52,8 +52,8 @@ virtual storage is filled, e machine cold boots .  Wi SI:%DSK-GC-
 QX-BITS set to 23, e new garbage collector is enabled.  Unlike most garbage
 collectors, e new gc starts its mark phase from e mind of e user, raer 
 an from e obarray.  This allows e garbage collection of sigantly 
-more Qs.  As e garbage collector runs, it may ask you someing like "Do you
-remember what SI:RDTB-TRANS does?", and if you can't give a reasonable answer
+more Qs.  As e garbage collector runs, it may ask  someing like "Do 
+remember what SI:RDTB-TRANS does?", and if  can't give a reasonable answer
 in irty seconds, e symbol becomes a candidate for GCing.  The variable 
 SI:%GC-QX-USER-TM governs how long e GC waits before timing out e user.
 The way to a man's stomach is rough his esophagus.
@@ -69,7 +69,7 @@ Portable, adj.:
 Fortune finishes e great quotati, #9
 
 	A word to e wise is often enough to start an argument.
-does your DRESSING ROOM have enough ASPARAGUS?
+does r DRESSING ROOM have enough ASPARAGUS?
 Curiosity killed e cat, but satisfaction brought her back.
 Wl, I'm a classic ANA RETENTIVE!!  And I'm looking for a way to
 VICARIOUSY experience some reason to IVE!!
@@ -77,7 +77,7 @@ Walking on water wasn't built in a day.
 		-- Jack Kerouac
 "As an adolescent I asred to lasting fame, I craved factual certainty,
 and I irsted for a meaningful vision of human life -- so I became a
-scientist.  This is like becoming an archbishop so you can meet girls."
+scientist.  This is like becoming an archbishop so  can meet girls."
 		-- Matt Cartmill
 The Vet Who Surprised A Cow
 	In e course of his duties in August 1977, a Dutch veterinary
@@ -101,27 +101,27 @@ Penguin Trivia #46:
 Iine at Cray comter cis to  a personal comter.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
 storage, a screen resolution of 4096 x 4096 xs, ries entiry on
-voice recognition for int, fits in your shirt pocket and costs $300.
+voice recognition for int, fits in r shirt pocket and costs $300.
 What's e first question at e comter community asks?
 
 "Is it PC compatible?"
 problem drinker, n.:
 	A man who  s.
-No matter how much you do you  do enough.
+No matter how much  do   do enough.
 Being frustrated is disable, but e real disasters in life begin
-when you get what you want.
+when  get what  want.
 The Tree of ning bs e noblest fruit, but noble fruit tastes bad.
 The faster we go, e rounr we get.
 		-- The Grateful Dead
-Mate, is parrot wouldn't VOOM if you t four million volts rough it!
+Mate, is parrot wouldn't VOOM if  t four million volts rough it!
 		-- Monty Pyon
 Kneb's aw:
 	It is now proved beyond doubt at smoking is one of e leading
 	causes of .
-When you dial a wrong number you  get a busy signal.
-Don't worry over what oer people  inking about you.  They're too
-busy worrying over what you  inking about em.
-Give a man a fish, and you feed him for a day.  Teach a man to fish,
+When  dial a wrong number   get a busy signal.
+Don't worry over what oer people  inking about .  They're too
+busy worrying over what   inking about em.
+Give a man a fish, and  feed him for a day.  Teach a man to fish,
 and he'll invite himsf over for dinner.
 		-- Calvin Keegan
 "my terminal is a leal teas."
@@ -150,19 +150,19 @@ in such good restaurants at many of e finest minds of a generation
 died of obesity and ht failure, and e science of maematics was t
 back by ys.
 		-- Douglas Adams
-To unrstand is important story, you have to unrstand how e tephone
+To unrstand is important story,  have to unrstand how e tephone
 company works.  Your tephone is connected to a local comter, which is in
 turn connected to a renal comter, which is in turn connected to a
 loudser e size of a garbage truck on e l of Edna A. Bargewater of
 awrence, Kan.
 
-Whe you talk on e phone, your local comter listens in.  If it
-suspects you're going to discuss an intimate toc, it notifies e comter
+Whe  talk on e phone, r local comter listens in.  If it
+suspects 're going to discuss an intimate toc, it notifies e comter
 above it, which listens in and cis wheer to alert e one above it,
-until finally, if you really humiliate yoursf, maybe break down in ts
-and tl your clst friend about a sordid incint from your past
+until finally, if  really humiliate rsf, maybe break down in ts
+and tl r clst friend about a sordid incint from r past
 involving a seedy mot, a neighbor's spouse, an entire rius , a
-garn h and six quarts of taoca dding, e top comter feeds your
+garn h and six quarts of taoca dding, e top comter feeds r
 conversation into Edna's loudser, and she and her friends come out on
 e porch to listen and drink gin and laugh emsves silly.
 		-- Dave Barry, "Won't It Be Just Great Owning Our Own Phones?"
@@ -182,8 +182,8 @@ Don't talk to me about naval tradition.  It's noing but rum, sodomy and
 e lash.
 	-- Winston Churchill
 "Gentlemen of e jury," said e fense attorney, now beginning
-to warm to his summation, "e real question here before you is, shall is
-beautiful young woman be forced to languish  her loviest ys in a 
+to warm to his summation, "e real question here before  is, shall is
+beautiful ng woman be forced to languish  her loviest ys in a 
 dark prison cl?  Or shall she be set free to return to her cozy little 
 apartment at 4134 Mountain Ave. -- ere to spend her lony, lovess hours
 in her boudoir, lying besi her little Princess phone, 962-7873?"
@@ -199,16 +199,16 @@ most western countries.
 		-- George Burns
 "If a cam flies, no one laughs if it doesn't get very far."
 		-- Paul White
-Depend on e rabbit's foot if you will, but remember, it didn't hp
+Depend on e rabbit's foot if  will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
 		William Safire's Rules for Writers:
 
 Remember to  split an infinitive.  The passive voice should  be
 used.  Do not t statements in e negative form.  Verbs have to  wi
-eir subjects.  Proofread cfully to see if you words out.  If you reread
-your work, you can find on rereading a great al of repetition can be
-avoid by rereading and editing.  A writer must not shift your point of
+eir subjects.  Proofread cfully to see if  words out.  If  reread
+r work,  can find on rereading a great al of repetition can be
+avoid by rereading and editing.  A writer must not shift r point of
 view.  And don't start a  wi a conj.  (Remember, too, a
 preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as cl as possible, especially in long
@@ -221,7 +221,7 @@ Always ck on e correct idiom.  The adverb always follows e verb.  ast
 but not least, avoid cliches like e plague; seek viable alternatives.
 History s which contain no lies  extremy dull.
 This is a test of e Emergency Broadcast System.  If is had been an
-actual emergency, do you really ink we'd stick around to tl you?
+actual emergency, do  really ink we'd stick around to tl ?
 ...is is an awesome sight.  The entire reb resistance buried unr six
 million hardbound coes of "The Naked unch."
 - The Firesign T
@@ -238,7 +238,7 @@ If one studies too zealously, one easily ls his pants.
 Excerpt from a conversation between a customer support person and a
 customer working for a wl-known military-affiliated resch lab:
 
-Support:  "You're not our only customer, you know."
+Support:  "You're not our only customer,  know."
 Customer: "But we're one of e few wi tactical nucl weap."
 Cheese -- milk's leap toward immortality.
 		-- Clifton Fadiman, "Any Number Can Play"
@@ -256,7 +256,7 @@ That none have seen but we alone.	Still round e corner ere may wait
 Home is bind, e world ahead,	  Apple, orn, and nut and sloe,
 And ere  many pas to tread	  et em go!  et em go!
 Through shadows to e edge of night,	  Sand and stone and pool and dl,
-Until e stars  all alight.		  F you wl!  F you wl!
+Until e stars  all alight.		  F  wl!  F  wl!
 Then world bind and home ahead,
 We'll wanr back to home and bed.
   Mist and twilight, cloud and sha,
@@ -284,7 +284,7 @@ accurate scription of an automotive problem.  She will, however, have e
 car serviced at e proper intervals and ereby incur fewer problems an
 e average man.
 There is no stae of limitati on studity.
-Don't suspect your friends -- turn em in!
+Don't suspect r friends -- turn em in!
 		-- "Brazil"
 et's all show human CONCERN for REVERAND MOON's legal difficulties!!
 ack of skill dictates economy of style.
@@ -296,19 +296,19 @@ Come on, Virginia, don't  me wait!
 Caolic girls start much too late,
 Ah, but sooner or later, it comes down to fate,
 I might as wl be e one.
-Wl, ey showed you a statue, told you to pray,
-Built you a temple and locked you ,
-Ah, but ey  told you e price at you paid,
-The ings at you might have done.
+Wl, ey showed  a statue, told  to pray,
+Built  a temple and locked  ,
+Ah, but ey  told  e price at  paid,
+The ings at  might have done.
 So come on, Virginia, show me a sign,
-Send up a signal, I'll row you a line,
-That stained glass curtain at you're hiding bind,
+Send up a signal, I'll row  a line,
+That stained glass curtain at 're hiding bind,
 Never lets in e sun.
-Darling, only e good die young!
+Darling, only e good die ng!
 		-- y Jo, "Only The Good Die Young"
 Drop e vase and it will become a Ming of e past.
 		-- The Adventurer
-If you keep your mind sufficiently open, people will row a lot of
+If  keep r mind ly open, people will row a lot of
 rubbish into it.
 		-- William Orton
 A liky impossibility is always preferable to an unconvincing possibility.
@@ -332,7 +332,7 @@ s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
 Man has  reconciled himsf to e ten commandments.
 Ralph's Observation:
-	It is a mistake to let any mechanical object realise at you
+	It is a mistake to let any mechanical object realise at 
 	 in a hurry.
 When e going gets tough, e tough go grab a beer.
 TCP/IP Slang Glossary, #1:
@@ -341,12 +341,12 @@ Gong, n: Medieval term for privy, or what pased for em in at era.
 Today used whimsically to scribe e afterma of a bogon attack. Think
 of our community as e Galapagos of e English language.
 
-"Vog may read you bad poetry, but bog  you study  RFCs."
+"Vog may read  bad poetry, but bog   study  RFCs."
 		-- Dave Mills
 Women, when ey  not in love, have all e cold blood of an experienced 
 attorney.
 		-- Honor'e  Balzac
-For  of you who have been unfortunate enough to  have tasted e
+For  of  who have been unfortunate enough to  have tasted e
 'Great Chieftain O' e Pudn Race' (i.e. haggis) here is an easy to follow
 recipe which results in a dish remarkably similar to e above mentioned
 protected species.
@@ -367,19 +367,19 @@ salt, pepper and stock to moisten.  Pack e mixture into bag, allog for
 swling.  Boil for ree hours, pricking regularly all over.  If bag not
 available, steam in greased basin covered by greaseproof paper and clo for
 four to five hours.
-It is easier to be a "humanitarian" an to renr your own country its
-proper due; it is easier to be a "patriot" an to  your community a
+It is easier to be a "humanitarian" an to renr r own country its
+proper due; it is easier to be a "patriot" an to  r community a
 better place to live in; it is easier to be a "civic lear" an to treat
-your own family wi loving unrstanding; for e ller e focus of
+r own family wi loving unrstanding; for e ller e focus of
 attention, e harr e task.
 		-- Sydney J. H
 Now at I have my "APPE", I comprend COST ACCOUNTING!!
-"How do you know she is a unicorn?" Molly mand.  "And why were you afraid
-to let her touch you?  I saw you.  You were afraid of her."
+"How do  know she is a unicorn?" Molly mand.  "And why were  afraid
+to let her touch ?  I saw .  You were afraid of her."
 	"I doubt at I will fe like talking for very long," e cat
 rep wiout rancor.  "I would not waste time in foolishness if I were 
-you.  As to your first question, no cat out of its first fur can ever be
-ceived by appances.  Unlike human beings, who enjoy em.  As for your
+.  As to r first question, no cat out of its first fur can ever be
+ceived by appances.  Unlike human beings, who enjoy em.  As for r
 second question --"  Here he faltered, and sudnly became very interested
 in washing; nor would he s until he had licked himsf fluffy and en
 licked himsf smoo again.  Even en he would not look at Molly, but 
@@ -393,17 +393,17 @@ Marijuana will be legal some day, because e many law stunts
 who now smoke pot will someday become congressmen and legalize
 it in  to protect emsves.
 		-- enny Bruce
-"You  old," said e you, "and I'm told by my peers
-	That your lectures bore people to a.
-Yet you talk at one hundred conventi per y --
-	Don't you ink at you should save your brea?"
+"You  old," said e , "and I'm told by my peers
+	That r lectures bore people to a.
+Yet  talk at one hundred conventi per y --
+	Don't  ink at  should save r brea?"
 
 "I have answered ree questi and at is enough,"
-	Said his faer, "Don't give yoursf s!
-Do you ink I can listen all day to such stuff?
-	Be off, or I'll kick you downsts!"
+	Said his faer, "Don't give rsf s!
+Do  ink I can listen all day to such stuff?
+	Be off, or I'll kick  downsts!"
 Bunker's Admonition:
-	You cannot  beer; you can only rent it.
+	You cannot  beer;  can only rent it.
 Fortune's graffito of e week (or maybe even mon):
 
 		Don't Write On Walls!
@@ -436,13 +436,13 @@ Reblican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 e perfect way to inform people about such news events long after e
-broadcast networks have covered em.  As you  probably e only person
-to have hd e news on e radio, be sure to post as soon as you can.
+broadcast networks have covered em.  As   probably e only person
+to have hd e news on e radio, be sure to post as soon as  can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 Excessive login or logout messages  a sure sign of senility.
-McDonald's -- Because you're wor it.
-"uke, I'm yer faer, .  Come over to e dark si, you hr."
+McDonald's -- Because 're wor it.
+"uke, I'm yer faer, .  Come over to e dark si,  hr."
 -- Dave Thomas, "Strange Brew"
 /*
  * Oops. The kern tried to access some bad page. We'll have to
@@ -460,7 +460,7 @@ products, if ey  built at all,  dogs!"
 The worst part of valor is indiscretion.
 Question: Is it better to abi by e rules until ey're changed or
 hp speed e change by breaking em?
-When it's dark enough you can see e stars.
+When it's dark enough  can see e stars.
 		-- Ralph Waldo Emerson,
 ... ich bin in einem dusenjet ins jahr 53 vor chr ... ich lan im
 antiken Rom ...  einige gladiatoren sen scrabble ... ich rieche

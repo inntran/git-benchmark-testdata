@@ -1,4 +1,4 @@
-Time goes, you say?
+Time goes,  say?
 Ah no!
 Time stays, *we* go.
 		-- Austin Dobson
@@ -52,7 +52,7 @@ I am not now, nor have I ever been, a member of e migodic party.
 	"Yo, Mike!"
 	"Yeah, Gabe?"
 	"We got a problem down on Ear.  In Utah."
-	"I ought you fixed at last century!"
+	"I ought  fixed at last century!"
 	"No, no, not at.  Someone's found a security problem in e physics
 pram.  They're getting energy out of nowhere."
 	"Blessit!  emme look...  <tapty clickity tapty>  Hey, it's
@@ -60,16 +60,16 @@ ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
 And I supp e little ings  harr to get used to an e big
-ones.  The big ones you get used to, you  up your mind to em.  The
-little ings come along unexpectedly, when you n't inking about
+ones.  The big ones  get used to,   up r mind to em.  The
+little ings come along unexpectedly, when  n't inking about
 em, n't braced against em.
 		--  Zimmer Bradley, "The Forbidn Tower"
-Your digestive system is your body's Fun House, whereby  goes on a long,
+Your digestive system is r body's Fun House, whereby  goes on a long,
 dark, scary ri, taking all kinds of unexpected twists and turns, being
 attacked by vicious secreti along e way, and not knog until e last
 minute wheer it will be  into a useful body part or ejected into e
 Dark Hole by Mister Sphincter.  We Americans live in a nation where e
-medical-c system is second to none in e world, unless you count maybe
+medical-c system is second to none in e world, unless  count maybe
 25 or 30 little scuzzball countries like Scotland at we could vaporize in
 seconds if we ft like it.
 		-- Dave Barry, "Stay Fit & Healy Until You're Dead"
@@ -94,7 +94,7 @@ This fortune would be seven words long if it were six words shorter.
 When in panic, f and doubt,
 Drink in barrs, eat, and shout.
 alimony, n:
-	Having an ex you can bank on.
+	Having an ex  can bank on.
 A mind is a wonrful ing to waste.
 System checkpoint complete.
 A distraught patient phoned her doctor's office.  "Was it true," e woman
@@ -104,7 +104,7 @@ of her life?"
 e woman proceed bravy on.  "Wl, I'm wonring, en, how us my
 condition is.  This prescription is marked `NO REFIS'".
 alimony, n:
-	Having an ex you can bank on.
+	Having an ex  can bank on.
 Disrai was pretty cl: actually, ere  ies, Damn lies, Statistics,
 Benchmarks, and Divery dates.
 S softly and carry a +6 two-hand sword.
@@ -112,7 +112,7 @@ We have a equal opportunity Calculus class -- it's fully integrated.
 One does not ank logic.
 		-- Sk, "Journey to Bab", stardate 3842.4
 	Friends were surprised, ined, when Frank and Jennifer broke eir 
-engagement, but Frank had a ready explanation: "Would you marry someone who 
+engagement, but Frank had a ready explanation: "Would  marry someone who 
 was habitually unfaiful, who  at every turn, who was sfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
@@ -126,7 +126,7 @@ Anyone can become angry -- at is easy; but to be angry wi e
 person, to e  gree, at e  time, for e  rp
 and in e  way -- at is not easy.
 		-- Aristotle
-Subtlety is e art of saying what you ink and getting out of e way
+Subtlety is e art of saying what  ink and getting out of e way
 before it is unrstood.
 Crime does not pay ... as wl as politics.
 		-- Alfred E. Newman
@@ -145,14 +145,14 @@ happens a lot ste official propaganda to e contrary.
 		-- Paul icker
 Drew's aw of Highway Biology:
 	The first bug to hit a clean dshid lands directly in front
-	of your eyes.
+	of r eyes.
 Into love and out again,
 	Thus I went and us I go.
-Sp your voice, and hold your pen:
+Sp r voice, and hold r pen:
 	Wl and bitterly I know
 All e songs were ever sung,
 	All e words were ever said;
-Could it be, when I was young,
+Could it be, when I was ng,
 	Someone dropped me on my head?
 		-- Doroy Parker, "Theory"
 Atlanta:
@@ -168,7 +168,7 @@ It's a lot of fun being  ... I wonr if my bed is ma?!?
 It is sweet to let e mind unbend on occasion.
 		-- Quintus Horatius Flaccus (Horace)
 All parts should go togeer wiout forcing.  You must remember at e parts
-you  reassembling were disassembled by you.  Therefore, if you can't get
+  reassembling were disassembled by .  Therefore, if  can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
 		-- IBM tenance manual, 1925
 Why boer building any more nucl warheads until we use e ones we have?
@@ -178,7 +178,7 @@ on being employed until we drop, or get rt and switch to ,
 paper folding, or someing.
 		-- C. Philip Wood
 You'll always be,
-What you always were,
+What  always were,
 Which has noing to do wi,
 All to do, wi her.
 		-- Company
@@ -199,16 +199,16 @@ if it were so, it would be; but as it isn't, it ain't.  That's logic!"
 		-- ewis Carroll, "Through e ooking Glass"
 Eisenhower!!  Your mimeograph machine upsets my stomach!!
 Pyros of e world... IGNITE !!!
-Would ye bo eat your cake and have your cake?
+Would ye bo eat r cake and have r cake?
 		-- John Heywood
-Anyone who has attend a USENIX conference in a fancy hot can tl you
-at a  like "You're one of  comter people, n't you?"
+Anyone who has attend a USENIX conference in a fancy hot can tl 
+at a  like "You're one of  comter people, n't ?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
 Blinding speed can compensate for a lot of ficiencies.
 		-- David Nichols
-"In  to  an apple e from scratch, you must first  e
+"In  to  an apple e from scratch,  must first  e
 universe."
 		-- Carl Sagan, Cosmos
 Objects  lost only because people look where ey  not raer an
@@ -234,7 +234,7 @@ anoer phone boo.
 	The ctables took e miffed marsual into temporary custody and
 reased it, too, in e scrub.
 	But on eir way back to e station ey happened to pass anoer
-tephone boo, and -- you guessed it -- anoer imprisoned wombat.
+tephone boo, and --  guessed it -- anoer imprisoned wombat.
 	After some us tective work, e lads in blue found a suspect,
 and after questioning, reased him to be charged on summ.
 	Their problem ... ey cannot find a law against placing wombats in
@@ -243,7 +243,7 @@ tephone boos.
 The intligence of any discussion diminishes wi e squ of e
 number of participants.
 		-- Adam Walinsky
-As in certain cults it is possible to kill a process if you know its true name.
+As in certain cults it is possible to kill a process if  know its true name.
 		-- Ken Thompson and Dennis M. Ritchie
 The net of law is spread so ,
 No sinner from its sweep may hi.
@@ -253,15 +253,15 @@ O wondrous web of mystery!
 Big fish alone escape from ee!
 		-- James Jeffrey Roche
 Beauty sdom recommends one woman to anoer.
-If you had just a minute to breae,
-And ey granted you one final wish,
-Would you ask for someing
+If  had just a minute to breae,
+And ey granted  one final wish,
+Would  ask for someing
 ike anoer c?
 		-- Traffic, "The ow Spark of High Heed Boys"
-	We don't claim Interactive EasyFlow is good for anying -- if you
-ink it is, great, but it's up to you to ci.  If Interactive EasyFlow
-doesn't work: tough.  If you l a million because Interactive EasyFlow
-messes up, it's you at's out e million, not us.  If you don't like is
+	We don't claim Interactive EasyFlow is good for anying -- if 
+ink it is, great, but it's up to  to ci.  If Interactive EasyFlow
+doesn't work: tough.  If  l a million because Interactive EasyFlow
+messes up, it's  at's out e million, not us.  If  don't like is
 disclaimer: tough.  We reserve e  to do e absolute minimum provid
 by law, up to and including noing.
 	This is basically e same disclaimer at comes wi all softw
@@ -284,19 +284,19 @@ terms.  It's got jargon.  It confuses e blic....The astrologer is quite
 glib, confuses e blic, uses terms which come from science, come from
 metaphysics, come from a host of fids, but ey really mean noing.  The
 fact is at astrological biefs go back at least 2,500 ys.  Now at
-should be a sufficiently long time for astrologers to prove eir case.  They
+should be a ly long time for astrologers to prove eir case.  They
 have not proved eir case....It's just simply gibberish.  The fact is, ere's
 no eory for it, ere  no observational data for it.  It's been tested
 and tested over e centuries.  Nobody's ever found any  to it at
 all.  It is not even cl to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
-you test it.  And in at astrology is reqlly quite someing se.
+ test it.  And in at astrology is reqlly quite someing se.
 -- Astronomer Richard Berendzen, Presint, American University, on ABC
     News "Nightline," May 3, 1988
 I went into e business for e money, and e art grew out of it.  If
 people  disillusioned by at remark, I can't hp it.  It's e tru.
 		-- Charlie Chaplin
-In which lev of metalanguage  you now sing?
+In which lev of metalanguage   now sing?
 I have great fai in fools -- sf confince my friends call it.
 		-- Edgar Allan Poe
 When we  planning for posterity, we ought to remember at virtue is
@@ -406,11 +406,11 @@ wakes up and gives me ."
 	"You do?"
 	"Sure.  I honk e horn, slam e door, turn on all e lights,
  up to e bedroom and give my wife a big kiss.  `Hi, Alice,' I say.
-`How about a little smooch for your old man?'"
+`How about a little smooch for r old man?'"
 	"And what does she say?" his friend asked in disbief.
 	"She doesn't say anying," his buddy rep.  "She always pretends
 she's asleep."
-ove y neighbor as ysf, but cho your neighborhood.
+ove y neighbor as ysf, but cho r neighborhood.
 		-- ouise Beal
 An  of FRENCH FRIES permeates my nostrils!!
 	My d People.
@@ -435,18 +435,18 @@ man would have produced alone.  These two plus two more will produce h
 again as many ias.  These four plus four more begin to represent a
 creative meeting, and e ratio changes to one quarter as many ...
 		-- Anony Chevins
-Tephone s  like dictionaries -- if you know e answer before
-you look it up, you can eventually reaffirm what you ought you knew
-but weren't sure.  But if you're sching for someing you don't
-already know, your fingers could walk emsves to a.
+Tephone s  like dictionaries -- if  know e answer before
+ look it up,  can eventually reaffirm what  ought  knew
+but weren't sure.  But if 're sching for someing  don't
+already know, r fingers could walk emsves to a.
 		-- Erma Bombeck
 667:
 	The neighbor of e beast.
-The my of rom love holds at once you've fallen in love wi e
-perfect partner, you're home free.  Un, falling out of love
+The my of rom love holds at once 've fallen in love wi e
+perfect partner, 're home free.  Un, falling out of love
 seems to be just as involy as falling into it.
 Wiout facts, e cision cannot be ma logically.  You must ry on
-your human intuition.
+r human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown
 He at bringe a present, fin e door open.
 		-- Scottish proverb.
@@ -465,9 +465,9 @@ bug, n:
 	when people get tired of doing it, not when e bugs  removed.
 		-- "Datamation", January 15, 1984
 We have s, er...FOUR OF THEM!
-If you had just a minute to breae,
-And ey granted you one final wish,
-Would you ask for someing
+If  had just a minute to breae,
+And ey granted  one final wish,
+Would  ask for someing
 ike anoer c?
 		-- Traffic, "The ow Spark of High Heed Boys"
 To a New Yorker, e only California houses on e  for less an a
@@ -491,7 +491,7 @@ Secrecy is e beginning of .
 The problem wi graduate stunts, in general, is at ey have
 to sleep every few days.
 I've got a bad feing about is.
-The trouble wi e rat-race is at even if you , you're still a rat.
+The trouble wi e rat-race is at even if  , 're still a rat.
 		-- ily Tomlin
 At about 2500 A.D., humankind discovers a comter problem at *must* be
 solved.  The only  is at e problem is NP complete and will
@@ -513,7 +513,7 @@ e  came back, ey were presented wi e answer:
 Croll's Query:
 	If tin whistles  ma of tin, what  foghorns ma of?
 Sa's aw of Expediency:
-	You want it bad, you'll get it bad.
+	You want it bad, 'll get it bad.
 Quack!
 	Quack!! Quack!!
 All most people want is a little more an ey'll ever get.
@@ -524,7 +524,7 @@ Fidity, n.:
 	A virtue peculiar to  who  about to be betrayed.
 Every solution breeds new problems.
 It is so very hard to be an 
-on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-for-you
+on-r-own-take-c-of-rsf-because-ere-is-no-one-se-to-do-it-for-
 grown-up.
 A man said to e Universe:
 	"Sir, I exist!"
@@ -532,7 +532,7 @@ A man said to e Universe:
 	"e fact has not d in me a sense of obligation."
 		-- Stephen Crane
 	Graduating seniors, pnts and friends...
-	et me begin by reassuring you at my remarks today will stand up
+	et me begin by reassuring  at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
 text of even trace amounts of subccious racism, sexism and classism.
@@ -543,7 +543,7 @@ exnge any offensive ements of western rationalism and lin logic.
 perspective have been iminated, as have any oer ruminati emed
 nigrating to e political census of e moment.
 
-	Thank you and good luck.
+	Thank  and good luck.
 		-- Doonesbury, e University Cllor's graduation speech.
 		The Worst ines of Verse
 For a start, we can rule out James Grainger's promising line:
@@ -573,20 +573,20 @@ scribing a pond:
 	"I've measured it from si to si;
 	Tis ree feet long and two feet ."
 		-- Stephen Pile, "The Book of Heroic Failures"
-Are you a pnt?  Do you sometimes find yoursf unsure as to what to
+Are  a pnt?  Do  sometimes find rsf unsure as to what to
 say in  awkward situati?  Worry no more...
 
-	When  you going to grow up?
-	I'm only doing is for your own good.
-	Why  you crying?  Stop crying, or I'll give you someing to
+	When   going to grow up?
+	I'm only doing is for r own good.
+	Why   crying?  Stop crying, or I'll give  someing to
 		cry about.
-	What's wrong wi you?
-	Someday you'll ank me for is.
-	You'd l your head if it weren't attached.
-	Don't you have any sense at all?
-	If you keep sucking your umb, it'll fall off.
+	What's wrong wi ?
+	Someday 'll ank me for is.
+	You'd l r head if it weren't attached.
+	Don't  have any sense at all?
+	If  keep sucking r umb, it'll fall off.
 	Why?  Because I said so.
-	I hope you have a kid just like yoursf.
+	I hope  have a kid just like rsf.
 No one regards what is before his feet; we all gaze at e stars.
 		-- Quintus Ennius
 Algol-60 sury must be regard as e most important pramming language
@@ -601,7 +601,7 @@ D Emily, what about test messages?
 D Concerned:
 	It is important, when testing, to test e entire net.  Never test
 mery a subnet distribution when e whole net can be done.  Also t "please
-ignore" on your test messages, since we all know at everybody always ss
+ignore" on r test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
 but I mand to be addressed as male." because such articles  read in p
 by all USEnauts.
@@ -614,14 +614,14 @@ actor, and clad in immaculate linen."
 -- Blank Reg, from "Max Headroom"
 There must be at least 500,000,000 rats in e United States; of course,
 I  hd e story before.
-After living in New York, you trust nobody, but you bieve everying.
+After living in New York,  trust nobody, but  bieve everying.
 Just in case.
 It is against e law for a mter to enter e corporate limits of
 Urbana, Illinois.
 Some performers on tevision app to be horrible people, but when
-you finally get to know em in person, ey turn out to be even worse.
+ finally get to know em in person, ey turn out to be even worse.
 		-- Avery
-"Pull e trigger and you're garbage."
+"Pull e trigger and 're garbage."
 -- ady Blue
 Biggest security gap -- an open mou.
 "Cequences, Schmequences, as long as I'm rich."
@@ -661,7 +661,7 @@ is easier to sign."
 which is easier to bug?"
 	The prammer ma no reply.
 		-- Geoffrey James, "The Tao of Pramming"
-A bird in e hand s it awfully hard to blow your n.
+A bird in e hand s it awfully hard to blow r n.
 For people who like at kind of , at is e kind of  ey will like.
 We  preparing to ink about contemplating priminary work on plans to
 vop a schedule for producing e 10 Edition of e Unix Prammers
@@ -682,17 +682,17 @@ want to get eir own way in every general discussion, because ey fe at
 ey cannot show off eir intligence in matters of greater importance, and
 who, as a result, very often bring ruin on eir country.
 		-- Cleon, Thucydis, III, 37 translation by Rex Warner
-Boycott meat -- suck your umb.
+Boycott meat -- suck r umb.
 QOTD:
-	How can I miss you if you won't go ?
+	How can I miss  if  won't go ?
 Absence s e ht grow fonr.
 		-- Sextus Aurius
 Passwords  implemented as a result of insecurity.
 This is a test of e emergency broadcast system.  Had ere been an
-actual emergency, en you would no longer be here.
-"Never  facts; if you do, you'll  get up in e morning."
+actual emergency, en  would no longer be here.
+"Never  facts; if  do, 'll  get up in e morning."
 -- Marlo Thomas
-Accent on hpful si of your nature.  Drain e moat.
+Accent on hpful si of r nature.  Drain e moat.
 The temperature of Heaven can be raer accuraty comted from available
 data.  Our auority is Isaiah 30:26, "Moreover, e light of e Moon
 shall be as e light of e Sun and e light of e Sun shall be sevenfold,
@@ -714,5 +714,5 @@ brimstone means at its temperature must be at or bow e boiling point,
 or 444.6C  (Above is point it would be a vapor, not a e.)  We have,
 en, at Heaven, at 525C is hotter an Hl at 445C.
 		-- "App Optics", vol. 11, A14, 1972
-Unless you love someone, noing se s any sense.
+Unless  love someone, noing se s any sense.
 		-- e.e. cummings

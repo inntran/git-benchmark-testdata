@@ -3,7 +3,7 @@ To the landlord belongs the doorknobs.
 "Th who believe in astrology  living in houses with foundations of
 Silly Putty."
 -  Dennis Rawlins, astronomer
-To keep your friends treat them kindly; to kill them, treat them often.
+To keep r friends treat them kindly; to kill them, treat them often.
 	A program should be light and agile, its subroutines connected like a
 strings of pearls.  The spirit and intent of the program should be retained
 throughout.  There should be neither too little nor too much, neither needless
@@ -19,7 +19,7 @@ appearances.
 disorr and confusion.  The only way to correct this is to rewrite the
 program.
 		-- Geoffrey James, "The Tao of Programming"
-NATHAN ... your PARENTS were in a CARCRASH!!  They're VOIDED -- They
+NATHAN ... r PARENTS were in a CARCRASH!!  They're VOIDED -- They
 COLLAPSED They had no CHAINSAWS ... They had no MONEY MACHINES ... They
 did PILLS in SKIMPY GRASS SKIRTS ... Nathan, I EMULATED them ... but
 they were OFF-KEY ...
@@ -32,21 +32,21 @@ Rules for Good Grammar #4.
 	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
 	 (4) About them sentence s.
-	 (5) When dangling, watch your participles.
+	 (5) When dangling, watch r participles.
 	 (6) Verbs has got to agree with their subjects.
-	 (7) Just between you and i, case is important.
+	 (7) Just between  and i, case is important.
 	 (8) Don't write run-on sentences when they  hard to read.
 	 (9) Don't use commas, which n't necessary.
 	(10) Try to not ever split infinitives.
-	(11) It is important to use your apostrophe's correctly.
-	(12) Proofread your writing to see if you any words out.
+	(11) It is important to use r apostrophe's correctly.
+	(12) Proofread r writing to see if  any words out.
 	(13) Correct speling is essential.
-	(14) A preposition is something you  end a sentence with.
+	(14) A preposition is something   end a sentence with.
 	(15) While a transcendant vocabulary is laudable, one must be eternally
 	     cful so that the calculated objective of communication does not
 	     become ensconsed in obscurity.  In other words, eschew obfuscation.
 If dolphins  so smart, why did Flipper work for television?
-You mean you don't want to watch WRESTLING from ATLANTA?
+You mean  don't want to watch WRESTLING from ATLANTA?
 There's a little picture of ED MCMAHON doing BAD THINGS to JOAN RIVERS
 in a $200,000 MALIBU BEACH HOUSE!!
 Why I Can't Go Out With You:
@@ -62,7 +62,7 @@ I'd LOVE to, but...
 	-- I'm doing door-to-door collecting for static cling.
 	-- I'm teaching my ferret to yol.
 	-- My crayons all melted together.
-Death is God's way of telling you not to be such a wise guy.
+Death is God's way of telling  not to be such a wise guy.
 Snow Day -- stay home.
 Perhaps no person can be a poet, or even enjoy poetry without a certain
 unsoundness of mind.
@@ -72,27 +72,27 @@ When his wife died his friends believed he would marry her, and urged
 him to do so.  "No, no," he said: "if I did, where should I have to
 spend my evenings?"
 		-- Chamfort
-When you  at Rome live in the Roman style; when you  elsewhere live
+When   at Rome live in the Roman style; when   elsewhere live
 as they live elsewhere.
 		-- St. Ambr
 Feeling amorous, she looked unr the sheets and , "Oh, no,
 it's Microsoft!"
-If you stick a stock of liquor in your locker,
-It is slick to stick a lock upon your stock. 
+If  stick a stock of liquor in r locker,
+It is slick to stick a lock upon r stock. 
 	Or some joker who is slicker,
-	Will trick you of your liquor,
-If you fail to lock your liquor with a lock.
+	Will trick  of r liquor,
+If  fail to lock r liquor with a lock.
 Not only is this incomprehensible, but the ink is ugly and the paper
 is from the wrong kind of tree.
 		-- Professor, EECS, George Washington University
 
-I'm looking forward to working with you on this next year.
+I'm looking forward to working with  on this next year.
 		-- Professor, Harvard, on a  senior thesis.
 Between infinite and short there is a big difference.
 		-- G.H. Gonnet
 QOTD:
 	"It's been Monday all week today."
-Never say you know a man until you have divid an inheritance with him.
+Never say  know a man until  have divid an inheritance with him.
 During the next two hours, the system will be going up and down several
 times, often with lin~po_~{po       ~poz~ppo\~{ o n~po_~{o[po	 ~y oodsou>#w4k**n~po_~{ol;lkld;f;g;dd;po\~{o
 Once, I read that a man be  stronger than when he truly realizes how
@@ -104,12 +104,12 @@ probably what it was: something resembling white marble.
 The things that interest people most  usually none of their business.
 Q:	What's the difference between a duck and an elephant?
 A:	You can't get down off an elephant.
-You can bring any calculator you like to the midterm, as long as it
-doesn't dim the lights when you turn it on.
+You can bring any calculator  like to the midterm, as long as it
+doesn't dim the lights when  turn it on.
 		-- Hepler, Systems Design 182
 "I have a friend who just got back from the Soviet Union, and told me the people
 there  hungry for information about the West.  He was asked about many 
-things, but I will give you two examples that  very revealing about life in
+things, but I will give  two examples that  very revealing about life in
 the Soviet Union.  The first question he was asked was if we had exploding
 television sets.  You see, they have a problem with the picture tubes on color
 television sets, and many  exploding.  They assumed we must be having 
@@ -127,7 +127,7 @@ We secure our friends not by accepting favors but by doing them.
 A bachelor is a selfish, unserving guy who has cheated some woman out
 of a divorce.
 		-- Don Quinn
-Isn't it conceivable to you that an intelligent person could harbor
+Isn't it conceivable to  that an intelligent person could harbor
 two opposing ias in his mind?
 		-- Adlai Stevenson, to reporters
 Congratulations  in orr for Tom Reid.
@@ -151,20 +151,20 @@ together, and say nothing.  After years of interacting with this other man,
 sharing hopes and fears that he wouldn't confi in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 ality and say something like, "You know, for someone who's such a
-jerk, I guess you're OK."
+jerk, I guess 're OK."
 A pessimist is a man who has been compelled to live with an optimist.
 		-- Elbert Hubbard
 BASIC, n.:
 	A programming language.  Related to certain social diseases in
 	that th who have it will not admit it in polite company.
-Microwaves frizz your heir.
+Microwaves frizz r heir.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
 The last time I saw him he was walking down Lover's Lane holding his own hand.
 		-- Fred Allen
 heavy, adj.:
 	Seduced by the chocolate si of the force.
-Losing your drivers' license is just God's way of saying "BOOGA, BOOGA!"
+Losing r drivers' license is just God's way of saying "BOOGA, BOOGA!"
 nolo contenre:
 	A legal term meaning: "I didn't do it, judge, and I'll  do
 	it again."
@@ -185,7 +185,7 @@ They run into the millions.
 Stupidity, like virtue, is its own reward.
 Corresponnce Corollary:
 	An experiment may be consired a success if no more than h
-	your data must be discard to obtain corresponnce with your theory.
+	r data must be discard to obtain corresponnce with r theory.
 The meek don't want it.
 Never try to explain comters to a layman.  It's easier to explain
 sex to a virgin.
@@ -224,20 +224,20 @@ crust.  Trim and flute edges together.  Cut slits in top crust to let
 steam escape.  Bake in a hot oven (425 F) 30 to 35 minutes, until crust
 is crisp and goln.  Serve warm.  Cut into 6 to 8 slices.
 		-- Found lurking on a Ritz Crackers box
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+And do  think (fop that I am) that I could be the Scarlet Pumpernickel?
 QOTD:
 	"If I'm what I eat, I'm a chocolate chip cookie."
 We have the flu.  I don't know if this particular strain has an official
 name, but if it does, it must be something like "Martian Death Flu".  You
-may have had it yourself.  The  symptom is that you wish you had another
-setting on your electric blanket, up past "HIGH", that said "ELECTROCUTION".
-	Another symptom is that you cease brushing your teeth, because (a)
-your teeth hurt, and (b) you lack the strength.  Midway through the brushing
-process, you'd have to lie down in front of the sink to rest for a couple
-of hours, and rivulets of toothpaste foam would dribble siways out of your
+may have had it rself.  The  symptom is that  wish  had another
+setting on r electric blanket, up past "HIGH", that said "ELECTROCUTION".
+	Another symptom is that  cease brushing r teeth, because (a)
+r teeth hurt, and (b)  lack the strength.  Midway through the brushing
+process, 'd have to lie down in front of the sink to rest for a couple
+of hours, and rivulets of toothpaste foam would dribble siways out of r
 mouth, eventually harning into crusty little toothpaste stalagmites that
-would bond your head permanently to the bathroom floor, which is how the
-police would find you.
+would bond r head permly to the bathroom floor, which is how the
+police would find .
 	You know the kind of flu I'm talking about.
 		-- Dave Barry, "Molecular Homici"
 Why did the Roman  collapse?  What is the Latin for office automation?
@@ -259,7 +259,7 @@ Wi Receiver:
 	The other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
 fast.  Expect to see Yip elu all rsuers and  it into the endzone five
-or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
+or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "
 asshole" by his teammates, hopes to carry the ball with him at least one of
 th times.
 YALE:
@@ -271,22 +271,22 @@ the powerful fense is junior tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look for these three to shut down the opening
 coin toss.
 		-- Harvard Lampoon 1988 Program Parody, distributed at The Game
-	Now she speaks rapidly.  "Do you know *why* you want to program?"
+	Now she speaks rapidly.  "Do  know *why*  want to program?"
 	He shakes his head.  He hasn't the faintest ia.
 	"For the sheer *joy* of programming!" she cries triumphantly.  
 "The joy of the pnt, the artist, the craftsman.  "You take a program, 
 born weak and impotent as a dimly-realized solution.  You nurture the 
 program and gui it down the right path, building, watching it grow ever 
-stronger.  Sometimes you paint with tiny strokes, a keystroke add here, 
+stronger.  Sometimes  paint with tiny strokes, a keystroke add here, 
 a keystroke changed there."  She sweeps her arm in a  arc.  "And other
-times you savage whole *blocks* of co, ripping out the program's very 
+times  savage whole *blocks* of co, ripping out the program's very 
 *essence*, then beginning anew.  But always building, creating, filling the 
-program with your own personal stamp, your own quirks and nuances.  Watching 
+program with r own personal stamp, r own quirks and nuances.  Watching 
 the program grow stronger, patching it when it crashes, until finally it can 
 stand alone -- proud, powerful, and perfect.  This is the programmer's finest
 hour!"  Softly at first, then lour, he hears the strains of a Sousa march. 
-"This ... this is your canvas! your clay!  Go forth and create a masterwork!"
-It's been a business doing pleasure with you.
+"This ... this is r canvas! r clay!  Go forth and create a masterwork!"
+It's been a business doing pleasure with .
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#2
 
 Desserts:
@@ -325,8 +325,8 @@ Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
 a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
-Whether you  asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you  to him as  the massed armies of the earth
+Whether   asleep or awake he will attack , caring nothing for the fact
+that in bulk and strength   to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
 very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
@@ -336,20 +336,20 @@ t him at the head of the .
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 I do not find in orthodox Christianity one reeming feature.
 - Thomas Jefferson
-It would save me a lot of time if you just gave up and went mad now.
-I will  lie to you.
+It would save me a lot of time if  just gave up and went mad now.
+I will  lie to .
 The heroic hours of life do not announce their presence by drum and trumpet,
 challenging us to be true to ourselves by appeals to the martial spirit that
 keeps the blood at heat.  Some little, unassuming, unobtrusive choice presents
 itself before us slyly and craftily, glib and insinuating, in the most garb
 of innocence.  To yield to its blandishments is so easy.  The wrong, it seems,
-is venial...  Then it is that you will be summoned to show the courage of
-adventurous youth.
+is venial...  Then it is that  will be summoned to show the courage of
+adventurous th.
 		-- Benjamin Cardozo
-You have the power to influence all with whom you come in contact.
+You have the power to influence all with whom  come in contact.
 For fast-acting relief, try slowing down.
 Concept, n.:
-	Any "ia" for which an outsi consultant billed you more than
+	Any "ia" for which an outsi consultant billed  more than
 	$25,000.
 Some people cause happiness wherever they go; others, whe they go.
 Promptness is its own reward, if one lives by the clock instead of the sword.
@@ -388,7 +388,7 @@ It will be generally found that th who sneer habitually at human nature
 and affect to spise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
 Is ath legally binding?
-Did you hear that there's a group of South American Indians that worship
+Did  hear that there's a group of South American Indians that worship
 the number zero?
 
 Is nothing sacred?
@@ -419,22 +419,22 @@ QOTD:
 If there is no God, who pops up the next Kleenex?
 		-- Art Hoppe
 Finagle's First Law:
-	To study a subject best, unrstand it thoroughly before you start.
+	To study a subject best, unrstand it thoroughly before  start.
 
 Finagle's Second Law:
-	Always keep a record of data -- it indicates you've been working.
+	Always keep a record of data -- it indicates 've been working.
 
 Finagle's Fourth Law:
 	Once a job is fouled up, anything done to improve it only s
 	it worse.
 
 Finagle's Fifth Law:
-	Always draw your curves, then plot your readings.
+	Always draw r curves, then plot r readings.
 
 Finagle's Sixth Law:
 	Don't believe in miracles -- rely on them.
 You can't mend a wristwatch while falling from an airplane.
-Valerie: Aww, Tom, you're going maudlin on me ...
+Valerie: Aww, Tom, 're going maudlin on me ...
 Tom:	 I reserve the right to wax maudlin as I wane eloquent ...
 		-- Tom Chapin
 13. ...  r-q1
@@ -445,19 +445,19 @@ The first duty of a revolutionary is to get  with it.
 		-- Abbie Hoffman
 A woman's best protection is a little money of her own.
 		-- Cl Booth Luce, quoted in "The Wit of Women"
-Any sufficiently advanced technology is indistinguishable from ic.
+Any ly advanced technology is indistinguishable from ic.
 		-- Arthur C. Clarke
 Graduate stunts and most professors  no smarter than unrgrads.
 They're just olr.
 Standards  crucial.  And the best thing about standards is: there 
 so ____many to cho from!
-Beat your son every day; you may not know why, but he will.
+Beat r son every day;  may not know why, but he will.
 Little girls, like butterflies, need no excuse.
 		-- Lazarus Long
-You don't become a failure until you're satisfied with being one.
+You don't become a failure until 're satisfied with being one.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
-You can always tell the Christmas season is here when you start getting
+You can always tell the Christmas season is here when  start getting
 incredibly nse, tinfoil-and-ribbon- wrapped lumps in the mail. Fruitcakes
  ial gifts because the Postal Service has been unable to find a way to
 dae them.  They last forever, largely because nobody ever eats them.  In
@@ -468,7 +468,7 @@ and forth for hundreds of years.
 The easiest way to  a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to wear safety glasses.
 		-- Dave Barry, "Simple, Homesn Gifts"
-I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
+I'm ng ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
 Succumb to natural tenncies.  Be hateful and boring.
 A man always remembers his first love with special tenrness, but after
 that begins to bunch them.
@@ -486,18 +486,18 @@ A:	Easy.  It's because they can't figure out how to get the little
 I see a good al of talk from Washington about lowering taxes.  I hope
 they do get 'em lowered down enough so people can afford to pay 'em.
 		-- The Best of Will Rogers
-Be  of strong drink.  It can  you shoot at tax collectors and miss.
+Be  of strong drink.  It can   shoot at tax collectors and miss.
 		-- Lazarus Long, "Time Enough for Love"
 "Yes, and I feel bad about renring their useless carci into dogfood..."
 -- Badger comics
-I disagree with what you say, but will fend to the ath your right to
+I disagree with what  say, but will fend to the ath r right to
 tell such LIES!
 Mac Beer: At first, came only a 16-oz. can, but now comes in a 32-oz. 
 can. Consired by many to be a "light" beer. All the cans look 
-intical. When you take one from the fridge, it opens itself. The 
-ingredients list is not on the can. If you call to ask about the 
-ingredients, you  told that "you don't need to know." A notice on the 
-si reminds you to drag your empties to the trashcan.
+intical. When  take one from the fridge, it opens itself. The 
+ingredients list is not on the can. If  call to ask about the 
+ingredients,   told that " don't need to know." A notice on the 
+si reminds  to drag r empties to the trashcan.
 Whoever tells a lie cannot be re in heart -- and only the re in heart
 can  a good soup.
 		-- Ludwig Van Beethoven
@@ -539,7 +539,7 @@ Waitin' for the double E.
 The railroad don't run no more.
 Poor poor pitiful me.			[chorus]
 	Poor poor pitiful me, poor poor pitiful me.
-	These young girls won't let me be,
+	These ng girls won't let me be,
 	Lord have mercy on me!
 	Woe is me!
 
@@ -561,7 +561,7 @@ I am having FUN...  I wonr if it's NET FUN or GROSS FUN?
 "Never give in.  Never give in.  Never. Never. Never."
 -- Winston Churchill
 Stenrup's Law:
-	The sooner you fall behind, the more time you will have to catch up.
+	The sooner  fall behind, the more time  will have to catch up.
 Abstainer:  A weak person who yields to the temptation of ing himself a
 pleasure.  A total abstainer is one who abstains from everything but
 abstention, and especially from inactivity in the affairs of others.
@@ -596,7 +596,7 @@ reckoned with.
 Literature is mostly about having sex and not much about having children.
 Life is the other way around.
 		-- David Lodge, "The British Museum is Falling Down"
-Your true value pends entirely on what you  compd with.
+Your true value pends entirely on what   compd with.
 WRONG!
 The time spent on any item of the agenda [of a finance committee] will be
 in inverse proportion to the sum involved.
@@ -609,13 +609,13 @@ IT MAKES ME MAD when I go to all the trouble of having Marta cook up about
 a hundred drumsticks, then the guy at Marineland says, "You can't throw
 that chicken to the dolphins. They eat fish."
 
-Sure they eat fish if that's all you give them!  Man, wise up.
+Sure they eat fish if that's all  give them!  Man, wise up.
 		-- Jack Handley, The New Mexican, 1988.
 The shortest distance between any two ns is a straight line.
-If you wish to live wisely, ignore sayings -- including this one.
-Lend money to a bad btor and he will hate you.
-While your friend holds you affectionately by both your hands you 
-safe, for you can watch both of his.
+If  wish to live wisely, ignore sayings -- including this one.
+Lend money to a bad btor and he will hate .
+While r friend holds  affectionately by both r hands  
+safe, for  can watch both of his.
 		-- Ambr Bierce, "The Devil's Dictionary"
 They collapsed ... like nuns in the street ... they had no teen
 appeal!
@@ -629,7 +629,7 @@ check."
 	Back, after an animated conversation with the other occupants of the
 truck, he reassures the clerk, that, yes, in fact, two-by-fours would be
 acceptable.
-	"OK," says the clerk, writing it down, "how long you want 'em?"
+	"OK," says the clerk, writing it down, "how long  want 'em?"
 	The guy gets the blank look again.  "Uh... I guess I better go
 check," he says.
 	He goes back out to the truck, and there's another animated
@@ -639,7 +639,7 @@ Chicago Transit Authority Rir's Rule #36:
 	Never ever ask the tough looking gentleman wearing El Rukn headgear
 	where he got his "pyramid powered pizza warmer".
 		-- Chicago Rear 3/27/81
-You can get much further with a kind word and a gun than you can with a
+You can get much further with a kind word and a gun than  can with a
 kind word alone.
 		-- Al Capone
 		[Also attributed to Johnny Carson.  Ed.]
@@ -664,12 +664,12 @@ So I piped: he wept to hear.
 No, his mind is not for rent
 To any god or government.
 Always hopeful, yet discontent,
-He knows changes n't permanent -
+He knows changes n't perm -
 But change is.
-Yes, but every time I try to see things your way, I get a headache.
-As you will see, I told them, in no uncertain terms, to see Figure one.
+Yes, but every time I try to see things r way, I get a headache.
+As  will see, I told them, in no uncertain terms, to see Figure one.
 		-- Dave "First Strike" P
-National security is in your hands - guard it well.
+National security is in r hands - guard it well.
 Men occasionally stumble over the truth, but most of them pick themselves
 up and hurry off as if nothing had happened.
 		-- Winston Churchill
@@ -691,7 +691,7 @@ Aleph-null bottles of beer on the wall.
 All the lines have been written		There's been Sandburg,
 It's sad but it's true			Keats, Poe and McKuen
 With all the words gone,		They all had their day
-What's a young poet to do?		And knew what they're doin'
+What's a ng poet to do?		And knew what they're doin'
 
 But of all the words written		The bird is a strange one,
 And all the lines read,			So small and so tenr
@@ -714,17 +714,17 @@ HUMAN REPLICAS  inserted into VATS of NUTRITIONAL YEAST ...
 Real softw engineers don't bug programs, they verify correctness.
 This process doesn't necessarily involve  of anything on a
 comter, except perhaps a Correctness Verification Aid package.
-"If you want to travel around the world and be invited to speak at a lot
+"If  want to travel around the world and be invited to speak at a lot
 of different places, just write a Unix operating system."
 (By Linus Torvalds)
-... TheysaidDoyouseethebiggreenglowinthedarkhouseuponthehill?andIsaidYesIsee
+... TheysaidDoseethebiggreenglowinthedarkhouseuponthehill?andIsaidYesIsee
 thebiggreenglowinthedarkhouseuponthehillTheresabigdarkforestbetweenmeandthe
 biggreenglowinthedarkhouseuponthehillandalittleoldladyridingonaHoovervacuum
-cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
+cleanersayingIllgetmyprettyandrlittledogTototoo ...
 
 	I don't even *HAVE* a dog Toto...
 Th' MIND is the Pizza Palace of th' SOUL
-Who  you?
+Who  ?
 I had another dream the other day about music critics.  They were small
 and ront-like with padlocked ears, as if they had stepped out of a
 painting by Goya.

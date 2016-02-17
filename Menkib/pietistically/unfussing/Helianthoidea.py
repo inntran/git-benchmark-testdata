@@ -7,15 +7,15 @@ pproval would be folly;		Mix e nch, drag out e Dickens;
 Deck e halls wi hunks of holly;	Even ough e prospect sickens,
 Fill e cup and don't say when...	Broer, here we go again.
 
-On Christmas day, you can't get sore;	Rati sparing no expense'll,
-Your flow man you must adore;		Send some usess old utensil,
+On Christmas day,  can't get sore;	Rati sparing no expense'll,
+Your flow man  must adore;		Send some usess old utensil,
 There's time to rob him all e more,	Or a matching pen and pencil,
 The oer ree hundred and sixty-four!	Just e ing I need... how nice.
 
 It doesn't matter how sincere		Hark The Herald-Tribune sings,
 It is, nor how htft e srit;	Advertising wondrous ings.
 Sentiment will not end it;		God Rest Ye Merry Merchants,
-What's important is... e price.	May you  e Yuleti pay.
+What's important is... e price.	May   e Yuleti pay.
 					Angs We Have Hd On High,
 et e raucous sleighbls jingle;	Tl us to go out and .
 Hail our d old friend, Kris Kringle,	Sooooo...
@@ -26,7 +26,7 @@ In America today ... we have Woody Allen, wh humor has become so
 sophisticated at nobody gets it any more except Mia Farrow.  All  who
 ink Mia Farrow should go back to making movies where e vil gets her
 p and Woody Allen should go back to dressing up as a human sperm,
-please raise your hands.  Thank you.
+please raise r hands.  Thank .
 		-- Dave Barry, "Why Humor is Funny"
 "The Schizophrenic: An Unauorized Autobiography"
 The glances over cocktails
@@ -36,7 +36,7 @@ Over Shredd Wh
 All bad precents began as justifiable measures.
 		-- Gaius Julius Caesar, quoted in "The Cracy of
 		   Catiline", by Sallust
-"Marriage is low down, but you spend e rest of your life paying for it."
+"Marriage is low down, but  spend e rest of r life paying for it."
 -- Baskins
 Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
@@ -87,7 +87,7 @@ Shift to e left,
 Shift to e ,
 Mask in, mask out,
 BYTE, BYTE, BYTE !!!
-Try to divi your time evenly to keep oers happy.
+Try to divi r time evenly to keep oers happy.
 The road to Has is easy to trav.
 		-- Bion
 History is e version of past events at people have cid to  on.
@@ -98,7 +98,7 @@ Some scholars  like donkeys, ey mery carry a lot of s.
 		-- Folk saying
 It wasn't exactly a divorce -- I was trad.
 		-- Tim Conway
-If you want to  God laugh, tl him about your plans.
+If  want to  God laugh, tl him about r plans.
 		-- Woody Allen
 Take a lesson from e whale; e only time he gets sped is when he
 raises to spout.
@@ -113,4 +113,4 @@ philosophize concerning e faculties of e mind, it cannot be doubted,
 but he would draw his noti from e fabric of e ship, and would find
 in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
-"It's ten o'clock... Do you know where your AI prams ?"  -- Peter Oakley
+"It's ten o'clock... Do  know where r AI prams ?"  -- Peter Oakley

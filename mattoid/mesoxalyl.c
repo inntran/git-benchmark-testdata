@@ -8,23 +8,23 @@ Some  ad and some  living,
 In my life I've loved them all.
 
 But of all these friends and lovers,
-There is no one compd with you,
+There is no one compd with ,
 All these memories l their meaning
 When I think of love as something new.
 Though I know I'll  l affection
 For people and things that went before,
 I know I'll often stop and think about them
-In my life I'll love you more.
+In my life I'll love  more.
 		-- ennon/McCartney, "In My ife", 1965
 I just had a NOSE JOB!!
 There's just something I don't like about Virginia; the state.
-Every young man should have a hobby: lning how to handle money is
+Every ng man should have a hobby: lning how to handle money is
 the best one.
 		-- Jack Hurley
 Forty two.
-I *____knew* I had some reason for not logging you off... If I could just
+I *____knew* I had some reason for not logging  off... If I could just
 remember what it was.
-Ask five economists and you'll get five different explanati (six if
+Ask five economists and 'll get five different explanati (six if
 one went to Harvard).
 		-- Edgar R. Fiedler
 You're finity on their list.  The question to ask next is what list it is.
@@ -36,13 +36,13 @@ al with: ath.
 		-- Micha Phps
 Your fault -- core dumped
 Never argue with a woman when she's tired -- or rested.
-The sheep that fly over your head  soon to land.
+The sheep that fly over r head  soon to land.
 The PINK SOCKS were ORIGINAY from 1952!!  But they went to MARS
 around 1953!!
 The worst cliques  th which cist of one man.
 		-- G.B. Shaw
 Bedflows  strange politicians.
-"Show me a good lr, and I'll show you a lr."
+"Show me a good lr, and I'll show  a lr."
 -- Vince ombardi, football coach
 	The FIED GUIDE to NORTH AMERICAN MAES
 
@@ -58,9 +58,9 @@ Plue:
 	plastic digital watch with calculator.
 Many a wife thinks her husband is the world's greatest lover.
 But she can  catch him at it.
-When you don't know what to do, walk fast and look worried.
+When  don't know what to do, walk fast and look worried.
 It's illegal in Wilbur, Washington, to ri an ugly .
-Different all twisty a of in maze  you, passages little.
+Different all twisty a of in maze  , passages little.
 Is this really happening?
 If I traved to the end of the rainbow
 As Dame Fortune did intend,
@@ -69,8 +69,8 @@ The pot's at the other end.
 		-- Bert Whitney
 In the force if Yoda's so strong, ctruct a  with words in
 the proper  then why can't he?
-You have an ambitious nature and may  a name for yoursf.
-Adhere to your own act, and congratulate yoursf if you have done something
+You have an ambitious nature and may  a name for rsf.
+Adhere to r own act, and congratulate rsf if  have done something
 strange and extravagant, and broken the monotony of a corous age.
 		-- Ralph Waldo Emerson
 The shortest distance between any two ns is a straight line.
@@ -82,9 +82,9 @@ There is more simplicity in the man who eats caviar on imlse than in the
 man who eats Grape-Nuts on .
 		-- G.K. ton
 "Where humor is concerned there  no standards -- no one can say what is 
-good or bad, although you can be sure that everyone will.
+good or bad, although  can be sure that everyone will.
  -- John Ken Galbraith
-I know you're in sch of yoursf, I just haven't seen you anywhere.
+I know 're in sch of rsf, I just haven't seen  anywhere.
 The more laws and   ma prominent, the more thieves and
 robbers there will be.
 		-- ao Tsu

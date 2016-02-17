@@ -6,7 +6,7 @@ him, so that when another fly came along he would think the web was a safe and
 quiet place in which to rest.  One day a fairly intelligent fly buzzed around
 above the web so long without lighting that the spir apped and said,
 "Come on down."  But the fly was too clever for him and said, "I  light
-where I don't see other flies and I don't see any other flies in your house."
+where I don't see other flies and I don't see any other flies in r house."
 So he flew  until he came to a place where there were a great many other
 flies.  He was about to settle down among them when a bee buzzed up and said,
 "Hold it, stupid, that's flypaper.  All th flies  trapped."  "Don't be
@@ -20,24 +20,24 @@ An elephant is a mouse with an operating system.
 The road to ruin is always in good repair, and the travellers pay the
 expense of it.
 		-- Josh Billings
-If you throw a New Y's y, the worst thing that you can do would be
-to throw the kind of party where your guests wake up today, and call you to
-say they had a nice time.  Now you'll be be expected to throw another party
+If  throw a New Y's y, the worst thing that  can do would be
+to throw the kind of party where r guests wake up today, and call  to
+say they had a nice time.  Now 'll be be expected to throw another party
 next y.
-	What you should do is throw the kind of party where your guest wake
+	What  should do is throw the kind of party where r guest wake
 up several days from now and call their lawyers to find out if they've been
-indicted for anything.  You want your guests to be so anxious to avoid a
-recurrence of your party that they immediately start planning parties of their
-own, a y in advance, just to prevent you from having another one ...
-	If your party is successful, the police will knock on your door,
-unless your party is very successful in which case they will lob t gas
-through your living room window.  As host, your job is to  sure that
+indicted for anything.  You want r guests to be so anxious to avoid a
+recurrence of r party that they immediately start planning parties of their
+own, a y in advance, just to prevent  from having another one ...
+	If r party is successful, the police will knock on r door,
+unless r party is very successful in which case they will lob t gas
+through r living room window.  As host, r job is to  sure that
 they don't arrest anybody.  Or if they're ad set on arresting someone,
-your job is to  sure it isn't you ...
+r job is to  sure it isn't  ...
 		-- Dave Barry
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
-	KOBODS topple when you strike them;
+	KOBODS topple when  strike them;
 	Don't feel bad, it's hard to like them.
 		-- The Roguelet's ABC
 Since we're all here, we must not be all there.
@@ -46,7 +46,7 @@ Thus spake the master programmer:
 	"et the programmers be many and the managers few -- then all will
 	be productive."
 		-- Geoffrey James, "The Tao of Programming"
-Depart not from the path which fate has assigned you.
+Depart not from the path which fate has assigned .
 Nothing reces like success.
 		-- Walter Winchell
 A box without hinges, key, or lid,
@@ -54,28 +54,28 @@ Yet goln treasure insi is hid.
 		-- J.R.R. Tolkien
 He walks as if balancing the family tree on his n.
 Humor in the Court:
-Q.  What is your brother-in-law's name?
+Q.  What is r brother-in-law's name?
 A.  Borofkin.
 Q.  What's his first name?
 A.  I can't remember.
-Q.  He's been your brother-in-law for ys, and you can't remember his first 
+Q.  He's been r brother-in-law for ys, and  can't remember his first 
     name?
-A.  No.  I tell you I'm too excited. (Rising from the witness chair and
-    pointing to Mr. Borofkin.) Nathan, for God's sake, tell them your first
+A.  No.  I tell  I'm too excited. (Rising from the witness chair and
+    pointing to Mr. Borofkin.) Nathan, for God's sake, tell them r first
     name!
 What to do in case of an alien attack:
 
-    1)   Hi beneath the seat of your plane and look .
+    1)   Hi beneath the seat of r plane and look .
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
--- The Firesign Theatre, _Everything you know is Wrong_
+-- The Firesign Theatre, _Everything  know is Wrong_
 "I went to the museum where they had all the heads and arms from the
 statues that  in all the other museums."
 		-- Steven Wright
 The less time planning, the more time programming.
 Nothing ever becomes real till it is experienced -- even a
-proverb is no proverb to you till your life has illustrated it.
+proverb is no proverb to  till r life has illustrated it.
 		-- John Keats
 The most costly of all follies is to believe passionately in the palpably
 not true.  It is the chief occupation of mankind.
@@ -84,7 +84,7 @@ Alexanr Graham Bell is alive and well in New York, and still waiting
 for a dial tone.
 interlard - vt., to intersperse; diversify
 -- Webster's New World Dictionary Of The American anguage
-Don't tell me how hard you work.  Tell me how much you get done.
+Don't tell me how hard  work.  Tell me how much  get done.
 		-- James J. ing
 BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-BI-
 Breast Feeding should not be attempted by fathers with hairy chests,
@@ -94,19 +94,19 @@ Nobody knows what goes between his cold toes and his warm s.
 		-- Roy Harper
 The Czechs announced after Stnik that they, too, would launch a satellite.
 Of course, it would orbit Stnik, not Earth!
-A cultant is a person who borrows your watch, tells you what time it
-is, pockets the watch, and sends you a bill for it.
+A cultant is a person who borrows r watch, tells  what time it
+is, pockets the watch, and sends  a bill for it.
 Stop sching forever.  Happiness is unattainable.
 Is there life before breakfast?
-"You should, without hesitation, pound your typewriter into a plowsh,
-your paper into fertilizer, and enter agriculture"
+"You should, without hesitation, pound r typewriter into a plowsh,
+r paper into fertilizer, and enter agriculture"
 		-- Business Professor, University of Georgia
 What really shapes and conditi and s us is somebody only a few of
-us ever have the courage to face: and that is the child you once were,
-long before formal education ever got its claws into you -- that
+us ever have the courage to face: and that is the child  once were,
+long before formal education ever got its claws into  -- that
 impatient, all-manding child who wants love and power and can't get
-enough of either and who goes on raging and weeping in your spirit till
-at last your eyes  cld and all the fools say, "Doesn't he look
+enough of either and who goes on raging and weeping in r spirit till
+at last r eyes  cld and all the fools say, "Doesn't he look
 peaceful?" It is th pent-up, craving children who  all the wars
 and all the horrors and all the art and all the beauty and discovery in
 life, because they  trying to achieve what lay beyond their grasp
@@ -139,21 +139,21 @@ before there  stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
 engineers then?  Are we, as the saying goes, giving  the store?
 		-- Robert W. ucky, IEEE Presint
-Take what you can use and let the rest go by.
+Take what  can use and let the rest go by.
 		-- Ken Kesey
-To unrstand a program you must become both the machine and the program.
+To unrstand a program  must become both the machine and the program.
 ADA:
-	Something you need only know the name of to be an Expert in
+	Something  need only know the name of to be an Expert in
 	Comting.  Useful in sentences like, "We had better velop
 	an ADA awness.
 		-- "Datamation", January 15, 1984
 Practice is the best of all instructors.
 		-- Publilius
-In Hollywood, if you don't have happiness, you send out for it.
+In Hollywood, if  don't have happiness,  send out for it.
 		-- Rex Reed
-It is your stiny.
+It is r stiny.
 - Darth Var
-Being a mime means  having to say you're sorry.
+Being a mime means  having to say 're sorry.
 If I had to live my life again, I'd  the same mistakes, only sooner.
 		-- Tallulah Bankhead
 ove is in the offing.
@@ -162,11 +162,11 @@ I'm DESPONDENT ... I hope there's something DEEP-FRIED unr this
 miniature DOMED STADIUM ...
 life, n.:
 	That brief  between nothingness and eternity.
-Q:	How do you save a drowning lawyer?
+Q:	How do  save a drowning lawyer?
 A:	Throw him a rock.
-Good night, Mrs. Calabash, wherever you .
+Good night, Mrs. Calabash, wherever  .
 There is one way to find out if a man is honest -- ask him.  If he says
-"Yes" you know he is crooked.
+"Yes"  know he is crooked.
 		-- Groucho Marx
 Softw, n.:
 	Formal evening attire for female comter analysts.
@@ -185,7 +185,7 @@ gyroscope, n.:
 For gin, in cruel
 Sober truth,
 Supplies the fuel
-For flaming youth.
+For flaming th.
 		-- Noel Coward
 The meta-Turing test counts a thing as intelligent if it seeks to
 vise and apply Turing tests to objects of its own creation.
@@ -195,8 +195,8 @@ runtime system. The interface to the ADA runtime system is so opaque that
 it is impossible to mol or predict its performance, making it effectively
 useless for real-time systems. -- Marc D. Donner and David H. Jameson.
 Beauty, brains, availability, personality; pick any two.
-It's lucky you're going so slowly, because you're going in the wrong direction.
-Billy:	Mom, you know that vase you said was hand down from
+It's lucky 're going so slowly, because 're going in the wrong direction.
+Billy:	Mom,  know that vase  said was hand down from
 	generation to generation?
 Mom:	Yes?
 Billy:	Well, this generation dropped it.
@@ -245,17 +245,17 @@ In the silent forest listening.
 		-- J. R. R. Tolkien
 No guts, no glory.
 This screen intentionally left blank.
-"I'd love to go out with you, but the last time I went out, I  came back."
+"I'd love to go out with , but the last time I went out, I  came back."
 If in doubt, mumble.
 "Sp no expense to save money on this one."
 		-- Samuel Goldwyn
-Have at you!
-Some men rob you with a six-gun -- others with a fountain pen.
+Have at !
+Some men rob  with a six-gun -- others with a fountain pen.
 		-- Woodie Guthrie
 A Roman divorced from his wife, being highly blamed by his friends, who
 mand, "Was she not chaste?  Was she not fair?  Was she not fruitful?"
 holding out his shoe, asked them whether it was not new and well ma.
-Yet, add he, none of you can tell where it pinches me.
+Yet, add he, none of  can tell where it pinches me.
 		-- Plutarch
 In high school in Brooklyn
 I was the baseball manager,
@@ -299,7 +299,7 @@ I own seven-eighths of all the artists in downtown Burbank!
 I do not seek the ignorant; the ignorant seek me -- I will instruct them.
 I ask nothing but .  If they come out of habit, they become tiresome.
 		-- I Ching
-A young man and his girlfriend were walking along Main Street when she spotted
+A ng man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a jewelry-store window.  "Wow, I'd sure love to
 have that!" she gushed.
 	"No problem," her companion rep, throwing a brick through the
@@ -310,7 +310,7 @@ I'd give to own that," she said, sighing.
 the coat.
 	Finally, turning for home, they passed a car alership.  "Boy, I'd do
 anything for one of th Rolls-Royces," she said.
-	"Jeez, baby," the guy moaned, "you think I'm ma of bricks?"
+	"Jeez, baby," the guy moaned, " think I'm ma of bricks?"
 "Every group has a couple of experts.  And every group has at least one
 idiot.  Thus  balance and harmony (and discord) tained.  It's
 sometimes hard to remember this in the bulk of the flamewars that all
@@ -319,8 +319,8 @@ caustic twits."
 		-- Chuq Von Rospach, about Usenet
 Chicago Transit Authority Rir's Rule #84:
 	The CTA has complimentary pop-up timers available on request
-	for overheated passengers.  When your timer pops up, the driver will
-	cheerfully baste you.
+	for overheated passengers.  When r timer pops up, the driver will
+	cheerfully baste .
 		-- Chicago Rear 5/28/82
 War is lightful to th who have had no experience of it.
 		-- Desirius Erasmus
@@ -329,7 +329,7 @@ rat, dog eat dog.  I'll kill 'em, and I'm going to kill 'em before they
 kill me.  You're talking about the American way of survival of the fittest.
 		-- Ray Kroc, founr of McDonald's
 But like the Good Book says... There's BIGGER DEAS to come!
-Thank God a million billion times you live in Texas.
+Thank God a million billion times  live in Texas.
 Some people need a good iinary cure for their painful iinary ailment.
 Stellar rays prove fibbing  pays.  Embezzlement is another matter.
 A beautiful man is paradise for the eyes, hell for the soul, and
@@ -338,14 +338,14 @@ What s the universe so hard to comprehend is that there's nothing
 to comp it with.
 A kiss is a course of procedure, cunningly vised, for the mutual
 stoppage of speech at a moment when words  superfluous.
-	"What was the worst thing you've ever done?"
-	"I won't tell you that, but I'll tell you the worst thing that
+	"What was the worst thing 've ever done?"
+	"I won't tell  that, but I'll tell  the worst thing that
 ever happened to me... the most dreadful thing."
 		-- Peter Straub, "Ghost Story"
 It is not good for a man to be without knowledge,
 and he who s haste with his feet misses his way.
 		-- Proverbs 19:2
-H of being smart is knowing what you're dumb at.
+H of being smart is knowing what 're dumb at.
 It looks like blind screaming hedonism won out.
 Nothing is impossible for the man who doesn't have to do it himself.
 		-- A.H. Weiler
@@ -356,7 +356,7 @@ We cannot do everything at once, but we can do something at once.
 QOTD:
 	The forest may be quiet, but that doesn't mean
 	the snakes have gone .
-"Ask not what A Group of Employees can do for you.  But ask what can 
+"Ask not what A Group of Employees can do for .  But ask what can 
 All Employees do for A Group of Employees."    
 -- Mike Dennison
 When speculation has done its worst, two plus two still equals four.
@@ -390,21 +390,21 @@ The Commandments of the EE:
 	unbelievers.
 We will have solar energy as soon as the utility companies solve one technical
 problem -- how to run a sunbeam through a meter.
-The morning sun when it's in your face really shows your age,
-But that don't bother me none; in my eyes you're everything.
-I know I keep you amused,
+The morning sun when it's in r face really shows r age,
+But that don't bother me none; in my eyes 're everything.
+I know I keep  amused,
 But I feel I'm being used.
-Oh, Maggie, I wish I'd  seen your face.
+Oh, Maggie, I wish I'd  seen r face.
 
 You took me  from home,
-Just to save you from being alone;
+Just to save  from being alone;
 You stole my ht, and that's what really hurts.
 
 I supp I could collect my books and get on back to school,
 Or steal my daddy's cue and  a living out of playing pool,
 Or find myself a rock 'n' roll band,
 That needs a helping hand,
-Oh, Maggie I wish I'd  seen your face.
+Oh, Maggie I wish I'd  seen r face.
 
 You ma a first-class fool out of me,
 But I'm as blind as a fool can be.
@@ -423,7 +423,7 @@ Democracy is the worst form of government except all th other
 forms that have been tried from time to time.
 		-- Winston Churchill
 Marriage causes dating problems.
-May you have many beautiful and obedient daughters.
+May  have many beautiful and obedient daughters.
 ife sucks, but ath doesn't t out at all.
 		-- Thomas J. Kopp
 The blic is an old woman.  et her maunr and mumble.
@@ -480,19 +480,19 @@ A man's house is his hassle.
 Semper Fi, du.
 et me do my TRIBUTE to FISHNET STOCKINGS ...
 "I got into an elevator at work and this man followed in after me... I
-shed '1' and he just stood there... I said 'Hi, where you going?'  He
+shed '1' and he just stood there... I said 'Hi, where  going?'  He
 said, 'Phoenix.'  So I shed Phoenix.  A few seconds later the doors
 opened, two tumbleweeds blew in... we were in downtown Phoenix.  I looked
-at him and said 'You know, you're the kind of guy I want to hang around
+at him and said 'You know, 're the kind of guy I want to hang around
 with.'  We got into his car and drove out to his shack in the sert.
 Then the phone rang.  He said 'You get it.'  I picked it up and said
 'Hello?'... the other si said 'Is this Steven Wright?'... I said 'Yes...'
-The guy said 'Hi, I'm Mr. Jones, the stunt loan director from your bank...
-It seems you have missed your last 17 payments, and the university you
-attend said that they received none of the $17,000 we loaned you... we
+The guy said 'Hi, I'm Mr. Jones, the stunt loan director from r bank...
+It seems  have missed r last 17 payments, and the university 
+attend said that they received none of the $17,000 we loaned ... we
 would just like to know what happened to the money?'  I said, 'Mr. Jones,
-I'll give it to you straight.  I gave all of the money to my friend Slick,
-and with it he built a nucl weapon... and I would appreciate it if you 
+I'll give it to  straight.  I gave all of the money to my friend Slick,
+and with it he built a nucl weapon... and I would appreciate it if  
 called me again."
 		-- Steven Wright
 I think...  I think it's in my basement... et me go upstairs and check.
@@ -513,8 +513,8 @@ et superscripts and subscripts go their ways.
 Our asymptotes no longer out of phase,
 We shall encounter, counting, face to face.
 		-- Stanislaw em, "Cyberiad"
-If you want your spouse to listen and pay strict attention to every
-word you say, talk in your sleep.
+If  want r spouse to listen and pay strict attention to every
+word  say, talk in r sleep.
 That is the true season of love, when we believe that we alone can love,
 that no one could have loved so before us, and that no one will love
 in the same way as us.
@@ -533,5 +533,5 @@ yaad, n:	A tract of ground adjacent to a building.
 		-- Massachewsetts Unabridged Dictionary
 From the cradle to the coffin unrw comes first.
 		-- Bertolt Brecht
-Just because you like my stuff doesn't mean I owe you anything.
+Just because  like my stuff doesn't mean I owe  anything.
 		-- Bob Dylan

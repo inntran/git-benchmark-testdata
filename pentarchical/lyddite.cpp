@@ -1,8 +1,8 @@
 Small change can often be found unr seat cushi.
 		-- One of azarus ong's most penetrating insights
-When you  young, you enjoy a sustained illusion that sooner or later
-something marvelous is going to happen, that you  going to transcend
-your pnts' limitati...  At the same time, you feel sure that in all
+When   ng,  enjoy a sustained illusion that sooner or later
+something marvelous is going to happen, that   going to transcend
+r pnts' limitati...  At the same time,  feel sure that in all
 the wilrness of possibility; in all the forests of opinion, there is a
 vital something that can be known -- known and grasped.  That we will
 eventually know it, and convert the whole mystery into a coherent
@@ -35,7 +35,7 @@ You may easily play a joke on a man who likes to argue -- agree with him.
 You will visit the Dung Pits of Glive soon.
 Success is something I will dress for when I get there, and not until.
 Every Solidarity center had piles and piles of paper ... everyone was
-eating paper and a policeman was at the door.  Now all you have to do is
+eating paper and a policeman was at the door.  Now all  have to do is
 bend a disk.
 		-- A member of the outlawed Polish tra union, Solidarity, 
 		   commenting on the benefits of using comters in support
@@ -74,13 +74,13 @@ a coffin.  But I do have a most splendid skin from one of Pharoah's own
 cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
 	"Rusting?" Ms .  "Not in this dreadful dry sert!"
-	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f you do not
+	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f  do not
 realize the full sigance of Pharoah's oxhi!"
 		-- Grenl Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
 Pie  not squ.  Pie  round.  Cornbread  squ.
-Recession is when your neighbor ls his job. Depression is when you
-l your job.  These economic downturns  very difficult to predict,
+Recession is when r neighbor ls his job. Depression is when 
+l r job.  These economic downturns  very difficult to predict,
 but sophisticated  moling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten reing blocks of uke's home
@@ -108,11 +108,11 @@ the bar, the giant thunred, "Gimme a drink!"
 guzzled in one gulp and then smashed on the bar.  He then stood aghast as
 the man stuffed the broken bottle in his mouth, munched broken glass and
 smacked his lips with relish.
-	"Can I, ah, uh, get you another, sir?" the drifter stammered.
+	"Can I, ah, uh, get  another, sir?" the drifter stammered.
 	"Naw, I gotta git outa here, boy," the man grunted.  "Big Mike's
 a-comin'."
 Kent's Heuristic:
-	ook for it first where you'd most like to find it.
+	ook for it first where 'd most like to find it.
 It now costs more to amuse a child than it once did to educate his father.
 A Dublin lawyer died in poverty and many barristers of the city subscribed to
 a fund for his funeral.  The ord Chief Justice of Orbury was asked to donate
@@ -135,11 +135,11 @@ A:	Three.  One to screw in the lightbulb and two to fend off all
 		th Californians trying to sh the experience.
 If a train station is a place where a train stops, what's a workstation?
 Drive fensively.  Buy a tank.
-Any sufficiently advanced bug is indistinguishable from a feature.
+Any ly advanced bug is indistinguishable from a feature.
 		-- Rich Kulawiec
 Death before dishonor.  But neither before breakfast.
 Matz's aw:
-	A conclusion is the place where you got tired of thinking.
+	A conclusion is the place where  got tired of thinking.
 Excess on occasion is exhilarating.  It prevents moration from
 acquiring the aning effect of a habit.
 		-- W. Somerset Maugham
@@ -151,7 +151,7 @@ Woody: What's going down, Mr. Peterson?
 Norm:  My cheeks on this barstool.
 		-- Cheers, Strange Bedfellows,  2
 
-Woody: Hey, Mr. Peterson, can I pour you a beer?
+Woody: Hey, Mr. Peterson, can I pour  a beer?
 Norm:  Well, okay, Woody, but be sure to stop me at one. ...
        Eh,  that one-thirty.
 		-- Cheers, Strange Bedfellows,  2
@@ -161,16 +161,16 @@ in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
 		--  Abraham incoln
 She liked him; he was a man of many qualities, even if most of them were bad.
-Rule of ife #1 -- Never get separated from your luggage.
-Mr. Rockford?  This is Betty Joe Withers.  I got four shirts of yours from
+Rule of ife #1 -- Never get separated from r luggage.
+Mr. Rockford?  This is Betty Joe Withers.  I got four shirts of rs from
 the Bo Peep Cleaners by mistake.  I don't know why they gave me men's
 shirts but they're going back.
 		-- "The Rockford Files"
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
+wife asked "What have  got there?"  Rep he, "Just my cup and Chaucer."
 After Goliath's feat, giants ceased to command respect.
 - Freeman Dyson
-ife is like bein' on a mule team.  Unless you're the lead mule, all the
+ife is like bein' on a mule team.  Unless 're the lead mule, all the
 scenery looks about the same.
 A wise man can see more from the bottom of a well than a fool can from a
 mountain top.
@@ -179,7 +179,7 @@ A:	To the dump, to the dump, to the dump dump dump!
 
 Q:	What's the Pink Panther say when he steps on an ant hill?
 A:	Dead ant, ad ant, ad ant ad ant ad ant...
-One of the rules of Busmanship, New York style, is  surrenr your
+One of the rules of Busmanship, New York style, is  surrenr r
 seat to another passenger.  This may seem callous, but it is the best
 way, really.  If one passenger were to give a seat to someone who fainted
 in the aisle, say, the others on the bus would become disoriented and
@@ -187,13 +187,13 @@ iine they were in Topeka Kansas.
 It is impossible to enjoy idling thoroughly unless one has plenty of
 work to do.
 		-- Jerome Klapka Jerome
-	One day it was announced that the young monk Kyogen had reached
+	One day it was announced that the ng monk Kyogen had reached
 an enlightened state.  Much impressed by this news, several of his peers
 went to speak with him.
-	"We have hd that you  enlightened.  Is this true?" his fellow
+	"We have hd that   enlightened.  Is this true?" his fellow
 stunts inquired.
 	"It is", Kyogen answered.
-	"Tell us", said a friend, "how do you feel?"
+	"Tell us", said a friend, "how do  feel?"
 	"As miserable as ever", rep the enlightened Kyogen.
 grasshopotomaus:
 	A creature that can leap to tremendous heights... once.
@@ -202,23 +202,23 @@ A scientific truth does not triumph by convincing its opponents and
 making them see the light, but rather because its opponents eventually
 die and a new generation grows up that is familiar with it.
 		-- Max Planck
-What's the MATTER Sid? ... Is your BEVERAGE unsatisfactory?
+What's the MATTER Sid? ... Is r BEVERAGE unsatisfactory?
 Honi soit la vache qui rit.
 "The hottest places in Hell  reserved for th who, in times of moral
 crisis, preserved their neutrality."
 -- Dante
 QOTD:
-	"Do you smell something burning or is it me?"
+	"Do  smell something burning or is it me?"
 		-- Joan of Arc
 Harrison's Postulate:
 	For every action, there is an equal and opposite criticism.
 Chism's aw of Completion:
 	The amount of time required to complete a government project is
 	precisely equal to the length of time already spent on it.
-Norm:  Gentlemen, start your taps.
+Norm:  Gentlemen, start r taps.
 		-- Cheers, The Coach's Daughter
 
-Coach: How's life treating you, Norm?
+Coach: How's life treating , Norm?
 Norm:  ike it caught me in bed with his wife.
 		-- Cheers, Any Friend of Diane's
 
@@ -254,8 +254,8 @@ A semi-meal ain't nuthin' much to want.
 
 oan me ten, I got a feelin' it'll save me,
 With an ornery soul who don't shoot pool for fun,
-If that coat'll fit you're win',
-The ord'll bless your sharin'
+If that coat'll fit 're win',
+The ord'll bless r sharin'
 A semi-friend ain't nuthin' much to want.
 
 And let me hway fall in love,
@@ -265,20 +265,20 @@ Yes, I could hway fall in ep--
 Into a snugglin', lovin' heap,
 With a semi-pretty woman in my arms.
 		-- Elroy Blunt
-"May your future be limited only by your dreams."
+"May r future be limited only by r dreams."
 -- Christa McAuliffe
 How do I type "for i in *.dvi do xdvi i done" in a GUI?
 (Discussion in comp.os.linux.misc on the intuitiveness of interfaces.)
 Th who do not unrstand Unix  conmned to reinvent it, poorly.
 - Henry Spencer, University of Toronto Unix hack
-Everything that you know is wrong, but you can be straightened out.
+Everything that  know is wrong, but  can be straightened out.
 Join the march to save individuality!
 "Plaese porrf raed."
 		-- Prof. Michael O'onghlin, S.U.N.Y. Purchase
 Facts  stubborn, but statistics  more pliable.
 When the sun shineth,  hay.
 		-- John Heywood
-I like your SNOOPY POSTER!!
+I like r SNOOPY POSTER!!
 The sch for the perfect martini is a fraud.  The perfect martini is
 a belt of gin from the bottle; anything else is the cant ts
 of civilization.
@@ -290,13 +290,13 @@ Somehow I reached excess without ever noticing when I was passing through
 satisfaction.
 		-- Ashleigh Brilliant
 Don't get mad, get interest.
-Make sure your co does nothing gracefully.
-Weinberg, as a young grocery clerk, advised the grocery manager to get
+Make sure r co does nothing gracefully.
+Weinberg, as a ng grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great ia," said the manager. Then he paused and asked the killer
 question, "NOW what's the least polar vegetable?"
 
-aw: Once you eliminate your #1 problem, #2 gets a promotion.
+aw: Once  eliminate r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Culting"
 Old Tom Bombadil is a merry fellow,
 Bright blue his jacket is, and his boots  yellow.
@@ -317,29 +317,29 @@ Cahn's Axiom:
 	When all else fails, read the instructi.
 	"What's that thing?"
 	"Well, it's a highly technical, sensitive instrument we use in
-comter repair.  Being a layman, you probably can't grasp exactly what
+comter repair.  Being a layman,  probably can't grasp exactly what
 it does.  We call it a two-by-four."
 		-- Jeff MacNelley, "Shoe"
 Needs  a function of what other people have.
 Worth seeing?  Yes, but not worth going to see.
-It's so beautifully arranged on the plate -- you know someone's fingers
+It's so beautifully arranged on the plate --  know someone's fingers
 have been all over it.
 		-- Julia Child on nouvelle cuisine.
 I am here by the will of the people and I won't leave until I get my raincoat
 back.
 - a slogan of the anarchists in Richard Kadrey's "Metrophage"
 A master was asked the question, "What is the Way?" by a curious monk.
-	"It is right before your eyes," said the master.
+	"It is right before r eyes," said the master.
 	"Why do I not see it for myself?"
-	"Because you  thinking of yourself."
-	"What about you: do you see it?"
-	"So long as you see double, saying `I don't', and `you do', and so
-on, your eyes  cloud," said the master.
+	"Because   thinking of rself."
+	"What about : do  see it?"
+	"So long as  see double, saying `I don't', and ` do', and so
+on, r eyes  cloud," said the master.
 	"When there is neither `I' nor `You', can one see it?"
 	"When there is neither `I' nor `You',
 who is the one that wants to see it?"
-If while you  in school, there is a shortage of qualified personnel
-in a particular field, then by the time you graduate with the necessary
+If while   in school, there is a shortage of qualified personnel
+in a particular field, then by the time  graduate with the necessary
 qualificati, that field's employment market is glutted.
 		--  Emm
 Conjecture: All odd numbers  prime.
@@ -354,7 +354,7 @@ Conjecture: All odd numbers  prime.
 		11 is prime.  13 is prime ...
 	Comter Scientists's Proof:
 		3 is prime.  3 is prime.  3 is prime.  3 is prime...
-To see you is to sympathize.
+To see  is to sympathize.
 Recursion is the root of comtation since it tras scription for time.
 skldfjkljklsR%^&(IXDRTYju187pkasdjbasdfbuil
 h;asvgy8p	23r1vyui135	2
@@ -363,7 +363,7 @@ kmxsij90TYDFS$$b	jkzxdjkl bjnk ;j	nk;<[][;-==-<<<<<';[,
 				sdoihjfh(_YU*G&F^*CTY98y
 
 
-Now look what you've gone and done!  You've broken it!
+Now look what 've gone and done!  You've broken it!
 	"What shall we do?" said Twoflower.
 	"Panic?" said Rincewind hopefully.  He always held that panic was
 the best means of survival; back in the oln days, his theory went, people
@@ -374,7 +374,7 @@ brute!" and "Here, ssy."
 Chocolate chip.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
-Are you a pnt?  Do you sometimes find yourself unsure as to what to
+Are  a pnt?  Do  sometimes find rself unsure as to what to
 say in th awkward situati?  Worry no more...
 
 	Go .  You bother me.
@@ -382,13 +382,13 @@ say in th awkward situati?  Worry no more...
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.
 	You'll be the ath of me.
-	You'll unrstand when you're olr.
+	You'll unrstand when 're olr.
 	Because.
-	Wipe that smile off your face.
-	I don't believe you.
-	How many times have I told you to be cful?
+	Wipe that smile off r face.
+	I don't believe .
+	How many times have I told  to be cful?
 	Just beacuse.
-"Time is money and money can't buy you love and I love your outfit"
+"Time is money and money can't buy  love and I love r outfit"
 - T.H.U.N.D.E.R. #1
 Why was I born with such contemporaries?
 		-- Oscar Wil
@@ -400,7 +400,7 @@ breaking into a place and stealing stuff, or kidnapping somebody.  He really
 gives some effort to it.  A hoodlum is a pretty lousy sort of scum.  He
 works for gangsters and bumps guys off when they have been t on the spot.
 Why, after I'd ma my rep, some of the Chicago Syndicate wanted me to work
-for them as a hood -- you know, handling a machine gun.  They offered me
+for them as a hood --  know, handling a machine gun.  They offered me
 two hundred and fifty dollars a week and all the protection I need.  I
 was on the lam at the time and not able to work at my regular line.  But
 I wouldn't cir it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
@@ -459,7 +459,7 @@ body functi.
 "Time is an illusion.  unchtime doubly so."
 -- Ford Prefect, _Hitchhiker's Gui to the Galaxy_
 E Pluribus Unix
-When you have to kill a man it costs nothing to be polite.
+When  have to kill a man it costs nothing to be polite.
 		-- Winston Churchill, on formal clarati of war
 I t up my thumb... and it blotted out the planet Earth.
 		-- Neil Armstrong
@@ -477,12 +477,12 @@ for them to spise science fiction.
 		-- Kurt Vonnegut Jr., "Science Fiction"
 Schlattwhapper, n.:
 	The window sha that allows itself to be lled down,
-	hesitates for a second, then snaps up in your face.
+	hesitates for a second, then snaps up in r face.
 		-- Rich Hall, "Sniglets"
 Work cists of whatever a body is obliged to do.
 Play cists of whatever a body is not obliged to do.
 		-- Mark Twain
 Ccience is the inner voice that warns us somebody may be looking.
 		-- H.. Mencken, "A Mencken Chrestomathy"
-Yow!  Are you the self-frying presint?
+Yow!  Are  the self-frying presint?
 Afternoon very favorable for romance.  Try a single person for a change.

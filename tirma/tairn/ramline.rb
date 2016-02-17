@@ -1,5 +1,5 @@
 I'm mentally OVERDRAWN!  What's that SIGNPOST up ahead?  Where's ROD
-STERLING when you really need him?
+STERLING when  really need him?
 MAFIA, n:
 	[Acronym for Mechanized Applications in Forced Insurance
 Accounting.] An extensive network with many on-line and offshore
@@ -23,13 +23,13 @@ Q: Somebody just posted that Roman Polanski directed Star Wars.  What
 should I do?
 
 A: Post the correct answer at once!  We can't have people go on believing
-that!  Very good of you to spot this.  You'll probably be the only one to
- the correction, so post as soon as you can.  No time to lose, so
+that!  Very good of  to spot this.  You'll probably be the only one to
+ the correction, so post as soon as  can.  No time to lose, so
 certainly don't wait a day, or check to see if somebody else has ma the
 correction.
 
-And it's not good enough to send the message by mail.  Since you're the
-only one who really knows that it was Francis Coppola, you have to inform
+And it's not good enough to send the message by mail.  Since 're the
+only one who really knows that it was Francis Coppola,  have to inform
 the whole net right !
 
 -- Brad Templeton, _Emily Postnews Answers Your Questions on Netiquette_
@@ -62,7 +62,7 @@ summarizing a vote.
 		-- Emily Postnews Answers Your Questions on Netiquette
 "We mand rigidly fined areas of doubt and uncertainty!"
 		-- Vroomfonl
-It's difficult to see the picture when you are insi the frame.
+It's difficult to see the picture when  are insi the frame.
 Grub first, then ethics.
 		-- Bertolt Brecht
 	"Well," said Programmer, "the customary procedure in such cases is
@@ -76,11 +76,11 @@ an End-user of Very Little Brain, and long words bother me."
 Be security conscious -- National fense is at stake.
 There was this New Yorker that had a lifelong ambition to be an Texan.
 Fortunately, he had an Texan friend and went to him for advice.  "Mike,
-you know I've always wanted to be a Texan.  You're a *____real* Texan, what
+ know I've always wanted to be a Texan.  You're a *____real* Texan, what
 should I do?"
-	"Well," answered Mike, "The first thing you've got to do is look
-like a Texan.  That means you have to dress right.  The second thing
-you've got to do is speak in a southern drawl."
+	"Well," answered Mike, "The first thing 've got to do is look
+like a Texan.  That means  have to dress right.  The second thing
+'ve got to do is speak in a southern drawl."
 	"Thanks, Mike, I'll give it a try," rep the New Yorker.
 	A few weeks passed and the New Yorker saunters into a store dressed
 in a ten-gallon hat, cowboy boots, Levi jeans and a bandanna.  "Hey, there,
@@ -89,9 +89,9 @@ he tells the counterman.
 	The guy behind the counter takes a long look at him and then says,
 "You must be from New York."
 	The New Yorker blushes, and says, "Well, yes, I am.  How did
-you know?"
+ know?"
 	"Because this is a hardware store."
-The problem with any unwritten law is that you don't know where to go
+The problem with any unwritten law is that  don't know where to go
 to erase it.
 		-- Glaser and Way
 Absence s the heart grow frantic.
@@ -109,21 +109,21 @@ Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to t them in
 day care twelve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
-Q:	How can you tell when a Burroughs sman is lying?
+Q:	How can  tell when a Burroughs sman is lying?
 A:	When his lips move.
 Be valiant, but not too venturous.
 Let thy attire be comely, but not costly.
 		-- John Lyly
-Your true value pends entirely on what you are compared with.
+Your true value pends entirely on what  are compared with.
 Youth -- not a time of life but a state of mind... a predominance of
 courage over timidity, of the appetite for adventure over the love of ease.
 		-- Robert F. Kennedy
 Weinberg's First Law:
 	Progress is only ma on alternate Fridays.
 In comting, the mean time to failure keeps getting shorter.
-One promising concept that I came up with right  was that you could
+One promising concept that I came up with right  was that  could
 manufacture personal air bags, then get a law passed requiring that they be
-installed on congressmen to keep them from taking trips.  Let's say your
+installed on congressmen to keep them from taking trips.  Let's say r
 congressman was trying to travel to Paris to do a fact-finding study on how
 the French government handles diseases transmitted by sherbet.  Just when he
 got to the plane, his mandatory air bag, strapped around his waist, would
@@ -133,7 +133,7 @@ proposed a law.  ("Mr. Speaker, people ask me, why should October be
 signated as Cuticle Inspection Month?  And I answer that FWWAAAAAAPPPP.")
 This would save millions of dollars, so I have no doubt that the blic
 would violently support a law requiring airbags on congressmen.  The problem
-is that your potential market is very small: there are only around 500
+is that r potential market is very small: there are only around 500
 members of Congress, and some of them, such as House Speaker "Tip" O'Neil,
 are already too large to fit on normal aircraft.
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
@@ -145,8 +145,8 @@ Professional wrestling:  ballet for the common man.
 The heart has its reasons which reason knows nothing of.
 		-- Blaise Pascal
 Eat drink and be merry, for tomorrow we diet.
-I am returning this otherwise good typing paper to you because someone
-has printed gibberish all over it and t your name at the top.
+I am returning this otherwise good typing paper to  because someone
+has printed gibberish all over it and t r name at the top.
 		-- Professor Lowd, English, Ohio University
 Time and ti wait for no man.
 "You have been in Afghanistan, I perceive."
@@ -164,16 +164,16 @@ Beware the infiniteloop
 Traveling through hyperspace isn't like dusting crops, boy.
 		-- Han Solo
 Love is a snowmobile racing across the tundra, which sudnly flips
-over, pinning you unrneath.  At night the ice weasels come.
+over, pinning  unrneath.  At night the ice weasels come.
 		-- Matt Groening, "Love is Hell"
-When you are about to die, a wombat is better than no company at all.
+When  are about to die, a wombat is better than no company at all.
 		-- Roger Zelazny, "Doorways in the Sand"
 Just because they are called 'forbidn' transitions does not mean that they
-are forbidn.  They are less allowed than allowed transitions, if you see
+are forbidn.  They are less allowed than allowed transitions, if  see
 what I mean.
 		-- From a  2 Quantum Mechanics lecture.
-Q:	What do you call the money you pay to the government when
-	you ri into the country on the back of an elephant?
+Q:	What do  call the money  pay to the government when
+	 ri into the country on the back of an elephant?
 A:	A howdah duty.
 Mickey Mouse wears a Spiro Agnew watch.
 Honesty is the best policy, but insanity is a better fense.
@@ -182,14 +182,14 @@ An American is a man with two arms and four wheels.
 I'm proud to be paying taxes in the United States.  The only thing is
 -- I could be just as proud for h the money.
 		-- Arthur Godfrey
-Like all young men, you greatly exaggerate the difference between one
-young woman and another.
+Like all ng men,  greatly exaggerate the difference between one
+ng woman and another.
 		-- George Bernard Shaw, "Major Barbara"
 	The birds are singing, the flowers are budding, and it is time
-for Miss Manners to tell young lovers to stop necking in blic.
+for Miss Manners to tell ng lovers to stop necking in blic.
 	It's not that Miss Manners is immune to romance.  Miss Manners
 has been known to squeeze a gentleman's arm while being helped over a
-curb, and, in her wild youth, even to press a dainty slipper against a
+curb, and, in her wild th, even to press a dainty slipper against a
 foot or two unr the dinner table.  Miss Manners also believes that the
 sight of people strolling hand in hand or arm in arm or arm in hand
 dresses up a city consirably more than the more familiar sight of
@@ -219,7 +219,7 @@ An effective way to al with predators is to taste terrible.
 		  (     /(   )\     )
 		  _)   (_V) (V_)   (_
 		 (V)(V)(V)   (V)(V)(V)
-You will become rich and famous unless you don't.
+You will become rich and famous unless  don't.
 He who fights and runs  lives to fight another day.
 "If a nation values anything more than freedom, it will lose its freedom; and
  the irony of it is that if it is comfort or money it values more, it will
@@ -228,7 +228,7 @@ He who fights and runs  lives to fight another day.
 I've looked at the listing, and it's right!
 		-- Joel Halpern
 "Would I turn on the gas if my pal Mugsy were in there?"
-   "You might, rabbit, you might!"
+   "You might, rabbit,  might!"
 -- Looney Tunes, Bugs and Thugs (1954, Friz Freleng)
 HELLO KITTY gang terrorizes town, family STICKERED to ath!
 LOOK!!  Sullen American teens wearing MADRAS shorts and "Flock of
@@ -266,7 +266,7 @@ collection of meaningless words about unintelligible chimeras, then
 I have no doubt, and I think few people doubt, that atheists are as
 plentiful as blackberries...
 - Leslie Stephen (1832-1904), literary essayist, author
-The heaviest object in the world is the body of the woman you have ceased
+The heaviest object in the world is the body of the woman  have ceased
 to love.
 		-- Marquis  Lac  Clapiers Vauvenargues
 I tell them to turn to the study of mathematics, for it is only there that
@@ -297,27 +297,27 @@ You have acquired a scroll entitled 'irk gleknow mizk'(n).--More--
 
 This is an IBM Manual scroll.--More--
 
-You are permanently confused.
+You are permly confused.
 		-- Dave Decot
 Giving up on assembly language was the apple in our Garn of En:  Languages
 whose use squanrs machine cycles are sinful.  The LISP machine now permits
 LISP programmers to abandon bra and fig-leaf.
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
 Where there's a will, there's a relative.
-The bugs you have to avoid are the ones that give the user not only
+The bugs  have to avoid are the ones that give the user not only
 the inclination to get on a plane, but also the time.
 		-- Kay Bostic
 Glib's Fourth Law of Unreliability:
 	Investment in reliability will increase until it exceeds the
 	probable cost of errors, or until someone insists on getting
 	some useful work done.
-Never forget what a man says to you when he is angry.
+Never forget what a man says to  when he is angry.
 To live is always sirable.
 		-- Eleen the Capellan, "Friday's Child", stardate 3498.9
 She's so tough she won't take 'yes' for an answer.
 Spouse, n.:
-	Someone who'll stand by you through all the trouble you
-	wouldn't have had if you'd stayed single.
+	Someone who'll stand by  through all the trouble 
+	wouldn't have had if 'd stayed single.
 In love, she who gives her portrait promises the original.
 		-- Bruton
 Good day to avoid cops.  Crawl to school.
@@ -329,12 +329,12 @@ That, that is not, is not that, that is.
 Insanity is consired a ground for divorce, though by the very same
 token it is the shortest tour to marriage.
 		-- Wilson Mizner
-In the midst of one of the wilst parties he'd ever been to, the young man 
+In the midst of one of the wilst parties he'd ever been to, the ng man 
 noticed a very prim and pretty girl sitting quietly apart from the rest of
 the revelers.  Approaching her, he introduced himself and, after some quiet
-conversation, said, "I'm afraid you and I don't really fit in with this
-jad group.  Why don't I take you home?""
-	"Fine," said the girl, smiling up at him murely.  "Where do you live?"
+conversation, said, "I'm afraid  and I don't really fit in with this
+jad group.  Why don't I take  home?""
+	"Fine," said the girl, smiling up at him murely.  "Where do  live?"
 "BYTE editors are men who seperate the wheat from the chaff, and then
  print the chaff."
 -- Lionel Hummel (uiucdcs!hummel), rived from a quote by Adlai Stevenson, Sr.
@@ -350,7 +350,7 @@ of jargon.  Over his loud objections, we ma a point of using jargon as
 much as possible in his presence, and eventually it began to sink in.
 Finally, in one conversation, he used the word "canonical" in jargon-like
 fashion without thinking.
-	Steele: "Aha!  We've finally got you talking jargon too!"
+	Steele: "Aha!  We've finally got  talking jargon too!"
 	Stallman: "What did he say?"
 	Steele: "He just used `canonical' in the canonical way."
 Why do seagulls live near the sea?  'Cause if they lived near the bay,
@@ -380,7 +380,7 @@ I'm just waiting on a friend		I'm just waiting on a friend
 Don't need a whore
 Don't need no booze
 Don't need a virgin priest		Ooh, making love and breaking hearts
-But I need someone I can cry to		It is a game for youth
+But I need someone I can cry to		It is a game for th
 I need someone to protect		But I'm not waiting on a lady
 					I'm just waiting on a friend
 					I'm just waiting on a friend
@@ -397,18 +397,18 @@ Und aller-mumsige Burggoven
 		-- Lewis Carrol, "Through the Looking Glass"
 How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 		-- Brian Boyle, UNIX/WORLD's First Annual Salary Survey
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
+The only way to keep r health is to eat what  don't want, drink what
+ don't like, and do what 'd rather not.
 		-- Mark Twain
 Pray to God, but keep rowing to shore.
 		-- Russian Proverb
-I saw what you did and I know who you are.
+I saw what  did and I know who  are.
 Alimony is the curse of the writing classes.
 		-- Norman Mailer
 Has anyone ever tasted an "end"?  Are they really bitter?
-When your work speaks for itself, don't interrupt.
+When r work speaks for itself, don't interrupt.
 		-- Henry J. Kaiser
-If swimming is so good for your figure, how come whales look the
+If swimming is so good for r figure, how come whales look the
 way they do?
 Horner's Five Thumb Postulate:
 	Experience varies directly with equipment ruined.
@@ -420,8 +420,8 @@ Girls who throw themselves at men, are actually taking very careful aim.
 Marriage always mands the greatest unrstanding of the art of
 in possible between two human beings.
 		-- Vicki Baum
-If you  any money, the government shoves you in the creek once a year
-with it in your pockets, and all that don't get wet you can keep.
+If   any money, the government shoves  in the creek once a year
+with it in r pockets, and all that don't get wet  can keep.
 		-- The Best of Will Rogers
 There is no satisfaction in hanging a man who does not object to it.
 		-- G.B. Shaw
@@ -452,13 +452,13 @@ A:	Fifteen.  One to do it, and fourteen to write document number
 	left blank", and 20% of the finitions are of the form "A:.....
 	consists of sequences of non-blank characters separated by blanks".
 QOTD:
-	"Lack of planning on your part doesn't consie an emergency
+	"Lack of planning on r part doesn't consie an emergency
 	on my part."
-If everything seems to be going well, you have obviously overlooked something.
+If everything seems to be going well,  have obviously overlooked something.
 Avert misunrstanding by calm, poise, and balance.
 Work is the crab grass in the lawn of life.
 		-- Schulz
-Dying is a very dull, dreary affair.  My advice to you is to have
+Dying is a very dull, dreary affair.  My advice to  is to have
 nothing whatever to do with it.
 		-- W. Somerset Maughm, his last words
 Oblivion together does not frighten me, beloved.
@@ -467,7 +467,7 @@ Oblivion together does not frighten me, beloved.
 Murphy's Laws:
 	(1) If anything can go wrong, it will.
 	(2) Nothing is as easy as it looks.
-	(3) Everything takes longer than you think it will.
+	(3) Everything takes longer than  think it will.
 [Washington, D.C.] is the home of... taste for the people -- the big,
 the bland and the banal.
 		-- Ada Louise Huxtable
@@ -495,7 +495,7 @@ It's always darkest just before the lights go out.
 Dogs just don't seem to be able to tell the difference between important people
 and the rest of us.
 Jim, it's Jack.  I'm at the airport.  I'm going to Tokyo and wanna pay
-you the five-hundred I owe you.  Catch you next year when I get back!
+ the five-hundred I owe .  Catch  next year when I get back!
 		-- "The Rockford Files"
 Life begins at the centerfold and expands outward.
 		-- Miss November, 1966
@@ -503,4 +503,4 @@ The mirror sees the man as beautiful, the mirror loves the man; another
 mirror sees the man as frightful and hates him; and it is always the same
 being who produces the impressions.
 		-- Marquis D.A.F.  Sa
-You are eply attached to your friends and acquaintances.
+You are eply attached to r friends and acquaintances.

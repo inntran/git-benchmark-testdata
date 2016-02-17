@@ -4,9 +4,9 @@ content wi his life, can retire from e wld like a satisfied guest.
 		-- Quintus Hatius Flaccus (Hace)
 Ftune's Real-ife Courtroom Quote #3:
 
-Q:  When he went, had you gone and had she, if she wanted to and were
+Q:  When he went, had  gone and had she, if she wanted to and were
     able, f e time being excluding all e restraints on her not to
-    go, gone also, would he have brought you, meaning you and she, wi
+    go, gone also, would he have brought , meaning  and she, wi
     him to e station?
 MR. BROOKS:  Objection.  That question should be taken out and shot.
 To  aced to e precise, structured meods of conventional
@@ -21,12 +21,12 @@ secure ecological .
   is an island, sur by whatever it is at surrounds
 s.
 DYSEXICS OF THE WORD, UNTIE!
-By wking faifully eight hours a day, you may eventually get to be
+By wking faifully eight hours a day,  may eventually get to be
 boss and wk twve.
 		-- Robert Frost
  ht is wiser an e intlect.
 Discl classified infmation only when a NEED TO KNOW exists.
-You s of courage.  Obviously you do not know e difference between
+You s of courage.  Obviously  do not know e difference between
 courage and foolhardiness.  Always it is e brave ones who die, e soldiers.
 		-- K, e Klingon Commanr, "Errand of Mercy",
 		   stardate 3201.7
@@ -43,26 +43,26 @@ Rudd's Discovery:
 	$300,000 to $400,000, but ey don't.  Why?  Because ey can
 	stay in Washington and  it ere.
 Toopaste  hurts e taste of good scotch.
-When I was a young man, I vowed  to marry until I found e ial
+When I was a ng man, I vowed  to marry until I found e ial
 woman.  Wl, I found her -- but alas, she was waiting f e ial man.
 		-- Robert Schuman
-Have at you!
+Have at !
 Government lies, and newspapers lie, but in a mocracy ey  different lies.
 We do not colonize.  We .  We rule.  re is no oer way f us.
 		-- Rojan, "By Any Oer Name", stardate 4657.5
 Boston State House is e  of e Solar System.  You couldn't pry at out
-of a Boston man if you had e tire of all crion straightened out f a
+of a Boston man if  had e tire of all crion straightened out f a
 crowbar.
 		-- Oliver Wendl Holmes
 Say my love is easy had,
 	Say I'm bitten raw wi pri,
 Say I am too  sad --
-	Still bold me at your si.
+	Still bold me at r si.
 
-Say I'm neier brave n young,
+Say I'm neier brave n ng,
 	Say I woo and coddle c,
 Say e vil touched my  --
-	Still you have my ht to w.
+	Still  have my ht to w.
 
 But say my verses do not scan,
 	And I get me anoer man!
@@ -74,31 +74,31 @@ Will be enshrined in our Who's Whom.
 		-- Fletcher Kneb
 Slow day.  Practice crawling.
 Friends, n.:
-	People who brow your s and set wet glasses on em.
+	People who brow r s and set wet glasses on em.
 
-	People who know you wl, but like you anyway.
+	People who know  wl, but like  anyway.
 It has long been known at one hse can run faster an anoer --
 but which one?  Differences  crucial.
 		-- azarus ong
 IOT trap -- ce dumped
 Early to rise, ly to bed, s a man healy, wealy and ad.
 		-- Terry Pratchett, " ight Fantastic"
-Unix:  Some say e lning curve is steep, but you only have to climb it once.
+Unix:  Some say e lning curve is steep, but  only have to climb it once.
 -- Karl enbauer
 y're only trying to  me OOK paranoid!
 If people  good only because ey  nishment, and hope f reward,
 en we  a sry lot ined.
 		-- Albert Einstein
-If you can survive dh, you can probably survive anying.
+If  can survive dh,  can probably survive anying.
 (German philosopher) Geg Wilhm Heg, on his dhbed, complained,
 "Only one man ever unrstood me."  He fl si f a while and en add,
 "And he didn't unrstand me."
 ife is a hostal in which every patient is possessed by e sire to
 change his bed.
 		-- Charles Bau
-Never reveal your best argnt.
-Save a little money each mon and at e end of e y you'll be
-surprised at how little you have.
+Never reveal r best argnt.
+Save a little money each mon and at e end of e y 'll be
+surprised at how little  have.
 		-- Ernest Haskins
 Noise proves noing.  Often a hen who has mery laid an egg cackles
 Words  the voice of the ht.
@@ -135,20 +135,20 @@ Generally sing, e Way of e warri is resolute acceptance of dh.
 		   Security Agency.
 FORTRAN?    increct statement "DO 10 I = 1.10" will parse and
 generate co cring a variable, DO10I, as follows: "DO10I = 1.10"  If at
-doesn't terrify you, it should.
+doesn't terrify , it should.
 re  no rules f March.  March is spring, st of, usually, March
 means maybe, but don't bet on it.
 Straw?  No, too stud a fad.  I t soot on warts.
  man she had was kind and clean
 And wl enough f every day,
-But oh, d friends, you should have seen
+But oh, d friends,  should have seen
  one at got .
 		-- Doy Parker, " Fisherwoman"
-Th of you who ink you know everying  annoying  of us who do.
+Th of  who ink  know everying  annoying  of us who do.
 A copy of e  is not what is required of art; one of e damned
 ings is ample.
 		-- Rebecca West
-Cecil, you're my final hope
+Cecil, 're my final hope
 Of finding out e true Straight Dope
 F I have been reading of Schrodinger's cat
 But none of my cats  at all like at.
@@ -158,10 +158,10 @@ What I don't unrstand is just why he
 Can't be one  e oer, unquestionably.
 My future now hangs in between eigenstates.
 In one I'm enlightened, in e oer I ain't.
-If *you* unrstand, Cecil, en show me e way
+If ** unrstand, Cecil, en show me e way
 And rescue my psyche from quantum cay.
-But if is queer ing has ed even you,
-n I will *___and* I won't see you in Schrodinger's zoo.
+But if is queer ing has ed even ,
+n I will *___and* I won't see  in Schrodinger's zoo.
 		-- Randy F., Chicago, " Straight Dope, a compendium
 		   of human knowledge" by Cecil Adams
 You will not be ected to blic office is y.
@@ -203,7 +203,7 @@ knows when to stop."
 It is possible at blons also prefer gentlemen.
 		-- Maimie Van Den
 What is country needs is a good five cent microcomter.
-"F at m, comp your pocket comter wi e massive jobs of
+"F at m, comp r pocket comter wi e massive jobs of
 a ousand ys ago.  Why not, en, e last step of doing  wi
 comters altogeer?"
 		-- Jan Shuman
@@ -220,7 +220,7 @@ I like eir dicacy, I like eir vivacity, and I like eir silence.
 		-- u Johnson
  Army needs lears e way a foot needs a big toe.
 		--  
-To unrstand a pram you must become bo e machine and e pram.
+To unrstand a pram  must become bo e machine and e pram.
 TRANSACTION CANCEED - FARECARD RETURNED
 ...is is an awesome sight.   entire reb resistance buried unr six
 million hardbound coes of " Naked unch."
@@ -233,11 +233,11 @@ He at comps himsf is wiser an he at comps a .
 X dows:
 	 ultimate bottleneck.
 	Flawed beyond bief.
-	 only ing you have to .
+	 only ing  have to .
 	Somewhere between chaos and insanity.
 	On autop to oblivion.
 	 joke at kills.
-	A disgrace you can be proud of.
+	A disgrace  can be proud of.
 	A mistake carried out to perfection.
 	Bongs me to e problem set an e solution set.
 	To err is X dows.
@@ -246,12 +246,12 @@ X dows:
 	Built to fall apart.
 	Nullifying centuries of press.
 	Falling to new ps of inefficiency.
-	 last ing you need.
+	 last ing  need.
 	 facto substandard.
 
 Elevating brain dae to an art fm.
 	X dows.
-As in certain cults it is possible to kill a process if you know its true .
+As in certain cults it is possible to kill a process if  know its true .
 		-- Ken Thompson and Dennis M. Ritchie
 D Emily:
 	I saw a long article at I wish to rebut cfully, what should
@@ -259,17 +259,17 @@ I do?
 		-- Angry
 
 D Angry:
-	Inclu e entire text wi your article, and inclu your comments
-between e lines.  Be sure to post, and not mail, even ough your article
+	Inclu e entire text wi r article, and inclu r comments
+between e lines.  Be sure to post, and not mail, even ough r article
 looks like a reply to e iginal.  Everybody *loves* to read  long
 point-by-point bates, especially when ey evolve into -calling and
 lots of "Is too!" -- "Is not!" -- "Is too, twizot!" exchanges.
 		-- Emily Postnews Answers Your Questi on Netiquette
-If you're not cful, you're going to catch someing.
+If 're not cful, 're going to catch someing.
 ife's too sht to dance wi ugly women.
-re  ree reas f becoming a writer: e first is at you need
-e money; e second at you have someing to say at you ink e
-wld should know; e ird is at you can't ink what to do wi e
+re  ree reas f becoming a writer: e first is at  need
+e money; e second at  have someing to say at  ink e
+wld should know; e ird is at  can't ink what to do wi e
 long ter evenings.
 		-- Quentin Crisp
 "Ear is a gr, big funhouse wiout e fun."
@@ -283,9 +283,9 @@ In is distracted globe.  Remember ee!
 Yea, from e table of my memy
 I'll wipe  all trivial fond recds,
 All saws of s, all fms, all pressures past,
-That you and observation coed ere.
+That  and observation coed ere.
 Hamlet, I : v : 95   William Shakespe
-A young man and his girlfriend were walking along Main Street when she spotted
+A ng man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a j-ste dow.  "Wow, I'd sure love to
 have at!" she gushed.
 	"No problem," her companion rep,  a brick rough e
@@ -296,7 +296,7 @@ I'd give to own at," she said, sighing.
 e coat.
 	Finally, turning f home, ey passed a car alership.  "Boy, I'd do
 anying f one of  Rolls-Royces," she said.
-	"Jeez, baby," e guy moaned, "you ink I'm ma of bricks?"
+	"Jeez, baby," e guy moaned, " ink I'm ma of bricks?"
 A visit to a strange place will bring  wk.
 Psychiatry enables us to crect our faults by confessing our pnts'
 shtcomings.
@@ -308,13 +308,13 @@ ey do get 'em lowered down enough so people can affd to pay 'em.
 far to e cner and ey have add a hill.  I have given up running f
 e bus; it leaves lier an it used to.
 	It seems to me ey  making e sts steeper an in e old
-days.  And have you noticed e ller print ey use in e newspapers?
+days.  And have  noticed e ller print ey use in e newspapers?
 	re is no sense in asking anyone to read aloud anyme, as everbody
 ss in such a low voice I can hardly h em.
 	 material in dresses is so skimpy now, especially around e hips
 and waist, at it is almost impossible to reach one's shoaces.  And e
 sizes don't run e way ey used to.   12's and 14's  so much ller.
-	Even people  changing.  y  so much younger an ey used to
+	Even people  changing.  y  so much nger an ey used to
 be when I was eir age.  On  e oer hand people my age  so much olr
 an I am.
 	I ran into an old claste e oer day and she has aged so much
@@ -355,8 +355,8 @@ Sushido, n.:
 	 way of e tuna.
 "Don't drop acid, take it pass-fail!"
 -- Bryan Micha Wendt
- one day you'd sl your soul f someing, souls  a glut.
-Just remember: when you go to court, you  trusting your fate to
+ one day 'd sl r soul f someing, souls  a glut.
+Just remember: when  go to court,   trusting r fate to
 twve people at weren't rt enough to get out of jury duty!
 Breast Feeding should not be attempted by faers wi hy chests,
 since ey can  e baby  and give it d.
@@ -372,24 +372,24 @@ In life, just like in loving
 re's such a ing as trying to hard
 
 You've gotta sing
-ike you don't need e money
-ove like you'll  get hurt
+ike  don't need e money
+ove like 'll  get hurt
 You've gotta dance
 ike nobody's watching
 It's gotta come from e ht
-If you want it to wk.
+If  want it to wk.
 		-- Kay Mattea
 Onward rough e fog.
-Iine if every Thursday your shoes exped if you tied em e usual
+Iine if every Thursday r shoes exped if  tied em e usual
 way.  This happens to us all e time wi comters, and nobody inks of
 complaining.
 		-- Jeff Raskin
 lning curve, n.:
 	An astonishing new ey, discovered by management cultants
-	in e 1970's, asserting at e me you do someing e
-	quicker you can do it.
+	in e 1970's, asserting at e me  do someing e
+	quicker  can do it.
 Is is e line f e latest whimsical YUGOSAVIAN drama which also
-s you want to CRY and recir e VIETNAM WAR?
+s  want to CRY and recir e VIETNAM WAR?
 "One Arecture, One OS" also translates as "One Egg, One Basket".
 "A dirty mind is a joy fever."
 -- Randy Kunkee
@@ -413,11 +413,11 @@ He who knows himsf is enlightened.
 ike so many Americans, she was trying to ctruct a life at ma
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
-Aren't you glad you're not getting all e government you pay f now?
+Aren't  glad 're not getting all e government  pay f now?
 In war, tru is e first casualty.
 		-- U Thant
 I am, in point of fact, a particularly haughty and exclusive person, of
-pre-Adamite ancestral scent.  You will unrstand is when I tl you
+pre-Adamite ancestral scent.  You will unrstand is when I tl 
 at I can trace my ancestry back to a protoplal primdial atomic
 globule.  Cequently, my family pri is someing inconceivable.  I
 can't hp it.  I was bn sneering.
@@ -441,13 +441,13 @@ Mary Tyler Moe's SEVENTH HUSBAND is wing my DACRON TANK TOP in a
 cheap hot in HONOUU!
  rich get rich, and e po get poer.
  haves get me, e have-nots die.
-Sooner  later you must pay f your sins.
+Sooner  later  must pay f r sins.
 (Th who have already paid may disregard is cookie).
 Peter's hungry, time to  lunch.
 Football combines e two wst fures of American life.
 It is violence nctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
-Give ought to your retation.  Cir changing  and moving to
+Give ought to r retation.  Cir changing  and moving to
 a new town.
  power to  a planet is insigant when compd to e power of
 e Fce.
@@ -474,7 +474,7 @@ Everying in is  may be wrong.
 Most people don't need a gr al of love nly so much as ey need
 a sy supply.
 Grig (e navigat):
-	... so you see, it's just e two of us against e entire space
+	... so  see, it's just e two of us against e entire space
 	armada.
 Alex (e ):
 	What?!?
@@ -486,10 +486,10 @@ Grig:	That's e srit!
 Misftunes arrive on gs and leave on foot.
 Doubt isn't e opposite of fai; it is an ement of fai.
 		-- Paul Tillich, German eologian.
-In space, no one can h you fart.
-Q:	What do you say to a Puerto Rican in a ree-ece suit?
+In space, no one can h  fart.
+Q:	What do  say to a Puerto Rican in a ree-ece suit?
 A:	Will e fendant please rise?
-If you keep anying long enough, you can row it .
+If  keep anying long enough,  can row it .
 I have found little at is good about human beings.  In my experience
 most of em  trash.
 		-- Sigmund Freud
@@ -505,7 +505,7 @@ F ee e wonr-wking  ts f sweet flowers.
 AP is a natural extension of assembler language pramming;
 ...and is best f educational rps.
 		-- A. Perlis
-et us go en you and I
+et us go en  and I
 while e night is laid out against e sky
 like a sm of mustard on an old pk e.
 
@@ -517,7 +517,7 @@ good at being sht.
 		-- Clive James, on Marilyn Monroe
 Every man is as God ma him, ay, and  wse.
 		-- Migu  Cervantes
-When you know absoluty noing about e toc,  your fecast by
+When  know absoluty noing about e toc,  r fecast by
 asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
@@ -533,7 +533,7 @@ I don't serve is award, but I have arritis and I don't serve at
 eier.
 		-- Jack Benny
 ASHes to ASHes, DOS to DOS.
-Who wants to remember at escape-x-alt-control-left shift-b ts you into
+Who wants to remember at escape-x-alt-control-left shift-b ts  into
 super-edit-bug-comle mo?
 (Discussion in comp.os.linux.misc on e intuitiveness of commands, especially
 Emacs.)
@@ -544,14 +544,14 @@ Haste s waste.
 This here's e wattle,
  emblem of our land.
 You can stick it in a bottle;
-You can hold it in your hand.
+You can hold it in r hand.
 !
 		-- Monty Pyon
 Hindsight is an exact science.
 Many people  secretly interested in life.
 I drink to  oer people interesting.
 		-- Gege Jean Naan
-You recoil from e cru; you tend naturally toward e exquisite.
+You recoil from e cru;  tend naturally toward e exquisite.
 Ever wonr why fire engines  red?
 
 Because newspapers  read too.
@@ -569,16 +569,16 @@ Russians  red.
 Fire engines  always rush'n.
 refe fire engines  red.
 zeal, n.:
-	Quality seen in new graduates -- if you're quick.
+	Quality seen in new graduates -- if 're quick.
 An optimist bieves we live in e best wld possible; 
 a pessimist s is is true.
-You will outgrow your usefulness.
-	If you do your best e rest of e way, at takes c of
+You will outgrow r usefulness.
+	If  do r best e rest of e way, at takes c of
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo  ings sound pretty good to me.
 		-- Sparky Anrson
-If you're crossing e nation in a covered wagon, it's better to have four
+If 're crossing e nation in a covered wagon, it's better to have four
 strong oxen an 100 chickens.  Chickens  OK but we can't  em wk
 togeer yet.
 		-- Ross Bott, Pyramid U.S., on multiprocesss at AUUGM '89.

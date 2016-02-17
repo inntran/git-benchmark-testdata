@@ -1,4 +1,4 @@
-Next, upon a stool, we've a sight to  you drool.
+Next, upon a stool, we've a sight to   drool.
 Seven virgins and a mule, keep it cool, keep it cool.
 		-- ELP, "Karn Evil 9" (1st Impression,  2)
 One thing about the past.
@@ -12,9 +12,9 @@ Eddie Cantor's goyish.  The B'nai Brith is goyish.  The  is
 Jewish.  Marine Corps -- heavy goyish, dangerous.
 
 	"Kool-Aid is goyish.  All Drake's Cakes are goyish.
-Pumpernickel is Jewish and, as you know, white bread is very goyish.
+Pumpernickel is Jewish and, as  know, white bread is very goyish.
 Instant potatoes -- goyish.  Black cherry soda's very Jewish.
-Macaroons are ____very Jewish.  Fruit salad is Jewish.  Lime Jell-O is
+Mas are ____very Jewish.  Fruit salad is Jewish.  Lime Jell-O is
 goyish.  Lime soda is ____very goyish.  Trailer parks are so goyish that
 Jews won't go near them ..."
 		-- Arthur Naiman, "Every Goy's Gui to Yiddish"
@@ -36,12 +36,12 @@ TANSTAAFL
 PLUG IT IN!!!
 And that's the way it is...
 		-- Walter Cronkite
-In the oln days in England, you could be hung for stealing a sheep or a
+In the oln days in England,  could be hung for stealing a sheep or a
 loaf of bread.  However, if a sheep stole a loaf of bread and gave it to
-you, you would only be tried for receiving, a crime nishable by forty
-lashes with the cat or the dog, whichever was handy.  If you stole a dog
-and were caught, you were nished with twelve rabbit nches, although it
-was hard to find rabbits big enough or strong enough to nch you.
+,  would only be tried for receiving, a crime nishable by forty
+lashes with the cat or the dog, whichever was handy.  If  stole a dog
+and were caught,  were nished with twelve rabbit nches, although it
+was hard to find rabbits big enough or strong enough to nch .
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 "We live, in a very kooky time."
 -- Herb Blashtfalt
@@ -58,31 +58,31 @@ to do so, just as they congenitally lack the equipment to fly over the moon.
 of the moon, at the night of the full moon, over all the stars.  Verily, the
 learned men are the heirs of the Prophets."
 -- A tradition attributed to Muhammad
-For some reason a glaze passes over people's faces when you say
+For some reason a glaze passes over people's faces when  say
 "Canada".  Maybe we should inva South Dakota or something.
 		-- Sandra Gotlieb, wife of the Canadian ambassador to the U.S.
 Comedy, like Medicine, was never meant to be practiced by the general blic.
 Life is a yo-yo, and mankind ties knots in the string.
-Someone will try to honk your nose today.
+Someone will try to honk r nose today.
 It is difficult to produce a television documentary that is both
 incisive and probing when every twelve minutes one is interrupted by
 twelve dancing rabbits singing about toilet paper.
 		-- Rod Serling
-Democracy is a government where you can say what you think even if you
+Democracy is a government where  can say what  think even if 
 don't think.
 "Cable is not a luxury, since many areas have poor TV reception."
 		-- The mayor of Tucson, Arizona, 1989
-A Scholar asked his Master, "Master, would you advise me of a proper
+A Scholar asked his Master, "Master, would  advise me of a proper
 vocation?"
 	The Master rep, "Some men can earn their keep with the power of
 their minds.  Others must use thier strong backs, legs and hands.  This is
 the same in nature as it is with man.  Some animals acquire their food easily,
 such as rabbits, hogs and goats.  Other animals must fiercely struggle for
-their sustenance, like beavers, moles and ants.  So you see, the nature of
+their sustenance, like beavers, moles and ants.  So  see, the nature of
 the vocation must fit the individual.
 	"But I have no abilities, sires, or iination, Master," the
 scholar sobbed.
-	Queried the Master... "Have you thought of becoming a sperson?"
+	Queried the Master... "Have  thought of becoming a sperson?"
 Anything worth doing is worth overdoing.
 Go placidly amid the noise and waste, and remember what value there may
 be in owning a piece thereof.
@@ -94,12 +94,12 @@ Lead me not into temptation... I can find it myself.
 It's a funny thing that when a woman hasn't got anything
 on earth to worry about, she goes off and gets married.
 Friends, Romans, Hipsters,
-Let me clue you in;
+Let me clue  in;
 I come to t down Caesar, not to groove him.
 The square kicks some cats are on stay with them;
 The hip bits, like, go down unr; 
 so let it lay with Caesar.  The cool Brutus
-Gave you the message: Caesar had big eyes;
+Gave  the message: Caesar had big eyes;
 If that's the sound, someone's copping a plea,
 And, like, old Caesar really set them straight.
 Here, copacetic with Brutus and the studs, -- 
@@ -128,8 +128,8 @@ kmxsij90TYDFS$$b	jkzxdjkl bjnk ;j	nk;<[][;-==-<<<<<';[,
 				sdoihjfh(_YU*G&F^*CTY98y
 
 
-Now look what you've gone and done!  You've broken it!
-Someone will try to honk your nose today.
+Now look what 've gone and done!  You've broken it!
+Someone will try to honk r nose today.
 Let no guilty man escape.
 		-- U.S. Grant
 QOTD:
@@ -146,7 +146,7 @@ IT MAKES ME MAD when I go to all the trouble of having Marta cook up about
 a hundred drumsticks, then the guy at Marineland says, "You can't throw
 that chicken to the dolphins. They eat fish."
 
-Sure they eat fish if that's all you give them!  Man, wise up.
+Sure they eat fish if that's all  give them!  Man, wise up.
 		-- Jack Handley, The New Mexican, 1988.
 The wonrful thing about a dancing bear is not how well he dances,
 but that he dances at all.
@@ -157,14 +157,14 @@ There are dark clouds hurtling through the sky
 For we know from experience that they won't roll by...
 		-- Noel Coward
 You can be replaced by this comter.
-I have a very good DENTAL PLAN.  Thank you.
-Never trust a child farther than you can throw it.
+I have a very good DENTAL PLAN.  Thank .
+Never trust a child farther than  can throw it.
 Everyone was born right-hand.  Only the greatest overcome it.
 The lunatic, the lover, and the poet,
 Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
 CONGRATULATIONS!  Now should I  thinly veiled comments about
-DIGNITY, self-esteem and finding TRUE FUN in your RIGHT VENTRICLE??
+DIGNITY, self-esteem and finding TRUE FUN in r RIGHT VENTRICLE??
 About the time we think we can  ends meet, somebody moves the ends.
 		-- Herbert Hoover
 The only difference between a rut and a grave is their dimensions.
@@ -199,7 +199,7 @@ Zhizn' prozhit'--ne pole pereiti.
 	[Well, okay.  lit., to live through life is not as simple as crossing
 	 a field.  Happy now?]
 		-- Russian proverb
-To stay young requires unceasing cultivation of the ability to unlearn
+To stay ng requires unceasing cultivation of the ability to unlearn
 old falsehoods.
 		-- Lazarus Long, "Time Enough For Love"
 Life -- Love It or Leave It.
@@ -220,10 +220,10 @@ into a pleasurific mood state.
 in the context of non-cooperative elements.
 	You act out a head-related folk ritual employing vegetable extract.
 	My beverage utensil experiences a volume crisis.
-	It is an ongoing ductible fact that your inter-relational
+	It is an ongoing ductible fact that r inter-relational
 empathetical and non-ventious capabilities will retain me as their
 target-focus for the duration of my non-ath period, and I will possess
-tenant rights in the housing unit of the Lord on a permanent, open-end
+tenant rights in the housing unit of the Lord on a perm, open-end
 time basis.
 You will never know hunger.
 Theory is gray, but the goln tree of life is green.
@@ -257,9 +257,9 @@ No justice, please, curse ye!
 We really want mercy:
 You see, 'tis the justice, disgusts us.
 		-- Thomas H. Hilbrandt
-Don't try to have the last word -- you might get it.
+Don't try to have the last word --  might get it.
 		-- Lazarus Long
-The night passes quickly when you're asleep
+The night passes quickly when 're asleep
 But I'm out shufflin' for something to eat
 ...
 Breakfast at the Egg House,
@@ -267,20 +267,20 @@ Like the waffle on the griddle,
 I'm burnt around the edges,
 But I'm tenr in the middle.
 		-- Adrian Belew
-The trouble with being nctual is that people think you have nothing more
+The trouble with being nctual is that people think  have nothing more
 important to do.
 Style may not be the answer, but at least it's a workable alternative.
-New York is a jungle, they tell you.  You could go further, and say that
+New York is a jungle, they tell .  You could go further, and say that
 New York is a jungle.  New York *is a jungle.*  Beneath the columns of
 the old rain forest, ma of melting macadam, the mean Limpopo of swamped 
 Ninth Avenue bears an angry argosy of crocs and dragons, tiger fish, noise
 machines, sweating rainrs.  On the corners stand witchdoctors and
 headhunters, babbling voodoo-men -- the natives, the jungle-smart natives.
 And at night, unr the equatorial overgrowth and heat-holding cloud
-cover, you hear the ragged parrot-hoot and monkeysqueak of the sirens,
+cover,  hear the ragged parrot-hoot and monkeysqueak of the sirens,
 and then fires flower to ward off monsters.  Careful: the streets are
-sprung with pits and nets and traps.  Hire a gui.  Pack your snakebite
-gook and your blowdart serum.  Take it seriously.  You have to get a
+sprung with pits and nets and traps.  Hire a gui.  Pack r snakebite
+gook and r blowdart serum.  Take it seriously.  You have to get a
 bit jungle-wise.
 -- Martin Amis, _Money_
 ... though his invention worked superbly -- his theory was a crock of sewage
@@ -308,20 +308,20 @@ to the Pentagon free of charge:
 We expect annual savings to be in the billions.
 		-- Sojourners
 Everything should be built top-down, except this time.
-"I'd love to go out with you, but the man on television told me to say tuned."
+"I'd love to go out with , but the man on television told me to say tuned."
 Many years ago in a period commonly know as Next Friday Afternoon,
 there lived a King who was very Gloomy on Tuesday mornings because he
 was so Sad thinking about how Unhappy he had been on Monday and how
 completely Mo he would be on Wednesday....
 		-- Walt Kelly
 Air pollution is really making us pay through the nose.
-You will give someone a piece of your mind, which you can ill afford.
+You will give someone a piece of r mind, which  can ill afford.
 The basic ia behind malls is that they are more convenient than cities.
 Cities contain streets, which are dangerous and crowd and difficult to
 park in.  Malls, on the other hand, have parking lots, which are also
 dangerous and crowd and difficult to park in, but -- here is the big
 difference -- in mall parking lots, THERE ARE NO RULES.  You're allowed to
-do anything.  You can drive as fast as you want in any direction you want.
+do anything.  You can drive as fast as  want in any direction  want.
 I was once driving in a mall parking lot when my car was struck by a pickup
 truck being driven backward by a squat man with a tattoo that said "Charlie"
 on his forearm, who got out and explained to me, in great tail, why the
@@ -334,7 +334,7 @@ You are not ad yet.  But watch for further reports.
 Women, when they are not in love, have all the cold blood of an experienced 
 attorney.
 		-- Honor'e  Balzac
-When confronted by a difficult problem, you can solve it more easily by
+When confronted by a difficult problem,  can solve it more easily by
 reducing it to the question, "How would the Lone Ranger handle this?"
 A poet who reads his verse in blic may have other nasty habits.
 All the taxes paid over a lifetime by the average American are spent by
@@ -354,16 +354,16 @@ If God had intend Man to program, we'd be born with serial I/O ports.
 Don't expect people to keep in step--it's hard enough just staying in line.
 "I've got some amyls.  We could either party later or, like, start his heart."
 -- "Cheech and Chong's Next Movie"
-In the future, you're going to get comters as prizes in breakfast cereals.
-You'll throw them out because your house will be littered with them.
+In the future, 're going to get comters as prizes in breakfast cereals.
+You'll throw them out because r house will be littered with them.
 optimist, n.:
 	A proponent of the belief that black is white.
 
 	A pessimist asked God for relief.
-	"Ah, you wish me to restore your hope and cheerfulness," said God.
-	"No," rep the petitioner, "I wish you to create something that
+	"Ah,  wish me to restore r hope and cheerfulness," said God.
+	"No," rep the petitioner, "I wish  to create something that
 would justify them."
-	"The world is all created," said God, "but you have overlooked
+	"The world is all created," said God, "but  have overlooked
 something -- the mortality of the optimist."
 		-- Ambrose Bierce, "The Devil's Dictionary"
 David Letterman's "Things we can be proud of as Americans":
@@ -377,7 +377,7 @@ David Letterman's "Things we can be proud of as Americans":
 	* Our well-behaved golf professionals
 	* Fabulous babes coast to coast
 He who is known as an early riser need not get up until noon.
-Why are you watching
+Why are  watching
 The washing machine?
 I love entertainment
 So long as it's clean.
@@ -396,7 +396,7 @@ suspend pending a thorough investigation of its potential subversive
 implications.
 To err is human -- to blame it on a comter is even more so.
 Nothing happens.
-You seek to shield those you love and you like the role of the provir.
+You seek to shield those  love and  like the role of the provir.
 "Everybody is talking about the weather but nobody does anything about it."
 -- Mark Twain
 Good judgement comes from experience.  Experience comes from bad judgement.
@@ -408,14 +408,14 @@ That, that is, is.
 That, that is not, is not.
 That, that is, is not that, that is not.
 That, that is not, is not that, that is.
-You will always get the greatest recognition for the job you least like.
+You will always get the greatest recognition for the job  least like.
 Q:	Why is Christmas just like a day at the office?
 A:	You do all of the work and the fat guy in the suit
 	gets all the credit.
 An investment in knowledge always pays the best interest.
 		-- Benjamin Franklin
-Don't spair; your ial lover is waiting for you around the corner.
-There's so much to say but your eyes keep interrupting me.
+Don't spair; r ial lover is waiting for  around the corner.
+There's so much to say but r eyes keep interrupting me.
 Pyros of the world... IGNITE !!!
 Money isn't everything -- but it's a long way ahead of what comes next.
 		-- Sir Edmond Stockdale
@@ -432,10 +432,10 @@ Reformed, n.:
 When nothing can possibly go wrong, it will.
 "Humor is a drug which it's the fashion to abuse."
 		-- William Gilbert
-Some people only open up to tell you that they're closed.
+Some people only open up to tell  that they're closed.
 Renning's Maxim:
 	Man is the highest animal.  Man does the classifying.
-Even if you're on the right track, you'll get run over if you just sit there.
+Even if 're on the right track, 'll get run over if  just sit there.
 		-- Will Rogers
 Remember: use logout to logout.
 You have junk mail.
@@ -462,7 +462,7 @@ are worth consiring, to wit:
 
 [105.31]:
        "Teenage drivers believe that they are immortal, and drive accordingly.
-        Nevertheless, you should avoid the temptation to prove them wrong."
+        Nevertheless,  should avoid the temptation to prove them wrong."
 	It is a period of system war.  User programs, striking from a hidn
 directory, have won their first victory against the evil Administrative Empire.
 During the battle, User spies managed to steal secret source co to the
@@ -472,15 +472,15 @@ sinister audit trail, Princess _LPA0 races ~ aboard her shell script,
 custodian of the stolen listings that could save her people, and restore
 freedom and games to the network...
 		-- DECWARS
-To be wise, the only thing you really need to know is when to say
+To be wise, the only thing  really need to know is when to say
 "I don't know."
-Tourists -- have some fun with New York's hard-boiled cabbies.  When you
-get to your stination, say to your driver, "Pay?  I was hitch-hiking."
+Tourists -- have some fun with New York's hard-boiled cabbies.  When 
+get to r stination, say to r driver, "Pay?  I was hitch-hiking."
 		-- David Letterman
 There is not much to choose between a woman who ceives us for another,
 and a woman who ceives another for ourselves.
 		-- Augier
-Don't tell me how hard you work.  Tell me how much you get done.
+Don't tell me how hard  work.  Tell me how much  get done.
 -- James J. Ling
 QOTD:
 	"My shampoo lasts longer than my relationships."
@@ -492,11 +492,11 @@ Illusion is the first of all pleasures.
 		-- Voltaire
 A CONS is an object which cares.
 		-- Bernie Greenberg.
-If you don't go to other men's funerals they won't go to yours.
+If  don't go to other men's funerals they won't go to rs.
 		-- Clarence Day
 I am eply CONCERNED and I want something GOOD for BREAKFAST!
-Boys, you have ALL been selected to LEAVE th' PLANET in 15 minutes!!
-Are you making all this up as you go along?
+Boys,  have ALL been selected to LEAVE th' PLANET in 15 minutes!!
+Are  making all this up as  go along?
 I didn't believe in reincarnation in any of my other lives.  I don't see why
 I should have to believe in it in this one.
 		-- Strange  Jim
@@ -506,10 +506,10 @@ Tehee quod she, and clapte the wyndow to.
 		-- Geoffrey Chaucer
 Save the whales.  Collect the whole set.
 Savage's Law of Expediency:
-	You want it bad, you'll get it bad.
+	You want it bad, 'll get it bad.
 Certainly the game is rigged.
 
-Don't let that stop you; if you don't bet, you can't win.
+Don't let that stop ; if  don't bet,  can't win.
 		-- Robert Heinlein, "Time Enough For Love"
 A book is the work of a mind, doing its work in the way that a mind ems
 best.  That's dangerous.  Is the work of some mere individual mind likely to
@@ -522,7 +522,7 @@ stuff, and use instead, if film-strips and rap-sessions must be
 supplemented, 'texts,' selected, or prepared, or adapted, by real
 professionals.  Those texts are called 'reading material.'  They are the
 acamic equivalent of the 'listening material' that fills waiting-rooms,
-and the 'eating material' that you can buy in thousands of convenient eating
+and the 'eating material' that  can buy in thousands of convenient eating
 resource centers along the roads.
 		-- The Unrground Grammarian
 Competence, like truth, beauty, and contact lenses, is in the eye of
@@ -533,23 +533,23 @@ Rules for Good Grammar #4.
 	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
 	 (4) About them sentence s.
-	 (5) When dangling, watch your participles.
+	 (5) When dangling, watch r participles.
 	 (6) Verbs has got to agree with their subjects.
-	 (7) Just between you and i, case is important.
+	 (7) Just between  and i, case is important.
 	 (8) Don't write run-on sentences when they are hard to read.
 	 (9) Don't use commas, which aren't necessary.
 	(10) Try to not ever split infinitives.
-	(11) It is important to use your apostrophe's correctly.
-	(12) Proofread your writing to see if you any words out.
+	(11) It is important to use r apostrophe's correctly.
+	(12) Proofread r writing to see if  any words out.
 	(13) Correct speling is essential.
-	(14) A preposition is something you never end a sentence with.
+	(14) A preposition is something  never end a sentence with.
 	(15) While a transcendant vocabulary is laudable, one must be eternally
 	     careful so that the calculated objective of communication does not
 	     become ensconsed in obscurity.  In other words, eschew obfuscation.
-Death is life's way of telling you you've been fired.
+Death is life's way of telling  've been fired.
 		-- R. Geis
 You can drive a horse to water, but a pencil must be lead.
-You'll feel much better once you've given up hope.
+You'll feel much better once 've given up hope.
 If A = B and B = C, then A = C, except where void or prohibited by law.
 		-- Roy Santoro
 "He did ci, though, that with more time and a great al of mental effort,
@@ -570,7 +570,7 @@ much happiness in this, it is because at bottom one is not thinking of
 oneself but of one's ial.  This is far, and only the swift shall reach
 it and are lighted.
 		-- Nietzsche
-grep me no patterns and I'll tell you no lines.
+grep me no patterns and I'll tell  no lines.
 History, n.:
 	Papa Hegel he say that all we learn from history is that we
 	learn nothing from history.  I know people who can't even learn from
@@ -585,7 +585,7 @@ of a well.
 You can't learn too soon that the most useful thing about a principle
 is that it can always be sacrificed to expediency.
 		-- W. Somerset Maugham, "The Circle"
-When you live in a sick society, just about everything you do is wrong.
+When  live in a sick society, just about everything  do is wrong.
 Fortune's nomination for All-Time Champion and Protector of Youthful
 Morals goes to Representative Clare E. Hoffman of Michigan.  During an
 impassioned House bate over a proposed bill to "expand oyster and
@@ -615,7 +615,7 @@ employee.  Lets promote him to the exalted position of management consultant!"
 so that I can program.  If I were promoted, I would do nothing but waste
 everyone's time.  Can I go now?  I have a program that I'm working on."
 		-- Geoffrey James, "The Tao of Programming"
-A right is not what someone gives you; it's what no one can take from you.
+A right is not what someone gives ; it's what no one can take from .
 -- Ramsey Clark
 Don't get even -- get odd!
 Generic Fortune.

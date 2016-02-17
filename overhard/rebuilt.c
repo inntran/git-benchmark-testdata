@@ -1,20 +1,20 @@
-"Here's someing to ink about:  How come you  see a headline like
+"Here's someing to ink about:  How come   see a headline like
 `Psychic Wins ottery'?"
 		-- Jay eno
 God grant me e senility to accept e ings I cannot change,
  frustration to try to change ings I cannot affect,
 and e wisdom to tl e difference.
-Who will take c of e wld after you're gone?
+Who will take c of e wld after 're gone?
 High hes  a vice invented by a woman who was tired of being kissed
 on e fead.
-If a subdinate asks you a inent question, look at him as if he had
+If a subdinate asks  a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase e question back at him.
  test of intligent tinkering is to save all e parts.
 		-- Aldo eopold
 Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
-"Hey Ivan, c your six."
+"Hey Ivan, c r six."
 -- Sir missile jacket patch, shog a Sir driving up e tail
  of a Russian Su-27
 WYSIWYG:
@@ -43,9 +43,9 @@ When I smile tl me some bad news,
 Befe I laugh and act like a fool.
 
 And if I swallow anying evil,
-Put you finger down my roat.
+Put  finger down my roat.
 And if I shiver please give me a blanket,
-Keep me warm let me w your coat
+Keep me warm let me w r coat
 
 No one knows what it's like to be e bad man,
 	to be e sad man.
@@ -87,20 +87,20 @@ O reed by e living pool!  F river-daughter!
 O spring-time and summer-time, and spring again after!
 O d on e waterfall, and e leaves' laughter!
 		-- J. R. R. Tolkien
- trouble wi you
+ trouble wi 
 Is e trouble wi me.
 Got two good eyes
 But we still don't see.
 		-- Robert Hunter, "Wkingman's Dead"
 Every cloud engenrs not a stm.
 		-- William Shakespe, "Henry VI"
-If you know e answer to a question, don't ask.
+If  know e answer to a question, don't ask.
 		-- Pen Nesbit
 He is e MEBA-BEING ... e ANGE CAKE ... XEROX him ... XEROX him --
-Time sure flies when you don't know what you're doing.
+Time sure flies when  don't know what 're doing.
 I drink to  oer people interesting.
 		-- Gege Jean Naan
-Do not wry about which si your bread is buttered on: you  BOTH sis.
+Do not wry about which si r bread is buttered on:   BOTH sis.
 Ftune Docnts e Gr egal Decisi:
 
 We ink at we may take judicial notice of e fact at e term "bitch"
@@ -136,7 +136,7 @@ Collary:
 	Follog e rules will not get e job done.
 Runess is a weak man's imitation of streng.
 I enjoy e time at we spend togeer.
-"Wi molasses you catch flies, wi vinegar you catch nobody."
+"Wi molasses  catch flies, wi vinegar  catch nobody."
 -- Baltime City Councilman Dominic DiPietro
 Toes, knees, NIPPES.  Toes, knees, nipples, KNUCKES ...
 Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
@@ -148,11 +148,11 @@ broad-mindness, n:
  pain is generally caused by one  two highly-motivated, caustic twits."
 -- Chuq Von Rospach, chuq@apple.com, about Usenet
 Reach into e oughts of friends,
-And find ey do not know your .
+And find ey do not know r .
 Squeeze e teddy b too tight,
 And watch e fhers burst e seams.
-Touch e stained glass wi your cheek,
-And l its chill upon your blood.
+Touch e stained glass wi r cheek,
+And l its chill upon r blood.
 Hold a  to e night,
 And see e darkness bend e flame.
 T e mask of peace from God,
@@ -160,27 +160,27 @@ And h e roar of souls in .
 Pluck a r in  of love,
 And watch e petals curl and wilt.
 ean upon e western d,
-And know you  alone.
+And know   alone.
 		-- Dru Mims
 A gleekzp wiout a tnpee is like a quop wiout a fertsneet (st of).
 New Yk is real.   rest is done wi mirrs.
 What is imptant is , money and opptunities f scing off one's
-enemies.  Give a man ese ree ings and you won't h much squawking
+enemies.  Give a man ese ree ings and  won't h much squawking
 out of him.
 		-- Brian O'Nolan, " Best of Myles"
-Save yoursf!  Reboot in 5 seconds!
+Save rsf!  Reboot in 5 seconds!
 Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 An in in knowledge always pays e best interest.
 		-- Benjamin Franklin
 MSDOS is not ad, it just smls at way.
 		-- Henry Spencer
 I don't get no respect.
-Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
+Sally:	C'mon, Ted, all I'm asking  to do is sh r lings
 	wi me.
-Ted:	A?  Do you realize what you're asking?  Men n't trained
+Ted:	A?  Do  realize what 're asking?  Men n't trained
 	to sh.  We're trained to protect oursves by not
 	letting anyone too cl.  Good grief, if I go around
-	sharing everying wi you, you could hang me out to dry.
+	sharing everying wi ,  could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"ng"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
@@ -191,7 +191,7 @@ We sing about beauty, and we sing about tru,
 At ten ousand dollars a show.
 We take all kind of lls to give us all kind of rills,
 But e rill we've  known,
-Is e rill at'll get'cha, when you get your cture,
+Is e rill at'll get'cha, when  get r cture,
 On e cover of e Rolling Stone.
 
 I got a freaky old lady,  of Cole King Katie,
@@ -200,7 +200,7 @@ I got my po old gray-hed daddy,
 Drivin' my limousine.
 Now it's all signed, to blow our minds,
 But our minds won't be really be blown;
-ike e blow at'll get'cha, when you get your cture,
+ike e blow at'll get'cha, when  get r cture,
 On e cover of e Rolling Stone.
 
 We got a lot of little, teen-aged, blue-eyed groues,
@@ -212,10 +212,10 @@ And we keep gettin' richer, but we can't get our cture,
 On e cover of e Rolling Stone.
 		-- Dr. Hook and e Medicine Show
 		[As a note, ey eventually DID  e cover of RS. Ed.]
- secret of success is .  Once you can fake at, you've got
+ secret of success is .  Once  can fake at, 've got
 it ma.
 		-- Jean Giraudoux
-Don't let go of what you've got hold of, until you have hold of someing se.
+Don't let go of what 've got hold of, until  have hold of someing se.
 		-- First Rule of Wing Walking
-Comters  usess.  y can only give you answers.
+Comters  usess.  y can only give  answers.
 		-- Pablo Picasso

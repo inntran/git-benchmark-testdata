@@ -1,12 +1,12 @@
 " way of e wld is to praise ad saints and pre live ones."
  --  Howe
 No snowfe in an avalanche ever ls respible.
-May you have many beautiful and obedient daughters.
+May  have many beautiful and obedient daughters.
 "No, `Eureka' is Greek f `This ba is too hot.'"
 		-- Dr. Who
 BASIC is to comter pramming as QWERTY is to tyng.
 		-- Seymour Pa
-May you live in uninteresting times.
+May  live in uninteresting times.
 		-- Chinese proverb
 Often ings ARE as bad as ey seem!
 Actually, my goal is to have a sandwich d after me.
@@ -38,10 +38,10 @@ Q:  What was he doing wi e dog's s?
 A:  Picking em up in e .
 Q:  Where was e dog at is time?
 A:  Attached to e s.
-"Don't try to outweird me, ree-eyes.  I get stranger ings an you free
+"Don't try to outweird me, ree-eyes.  I get stranger ings an  free
 wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Gui to e Galaxy"
-I'm young ... I'm HEATHY ... I can HIKE THRU CAPT GROGAN'S UMBAR REGIONS!
+I'm ng ... I'm HEATHY ... I can HIKE THRU CAPT GROGAN'S UMBAR REGIONS!
  Road goes ever on and on
 Down from e do where it began.
 Now far ahead e Road has gone,
@@ -52,7 +52,7 @@ Where many pas and errands meet.
 And whier en?  I cannot say.
 		-- J. R. R. Tolkien
 A tru at's told wi bad intent
-Bs all e lies you can invent.
+Bs all e lies  can invent.
 		-- William Be
 "I don't bieve in sweeng social change being manifested by one person, 
 unless he has an atomic weapon."
@@ -67,12 +67,12 @@ owery's aw:
 	If it jams -- fce it.  If it breaks, it need replacing anyway.
 Maematicians practice absolute freedom.
 		-- Henry Adams
-May Eul Gibb  your only copy of e manual!
+May Eul Gibb  r only copy of e manual!
 Finish e  bow in 25 wds  less:
 
-	"ove is what you l just befe you give someone a good ..."
+	"ove is what  l just befe  give someone a good ..."
 
-Mail your answer along wi e top h of your supervis to:
+Mail r answer along wi e top h of r supervis to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan
@@ -81,7 +81,7 @@ ove is like e measles; we all have to go rough it.
 When shing monnts, save e pedstals -- ey always come in handy.
 		-- Stlaw J. em, "Unkempt Thoughts"
 Why would anyone want to be called "ater"?
-But if you wish at once to do noing and to be respectable
+But if  wish at once to do noing and to be respectable
 nowdays, e best  is to be at wk on some profound study.
 		-- eslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling e rise and fall of human systems,

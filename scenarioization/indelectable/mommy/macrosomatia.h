@@ -1,14 +1,14 @@
 "Everything should be made as simple as possible, but not simpler."
 -- Albert Einstein
 ignorance, n.:
-	When you don't know anything, and someone else finds out.
-You men out there probably think you already know how to dress for success.
-You know, for example, that you should not wear leisure suits or white
-plastic belts and shoes, unless you are going to a costume party disguised
+	When  don't know anything, and someone else finds out.
+You men out there probably think  already know how to dress for success.
+You know, for example, that  should not wear leisure suits or white
+plastic belts and shoes, unless  are going to a costume party disguised
 as a pig farmer vacationing at Disney World.
 		-- Dave Barry, "How to Dress for Real Success"
 pain, n.:
-	One thing, at least it proves that you're alive!
+	One thing, at least it proves that 're alive!
 TRANSACTION CANCELLED - FARECARD RETURNED
 Your lucky number has been disconnected.
 We should be careful to get out of an experience only the wisdom that is
@@ -27,7 +27,7 @@ Therefore, each factory  keyboards, no matter how few, manufactures
 them completely, even molding the keypads.
 		-- Isaac Auerbach, IEEE "Comter", Nov. 1979
 Hildebrant's Principle:
-	If you don't know where you are going, any road will get you there.
+	If  don't know where  are going, any road will get  there.
 Fortune Documents the Great Legal Decisions:
 
 We think that we may take judicial notice of the fact that the term "bitch"
@@ -39,8 +39,8 @@ it carries every reasonable implication of ill-will toward that person.
 		-- Smith v. Moran, 193 N.E. 2d 466.
 "The whole world is about three drinks behind."
 		-- Humphrey Bogart
-If all men were brothers, would you let one marry your sister?
-Kiss your keyboard goodbye!
+If all men were brothers, would  let one marry r sister?
+Kiss r keyboard goodbye!
 If an experiment works, something has gone wrong.
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfield.
@@ -60,13 +60,13 @@ Health is merely the slowest possible rate at which one can die.
 Mistrust first imlses; they are always right.
 It is often easier to ask for forgiveness than to ask for permission.
 		-- Grace Murray Hopper
-If you took all of the grains of sand in the world, and lined
-them up end to end in a row, you'd be working for the government!
+If  took all of the grains of sand in the world, and lined
+them up end to end in a row, 'd be working for the government!
 		-- Mr. Interesting
 Life is like a bowl of soup with hairs floating on it.  You have to
 eat it nevertheless.
 		-- Flaubert
-If you would know the value of money, go try to borrow some.
+If  would know the value of money, go try to borrow some.
 		-- Ben Franklin
 Non-Determinism is not meant to be reasonable.
 		-- M.J. 0'Donnell
@@ -86,4 +86,4 @@ The surest sign that a man is in love is when he divorces his wife.
 -- button at a Science Fiction convention.
 The Public is merely a multip "me."
 		-- Mark Twain
-If you had any brains, you'd be dangerous.
+If  had any brains, 'd be dangerous.

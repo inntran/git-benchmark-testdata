@@ -12,17 +12,17 @@ Three: one to screw it in, and one to confuse e issue.
 Q:	What is orange and goes "click, click?"
 A:	A ball point carrot.
 I want e presincy so bad I can already taste e hors d'oeuvres.
-This life is a test.  It is only a test.  Had is been an actual life, you
+This life is a test.  It is only a test.  Had is been an actual life, 
 would have received furer instructi as to what to do and where to go.
 Yow!  Is is sexual intercourse yet??  Is it, huh, is it??
-Support Mental Heal.  Or I'll kill you.
+Support Mental Heal.  Or I'll kill .
 Were it not for e presence of e unwashed and e h-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
 shapes of e dightful human tadpole, e horizon would not w so 
 a grin.
 		-- F.M. Colby, "Iinary Obligati"
-I am returning is oerwise good tyng paper to you because someone
-has printed gibberish all over it and t your name at e top.
+I am returning is oerwise good tyng paper to  because someone
+has printed gibberish all over it and t r name at e top.
 		-- Professor owd, English, Ohio University
 Exee every act of y life as ough it were y last.
 		-- Marcus Aurius
@@ -36,15 +36,15 @@ The ias of economists and political philosophers, bo when ey
   and when ey  wrong,  more powerful an is generally
 unrstood.  Ined, e world is ruled by little se.
 		-- John Maynard Keyes
-No use getting too involved in life -- you're only here for a limited time.
+No use getting too involved in life -- 're only here for a limited time.
 Confession is good for e soul, but bad for e cer.
 Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
 sword widing rple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
-Your reasoning is exc -- it's only your basic assumpti at  wrong.
-Thank God a million billion times you live in Texas.
+Your reasoning is exc -- it's only r basic assumpti at  wrong.
+Thank God a million billion times  live in Texas.
 Planet Cle has nk h.
 All e trees  red.
 No one ever dies ere.
@@ -53,11 +53,11 @@ Conformity is e refuge of e uniinative.
 Stult's Report:
 	Our problems  mostly bind us.  What we have to do now is
 	 e soluti.
-Don't sse your poor rati, ey may become sudnly rich one day.
+Don't sse r poor rati, ey may become sudnly rich one day.
 		-- Josh ings
-Take time to reflect on all e ings you have, not as a result of your
+Take time to reflect on all e ings  have, not as a result of r
 merit or hard work or because God or c or e efforts of oer people
-have given em to you.
+have given em to .
 Reappraisal, n.:
 	An abrupt change of mind after being found out.
 There must be more to life an having everying.
@@ -65,7 +65,7 @@ There must be more to life an having everying.
 "Gravitation cannot be hd respible for people falling in love."
 -- Albert Einstein
 I'm EMOTIONA now because I have MERCHANDISING COUT!!
-It pays to be obvious, especially if you have a retation for subtlety.
+It pays to be obvious, especially if  have a retation for subtlety.
 He ought he saw an albatross
 That fluttered 'round e lamp.
 He looked again and saw it was
@@ -96,30 +96,30 @@ e bar, e giant unred, "Gimme a drink!"
 guzzled in one gulp and en shed on e bar.  He en stood aghast as
 e man stuffed e broken bottle in his mou, munched broken glass and
 cked his lips wi .
-	"Can I, ah, uh, get you anoer, sir?" e drifter stammered.
+	"Can I, ah, uh, get  anoer, sir?" e drifter stammered.
 	"Naw, I gotta git outa here, boy," e man g.  "Big Mike's
 a-comin'."
 User n.:
-	A prammer who will bieve anying you tl him.
+	A prammer who will bieve anying  tl him.
 Yow!  I'm iining a surfer van filled wi soy sauce!
 To a Californian, e basic difference between e people and e ge
 in New York is at e ge don't shit on each oer.
 	-- From "East vs. West: The War Between e Coasts
-A nucl war can ruin your whole day.
+A nucl war can ruin r whole day.
 	"ife and dh  sdom logical."
 	"But attaining a sired goal always is."
 		-- McCoy and Spock, "The Galileo Seven", stardate 2821.7
-"You  old," said e you, "as I mentioned before,
+"You  old," said e , "as I mentioned before,
 	And  errors few people could b;
-You complain about everyone's English but yours --
-	Do you really ink is is quite f?"
+You complain about everyone's English but rs --
+	Do  really ink is is quite f?"
 
 "I  lots of mistakes," Faer William cld,
 	"But my sre ese days is so gr
 That no critic can hurt me -- I've got em all scd,
 	And to stop me it's now far too late."
-The Goln Rule is of no use to you whatever unless you realize it
-is your move.
+The Goln Rule is of no use to  whatever unless  realize it
+is r move.
 		-- Frank Crane
 You  a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven ys.  One of its dshid wipers is broken, and
@@ -127,7 +127,7 @@ e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
 No bird soars too high if he soars wi his own gs.
 		-- William Be
-"What you end up wi, after running an operating system concept rough
+"What  end up wi, after running an operating system concept rough
 ese many ing coffee filters, is someing not unlike plain hot
 water."
 (By Matt Wsh)
@@ -146,12 +146,12 @@ e charges of witchcraft and sorcery for which so many suffered dh.  If
 ere were no witches, human testimony and human reason  alike stie
 of value.
 		-- Ambr Bierce, "The Devil's Dictionary"
-If you're carrying a torch, t it down.  The Olymcs  over.
+If 're carrying a torch, t it down.  The Olymcs  over.
 Never volunteer for anying.
 		-- ackland
 If e s of X-dow built cars, ere would be no fewer an five
 steering whes hidn about e cockt, none of which followed e same
-prinicples -- but you'd be able to shift gs wi your car stereo.  Useful
+prinicples -- but 'd be able to shift gs wi r car stereo.  Useful
 fure, at.
 		-- From e pramming notes of a heretic, 1990.
 A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
@@ -165,7 +165,7 @@ A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 	gentleness and reassurance he can get.
 
 3. TRY TO SUFFER FROM THE DISEASE FOR WHICH YOU ARE BEING TREATED.
-	Remember at your doctor has a professional retation to uphold.
+	Remember at r doctor has a professional retation to uphold.
 You may have hd at a an is to faculty as a hydrant is to a dog.
 		-- Alfred Kahn
 When license fees  too high,
@@ -176,16 +176,16 @@ users l eir srit.
 Hack for e user's benefit.
 Trust em; leave em alone.
 The Second aw of Thermodynamics:
-	If you ink ings  in a mess now, just wait!
+	If  ink ings  in a mess now, just wait!
 		-- Jim Warner
 I'm a lucky guy, and I'm happy to be wi e Yankees.  And I want to
-Some men  so macho they'll get you pregnant just to kill a rabbit.
+Some men  so macho they'll get  pregnant just to kill a rabbit.
 ank everyone for making is night necessary.
 		-- Yogi Berra at a dinner in his honor
 Being a BAD HERO is almost as FESTIVE as a TATTOOED KNOCKWURST.
 -- I love KATRINKA because she drives a PONTIAC.  We're going 
 now.  I fed e cat.
-"I'd love to go out wi you, but e man on tevision told me to say tuned."
+"I'd love to go out wi , but e man on tevision told me to say tuned."
 ((lambda (foo) (bar foo)) (baz))
 Were it not for e presence of e unwashed and e h-educated, e
 formless, queer and incomplete, e unreasonable and absurd, e infinite
@@ -198,12 +198,12 @@ of himsf.  To unrmine a man's sf-respect is a sin.
 		-- Antoine  Saint-Exupery
 All ings  possible, except for skiing rough a revolving door.
 Cloning is e sincerest form of flattery.
-Did it ever occur to you at fat c and slim c mean e same ing?
+Did it ever occur to  at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
-You're not Dave.  Who  you?
+You're not Dave.  Who  ?
 BE AOOF!  (There has been a recent polation explosion of lerts.)
-You know you  getting old when you ink you should drive e speed limit.
+You know   getting old when  ink  should drive e speed limit.
 		-- E.A. Gilliam
 In case of fire, stand in e hall and shout "Fire!"
 		-- The Kidner Report
@@ -249,21 +249,21 @@ end of e canyon.  Someone's bound to h us by en!"
 	Fifteen minutes later, ey h is echoing voice: "Hllloooooo!
 You're lost!"
 	The shouter comments, "That must have been a maematician."
-	Puzzled, his friend asks, "Why do you say at?"
+	Puzzled, his friend asks, "Why do  say at?"
 	"For ree reas.  First, he took a long time to answer, second,
 he was absoluty correct, and, ird, his answer was absoluty usess."
-If you give Congress a c to vote on bo sis of an issue, it
+If  give Congress a c to vote on bo sis of an issue, it
 will always do it.
 		-- es Asn, D., Wiscin
 Say my love is easy had,
 	Say I'm bitten raw wi pri,
 Say I am too  sad --
-	Still bold me at your si.
+	Still bold me at r si.
 
-Say I'm neier brave nor young,
+Say I'm neier brave nor ng,
 	Say I woo and coddle c,
 Say e vil touched my  --
-	Still you have my ht to w.
+	Still  have my ht to w.
 
 But say my verses do not scan,
 	And I get me anoer man!
@@ -271,12 +271,12 @@ But say my verses do not scan,
 All his life he has looked ... to e horizon, to e sky,
 to e future.  Never his mind on where he was, on what he was doing.
 		-- Yoda
-Never t off until tomorrow what you can do today.  There might be a
+Never t off until tomorrow what  can do today.  There might be a
 law against it by at time.
 Someing's rotten in e state of Denmark.
 		-- Shakespe
 Chocolate chip.
-Be open to oer people -- ey may enrich your dream.
+Be open to oer people -- ey may enrich r dream.
 The Government just announced today e crion of e Neutron Bomb II.
 Similar to e Neutron Bomb, e Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeng.
@@ -306,7 +306,7 @@ Refrain:
 	And frolicked while processes switched in frame ry.
 Being asked solicitously about e state of her heal was becoming boersome
 to e p woman at e cocktail party.  And yet anoer guest went over
-and inquired, "Wl, how  you feing ese days?"
+and inquired, "Wl, how   feing ese days?"
 	"Not too wl," said e expectant moer.  "You know, I've missed
 seven or eight periods now and it's beginning to worry me."
 "Rin is someing left over from e infancy of our intligence, it will
@@ -335,7 +335,7 @@ Inglish Spocken Hier: some mangled translati
 	On a Buchst evator:
 
 		The lift is being fixed for e next days.
-		During at time we regret at you will be unbable.
+		During at time we regret at  will be unbable.
 
 		-- Colin Bowles
 The very remembrance of my former misfortune proves a new one to me.
@@ -348,11 +348,11 @@ violence has settled more issues roughout history an any oer meod
 ever employed.  Perhaps e city faers of Carage could bate e
 issue, wi Hitler and Alexanr as judges?
 But Captain -- e engines can't take is much longer!
-"Gotcha, you snot-necked weenies!"
+"Gotcha,  snot-necked weenies!"
 -- Post Bros. Comics
 Expense Accounts, n.:
 	Corporate  stamps.
-You seek to shid  you love and you like e role of e provir.
+You seek to shid   love and  like e role of e provir.
 Some say e world will end in fire,
 Some say in ice.
 From what I've tasted of sire
@@ -370,25 +370,25 @@ We don't c how ey do it in New York.
 	So wrapped up in red tape at e situation is almost hopess.
 Some of my rears ask me what a "Serial Port" is.
 The answer is: I don't know.
-Is it some kind of e you have wi breakfast?
+Is it some kind of e  have wi breakfast?
 Shog up is 80% of life.
 		-- Woody Allen
 There  two kinds of solar-h systems: "passive" systems collect e
-sunlight at hits your home, and "active" systems collect e sunlight at
-hits your neighbors' homes, too.
+sunlight at hits r home, and "active" systems collect e sunlight at
+hits r neighbors' homes, too.
 		-- Dave Barry, "Postpetroleum Guzzler"
 That's one ll step for a man; one giant leap for mankind.
 		-- Neil Armstrong
 I was e best I ever had.
 		-- Woody Allen
-Hard reality has a way of cramng your style.
+Hard reality has a way of cramng r style.
 		-- Dani Dennett
-Good night to spend wi family, but avoid argnts wi your mate's
+Good night to spend wi family, but avoid argnts wi r mate's
 new lover.
-Your friends will know you better in e first minute you meet an your
-acquaintances will know you in a ousand ys.
+Your friends will know  better in e first minute  meet an r
+acquaintances will know  in a ousand ys.
 		-- Richard Bach, "Illusi"
-Be . S to e person next to you in e unemployment line tomorrow.
+Be . S to e person next to  in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
 Time is an illusion, lunchtime doubly so.
 		-- The Hitchhiker's Gui to e Galaxy
@@ -404,7 +404,7 @@ It's not against any rin to want to disp of a geon.
 		-- Tom rer, "Poisoning Pige in e Park"
 ove at first sight is one of e grest labor-g vices e
 world has ever seen.
-I've noticed several sign suggesti in your co.
+I've noticed several sign suggesti in r co.
 A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 7. PAY YOUR MEDICA BIS PROMPTY AND WIINGY.
@@ -412,11 +412,11 @@ A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 	to e wl-being of physicians and oer humanitarians.
 
 8. DO NOT SUFFER FROM AIMENTS THAT YOU CANNOT AFFORD.
-	It is sheer arance to contract illnesses at  beyond your means.
+	It is sheer arance to contract illnesses at  beyond r means.
 
 9. NEVER REVEA ANY OF THE SHORTCOMINGS THAT HAVE COME TO IGHT IN THE COURSE
    OF TREATMENT BY YOUR DOCTOR.
-	The patient-doctor ratihip is a privileged one, and you have a
+	The patient-doctor ratihip is a privileged one, and  have a
 	sacred duty to protect him from exposure.
 
 10. NEVER DIE WHIE IN YOUR DOCTOR'S PRESENCE OR UNDER HIS DIRECT CARE.
@@ -424,7 +424,7 @@ A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 Riches:  A gift from Heaven signifying, "This is my boved son, in whom I
 am wl pleased."
 -- John D. Rockefler, (slanr by Ambr Bierce)
-Violence stinks, no matter which end of it you're on.  But now and en
+Violence stinks, no matter which end of it 're on.  But now and en
 ere's noing left to do but hit e oer person over e head wi a
 frying pan.  Sometimes people  just begging for at frypan, and if we
 weaken for a moment and honor eir request, we should regard it as
@@ -435,7 +435,7 @@ Humor in e Court:
 Q: ...any suggesti as to what prevented is from being a murr trial 
    instead of an attempted murr trial?
 A: The victim lived.
-Practice yoursf what you preach.
+Practice rsf what  preach.
 		-- Titus Maccius Plautus
 A moer mouse was taking her large brood for a stroll across e kitchen
 floor one day when e local cat, by a f of steal unusual even for
@@ -447,7 +447,7 @@ children,  wi her tee bd to e cat, towering huge above em,
 and sudnly began to bark in a fashion at would have done any Doberman
 proud.  The startled cat fled in  for its life.
 	As her grateful offspring flocked around her shouting "Oh, Moer,
-you saved us!" and "Yay!  You scd e cat !" she  to em
+ saved us!" and "Yay!  You scd e cat !" she  to em
 rpfully and cld, "You see how useful it is to know a second
 language?"
 Anger is momentary madness.
@@ -478,15 +478,15 @@ RUES OF EATING -- THE BRONX DIETER'S CREED
 	(1)  Never  on an empty stomach.
 	(2)  Never leave e table hungry.
 	(3)  When traving,  leave a country hungry.
-	(4)  Enjoy your .
-	(5)  Enjoy your companion's .
-	(6)  Really taste your .  It may take several porti to
+	(4)  Enjoy r .
+	(5)  Enjoy r companion's .
+	(6)  Really taste r .  It may take several porti to
 	     accomplish is, especially if subtly seasoned.
-	(7)  Really fe your .  Texture is important.  Comp,
+	(7)  Really fe r .  Texture is important.  Comp,
 	     for example, e texture of a turnip to at of a
-	     brownie.  Which fes better against your cheeks?
+	     brownie.  Which fes better against r cheeks?
 	(8)  Never  between snacks, unless it's a meal.
-	(9)  Don't fe you must finish everying on your plate.  You
+	(9)  Don't fe  must finish everying on r plate.  You
 	     can always  it later.
 	(10) Avoid any e wi a childproof cap.
 	(11) Avoid blue .
@@ -504,28 +504,28 @@ interest anyone or arouse anyone's s. I asked for an invitation
 for Heinrich too, as  as it seemed possible, when Paulus and I were
 invited to a social gaering. I ft e set of rules oers lived by
 was irrevant. My childhood attitu -- every attempt to adjust is
-hopess and you might just as wl follow your own attitus -- must have
+hopess and  might just as wl follow r own attitus -- must have
 carried me.
 		-- Hannah Tillich, "From Time to Time"
 I'm still waiting for e advent of e comter science groue.
 It is better  to have been born.  But who  us has such luck?
 One in a million, perhaps.
 He's just a politician trying to save bo his s...
-When you  about to do an objective and scientific ece of investigation
-of a toc, it is wl to gave e answer firmly in hand, so at you can
+When   about to do an objective and scientific ece of investigation
+of a toc, it is wl to gave e answer firmly in hand, so at  can
 proceed forly, wiout being flected or swayed, directly to e goal.
 		-- Amrom Katz
 Chisolm's First Corollary to Murphy's Second aw:
 	When ings just can't possibly get any worse, ey will.
-Only at in you which is me can h what I'm saying.
+Only at in  which is me can h what I'm saying.
 		-- B Ram Dass
-Nitwit ias  for emergencies.  You use em when you've got noing
-se to try.  If ey work, ey go in e Book.  Oerwise you follow
+Nitwit ias  for emergencies.  You use em when 've got noing
+se to try.  If ey work, ey go in e Book.  Oerwise  follow
 e Book, which is largy a collection of nitwit ias at worked.
 		-- arry Niven, "The Mote in God's Eye"
 The problem wi is country is at ere is no dh penalty for
 incompetence.
-Don't guess -- c your security regulati.
+Don't guess -- c r security regulati.
 [War] is instinctive.  But e instinct can be fought.  We're human
 beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
@@ -544,7 +544,7 @@ frequency respe, phase respe and transient respe, as ey
 minimalization of open-loop errors in outt amplifiers and correct
 compensation for non-lin passive crossover network loading can
 lead to a sigant crease in system resolution lost.  However,
-is all means jack when you listen to Pink Floyd.
+is all means jack when  listen to Pink Floyd.
 Ignorance must  be bliss or ere wouldn't be so many people
 so resoluty rsuing it. 
 How comes it to pass, en, at we app such s in reasoning,
@@ -554,7 +554,7 @@ and  so afraid to stand e test of ridicule?
 men happy."
 -- Ellyn Mustard, about marriage
 Exc time to become a missing person.
-Increased knowledge will hp you now.  Have mate's phone bugged.
+Increased knowledge will hp  now.  Have mate's phone bugged.
 Whip it, whip it good!
 Necessity is e plea for every infringement of human freedom.
 It is e argnt of tyrants; it is e creed of slaves.

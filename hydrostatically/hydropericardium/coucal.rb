@@ -1,8 +1,8 @@
 The distinction between true and false apps to become increasingly
 blurred by... the pollution of the language.
 		-- Arne Tiselius
-If you look like your driver's license photo -- see a doctor.
-If you look like your passport photo -- it's too late for a doctor.
+If  look like r driver's license photo -- see a doctor.
+If  look like r passport photo -- it's too late for a doctor.
 	Something mysterious is formed, born in the silent void.  Waiting
 alone and unmoving, it is at once still and yet in ctant motion.  It is
 the source of all programs.  I do not know its name, so I will call it the
@@ -24,15 +24,15 @@ i borogovi eran ti mimanti
 fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
-You  always doing something marginal when the boss drops by your sk.
+You  always doing something marginal when the boss drops by r sk.
 To be is to program.
-The full impact of pnthood doesn't hit you until you multiply the
-number of your kids by thirty-two teeth.
+The full impact of pnthood doesn't hit  until  multiply the
+number of r kids by thirty-two teeth.
 For th who like this sort of thing, this is the sort of thing they like.
 		-- Abraham incoln
 Thou hast seen nothing yet.
 		-- Miguel  Cervantes
-Do not seek ath; ath will find you.  But seek the road which s ath
+Do not seek ath; ath will find .  But seek the road which s ath
 a fulfillment.
 		-- Dag Hammarskjold
 And furthermore, my bowling average is unimpeachable!!!
@@ -41,16 +41,16 @@ Hickory Dickory Dock,
 The mice ran up the clock,
 The clock struck one,
 The others escaped with minor injuries.
-Some of you ... may have cid that, this y, you're going to celebrate
-it the old-fashioned way, with your family sitting around stringing
+Some of  ... may have cid that, this y, 're going to celebrate
+it the old-fashioned way, with r family sitting around stringing
 cranberries and exchanging humble, handma gifts, like on "The Walt".
-Well, you can forget it.  If everybody lled that kind of subversive stunt,
+Well,  can forget it.  If everybody lled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
 which would spend billi and billi of tax dollars to buy Barbie dolls
 and electronic games, which it would drop on the polace from Air Force
-jets, killing and maiming thousands.  So, for the good of the nation, you
-should go along with the Holiday Program.  This means you should get a large
+jets, killing and maiming thousands.  So, for the good of the nation, 
+should go along with the Holiday Program.  This means  should get a large
 sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Gui"
 ast week's pet, this week's special.
@@ -63,18 +63,18 @@ I refuse to have a battle of wits with an unarmed person.
 Proper treatment will cure a cold in seven days, but left to itself,
 a cold will hang on for a week.
 		-- Darrell Huff
-Always look over your shoulr because everyone is watching and plotting
-against you.
+Always look over r shoulr because everyone is watching and plotting
+against .
 Say no, then negotiate.
 		-- Helga
-Have you seen how Sonny's burning,
+Have  seen how Sonny's burning,
 ike some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
 		-- The Birthday y, "Sonny's Burning"
 All the world's a stage and most of us  sperately unrehsed.
 		-- Sean O'Casey
-Just weigh your own hurt against the hurt of all the others, and then
+Just weigh r own hurt against the hurt of all the others, and then
 do what's best.
 		-- overs and Other Strangers
 No problem is insoluble.

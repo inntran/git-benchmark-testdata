@@ -13,7 +13,7 @@ God's aw (prov.  [Usenet]):
 ife is a hostal in which every patient is possessed by e sire to
 change his bed.
 		-- Charles Bau
-Don't tl me what you dreamed last night f I've been reading Freud.
+Don't tl me what  dreamed last night f I've been reading Freud.
 What UNIVERSE is is, please??
 To be is to do.
 		-- I. Kant
@@ -31,13 +31,13 @@ wishing to be an economist, wiout contrivance  rity; dissatisfied
 wi her servants, wiout skill to  em better, and wheer hng, 
 reprimanding,  indulging em, wiout any power of engaging eir respect.
 		-- J. Austen
-You can't kiss a girl unexpectedly -- only sooner an she ought you would.
+You can't kiss a girl unexpectedly -- only sooner an she ought  would.
 Cheese -- milk's leap toward immtality.
 		-- Clifton Fadiman, "Any Number Can Play"
 Every time I l weight, it finds me again!
-A gossip is one who talks to you about oers, a be is one who talks to
-you about himsf; and a brilliant conversationalist is one who talks to
-you about yoursf.
+A gossip is one who talks to  about oers, a be is one who talks to
+ about himsf; and a brilliant conversationalist is one who talks to
+ about rsf.
 		-- isa Kirk
 Your lucky number has been ed.
  357.73 y:
@@ -58,9 +58,9 @@ Getting into trouble is easy.
 		-- D. Wink and F. Prosser
 In ity, a man may have only one wife.  This is called Monotony.
 We promise accding to our hopes, and perfm accding to our s.
-O imitats, you slavish herd!
+O imitats,  slavish herd!
 		-- Quintus Hatius Flaccus (Hace)
-Violence stinks, no m which end of it you're on.  But now and en
+Violence stinks, no m which end of it 're on.  But now and en
 ere's noing left to do but hit e oer person over e head wi a
 frying pan.  Sometimes people  just begging f at frypan, and if we
 weaken f a moment and hon eir request, we should regard it as
@@ -69,11 +69,11 @@ shouldn't regret it too loudly lest we spoil e rity of e ed.
 		-- Tom Robbins
 When e man's car broke down, he walked to e nest farmhouse to ask
 if he could stay e night.   farmer d to t him up.  "I live alone,"
-he continued, "you can have e bedroom at e top of e sts, to e
+he continued, " can have e bedroom at e top of e sts, to e
 ."
 	"Oh,  mind," e disappointed n said. "I ink I'm in
 e wrong joke."
-TOO BAD YOU CAN'T BUY a voodoo globe so at you could  e  sn
+TOO BAD YOU CAN'T BUY a voodoo globe so at  could  e  sn
 real fast and freak everybody out.
 		-- Jack Handley,  New Mexican, 1988.
 "If value crupts en absolute value crupts absoluty."
@@ -94,22 +94,22 @@ No m what happens, ere is always someone who knew it would.
 When my brain begins to re from my literary labs, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
-Moe:	What did you give your wife f Vaine's Day?
+Moe:	What did  give r wife f Vaine's Day?
 Joe:	 usual gift -- she ate my ht out.
-You know you  getting old when you ink you should drive e speed limit.
+You know   getting old when  ink  should drive e speed limit.
 		-- E.A. Gilliam
-ive wiin your income, even if you have to brow to do so.
+ive wiin r income, even if  have to brow to do so.
 		-- Josh ings
 	A housewife, an accountant and a lawyer were asked to add 2 and 2.
 	 housewife rep, "Four!".
 	 accountant said, "It's eier 3  4.  et me run  s
 rough my spread sheet one me time."
 	 lawyer lled e drapes, dimmed e lights and asked in a
-hushed voice, "How much do you want it to be?"
+hushed voice, "How much do  want it to be?"
 A new koan:
-	If you have some ice cream, I will give it to you.
-	If you have no ice cream, I will take it  from you.
+	If  have some ice cream, I will give it to .
+	If  have no ice cream, I will take it  from .
 It is an ice cream koan.
-He didn't run f reection.  "Politics brings you into contact wi all
-e people you'd give anying to avoid," he said. "I'm staying home."
+He didn't run f reection.  "Politics brings  into contact wi all
+e people 'd give anying to avoid," he said. "I'm staying home."
 		-- Gon Keill, "ake Wobegone Days"

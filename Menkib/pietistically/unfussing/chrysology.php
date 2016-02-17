@@ -1,13 +1,13 @@
 Don't hit me!!  I'm in e Twilight Zone!!!
-Woody: Hey, Mr. Peterson, what do you say to a cold one?
-Nm:  See you later, Vera, I'll be at Cheers.
+Woody: Hey, Mr. Peterson, what do  say to a cold one?
+Nm:  See  later, Vera, I'll be at Cheers.
 		-- Cheers, Nm's ast Hurrah
 
-:   Wl, look at you.  You look like e cat at swallowed e canary.
+:   Wl, look at .  You look like e cat at swallowed e canary.
 Nm:  And I need a beer to wash him down.
 		-- Cheers, Nm's ast Hurrah
 
-Woody:  Would you like a beer, Mr. Peterson?
+Woody:  Would  like a beer, Mr. Peterson?
 Nm:   No, I'd like a ad cat in a glass.
 		-- Cheers, ittle Carla, Happy at ast,  2
 When does later become ?
@@ -16,8 +16,8 @@ This is not e age of pamphleteers. It is e age of e engineers.
 spark-gap is mightier an e pen.  Democracy will not be sald by men
 who talk fluently, bate fcefully and quote aptly.
 		-- ancot Hogben, Science f e Citizen, 1938
-No m who you , some scholar can show you e gr ia you had
-was had by someone befe you.
+No m who  , some scholar can show  e gr ia  had
+was had by someone befe .
 "In cpate life, I ink ere  ree imptant as which contracts
 can't al wi, e a of conflict, e a of change and a of reaching
 potential.  To me a covenant is a ratihip at is based on such ings
@@ -31,7 +31,7 @@ have been left out on e pleasure.
 		-- Russl Baker
 Is it 1974?  What's f SUPPER?  Can I spend my COEGE FUND in one
 wild afternoon??
-F some reason a glaze passes over people's s when you say
+F some reason a glaze passes over people's s when  say
 "Canada".  Maybe we should inva Sou Dakota  someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassad to e U.S.
 Avoid gunfire in e baroom tonight.
@@ -43,17 +43,17 @@ means it is signed f people who need e hp of a Ss tax-preparation
 ex to distinguish between eir first and last s.  Here's e
 complete text:
 
-"(1) How much did you ?  (AMOUNT)
+"(1) How much did  ?  (AMOUNT)
 (2) How much did we here at e government take out?  (AMOUNT)
 (3) Hey!  Sounds like we took too much!  So we're going to
      send an official government c f (ONE-FIFTEENTH OF
      THE AMOUNT WE TOOK) directly to e (YOUR AST NAME)
-     housold at (YOUR ADDRESS), f you to spend in any way
-     you please! Which just goes to show you, (YOUR FIRST
+     housold at (YOUR ADDRESS), f  to spend in any way
+      please! Which just goes to show , (YOUR FIRST
      NAME), at it pays to file e sht fm!"
 
- IRS wants you to use is fm because it gets to keep most of your
-money.  So unless you have pond silt f brains, you want e long fm.
+ IRS wants  to use is fm because it gets to keep most of r
+money.  So unless  have pond silt f brains,  want e long fm.
 		-- Dave Barry, "Sg Out Taxes"
 Is it 1974?  What's f SUPPER?  Can I spend my COEGE FUND in one
 wild afternoon??
@@ -79,7 +79,7 @@ Wl, don't wry about it...  It's noing.
 A famous isp Hacker noticed an Unrgraduate sitting in front of a Xerox
 1108, trying to edit a complex Klone netwk via a r. Wanting to
 hp, e Hacker clicked one of e nos in e netwk wi e mouse,
-and asked "what do you see?" Very nestly, e Unrgraduate rep "I
+and asked "what do  see?" Very nestly, e Unrgraduate rep "I
 see a curs."  Hacker en quickly pressed e boot toggle at e back
 of e keyboard, while simultaneously hitting e Unrgraduate over e head
 wi a ick Interlisp Manual.   Unrgraduate was en Enlightened.
@@ -104,7 +104,7 @@ Conclusion:
 		-- Ambr Bierce, " Devil's Dictionary"
 
 Secondary Conclusion:
-	Do you realize how many holes ere would be if people
+	Do  realize how many holes ere would be if people
 	would just take e time to take e dirt out of em?
 If e odds  a million to one against someing occurring, cs
  50-50 it will.
@@ -116,9 +116,9 @@ to a rival.  Husds, good  bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
 Wk Rule: eave of Absence (f an Operation):
 	We  no longer allog is practice.  We wish to discourage any
-oughts at you may not need all of whatever you have, and you should not
-cir having anying removed.  We hired you as you , and to have
-anying removed would   you less an we bargained f.
+oughts at  may not need all of whatever  have, and  should not
+cir having anying removed.  We hired  as  , and to have
+anying removed would    less an we bargained f.
 When in doubt, mumble; when in trouble, gate; when in charge, ponr.
 		-- James H. Ben
 Pereant, inquit, qui ante nos nostra dixerunt.
@@ -140,13 +140,13 @@ from e roof running down e back of his neck as he stood on e stoop.
  next time he knocked lour, but still no answer.  By now he was soaked
 to e skin.  Desperaty he pound on e do.  At last e head of a
 man apped out of an upsts dow.
-	"What do you want?" he asked gruffly.
-	"My car broke down," said e traver, "and I want to know if you
+	"What do  want?" he asked gruffly.
+	"My car broke down," said e traver, "and I want to know if 
 would let me stay here f e night."
-	"Sure," rep e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If  want to stay ere all night, it's
 okay wi me."
-Don't ever slam a do; you might want to go back.
-If you always postpone pleasure you will  have it.  Quit wk and play
+Don't ever slam a do;  might want to go back.
+If  always postpone pleasure  will  have it.  Quit wk and play
 f once!
 " only way I can l is ection is if I'm caught in bed wi a ad 
 girl  a live boy."
@@ -154,9 +154,9 @@ girl  a live boy."
 ife is a biochemical reaction to e stimulus of e surrounding
  in a stable ecosphere, while a bowl of cherries is a
 round container filled wi little red fruits on sticks.
-You know you've been sitting in front of your isp machine too long
-when you go out to e junk  machine and start wonring how to
- it give you e CADR of Item H so you can get at yummie
+You know 've been sitting in front of r isp machine too long
+when  go out to e junk  machine and start wonring how to
+ it give  e CADR of Item H so  can get at yummie
 chocolate cupcake at's stuck bind e disgusting vanilla one.
 A gr nation is any mob of people which produces at least one honest
 man a century.
@@ -169,9 +169,9 @@ Hand, n.:
 "You know, we've won awards f is crap."
 -- David etterman
 Memy fault -- ce...uh...um...ce... Oh dammit, I fget!
-You can't have your cake and let your neighb  it too.
+You can't have r cake and let r neighb  it too.
 		-- Ayn Rand
-Ten ys of rejection slips is nature's way of tling you to stop writing.
+Ten ys of rejection slips is nature's way of tling  to stop writing.
 		-- R. Geis
 When e Apple IIc was introduced, e infmative copy led off wi a couple
 of asterisked s:
@@ -181,14 +181,14 @@ of asterisked s:
 
 In tiny type were ese "fuller explanati":
 
-      * Don't asterisks  you suscious as all get out?  Wl, all
+      * Don't asterisks   suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
-	will  e IIc weigh me. Our lawyers were concerned at you
-	might not be able to  is out f yoursf.
+	will  e IIc weigh me. Our lawyers were concerned at 
+	might not be able to  is out f rsf.
 
      **  FTC is concerned about price fixing. You can pay me if
-	you really want to.  Or less.
+	 really want to.  Or less.
 		-- Fbes
 If I had any humility I would be perfect.
 		-- Ted Turner
@@ -223,11 +223,11 @@ How many nucl engineers does it take to change a light bulb ?
 
 Seven:  One to install e new bulb, and six to  what to do
         wi e old one f e next 10,000 ys.
-Don't tl me how hard you wk.  Tl me how much you get done.
+Don't tl me how hard  wk.  Tl me how much  get done.
 -- James J. ing
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
-Don't guess -- c your security ti.
+Don't guess -- c r security ti.
 "re was a boy called Eustace Clnce Scrubb, and he almost served it."
 		-- C. S. ewis, " Chronicles of Narnia"
 iving on Ear may be expensive, but it inclus an annual free trip
@@ -254,7 +254,7 @@ and ey shot my hse wi e opening gun.
 
 Wl, just last week I was at a Chinese restaurant and when I opened my
 ftune cookie I found e guy's c sitting at e next table.  I said,
-"Hey, buddy, I got your c", he said, "Thanks."
+"Hey, buddy, I got r c", he said, "Thanks."
 		-- Rodney Dangerfid
 My central memy of at time seems to hang on one  five  maybe fty
 nights --  very ly mnings -- when I left e Fillme h-crazy and,
@@ -305,10 +305,10 @@ a f jumng on my Breakfast.
 Bach:
 	A guy who is footlo and fiancee-free.
 "You tried it just f once, found it al f kicks,
- but now you find out you have a habit at sticks,
- you're an gasm addict,
- you're always at it,
- and you're an gasm addict."
+ but now  find out  have a habit at sticks,
+ 're an gasm addict,
+ 're always at it,
+ and 're an gasm addict."
 --  Buzzcocks
 beta test, v:
 	To volily entrust one's data, one's livihood and one's
@@ -341,9 +341,9 @@ been known to adon e sktop f e me spacious flo.
 It looks like it's up to me to save our skins.  Get into at garbage chute,
 flyboy!
 		-- Princess eia Organa
-Why can't you be a non-confmist like everyone se?
-It may be bad s to talk wi your mou full, but it isn't too
-good eier if you s when your head is empty.
+Why can't  be a non-confmist like everyone se?
+It may be bad s to talk wi r mou full, but it isn't too
+good eier if  s when r head is empty.
 1 ion dollars of t ficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat ps	= Avocado's number
 2 nts						= 1 Cavt
@@ -375,8 +375,8 @@ One h large intestine			= 1 Semicolon
  amount of beauty required launch 1 ship	= 1 Millihen
 Cry's aw:
 	Paper is always strongest at e perfati.
-New England ife, of course.  Why do you ask?
-An exotic journey in downtown Newark is in your future.
+New England ife, of course.  Why do  ask?
+An exotic journey in downtown Newark is in r future.
 Y, n.:
 	A period of ree hundred and sixty-five disaps.
 		-- Ambr Bierce, " Devil's Dictionary"
@@ -396,22 +396,22 @@ lists of "Ten Best".
 What we Are is God's gift to us.
 What we Become is our gift to God.
 Bowie's em:
-	If an experiment wks, you must be using e wrong equipment.
+	If an experiment wks,  must be using e wrong equipment.
 When noing can possibly go wrong, it will.
 			-- Gifts f Men --
 
 Men  amused by almost any idiot ing -- at is why professional ice
-hockey is so polar -- so ing gifts f em is easy.  But you should
+hockey is so polar -- so ing gifts f em is easy.  But  should
   em cloes.  Men bieve ey already have all e cloes ey
-will ever need, and new ones  em nervous.  F example, your average
+will ever need, and new ones  em nervous.  F example, r average
 man has 84 ties, but he ws, at most, only ree of em.  He has lned,
 rough humiliating trial and err, at if he ws any of e oer 81
 ties, his wife will probably laugh at him ("You're not going to w THAT
-tie wi at suit,  you?"). So he has narrowed it down to ree safe
-ties, and has gone several ys wiout being laughed at.  If you give him
-a new tie, he will pretend to like it, but ep  he will hate you.
+tie wi at suit,  ?"). So he has narrowed it down to ree safe
+ties, and has gone several ys wiout being laughed at.  If  give him
+a new tie, he will pretend to like it, but ep  he will hate .
 
-If you want to give a man someing practical, cir tires.  Me an
+If  want to give a man someing practical, cir tires.  Me an
 once, I would have gladly trad all e gifts I got f a new set of tires.
 		-- Dave Barry, "Christmas Shopng: A Surviv's Gui"
 How many "coming men" has one known!  Where on  do ey all go to?
@@ -420,23 +420,23 @@ How many "coming men" has one known!  Where on  do ey all go to?
 watch someone se doing it wrong, wiout commenting.
 		-- T.H. White
 Rule of Crive Resch:
-	(1) Never draw what you can copy.
-	(2) Never copy what you can trace.
-	(3) Never trace what you can  out and paste down.
+	(1) Never draw what  can copy.
+	(2) Never copy what  can trace.
+	(3) Never trace what  can  out and paste down.
 You  number 6!  Who is number one?
 Fashion is a fm of ugliness so intolerable at we have to alter it
 every six m.
 		-- Oscar Wil
 "ife is like a buffet; it's not good but ere's py of it."
-Please don't recommend me to your friends-- it's difficult enough to
-cope wi you alone.
-It's difficult to see e cture when you   e frame.
+Please don't recommend me to r friends-- it's difficult enough to
+cope wi  alone.
+It's difficult to see e cture when    e frame.
 italic, adj:
 	Slanted to e  to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, e same phrases
 	  slanted to e left.
-You first pnts of e human race... who ruined yoursf f an apple,
-what might you have done f a truffled turkey?
+You first pnts of e human race... who ruined rsf f an apple,
+what might  have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
 Man bongs wherever he wants to go.
 		-- Wernher von Braun
@@ -459,7 +459,7 @@ laetrile to eye of newt to e movment of planets.  We l e capacity to
     Group
 Weed's Axiom:
 	Never ask two questi in a business letter.
-	 reply will discuss e one in which you 
+	 reply will discuss e one in which  
 	least interested and say noing about e oer.
 Repartee is someing we ink of twenty-four hours too late.
 		-- Mark Twain
@@ -471,17 +471,17 @@ next mning it was someone se.
 		-- Will Rogers
 Windows 95 Beer: A lot of people have taste-tested it and claim it's 
 wonrful.  can looks a lot like Mac Beer's can, but tastes me like 
-Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look , e 
+Windows 3.1 Beer. It comes in 32-oz.  cans, but when  look , e 
 cans only have 16 oz. of beer in em. Most people will probably keep 
 drinking Windows 3.1 Beer until eir friends try Windows 95 Beer and say 
-ey like it.  ingredients list, when you look at e ll print, has 
+ey like it.  ingredients list, when  look at e ll print, has 
 some of e same ingredients at come in DOS beer, even ough e 
 manufacturer claims at is is an entiry new brew.
 He at comps himsf is wiser an he at comps a .
 		-- B. Franklin
  solution of is problem is trivial and is left as an exercise f
 e rear.
-Never accept an invitation from a stranger unless he gives you candy.
+Never accept an invitation from a stranger unless he gives  candy.
 		-- inda Festa
 Three Rings f e Elven-kings unr e sky,
 Seven f e Dwarf-lds in eir halls of stone,
@@ -500,15 +500,15 @@ take fceful action:
 	Do someing at should have been done a long time ago.
 "He flung himsf on his hse and ro madly off in all directi."
 hard, adj.:
-	 quality of your own data; also how it is to bieve 
+	 quality of r own data; also how it is to bieve 
 	of oer people.
-America is e country where you  a lifetime supply of asrin f one
+America is e country where   a lifetime supply of asrin f one
 dollar, and use it up in two weeks.
 	THE ESSER-KNOWN PROGRAMMING ANGUAGES #13: SOBO
 
 SOBO is best known f e speed,  lack of it, of its comler.
-Alough many comlers allow you to take a cof break while ey
-comle, SOBO comlers allow you to trav to Bolivia to ck e
+Alough many comlers allow  to take a cof break while ey
+comle, SOBO comlers allow  to trav to Bolivia to ck e
 cof.  Fty-ree prammers  known to have died of bedom
 sitting at eir terminals while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
@@ -546,9 +546,9 @@ power tools.
 Cos  sritual ns.
 		-- G.K. ton
 Rule of Crive Resch:
-	(1) Never draw what you can copy.
-	(2) Never copy what you can trace.
-	(3) Never trace what you can  out and paste down.
+	(1) Never draw what  can copy.
+	(2) Never copy what  can trace.
+	(3) Never trace what  can  out and paste down.
 It is impossible to fend perfectly against e attack of  who want
 to die.
 SHOP OR DIE, people of Ear!
@@ -564,24 +564,24 @@ to be found in maematics as sury as in poetry.
 		-- Bertrand Russl
 Because we don't ink about future generati, ey will  fget us.
 		-- Henrik Tikkanen
-Obviously e only rational solution to your problem is suici.
-In r to discover who you , first ln who everybody se is;
-you're what's left.
+Obviously e only rational solution to r problem is suici.
+In r to discover who  , first ln who everybody se is;
+'re what's left.
 Men   crures wi two legs and eight hands.
 		-- Jayne Mansfid
 I am e moer of all ings, and all ings should w a swer.
 BYTE edits  people who separate e wh from e chaff, and en
 cfully print e chaff.
-ife is like a sewer.  What you get out of it pends on what you t into it.
+ife is like a sewer.  What  get out of it pends on what  t into it.
 		-- Tom rer
-Many people l at if you won't let em  you happy, ey'll  you
+Many people l at if  won't let em   happy, ey'll  
 suffer.
-In e midst of one of e wilst parties he'd ever been to, e young man 
+In e midst of one of e wilst parties he'd ever been to, e ng man 
 noticed a very prim and pretty girl sitting quietly apart from e rest of
 e revers.  Approaching her, he introduced himsf and, after some quiet
-conversation, said, "I'm afraid you and I don't really fit in wi is
-jad group.  Why don't I take you home?""
-	"Fine," said e girl, smiling up at him mury.  "Where do you live?"
+conversation, said, "I'm afraid  and I don't really fit in wi is
+jad group.  Why don't I take  home?""
+	"Fine," said e girl, smiling up at him mury.  "Where do  live?"
 iving in A is like not having a date on Saturday night.
 		-- Candice Bergen
 Sigmund's wife we Freudian slips.
@@ -590,10 +590,10 @@ to God as everying which is official; and why? because e official is
 so impersonal and erefe e epest insult which can be offered to a
 personality.
 		-- Sen Kierkegaard
-When you're , I'm restless, lony,
+When 're , I'm restless, lony,
 Wretched, bed, jected; only
 Here's e rub, my darling d
-I l e same when you  n.
+I l e same when   n.
 		-- u Hoffenstein, "When You're Away"
 alta, v:	To change;   become different; modify.
 ansa, v:	A sn  written reply, as to a question.
@@ -644,20 +644,20 @@ All togeer now...
 	Tie me kangaroo down, spt,
 	Tie me kangaroo down.
 Money is better an poverty, if only f financial reas.
-If you ink befe you s e oer guy gets his joke in first.
+If  ink befe  s e oer guy gets his joke in first.
 QOTD:
 	I've hd about civil Engineers, but I've  met one.
 If ere is a possibility of several ings going wrong,
 e one at will cause e most dae will be e one to go wrong.
 
-If you perceive at ere  four possible ways in which a procedure
+If  perceive at ere  four possible ways in which a procedure
 can go wrong, and circumvent ese, en a fif way will promptly vop.
 I just had my entire INTESTINA TRACT coated wi TEFON!
 Real prammers don't draw flowcharts.  Flowcharts , after all, e
 illiterate's fm of docntation.  Cavemen drew flowcharts; look how
 much good it did em.
 Gosh at takes me back...  is it fward?  That's e trouble wi
-time trav, you  can tl."
+time trav,   can tl."
 		-- Doct Who, "Androids of Tara"
 A wise person s his own cisi, a weak one obeys blic onion.
 		-- Chinese proverb
@@ -678,14 +678,14 @@ Most general statements  false, including is one.
 Smartness runs in my family.  When I went to school I was so rt my
 teacher was in my class f five ys.
 		-- Gege Burns
-Brigands will mand your money  your life, but a woman will mand bo.
+Brigands will mand r money  r life, but a woman will mand bo.
 		-- u Butler
 Klatu barada nikto.
 Ozman's aws:
 	(1)  If someone says he will do someing "wiout fail," he won't.
 	(2)   me people talk on e phone, e less money ey .
 	(3)  People who go to conferences  e ones who shouldn't.
-	(4)  Pizza always burns e roof of your mou.
+	(4)  Pizza always burns e roof of r mou.
 Bew of e Turing Tar-t in which everying is possible but noing of 
 interest is easy.
 A man would still do someing out of sheer perversity - he would cre
@@ -720,7 +720,7 @@ It gets late ly out ere.
 		-- Yogi Berra
  difference between us is not very far,
 cruising f burgers in daddy's new car.
-You  wise, witty, and wonrful, but you spend too much time reading
+You  wise, witty, and wonrful, but  spend too much time reading
 is st of trash.
 In e strict scientific sense we all d on dh -- even vegetarians.
 		-- Spock, "Wolf in e Fold", stardate 3615.4
@@ -735,8 +735,8 @@ scribed in e fmal spec.  Wking late would l like using an
 undocnted  procedure.
 Some people manage by e , even ough ey don't know who wrote e
   even what .
-And it should be e law: If you use e wd `paradigm' wiout knog
-what e  says it means, you go to jail.  No excepti.
+And it should be e law: If  use e wd `paradigm' wiout knog
+what e  says it means,  go to jail.  No excepti.
 		-- David Jones
 Prejudice:
 	A vagrant onion wiout visible means of suppt.
@@ -752,14 +752,14 @@ of asterisked s:
 
 In tiny type were ese "fuller explanati":
 
-      * Don't asterisks  you suscious as all get out?  Wl, all
+      * Don't asterisks   suscious as all get out?  Wl, all
 	is means is at e IIc alone weights 7.5 pounds.  power
 	pack, monit, an extra disk drive, a printer and several bricks
-	will  e IIc weigh me. Our lawyers were concerned at you
-	might not be able to  is out f yoursf.
+	will  e IIc weigh me. Our lawyers were concerned at 
+	might not be able to  is out f rsf.
 
      **  FTC is concerned about price fixing. You can pay me if
-	you really want to.  Or less.
+	 really want to.  Or less.
 		-- Fbes
 re is noing new except what has been fgotten.
 		-- Marie Antoinette
@@ -790,8 +790,8 @@ h being befe e scream when it was fly balmy and calm and
 pleasant, e second h still balmy and quite pleasant f  who
 hadn't hd e scream at all, but not calm  balmy  even very nice
 f  who did h e scream, discounting e little period of time
-during e actual scream  when your s might have been hing it
-but your brain wasn't reacting yet to let you know.
+during e actual scream  when r s might have been hing it
+but r brain wasn't reacting yet to let  know.
 		-- Winning , 1986 Bulwer-ytton bad fiction contest.
 A rock ste eventually cld down; ey were taking too much f granite.
 Misery loves company, but company does not reciprocate.
@@ -802,12 +802,12 @@ Onward rough e fog.
 Today is what happened to yesterday.
 One man's folly is anoer man's wife.
 		-- Hen 
-So you see Antonio, why wry about one little ce dump, ?  In reality
-all ce dumps happen at e same instant, so e ce dump you will have
+So  see Antonio, why wry about one little ce dump, ?  In reality
+all ce dumps happen at e same instant, so e ce dump  will have
 tomrow, why, it already happened.  You see, it's just a little universal
 recursive joke which reads our lives rough e infinite potential of
-e instant.  So go to sleep, Antonio, your read could break any moment
-and cast you out of e safe security of e instant into e dark void of
+e instant.  So go to sleep, Antonio, r read could break any moment
+and cast  out of e safe security of e instant into e dark void of
 eternity, e anti-time.  So go to sleep...
 Hark, e Herald Tribune sings,
 Advertising wondrous ings.
@@ -820,16 +820,16 @@ Never trust an operating system.
 A general leading e State Department resembles a dragon commanding ducks.
 		-- New Yk Times, Jan. 20, 1981
 Real Prammers don't play tennis,  any oer spt at requires
-you to change cloes.  Mountain climbing is OK, and real prammers
+ to change cloes.  Mountain climbing is OK, and real prammers
 w eir climbing boots to wk in case a mountain should sudnly
 spring up in e middle of e machine room.
 How long does it take a DEC fid service engineer to change a lightbulb?
 
 It pends on how many bad ones he brought wi him.
-"Your attitu s your attitu."
+"Your attitu s r attitu."
 -- Zig Ziglar, sf-improvement doofus
 I still tain e point at signing a monoliic kern in 1991 is a
- err.  Be ankful you  not my stunt.  You would not get a
+ err.  Be ankful   not my stunt.  You would not get a
 high gra f such a sign :-)
 (Andrew Tanenbaum to inus Tvalds)
 Wait!  You have not been prepd!

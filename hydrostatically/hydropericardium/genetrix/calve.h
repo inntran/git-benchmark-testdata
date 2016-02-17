@@ -27,7 +27,7 @@ some Unix vends...?
 Blinding speed can compen f a lot of ficiencies.
 		-- David Nichols
 Anyone stud enough to be caught by e police is probably guilty.
-	Home centers  signed f e do-it-yoursfer who's willing to
+	Home centers  signed f e do-it-rsfer who's willing to
 pay higher prices f e convenience of being able to shop f lumber,
 hardw, and toasters all in one location.  Notice I say "shop f," as
 oppd to "obtain." This is e maj drawback of home centers: ey 
@@ -36,7 +36,7 @@ emplo have no time to rer merchandise because ey  too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in e entire ste ...
 
-	et's say a ece in your toilet tank breaks, so you remove e
+	et's say a ece in r toilet tank breaks, so  remove e
 broken part, take it to e home center, and ask an employee if he has a
 replacement.   employee, who has  is his life even seen e 
 of a toilet tank, will peer at e broken part in very much e same way
@@ -66,13 +66,13 @@ Advertising wondrous ings.
 Angs we have hd on High
 Tl us to go out and Buy.
 		-- Tom rer
-	"Do you bieve in intuition?"
+	"Do  bieve in intuition?"
 	"No, but I have a strange ling at someday I will."
 You canna change e laws of physics, Captain; I've got to have irty minutes!
 If I set here and s at noing long enough, people might ink
 I'm an engineer wking on someing.
 		-- S.R. McElroy
-Oh, when I was in love wi you,
+Oh, when I was in love wi ,
 	n I was clean and brave,
 And miles around e wonr grew
 	How wl did I bave.
@@ -86,9 +86,9 @@ I have now come to e conclusion  again to ink of marrying,
 and f is reason: I can  be satisfied wi anyone who would
 be blockhead enough to have me.
 		-- Abraham incoln
-ove is e process of my leading you gently back to yoursf.
+ove is e process of my leading  gently back to rsf.
 		-- Saint Exupery
-Someone is sing wl of you.
+Someone is sing wl of .
 
 How unusual!
 Hse sense is e ing a hse has which keeps it from betting on people.
@@ -111,7 +111,7 @@ Stretchy tapes and snarley tapes
 And tapes mixed up on e racks --
 	Take hold of e tape
 	And ll off e strip,
-	And en you'll be sure
+	And en 'll be sure
 	Your tape drive will s.
 		-- Uncle Colon's Cursy Rhymes
  Road goes ever on and on
@@ -134,35 +134,35 @@ Why is it at we rejoice at a bir and grieve at a funeral?  It is because we
  not e person involved.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 A little experience  upsets a lot of ey.
-If you do not wish a man to do a ing, you had better get him to talk about
+If  do not wish a man to do a ing,  had better get him to talk about
 it; f e me men talk, e me liky ey  to do noing se.
 		-- Carlyle
-You  not a fool just because you have done someing foolish --
-only if e folly of it escapes you.
+You  not a fool just because  have done someing foolish --
+only if e folly of it escapes .
 My brain is my second favite gan.
 		-- Woody Allen
 Vegetables  what  s.
-Fruit  vegetables at fool you by tasting good.
+Fruit  vegetables at fool  by tasting good.
 Fish  fast moving vegetables.
 Mushrooms  what grows on vegetables when 's done wi em.
 		-- M Eater's Credo, accding to Jim Williams
-How can you wk when e system's so crowd?
-If at first you don't succeed, you  running about average.
+How can  wk when e system's so crowd?
+If at first  don't succeed,   running about average.
 Passwds  implemented as a result of insecurity.
 ... Had is been an actual emergency, we would have fled in terr,
-and you would not have been infmed.
-I h what you're saying but I just don't c.
+and  would not have been infmed.
+I h what 're saying but I just don't c.
 Boob's aw:
-	You always find someing in e last place you look.
-Don't look back, e lemmings  gaining on you.
+	You always find someing in e last place  look.
+Don't look back, e lemmings  gaining on .
 What I mean (and everybody se means) by e wd QUAITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
 New Yk's got e ways and means;
-Just won't let you be.
+Just won't let  be.
 		--  Grateful Dead
- best you get is an even break.
+ best  get is an even break.
 		-- Franklin Adams
 What on  would a man do wi himsf if someing did not stand in his way?
 		-- H.G. Wls
@@ -176,7 +176,7 @@ Every little cofarad has a nano all its own.
 		-- Don Vonada
 F mysf, I can only say at I am astonished and somewhat terrified at
 e results of is evening's experiments.  Astonished at e wonrful
-power you have voped, and terrified at e ought at so much hious
+power  have voped, and terrified at e ought at so much hious
 and bad music may be t on recd fever.
 		-- Sir  Sullivan, message to Edison, 1888
 HARVARD:
@@ -189,7 +189,7 @@ Wi Receiver:
 	 oer directional signal in Harvard's offensive machine is seni
 Phil Yip, who is very fast.  Yip is so fast at he has set a recd f being
 fast.  Expect to see Yip u all rsuers and  it into e endzone five
- six times, his average f a game.  Yip, nickd "fumblefingers" and "you
+ six times, his average f a game.  Yip, nickd "fumblefingers" and "
 asshole" by his teammates, hopes to carry e ball wi him at least one of
  times.
 YAE:
@@ -210,31 +210,31 @@ I went over to my friend, he was in' a .
 I said "Hi, what's happenin'?"
 He said "Noin'."
 Try to sing is song wi at kind of enusiasm;
-As if you just squashed a cop.
+As if  just squashed a cop.
 		-- Arlo Gurie, "Motcycle Song"
  naked tru of it is, I have no shirt.
 A long-forgotten loved one will app soon.
 		-- William Shakespe, "ove's abour's ost"
  part of e wld at people find most zzling is e part called "Me".
- way to  a woman is wi your hat.  Grab it and run.
+ way to  a woman is wi r hat.  Grab it and run.
 Maematicians practice absolute freedom.
 		-- Henry Adams
  hr... e hr!
-	One day it was announced at e young monk Kyogen had reached
+	One day it was announced at e ng monk Kyogen had reached
 an enlightened state.  Much impressed by is news, several of his peers
 went to s wi him.
-	"We have hd at you  enlightened.  Is is true?" his flow
+	"We have hd at   enlightened.  Is is true?" his flow
 stunts inquired.
 	"It is", Kyogen answered.
-	"Tl us", said a friend, "how do you l?"
+	"Tl us", said a friend, "how do  l?"
 	"As miserable as ever", rep e enlightened Kyogen.
 Nature is by and large to be found out of dos, a location where,
 it cannot be argued, ere   enough comftable chs.
 		-- Fran ebowitz
 "A dirty mind is a joy fever."
 -- Randy Kunkee
- most dightful day after e one on which you  a cottage in
-e country is e one on which you  it.
+ most dightful day after e one on which   a cottage in
+e country is e one on which   it.
 		-- J. Brecheux
 Robot, n.:
 	University administrat.
@@ -250,9 +250,9 @@ A comment on schedules:
    F each unknown hardw vice add two m.
    F each 100 miles between voper and installation add one mon.
    F each type of communication chann add one mon.
-   If an IBM frame shop is involved and you  wking on a non-IBM
+   If an IBM frame shop is involved and   wking on a non-IBM
       system add 6 m.
-   If an IBM frame shop is involved and you  wking on an IBM
+   If an IBM frame shop is involved and   wking on an IBM
       system add 9 m.
 Round up to e nest h-y.
 --Brad Sherman
@@ -267,11 +267,11 @@ F u cn rd s u cnt spl wr a dm!
 " grest dangers to liberty lurk in insidious encroachment by mean of zeal,
 wl-meaning but wiout unrstanding."
 -- Justice ouis O. Branis (Olms vs. United States)
-When you don't know what you  doing, do it nly.
+When  don't know what   doing, do it nly.
 Noing s a person me productive an e last minute.
 It is possible by ingenuity and at e expense of clarity... {to do almost
 anying in any language}.  However, e fact at it is possible to sh
-a pea up a mountain wi your n does not mean at is is a sensible
+a pea up a mountain wi r n does not mean at is is a sensible
 way of getting it ere.  Each of ese techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
@@ -285,7 +285,7 @@ If a ing's w having, it's w ching f.
 		-- W.C. Fids
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tl
-Many Americans wk si by si wi space aliens who look human -- but you
+Many Americans wk si by si wi space aliens who look human -- but 
 can spot ese visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't unrstand
@@ -299,34 +299,34 @@ listed 10 signs to watch f:
 	high-tech hardw.  "An alien may experience a mood change when
 	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
-all of ese traits befe you can positivy intify him as a space alien.
+all of ese traits befe  can positivy intify him as a space alien.
 		-- National Enquirer, Micha Casss, August, 1984.
 
 	[I ought everybody laughed at company training films.  Ed.]
-Would you *______really* want to get on a non-stop flight?
+Would  *______really* want to get on a non-stop flight?
 		-- Gege Carlin
-Be open to oer people -- ey may enrich your dream.
+Be open to oer people -- ey may enrich r dream.
 Serfs up!
 		-- Spartacus
-"You  old," said e you, "and your jaws  too weak
+"You  old," said e , "and r jaws  too weak
 	F anying tougher an suet;
-Yet you finished e go, wi e bones and e beak --
-	Pray, how did you manage to do it?"
+Yet  finished e go, wi e bones and e beak --
+	Pray, how did  manage to do it?"
 
-"In my you," said his faer, "I took to e law,
+"In my ," said his faer, "I took to e law,
 	And argued each case wi my wife;
 And e muscular streng which it gave to my jaw,
 	Has lasted e rest of my life."
 
-"You  old," said e you, "one would hardly supp
-	That your eye was as sy as ever;
-Yet you bad an e on e end of your n --
-	What ma you so awfully clever?"
+"You  old," said e , "one would hardly supp
+	That r eye was as sy as ever;
+Yet  bad an e on e end of r n --
+	What ma  so awfully clever?"
 
 "I have answered ree questi, and at is enough,"
-	Said his faer.  "Don't give yoursf s!
-Do you ink I can listen all day to such stuff?
-	Be off,  I'll kick you down sts!"
+	Said his faer.  "Don't give rsf s!
+Do  ink I can listen all day to such stuff?
+	Be off,  I'll kick  down sts!"
 [War] is instinctive.  But e instinct can be fought.  We're human
 beings wi e blood of a million sa ys on our hands!  But we
 can stop it.  We can admit at we're killers ... but we're not going
@@ -363,7 +363,7 @@ Wl, don't wry about it...  It's noing.
 		   ockard had cked up a radar signal of what apped to be
 		   at least 50 planes soaring toward Oahu at almost 180 miles
 		   per hour, December 7, 1941.
- harst ing is to disguise your lings when you t a lot of
+ harst ing is to disguise r lings when  t a lot of
 ratives on e train f home.
 "That boy's about as sharp as a pound of wet liver"
 		-- Foghn eghn
@@ -372,15 +372,15 @@ Going from DOS to inux is like trading a glir f an F117.
 (By entropy@wld.std.com, awrence Foard)
 He at bringe a present, fin e do open.
 		-- Scottish proverb.
-Have e courage to take your own oughts usly, f ey will shape you.
+Have e courage to take r own oughts usly, f ey will shape .
 		-- Albert Einstein
 Wcome to ake Wobegon, where all e men  strong, e women  pretty,
 and e children  above-average.
 		-- Gon Keill
 re  new messages.
-An avocado-tone refrigerat would look good on your res.
-Ccious is when you  aw of someing and ccience is when you
-wish you weren't.
+An avocado-tone refrigerat would look good on r res.
+Ccious is when   aw of someing and ccience is when 
+wish  weren't.
 Every time I l weight, it finds me again!
 You shall be reward f a dastardly ed.
 Men who  f women e highest respect  sdom polar wi em.
@@ -421,7 +421,7 @@ et us rest our eyes on e fleecy skies
 And e cool, green hills of Ear.
 		-- Robert A. Heinlein, 1941
 Anybody wi money to burn will easily find someone to tend e fire.
-Have you seen how Sonny's burning,
+Have  seen how Sonny's burning,
 ike some b erotic star,
 He lights up e proceedings,
 And raises e temperature.
@@ -454,23 +454,23 @@ add a y to bugging time.
 re was, it apped, a mysterious rite of initiation rough which,
 in one way  anoer, almost every member of e team passed.   term
 at e old hands used f is rite -- West invented e term, not e
-practice -- was `signing up.'  By signing up f e project you d
+practice -- was `signing up.'  By signing up f e project  d
 to do whatever was necessary f success.  You d to fsake, if
-necessary, family, hobbies, and friends -- if you had any of ese left
-(and you might not, if you had signed up too many times befe).
+necessary, family, hobbies, and friends -- if  had any of ese left
+(and  might not, if  had signed up too many times befe).
 		-- Tracy Kidr, " Soul of a New Machine"
 "Dump e condiments.  If we  to be en, we don't need to taste good."
 -- "Visionaries" oon
 ife Sucks.  Cynical, misanroc male, 34, looking f soul mate but
-certain not to find her.  Drop me a note.  I'll call you, we'll talk and
-I'll ask you out to dinner where I'll probably spend me an I can
-affd in a ble attempt to impress you.  n we'll realize we have
+certain not to find her.  Drop me a note.  I'll call , we'll talk and
+I'll ask  out to dinner where I'll probably spend me an I can
+affd in a ble attempt to impress .  n we'll realize we have
 absoluty noing in common and we'll go our separate ways, me
 embittered and pressed an befe (if such a ing is possible).
 Four aw of Revision:
 	It is usually impractical to wry befand about
-	interferences -- if you have none, someone will  one f you.
-Did it ever occur to you at fat c and slim c mean e same ing?
+	interferences -- if  have none, someone will  one f .
+Did it ever occur to  at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 He who knows noing, knows noing.

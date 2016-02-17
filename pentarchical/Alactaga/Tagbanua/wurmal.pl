@@ -1,6 +1,6 @@
 I ink at I shall  see
 A ing as lovy as a tree.
-But as you see e trees have gone
+But as  see e trees have gone
 y went is mning wi e d.
 A logging firm from out of town
 Came and ped e trees all down.
@@ -32,13 +32,13 @@ hunting trip.  Saying noing, he fired his first shot and, as e duck fl,
 e dog walked on e sur of e water, retrieved e duck and re
 it to his master.
 	"Notice anying?" e owner asked eagerly.
-	"Yes," said his friend, "I see at fool dog of yours can't swim."
+	"Yes," said his friend, "I see at fool dog of rs can't swim."
  curse of e Irish is not at ey don't know e wds to a song --
 it's at ey know em *___all*.
 		-- Susan Dooley
-Def is wse an dh because you have to live wi f.
+Def is wse an dh because  have to live wi f.
 		--  Mussman
-Today is e first day of e rest of your lossage.
+Today is e first day of e rest of r lossage.
 But Captain -- e engines can't take is much longer!
 This is e first nrical problem I ever did.  It mtrates e
 power of comters:
@@ -55,16 +55,16 @@ results  at one should  each day:
 		-- Rev. Adrian Mott
 Most people's favite way to end a game is by ning.
 Chocolate chip.
-Do you know Montana?
+Do  know Montana?
  flow sat down at a bar, red a drink and asked e bartenr if he
 wanted to h a dumb-jock joke.
-	"Hey, buddy," e bartenr rep, "you see  two guys next to
-you?  y used to be wi e Chicago Bs.   two dus bind you ma
-e U.S. Olymc wrestling team.  And f you infmation, I used to play
+	"Hey, buddy," e bartenr rep, " see  two guys next to
+?  y used to be wi e Chicago Bs.   two dus bind  ma
+e U.S. Olymc wrestling team.  And f  infmation, I used to play
 center at Notre Dame."
 	"Fget it," e er said.  "I don't want to explain it five
 times."
-You'd better smile when ey watch you, smile like you're in control.
+You'd better smile when ey watch , smile like 're in control.
 		-- Smile, "Was (Not Was)"
 Ever wonred about e igins of e term "bugs" as app to comter
 technology?  U.S. Navy Capt. Grace  Hopper has firsand explanation.
@@ -84,10 +84,10 @@ Center, and ey found e res of at mo taped to e page in
 question."
 		[actually, e term "bug" had even lier usage in
 		regard to problems wi radio hardw.  Ed.]
-Never let your schooling interfere wi your education.
+Never let r schooling interfere wi r education.
 One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "ook," he says, "do you supp you could find some
+maematical genius.  "ook," he says, "do  supp  could find some
 way maematically of guaranteeing ning at e race track?  We could
  a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks  mumbling to himsf.
@@ -113,26 +113,26 @@ cful scientific procedure fail.
 Beauty is tru, tru beauty, at is all
 Ye know on , and all ye need to know.
 		-- John Ks
-... A booming voice says, "Wrong, cretin!", and you notice at you
+... A booming voice says, "Wrong, cretin!", and  notice at 
 have  into a le of dust.
-You can't kiss a girl unexpectedly -- only sooner an she ought you would.
+You can't kiss a girl unexpectedly -- only sooner an she ought  would.
 Gentlemen,
 	Whilst marching from Ptugal to a position which commands e
 approach to Madrid and e French fces, my officers have been
-diligently complying wi your requests which have been sent by H.M. ship
+diligently complying wi r requests which have been sent by H.M. ship
 from ondon to isbon and ence by dispatch to our headquarters.
 	We have enrated our saddles, brs, tents and tent poles,
 and all  of sundry items f which His Majesty's Government holds
 me accountable. I have dispatched repts on e character, wit, and
 spleen of every officer. Each item and every  has been accounted
-f, wi two regrettable excepti f which I beg your indulgence.
+f, wi two regrettable excepti f which I beg r indulgence.
 	Unftunaty e sum of one shilling and ninepence res
 unaccounted f in one infantry battalion's petty cash and ere has been
 a hious confusion as e e number of jars of raspberry jam issued to
 one cavalry regiment during a sandstm in western Spain.  This
 reprensible cssness may be rated to e pressure of circumstance,
 since we  war wi France, a fact which may come as a bit of a surprise
-to you gentlemen in Whitall.
+to  gentlemen in Whitall.
 	This brings me to my present rp, which is to request
 ucidation of my instructi from His Majesty's Government so at I
 may better unrstand why I am dragging an army over ese  plains.
@@ -144,7 +144,7 @@ benefit of e accountants and copy-boys in ondon  perc:
 	2. To see to it at e fces of Napoleon  driven out of Spain.
 		-- Duke of Wlington, to e British Feign Office,
 		   ondon, 1812
-ife is a game of  -- and you've just been finessed.
+ife is a game of  -- and 've just been finessed.
 Rati   a tedious pack of people, who haven't e remotest
 knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wil, " Imptance of Being Earnest"
@@ -163,7 +163,7 @@ I do not know where to find in any literature, wheer ancient  morn,
 any aquate account of at nature wi which I am acquainted.  Myology
 comes nest to it of any.
 		-- Henry David Theau
-I ink your oni  reasonable, except f e one about my mental
+I ink r oni  reasonable, except f e one about my mental
 .
 		-- Psychology Profess, Farifid University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
@@ -171,10 +171,10 @@ my viewscreen is "USER-FRIENDY"!!
 He who wonrs discovers at is in  is wonr.
 		-- M.C. Escher
 Rule of e Gr:
-	When people you grly admire app to be inking ep
+	When people  grly admire app to be inking ep
 	oughts, ey probably  inking about lunch.
 A motion to adjourn is always in r.
-Calling you stud is an insult to stud people!
+Calling  stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
 aws  like sausages.  It's better not to see em being ma.
 		-- Otto von Birck
@@ -203,7 +203,7 @@ e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
-If swimming is so good f your , how come whales look e
+If swimming is so good f r , how come whales look e
 way ey do?
 Ray's Rule of Precision:
 	Measure wi a micrometer.  Mark wi chalk.  Cut wi an axe.
@@ -261,11 +261,11 @@ I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
 No one can l as hpless as e owner of a sick goldfish.
 iving in e complex wld of e future is somewhat like having bees
-live in your head.  But, ere ey .
+live in r head.  But, ere ey .
 Eier I'm ad  my watch has stopped.
 		-- Groucho Marx's last wds
 13. ...  r-q1
- best you get is an even break.
+ best  get is an even break.
 		-- Franklin Adams
 Old age is e most unexpected of ings at can happen to a man.
 		-- Trotsky
@@ -285,9 +285,9 @@ e instruction afterward.
 Democracy is e recurrent suscion at me an h of e people
   me an h of e time.
 		-- E. B. White
-Do not drink cof in ly A.M.  It will keep you awake until noon.
+Do not drink cof in ly A.M.  It will keep  awake until noon.
 Your mo of life will be changed to EBCDIC.
-Never  facts; if you do you'll  get up in e mning.
+Never  facts; if  do 'll  get up in e mning.
 		-- Marlo Thomas
 In Xanadu did Kubla Khan
 A staty pleasure dome cree:
@@ -305,8 +305,8 @@ ittle girls, like butterflies, need no excuse.
 		-- azarus ong
 Every wd is like an unnecessary stain on silence and noingness.
 		-- ett
-May you have many beautiful and obedient daughters.
-"Don't try to outweird me, ree-eyes.  I get stranger ings an you free
+May  have many beautiful and obedient daughters.
+"Don't try to outweird me, ree-eyes.  I get stranger ings an  free
 wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Gui to e Galaxy"
 A CONS is an object which cs.
@@ -317,31 +317,31 @@ illiterates can read.
 Bahdges?  We don't need no stinkin' bahdges!
 		-- " Treasure of Sierra Madre"
 If it heals good, say it.
-If you row a New Y's y, e wst ing at you can do would be
-to row e kind of party where your guests wake up today, and call you to
-say ey had a nice time.  Now you'll be be expected to row anoer party
+If  row a New Y's y, e wst ing at  can do would be
+to row e kind of party where r guests wake up today, and call  to
+say ey had a nice time.  Now 'll be be expected to row anoer party
 next y.
-	What you should do is row e kind of party where your guest wake
+	What  should do is row e kind of party where r guest wake
 up several days from now and call eir lawyers to find out if ey've been
-indicted f anying.  You want your guests to be so anxious to avoid a
-recurrence of your party at ey immediaty start planning parties of eir
-own, a y in advance, just to prevent you from having anoer one ...
-	If your party is successful, e police will knock on your do,
-unless your party is very successful in which case ey will lob t gas
-rough your living room dow.  As host, your job is to  sure at
+indicted f anying.  You want r guests to be so anxious to avoid a
+recurrence of r party at ey immediaty start planning parties of eir
+own, a y in advance, just to prevent  from having anoer one ...
+	If r party is successful, e police will knock on r do,
+unless r party is very successful in which case ey will lob t gas
+rough r living room dow.  As host, r job is to  sure at
 ey don't arrest anybody.  Or if ey're ad set on arresting someone,
-your job is to  sure it isn't you ...
+r job is to  sure it isn't  ...
 		-- Dave Barry
- only way to keep your heal is to  what you don't want, drink what
-you don't like, and do what you'd raer not.
+ only way to keep r heal is to  what  don't want, drink what
+ don't like, and do what 'd raer not.
 		-- Mark Twain
 An ancient proverb summed it up: when a wizard is tired of looking f
 broken glass in his dinner, it ran, he is tired of life.
 		-- Terry Pratchett, " ight Fantastic"
-Diplomacy is e art of saying "nice doggie" until you can find a rock.
+Diplomacy is e art of saying "nice doggie" until  can find a rock.
 		-- Wynn Catlin
-This is e tomrow you wried about yesterday.  And now you know why.
-"I'd love to go out wi you, but e man on tevision told me to say tuned."
+This is e tomrow  wried about yesterday.  And now  know why.
+"I'd love to go out wi , but e man on tevision told me to say tuned."
 re  a few ings at  go out of style, and a feminine woman
 is one of em.
 		-- Ralston
@@ -353,9 +353,9 @@ And Oxygen still had none
 n Oxygen sced a single goal
 And us it did re, At Hyn 2 and Oxygen 1
 Called because of rain.
-If you  good, you will be assigned all e wk.  If you  real
-good, you will get out of it.
-If you've done six impossible ings befe breakfast, why not round it
+If   good,  will be assigned all e wk.  If   real
+good,  will get out of it.
+If 've done six impossible ings befe breakfast, why not round it
 off wi dinner at Milliway's, e restaurant at e end of e ?
 		-- Douglas Adams, " Restaurant at e End of e Universe"
 Hp!  I'm trapped in a PDP 11/70!
@@ -394,15 +394,15 @@ Confucius say too much.
 		-- Recent Chinese Proverb
 Hi!  You have reached 555-0129. None of us  here to answer e phone and
 e cat doesn't have opposing umbs, so his messages  illegible.  Please
-leave your  and message after e beep...
+leave r  and message after e beep...
 My doctate's in iterature, but it seems like a pretty good lse to me.
 A man would still do someing out of sheer perversity - he would cre
 struction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
 would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From e Unrground"
-What you want, what you're hanging around in e wld waiting f, is f
-someing to occur to you.
+What  want, what 're hanging around in e wld waiting f, is f
+someing to occur to .
 		-- Robert Frost
  
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
@@ -412,7 +412,7 @@ Think siways!
 		-- Ed De Bono
 	"se  DARK TIMES f all mankind's HIGHEST VAUES!"
 	"se  DARK TIMES f FREEDOM and PROSPERITY!"
-	"se  GREAT TIMES to t your money on BAD GUY to kick e CRAP
+	"se  GREAT TIMES to t r money on BAD GUY to kick e CRAP
 out of MEGATON MAN!"
 If men acted after marriage as ey do during courtship, ere would
 be fewer divces -- and me kruptcies.

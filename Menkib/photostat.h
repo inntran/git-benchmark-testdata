@@ -4,7 +4,7 @@ You  always busy.
  have tolerated the last eight years?"
 -- Frank Zappa, Feb 1, 1989
 A woman's place is in the house... and in the Senate.
-Earn cash in your sp time -- blackmail your friends.
+Earn cash in r sp time -- blackmail r friends.
 "The bad retation UNIX has gotten is totally unserved, laid on by people
 who don't unrstand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
@@ -60,7 +60,7 @@ Where do I find the time for not reading so many books?
 		-- Karl Kraus
 "But this one goes to eleven."
 -- Nigel Tufnel
-You will win success in whatever calling you adopt.
+You will win success in whatever calling  adopt.
 Disks travel in packs.
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic , life was wild, rich and largely tax free.
@@ -78,7 +78,7 @@ ink, n.:
 	and water, chiefly used to facilitate the infection of
 	idiocy and promote intellectual crime.
 		-- H.L. Mencken
-The District of Columbia has a law forbidding you to exert pressure on
+The District of Columbia has a law forbidding  to exert pressure on
 a balloon and thereby cause a whistling sound on the streets.
 QOTD:
 	"I'll listen to reason when it comes out on CD."
@@ -88,14 +88,14 @@ Hurewitz's Memory Principle:
 Avec!
 Fun experiments:
 	Get a can of shaving cream, throw it in a freezer for about a week.
-	Then take it out, peel the metal off and t it where you want...
+	Then take it out, peel the metal off and t it where  want...
 	bedroom, car, etc.  As it thaws, it expands an unbelievable amount.
 When the sun shineth,  hay.
 		-- John Heywood
 Loan-partment manager:  "There isn't any fine print.  At these
 interest rates, we don't need it."
 From listening comes wisdom and from speaking repentance.
-Even if you're on the right track, you'll get run over if you just sit there.
+Even if 're on the right track, 'll get run over if  just sit there.
 		-- Will Rogers
 Reclaimer, sp that tree!
 Take not a single bit!
@@ -107,7 +107,7 @@ Now, GC, for the nonce,
 Thou shalt reclaim it not.
 George Orwell 1984.  Northwestern 0.
 		-- Chicago Rear 10/15/82
-Be self-reliant and your success is assured.
+Be self-reliant and r success is assured.
 You  in a maze of little twisting passages, all alike.
 "If anything can go wrong, it will."
 -- Edsel Murphy
@@ -116,12 +116,12 @@ Turnaucka's Law:
 	The attention span of a comter is only as long as its
 	electrical cord.
 Excellent time to become a missing person.
-"No matter where you go, there you ..."
+"No matter where  go, there  ..."
 -- Buckaroo Banzai
 To do two things at once is to do neither.
 		-- Publilius Syrus
 As of next Thursday, UNIX will be flushed in favor of TOPS-10.
-Please update your programs.
+Please update r programs.
 No bird soars too high if he soars with his own wings.
 		-- William Blake
 Call on God, but row  from the rocks.
@@ -131,18 +131,18 @@ It would be illogical to assume that all conditions re stable.
 Politicians  the same all over.  They promise to build a bridge even
 where there is no river.
 	-- Nikita Khrushchev
-You will stop at nothing to reach your objective, but only because your
+You will stop at nothing to reach r objective, but only because r
 brakes  fective.
 Ryan's Law:
 	Make three correct guesses consecutively
-	and you will establish yourself as an expert.
+	and  will establish rself as an expert.
 "I couldn't remember things until I took that Sam Carnegie course."
 -- Bill Peterson, former Houston Oiler football coach
 You can take all the impact that science consirations have on funding
 cisions at NASA, t them in the navel of a flea, and have room left
 over for a car seed and Tony Calio's heart.
 		-- F. Allen
-Authors  easy to get on with -- if you're fond of children.
+Authors  easy to get on with -- if 're fond of children.
 		-- Michael Jph, "Observer"
 Uh-oh -- WHY am I sudnly thinking of a VENERABLE relius lear
 frolicking on a FORT LAUDERDALE weekend?
@@ -158,22 +158,22 @@ Mr. Cole's Axiom:
 "The medium is the massage."
 -- Crazy Nigel
 If A equals success, then the formula is _A = _X + _Y + _Z.  _X is work.  _Y
-is play.  _Z is keep your mouth shut.
+is play.  _Z is keep r mouth shut.
 		-- Albert Einstein
 ... I want to perform cranial activities with Tuesday Weld!!
 It is easier to change the specification to fit the program than vice versa.
 I have  unrstood the female capacity to avoid a direct answer to
 any question.
 		-- Spock, "This Si of Paradise", stardate 3417.3
-"jackpot:  you may have an unneccessary change record"
+"jackpot:   may have an unneccessary change record"
 -- message from "diff"
-One doesn't have a sense of humor.  It has you.
+One doesn't have a sense of humor.  It has .
 		-- Larry Gelbart
-How beautiful, how entrancing you , my loved one, daughter of lights!
-You  stately as a palm-tree, and your breasts  the clusters of dates.
-I said, "I will climb up into the palm to grasp its fronds."  May I find your
-breast like clusters of grapes on the vine, the scent of your breath like
-apricots, and your whispers like spiced wine flowing smoothly to welcome my
+How beautiful, how entrancing  , my loved one, daughter of lights!
+You  stately as a palm-tree, and r breasts  the clusters of dates.
+I said, "I will climb up into the palm to grasp its fronds."  May I find r
+breast like clusters of grapes on the vine, the scent of r breath like
+apricots, and r whispers like spiced wine flowing smoothly to welcome my
 csses, gliding down through lips and teeth.
 [Song of Solomon 7:6-9 (NEB)]
 "The Schizophrenic: An Unauthorized Autobiography"
@@ -183,7 +183,7 @@ An honest politician is one who when he is bought will stay bought.
 There  honest journalists like there  honest politicians.  When
 bought they stay bought.
 		-- Bill Moyers
-Don't go to bed with no price on your head.
+Don't go to bed with no price on r head.
 		-- Btta
 HOGAN'S HEROES DRINKING GAME --
 	Take a shot every time:
@@ -232,7 +232,7 @@ fuggi l'uccello Giuglo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- Lewis Carroll, "Jabberwocky"
 "Interesting survey in the current Journal of Abnormal Psychology: New York 
-City has a higher percentage of people you shouldn't  any sudn moves 
+City has a higher percentage of people  shouldn't  any sudn moves 
 around than any other city in the world."
 -- David Letterman
 Unr every stone lurks a politician.
@@ -245,7 +245,7 @@ QOTD:
 When God saw how faulty was man He tried again and ma woman.  As to
 why he then stopped there  two opinions.  One of them is woman's.
 		-- DeGourmont
-Almost anything rogatory you could say about today's softw sign
+Almost anything rogatory  could say about today's softw sign
 would be accurate.
 		-- K.E. Iverson
 The eagle may soar, but the weasel  gets sucked into a jet engine.
@@ -271,8 +271,8 @@ The moving cursor writes, and having written, blinks on.
 Said he, "I'm an anti-climb Max."
 	[So is that nchline.]
 Leibowitz's Rule:
-	When hammering a nail, you will  hit your
-	finger if you hold the hammer with both hands.
+	When hammering a nail,  will  hit r
+	finger if  hold the hammer with both hands.
 If there is no God, who pops up the next Kleenex?
 		-- Art Hoppe
 backups: always in season,  out of style.
@@ -284,8 +284,8 @@ when a terrible storm forced them to land on an uninhabited island.  When
 several days passed without rescue, the couple and their pilot sank into a
 sponnt silence. Finally, the woman asked her husband if he had ma his
 usual pledge to the United Way Campaign.
-	"We're running out of food and water and you ask *that*?" her husband
-barked.  "If you really need to know, I not only pledged a h million but
+	"We're running out of food and water and  ask *that*?" her husband
+barked.  "If  really need to know, I not only pledged a h million but
 I've already paid them h of it."
 	"You owe the U.W.C. a *quarter million*?" the woman exclaimed
 euphorically.  "Don't worry, Harry, they'll find us!  They'll find us!"
@@ -294,5 +294,5 @@ of a KOSHER DELI --
 This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
 I guess I've been so wrapped up in playing the game that I  took
 time enough to figure out where the goal line was -- what it meant to
-win -- or even how you won.
+win -- or even how  won.
 		-- Cash McCall

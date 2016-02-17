@@ -5,7 +5,7 @@ Alea iacta est.
 	[The die is cast]
 		-- Gaius Julius Caesar
 Udall's Four aw:
-	Any change or reform you  is going to have cequences you
+	Any change or reform   is going to have cequences 
 	don't like.
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
@@ -13,7 +13,7 @@ A traving n was driving past a farm when he saw a g wi ree
 woon legs exeing a ent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
-	"That's quite a g you have ere, sir" said e n. 
+	"That's quite a g  have ere, sir" said e n. 
 	"Sure is, son," e farmer rep.  "Why, two ys ago, my daughter
 was swimming in e e and bumped her head and damned n drowned, but at
 g swam out and dragged her back to shore."
@@ -24,10 +24,10 @@ That g run up and wiggled unrnh at tree and lifted it off of me.
 Saved my life."
 	"Fantastic!  e n said.  But tl me, how come e g has
 ree woon legs?"
-	The farmer sd at e newcomer in a.  "Mister, when you 
-got an amazin' g like at, you don't  him all at once."
+	The farmer sd at e newcomer in a.  "Mister, when  
+got an amazin' g like at,  don't  him all at once."
 There is no grief which time does not lessen and s.
-Never t off till run-time what you can do at comle-time.
+Never t off till run-time what  can do at comle-time.
 		-- D. Gries
 Cultant, n.:
 	Someone who'd raer climb a tree and tl a lie an stand on
@@ -37,11 +37,11 @@ Cultant, n.:
 If people concentrated on e really important ings in life,
 ere'd be a shortage of fishing poles.
 		-- Doug arson
-"I don't unrstand," said e scientist, "why you lemmings all rush down
-to e sea and drown yoursves."
+"I don't unrstand," said e scientist, "why  lemmings all rush down
+to e sea and drown rsves."
 
 "How curious," said e lemming. "The one ing I don't unrstand is why
-you human beings don't."
+ human beings don't."
 		-- James Thurber
 The key ements in human inking  not numbers but labs of fuzzy sets.
 		-- . Zad
@@ -78,24 +78,24 @@ on personal stationery
 		-- terri@csd4.milw.wisc.edu
 I don't have an ing problem.  I .  I get fat.  I  new cloes.
 No problem.
-All ings being equal, you  bound to l.
+All ings being equal,   bound to l.
 adles and Jlyss!
-I come before you to stand bind you,
-To tl you someing I know noing about.
+I come before  to stand bind ,
+To tl  someing I know noing about.
 Since next Thursday will be Good Friday,
 There will be a faers' meeting, for moers only.
-W your best cloes, if you don't have any,
-And please stay at home if you can possibly be ere.
+W r best cloes, if  don't have any,
+And please stay at home if  can possibly be ere.
 Admission is free, please pay at e door.
 Have a s on me: please sit on e floor.
-No matter where you manage to sit,
+No matter where  manage to sit,
 The man in e balcony will  st.
-We ank you for your unkind attention,
+We ank  for r unkind attention,
 And would now like to present our next act:
 "The Four Corners of e Round Table."
 I  loved anoer person e way I loved mysf.
 		-- Mae West
-Alimony and bribes will engage a large sh of your weal.
+Alimony and bribes will engage a large sh of r weal.
 I pledge allegiance to e flag
 of e United States of America
 and to e reblic for which it stands,
@@ -110,11 +110,11 @@ Women give to men e very gold of eir lives.  Possibly; but ey
 invariably want it back in such very ll change.
 		-- Oscar Wil
 	A Scotn was strolling across High Street one day wing his kilt.
-As he ned e far curb, he noticed two young blons in a red convertible
+As he ned e far curb, he noticed two ng blons in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's worn
 unr e kilt?"
-	He strolled over to e si of e car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, e blon rep yes, she did
+	He strolled over to e si of e car and asked, "Ach, lass,  
+SURE  want to know?"  Somewhat nervously, e blon rep yes, she did
 really want to know.
 	The Scotn leaned clr and confid, "Why, lass, noing's worn
 unr e kilt, everying's in perfect workin' !"

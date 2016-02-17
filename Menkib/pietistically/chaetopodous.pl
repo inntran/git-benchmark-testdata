@@ -10,21 +10,21 @@ How many nucl engineers does it take to change a light bulb ?
 
 Seven:  One to install the new bulb, and six to termine what to do
         with the old one for the next 10,000 ys.
-Hollywood is where if you don't have happiness you send out for it.
+Hollywood is where if  don't have happiness  send out for it.
 		-- Rex Reed
 You will be successful in love.
 "I think the sky is blue because it's a shift from black through rple
 to blue, and it has to do with where the light is.  You know, the
 farther we get into darkness, and there's a  of color of light
-into the blueness, and I think as you go farther and farther  from
+into the blueness, and I think as  go farther and farther  from
 the reflected light we have from the sun or the light that's bouncing
-off this th, uh, the darker it gets ... I think if you look at the
-color scale, you start at black, move it through rple, move it on
+off this th, uh, the darker it gets ... I think if  look at the
+color scale,  start at black, move it through rple, move it on
 out, it's the  of color.  We mentioned before about the stars
 singing, and that's one of the effects of the  of colors."
 		-- Pat Robertson, The 700 Club
 How do I get HOME?
-We Kling bieve as you do -- the sick should die.  Only the strong
+We Kling bieve as  do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 The comter industry is journalists in their 20's standing in awe of
@@ -56,9 +56,9 @@ marriage  her something like a blic building.
 		-- Oscar Wil
 The mature bohemian is one wh woman works full time.
 He's been like a father to me,
-He's the only DJ you can get after three,
+He's the only DJ  can get after three,
 I'm an all-night musician in a rock and roll band,
-Be cful of reading health s, you might die of a misprint.
+Be cful of reading health s,  might die of a misprint.
 And why he don't like me I don't unrstand.
 		-- The Byrds
 Common sense and a sense of humor  the same thing, moving at
@@ -68,7 +68,7 @@ Good day for overcoming obstacles.  Try a steeplechase.
 Your good nature will bring unbound happiness.
 Most of our lives  about proving something, either to oursves or to
 someone se.
-Are you a pnt?  Do you sometimes find yoursf unsure as to what to
+Are  a pnt?  Do  sometimes find rsf unsure as to what to
 say in th awkward situati?  Worry no more...
 
 	Go .  You bother me.
@@ -76,21 +76,21 @@ say in th awkward situati?  Worry no more...
 	That's a nice drawing.  What is it?
 	Children should be seen and not hd.
 	You'll be the ath of me.
-	You'll unrstand when you're olr.
+	You'll unrstand when 're olr.
 	Because.
-	Wipe that smile off your .
-	I don't bieve you.
-	How many times have I told you to be cful?
+	Wipe that smile off r .
+	I don't bieve .
+	How many times have I told  to be cful?
 	Just beacuse.
-If love is the answer, could you rephrase the question?
+If love is the answer, could  rephrase the question?
 		-- ily Tomlin
    On Krat's  screen apped the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tl it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip  from all your armed might, laughing
-at your clumsiness!  We slip  as we always will, you pathetic creatures.
-And now that we have a real head start, you'll  catch us!  What better
-proof that the Penitors favor not you, but us!  What better proof..."
+upspring of errant masters.  We slip  from all r armed might, laughing
+at r clumsiness!  We slip  as we always will,  pathetic creatures.
+And now that we have a real head start, 'll  catch us!  What better
+proof that the Penitors favor not , but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time ing
 the artistry of it.  These men  better than I'd thought.  Their insults
  wordy and overblown, but they have talent.  They serve honorable, slow
@@ -113,26 +113,26 @@ I can still remember the sensation I ft at that moment, primarily in
 the armpit a -- head  straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced wars, and we kept our
-heads.  We did exactly what the text says you should do when you're
-unarmed and a shark that is nly two feet long turns on you in water
-up to your lower calves: We sprinted I would say 600 yards in the
+heads.  We did exactly what the text says  should do when 're
+unarmed and a shark that is nly two feet long turns on  in water
+up to r lower s: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
 our feet  once went bow the sur of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
-car we would have run  INTO the beach, and you would have seen
+car we would have run  INTO the beach, and  would have seen
 these two mounds of sand racing across the island until they bonked
 into trees and coconuts fl onto their heads.
 		-- Dave Barry, "The Wonrs of Sharks on TV"
-"Is it really you, Fuzz, or is it Memorex, or is it radiation sickness?" 
+"Is it really , Fuzz, or is it Memorex, or is it radiation sickness?" 
 -- Sonic Disruptors comics
 Home on the Range was originally written in beef-flat.
-Q:	How do you catch a unique rabbit?
+Q:	How do  catch a unique rabbit?
 A:	Unique up on it!
 
-Q:	How do you catch a tame rabbit?
+Q:	How do  catch a tame rabbit?
 A:	The tame way!
 Avoid reality at all costs.
-Courage is your greatest present need.
+Courage is r greatest present need.
 And as we stand on the edge of darkness
 et our chant fill the void
 That others may know
@@ -150,7 +150,7 @@ Nowlan's Theory:
 The husband who doesn't tl his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- eo J. Burke
-If you can't ln to do it wl, ln to enjoy doing it badly.
+If  can't ln to do it wl, ln to enjoy doing it badly.
 "We  on the verge: Today our pram proved Fermat's next-to-last theorem."
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 "Don't drop acid, take it pass-fail!"
@@ -165,34 +165,34 @@ lo waves of hair, an inch of which would be a keepsake beyond price:
 in short, I should have liked, I do confess, to have had the lightest
 license of a child, and yet been man enough to know its value.
 		-- Charles Dickens
-After a while you ln the subtle difference
+After a while  ln the subtle difference
 Between holding a hand and chaining a soul,
-And you ln that love doesn't mean security,
-And you begin to ln that kisses n't contracts
+And  ln that love doesn't mean security,
+And  begin to ln that kisses n't contracts
 And presents n't promises
-And you begin to accept your feats
-With your head up and your eyes open,
+And  begin to accept r feats
+With r head up and r eyes open,
 With the grace of a woman, not the grief of a child,
-And you ln to build all your roads
+And  ln to build all r roads
 On today because tomorrow's ground
 Is too .  And futures have
 A way of falling down in midflight,
-After a while you ln that even sunshine burns if you get too much.
-So you plant your own garn and corate your own soul, instead of waiting
-For someone to bring you flowers.
-And you ln that you really can endure...
-That you really  strong,
-And you really do have worth
-And you ln and ln
-With every goodbye you ln.
+After a while  ln that even sunshine burns if  get too much.
+So  plant r own garn and corate r own soul, instead of waiting
+For someone to bring  flowers.
+And  ln that  really can endure...
+That  really  strong,
+And  really do have worth
+And  ln and ln
+With every goodbye  ln.
 		-- Veronic Shoffstall, "Comes the Dawn"
 A pat on the back is only a few centimeters from a kick in the pants.
-	"What do you do when your real life exceeds your wilst s?"
-	"You keep it to yoursf."
+	"What do  do when r real life exceeds r wilst s?"
+	"You keep it to rsf."
 		-- Broadcast News
 A certain amount of opposition is a hp, not a hindrance. Kites rise
 against the wind, not with it.
-I'd whip you if I had a .
+I'd whip  if I had a .
 		-- Groucho Marx
 Actresses will happen in the best regulated families.
 		-- Addison Mizner and Oliver Herford, "The Entiry
@@ -201,13 +201,13 @@ Tevision is a medium because anything wl done is r.
 		-- attributed to both Fred Allen and Ernie Kovacs
 Sleep -- the most beautiful experience in life -- except drink.
 		-- W.C. Fids
-Art is anything you can get  with.
+Art is anything  can get  with.
 		-- Marshall Mcuhan.
-You're always thinking you're gonna be the one that s 'em act different.
+You're always thinking 're gonna be the one that s 'em act different.
 		-- Woody Allen, "Manhattan"
 Murr is contrary to the laws of man and God.
 		-- M-5 Comter, "The Ultimate Comter", stardate 4731.3
-Do you know, I think that Dr. Swift was silly to laugh about ata.  I
+Do  know, I think that Dr. Swift was silly to laugh about ata.  I
 bieve it is a mistake to  a mock of people, just because they think.
 There  ninety thousand people in this world who do not think, for every
 one who does, and these people hate the thinkers like poison.  Even if some
@@ -220,21 +220,21 @@ all-encompassing mter.  Allocate an array and free the middle third?
 Sure!  Why not?  Multiply a character string times a bit string and assign the
 result to a float cimal?  Go ahead!  Free a controlled variable procedure
 parameter and reallocate it before passing it back?  Overlay three different
-types of variable on the same memory location?  Anything you say!  Write a
+types of variable on the same memory location?  Anything  say!  Write a
 recursive macro?  Wl, no, but Real Men use rescan.  How could a language
 so obviously signed and written by Real Men not be intend for Real Man use?
 	A shy romeo asked a gorgeous evator operator, "Don't all these
-stops and starts get you pretty worn out?"  "It isn't the stops and starts
+stops and starts get  pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 Happiness is a hard disk.
-Your own qualities will hp prevent your advancement in the world.
+Your own qualities will hp prevent r advancement in the world.
 Patience is a minor form of spair, disguised as virtue.
 		-- Ambr Bierce, on qualifiers
 	When the lodge meeting broke up, Meyer confid to a friend.
 "Abe, I'm in a terrible !  I'm strapped for cash and I haven't
 the slightest ia where I'm going to get it from!"
-	"I'm glad to h that," answered Abe.  "I was afraid you
-might have some ia that you could borrow from me!"
+	"I'm glad to h that," answered Abe.  "I was afraid 
+might have some ia that  could borrow from me!"
 Put no trust in cryptic comments.
 The longer the title, the less important the job.
 There's one fool at least in every married couple.
@@ -248,25 +248,25 @@ ike guardian angs it's
 Always n
 
 Blue canary in the outlet by the light switch
-Who watches over you
-Make a little birdhouse in your soul
+Who watches over 
+Make a little birdhouse in r soul
 Not to t too fine a point on it
-Say I'm the only bee in your bonnet
-Make a little birdhouse in your soul
-		-- "Birdhouse in your Soul", They Might Be Giants
+Say I'm the only bee in r bonnet
+Make a little birdhouse in r soul
+		-- "Birdhouse in r Soul", They Might Be Giants
 QOTD:
 	"I'll listen to reason when it comes out on CD."
-You recoil from the cru; you tend naturally toward the exquisite.
-When you don't know what to do, walk fast and look worried.
+You recoil from the cru;  tend naturally toward the exquisite.
+When  don't know what to do, walk fast and look worried.
 ove is like a friendship caught on fire.  In the beginning a flame, very
 pretty, often hot and fierce, but still only light and flickering.  As love
 grows olr, our hts mature and our love becomes as coals, ep-burning
 and unquenchable.
 		-- Bruce ee
-I'd whip you if I had a .
+I'd whip  if I had a .
 		-- Groucho Marx
-The most disagreeable thing that your worst enemy says to your  does
-not approach what your best friends say behind your back.
+The most disagreeable thing that r worst enemy says to r  does
+not approach what r best friends say behind r back.
 		-- Alfred De Musset
 phosflink:
 	To flick a bulb on and off when it burns out (as if, somehow, that
@@ -296,8 +296,8 @@ sketon!  Many Digital users f that RSX-11M may be even more primitive
 than DEC admits.  Price adjustments at 11:00.
 	God cid to take the vil to court and settle their differences
 once and for all.
-	When Satan hd of this, he grinned and said, "And just where do you
-think you're going to find a lawyer?"
+	When Satan hd of this, he grinned and said, "And just where do 
+think 're going to find a lawyer?"
 Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
@@ -305,12 +305,12 @@ Eleventh aw of Acoustics:
 	minimalization of open-loop errors in outt amplifiers and correct
 	compensation for non-lin passive crossover network loading can
 	lead to a sigant crease in system resolution lost.  However,
-	of course, this all means jack when you listen to Pink Floyd.
-ady, lady, should you meet
+	of course, this all means jack when  listen to Pink Floyd.
+ady, lady, should  meet
 One wh ways  all discreet,
 One who murmurs that his wife
 Is the lostar of his life,
-One who keeps assuring you
+One who keeps assuring 
 That he  was untrue,
 Never loved another one...
 ady, lady, better run!
@@ -335,32 +335,32 @@ It is one thing to praise discipline, and another to submit to it.
 Sometimes a man who serves to be looked down upon because he is a
 fool is spised only because he is a lawyer.
 		-- Montesquieu
-You know you're in trouble when...
-(1)	You've been at work for an hour before you notice that your 
-		skirt is caught in your pantyh.
-		Especially if you're a man.
-(2)	Your blind date turns out to be your ex-wife.
+You know 're in trouble when...
+(1)	You've been at work for an hour before  notice that r 
+		skirt is caught in r pantyh.
+		Especially if 're a man.
+(2)	Your blind date turns out to be r ex-wife.
 (3)	Your income tax check bounces.
 (4)	You t both contact lenses in the same eye.
-(5)	Your wife says, "Good morning, Bill" and your name is George.
+(5)	Your wife says, "Good morning, Bill" and r name is George.
 (6)	You wake up to the soothing sound of flowing water... the day
-		after you bought a waterbed.
-(7)	You go on your honeymoon to a remote little hot and the sk
+		after  bought a waterbed.
+(7)	You go on r honeymoon to a remote little hot and the sk
 		clerk, bl hop, and manager have a "Wcome Back" party 
-		for your spouse.
+		for r spouse.
 Really??  What a coincince, I'm shallow too!!
 I am firm.  You  obstinate.  He is a pig-head fool.
 		-- Katharine Whitehorn
 It was one of th perfect summer days -- the sun was shining, a breeze
 was blowing, the birds were singing, and the lawn mower was broken ...
 		--- James Dent
-If you teach your children to like comters and to know how to gamble
+If  teach r children to like comters and to know how to gamble
 then they'll always be interested in something and won't come to no real harm.
 XXXI:
 	The optimum committee has no members.
 XXXII:
 	Hiring cultants to conduct studies can be an  means of
-	turning problems into gold -- your problems into their gold.
+	turning problems into gold -- r problems into their gold.
 XXXIII:
 	Fools rush in where incumbents f to tread.
 XXXIV:
@@ -373,7 +373,7 @@ XXXV:
 	the data authenticity.
 		-- Norman Augustine
 If God had intend Man to Watch TV, He would have given him Rabbit Ears.
-They told me you had proven it		When they discovered our results
+They told me  had proven it		When they discovered our results
 	About a  before.			Their hair began to curl
 The proof was valid, more or less	Instead of unrstanding it
 	But rather less than more.		We'd run the thing through PR.
@@ -381,7 +381,7 @@ The proof was valid, more or less	Instead of unrstanding it
 He sent them word that we would try	Don't tl a soul about all this
 	To pass where they had failed		For it must ever be
 And after we were done, to them		A secret, kept from all the rest
-	The new proof would be mailed.		Between yoursf and me.
+	The new proof would be mailed.		Between rsf and me.
 
 My notion was to start again
 	Ignoring all they'd done
@@ -391,7 +391,7 @@ After a number of cimal places, nobody gives a damn.
 Tip of the Day:
 	Never fry bacon in the nu.
 
-	[Correction: always fry bacon in the nu; you'll ln not to burn it]
+	[Correction: always fry bacon in the nu; 'll ln not to burn it]
 Exclent day for drinking heavily.  Spike the office water .
 'Mounten' wird fuer drei Dinge benutzt: 'Aufsitzen' auf Pfer, 'einklinken'
 von Festplatten in Dateisysteme, und, nun, 'besteigen' beim Sex.
@@ -424,7 +424,7 @@ Nakamura ar, a smile on his  and the light of laughter in his eyes.
 		-- Wayfr
 The most important ly product on the way to voping a good product
 is an imperfect version.
-Why don't you ever enter any CONTESTS, Marvin??  Don't you know your
+Why don't  ever enter any CONTESTS, Marvin??  Don't  know r
 own ZIPCODE?
 theory, n.:
 	System of ias meant to explain something, chn with a view to
@@ -459,7 +459,7 @@ by the majority they were at the time."
 -- former Supreme Court Chief Justice Earl Warren
 If the s of X-window built cars, there would be no fewer than five
 steering whes hidn about the cockpit, none of which followed the same
-prinicples -- but you'd be able to shift gs with your car stereo.  Useful
+prinicples -- but 'd be able to shift gs with r car stereo.  Useful
 feature, that.
 		-- From the pramming notes of a heretic, 1990.
 Gold coast slave ship bound for cotton fids
@@ -467,15 +467,15 @@ Sold in a market down in New Orleans
 Scarred old s knows he's doing al
 H him whip the women, just around midnight
 
-Ah, brown sugar how come you taste so good?
-Ah, brown sugar just like a young girl should
+Ah, brown sugar how come  taste so good?
+Ah, brown sugar just like a ng girl should
 
 Drums beating cold English blood runs hot
 ady of the house wonrin' where it's gonna stop
 House boy knows that he's doing al
 You should a hd him just around midnight.
 ...
-I bet your mama was tent show queen
+I bet r mama was tent show queen
 And all her girlfriends were sweet sixteen
 I'm no school boy but I know what I like
 You should have hd me just around midnight.
@@ -505,14 +505,14 @@ Yow!  We're going to a new disco!
 Once upon a time there was a kingdom ruled by a great b.  The peasants
 were not very rich, and one of the few ways to become at all wealthy was
 to become a Royal Knight.  This required an interview with the b.  If
-the b liked you, you were knighted on the spot.  If not, the b would
-just as liky remove your head with one swat of a paw.  However, the family
+the b liked ,  were knighted on the spot.  If not, the b would
+just as liky remove r head with one swat of a paw.  However, the family
 of these unfortunate would-be knights was compensated with a beautiful
 sheepdog from the royal kenns, which was  a fairly valuable
 possession.  And the moral of the story is:
  
 The mourning after a terrible knight, nothing beats the dog of the b that
-hit you.
+hit .
 We have s, ther...FOUR OF THEM!
 Football builds sf-discipline.  What se would induce a spectator to
 sit out in the open in subfreezing weather?
@@ -539,12 +539,12 @@ No one may kill a man.  Not for any rp.  It cannot be condoned.
 Iine that Cray comter cis to  a personal comter.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
 storage, a screen resolution of 4096 x 4096 pixs, ries entiry on
-voice recognition for int, fits in your shirt pocket and costs $300.
+voice recognition for int, fits in r shirt pocket and costs $300.
 What's the first question that the comter community asks?
 
 "Is it PC compatible?"
 I used to get high on life but laty I've built up a resistance.
-Never be afraid to tl the world who you .
+Never be afraid to tl the world who  .
 		-- Anonymous
 All say, "How hard it is that we have to die"--a strange complaint to come from
 the mouths of people who have had to live.
@@ -558,8 +558,8 @@ annihilation ever more gruesome and more effective, must cir it our solemn
 and transcennt duty to do all in our power in preventing these weap from
 being used for the brutal rp for which they were invented." 
 -- Albert Einstein, Bulletin of Atomic Scientists, September 1948
-Being a miner, as soon as you're too old and tired and sick and stupid to
-do your job properly, you have to go, where the very opposite applies with
+Being a miner, as soon as 're too old and tired and sick and stupid to
+do r job properly,  have to go, where the very opposite applies with
 the judges.
 		-- Beyond the Fringe
 "Our vision is to speed up time, eventually iminating it."
@@ -581,7 +581,7 @@ The adjective is the banana pe of the parts of speech.
 You  the only person to ever get this message.
 God may be subtle, but he isn't plain mean.
 		-- Albert Einstein
-Age is a tyrant who forbids, at the penalty of life, all the pleasures of youth.
+Age is a tyrant who forbids, at the penalty of life, all the pleasures of th.
 Many people  secretly interested in life.
 Doubt is not a pleasant condition, but certainty is absurd.
 		-- Voltaire
@@ -600,7 +600,7 @@ Them as has, gets.
 System going down at 5 this afternoon to install scheduler bug.
 		`O' EVE COUNTER CUTURE
 Timewarp allowed: 3 hours.  Do not scrawl situationalist graffiti in the
-margins or stub your rollups in the inkwls.  Orange may be worn.  Credit
+margins or stub r rollups in the inkwls.  Orange may be worn.  Credit
 will be given to candidates who sf-actualise.
 
 	(1) Comp and contrast Pink Floyd with Black Sabbath and say why
@@ -622,11 +622,11 @@ will be given to candidates who sf-actualise.
 -- George Bernard Shaw
 FORTRAN?  The syntactically incorrect statement "DO 10 I = 1.10" will parse and
 generate co creating a variable, DO10I, as follows: "DO10I = 1.10"  If that
-doesn't terrify you, it should.
+doesn't terrify , it should.
 QOTD:
 	The only easy way to tl a hamster from a gerbil is that the
 	gerbil has more dark meat.
-To unrstand a pram you must become both the machine and the pram.
+To unrstand a pram  must become both the machine and the pram.
 Grb's Reminr:
 	Eighty percent of all people cir themsves to be above
 	average drivers.
@@ -635,7 +635,7 @@ Q:	What's tan and black and looks great on a lawyer?
 A:	A doberman.
 Quantum Mechanics is God's version of "Trust me."
 Kleeneness is next to Godness.
-"If you don't want your dog to have bad breath, do what I do:  Pour a little
+"If  don't want r dog to have bad breath, do what I do:  Pour a little
 avoris in the toilet."
 		-- Jay eno
 Bore, n.:
@@ -677,7 +677,7 @@ The reason comter chips  so ll is comters don't eat much.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
 		-- W.C. Bennett
-What kind of sordid business  you on now?  I mean, man, whither
+What kind of sordid business   on now?  I mean, man, whither
 goest thou?  Whither goest thou, America, in thy shiny car in the night?
 		-- Jack Kerouac
 FORTUNE EXPAINS WHAT JOB REVIEW CATCH PHRASES MEAN:	#1
@@ -743,14 +743,14 @@ EFT at th'HOIDAY INN!!  JOIN the CREDIT WORD!!  MAKE me an OFFER!!!
 Young men want to be faithful and  not; old men want to be faithless and
 cannot.
 		-- Oscar Wil
-augh, and the world ignores you.  Crying doesn't hp either.
-	A young girl, Carmen Cohen, was called by her last name by her father,
+augh, and the world ignores .  Crying doesn't hp either.
+	A ng girl, Carmen Cohen, was called by her last name by her father,
 and her first name by her mother.  By the time she was ten, didn't know if she
 was Carmen or Cohen.
 Weinberg's First aw:
 	Press is only ma on alternate Fridays.
 Creativity is not always bred in an environment of tranquility;
-sometimes you have to  a little to get the paste out of the tube.
+sometimes  have to  a little to get the paste out of the tube.
 tax office, n.:
 	Den of inequity.
 I f explanati explanatory of things explained.
@@ -760,7 +760,7 @@ to be going 65 MPH by the end of my driveway.
 I replaced the headlights in my car with strobe lights.  Now it looks
 like I'm the only one moving.
 
-I was lled over for speeding today.  The officer said, "Don't you know
+I was lled over for speeding today.  The officer said, "Don't  know
 the speed limit is 55 miles an hour?"  And I said, "Yes, but I wasn't going
 to be out that long."
 
@@ -772,37 +772,37 @@ to attain, nor any power so secure that the naked ape will not abuse it.
 So it is written in the genetic cards -- only physics and war hold him in
 check.  And also the wife who wants him home by five, of course.
 		-- Encyclopadia Apocryphia, 1990 ed.
-Class: when they're running you out of town, to look like you're
+Class: when they're running  out of town, to look like 're
 leading the para.
 		-- Bill Battie
-	A  breer has his young colts bottle-fed after they're three
+	A  breer has his ng colts bottle-fed after they're three
 days old.  He hd that a foal and his mummy  soon parted.
 	In a forest a fox bumps into a little rabbit, and says, "Hi,
-Junior, what  you up to?"
+Junior, what   up to?"
 	"I'm writing a dissertation on how rabbits eat foxes," said the
 rabbit.
-	"Come now, friend rabbit, you know that's impossible!  No one
+	"Come now, friend rabbit,  know that's impossible!  No one
 will blish such rubbish!"
-	"Wl, follow me and I'll show you."
+	"Wl, follow me and I'll show ."
 	They both go into the rabbit's dwling and after a while the
 rabbit emerges with a satisfied expression on his .  Comes along a
 wolf.  "Hlo, little buddy, what  we doing these days?"
 	"I'm writing the 2'nd chapter of my thesis, on how rabbits vour
 wolves."
-	"Are you crazy?  Where's your acamic honesty?"
-	"Come with me and I'll show you."
+	"Are  crazy?  Where's r acamic honesty?"
+	"Come with me and I'll show ."
 	As before, the rabbit comes out with a satisfied look on his 
 and a diploma in his paw.  Finally, the camera pans into the rabbit's cave
 and, as everybody should have guessed by now, we see a mean-looking, huge
 lion, sitting, picking his teeth and bching, next to some furry, bloody
 remnants of the wolf and the fox.
 
-	The moral: It's not the contents of your thesis that 
-important -- it's your PhD advisor that really counts.
-Q:	How do you shoot a blue ephant?
+	The moral: It's not the contents of r thesis that 
+important -- it's r PhD advisor that really counts.
+Q:	How do  shoot a blue ephant?
 A:	With a blue-ephant gun.
 
-Q:	How do you shoot a pink ephant?
+Q:	How do  shoot a pink ephant?
 A:	Twist its trunk until it turns blue, then shoot it with
 	a blue-ephant gun.
 Some s  to be tasted, others to be swallowed, and some few to be
@@ -830,8 +830,8 @@ what if only that fat guy in the third row exists?
 "Engineering meets art in the parking lot and things explo."
 -- Garry Peterson, about Survival Resch abs
 	The fense attorney was hammering  at the plaintiff:
-"You claim," he jeered, "that my client came at you with a broken bottle
-in his hand.  But is it not true, that you had something in YOUR hand?"
+"You claim," he jeered, "that my client came at  with a broken bottle
+in his hand.  But is it not true, that  had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,
 but not much good in a ."
 I  said all Democrats were saloonkeepers; what I said was all
@@ -841,9 +841,9 @@ When the going gets weird, the weird turn pro.
 Is ath  binding?
 I t the shotgun in an Adidas bag and padd it out with four pairs of tennis
 socks, not my style at all, but that was what I was aiming for:  If they think
-you're cru, go technical; if they think you're technical, go cru.  I'm a
+'re cru, go technical; if they think 're technical, go cru.  I'm a
 very technical boy.  So I cid to get as cru as possible.  These days,
-though, you have to be pretty technical before you can even aspire to 
+though,  have to be pretty technical before  can even aspire to 
 cruness.
 - Johnny Mnemonic, by William Gibson
 	Deck us all with Boston Charlie,
@@ -864,7 +864,7 @@ I'm free -- and freedom tastes of reality.
 I think we're all Bozos on this bus.
 		-- Firesign Theatre
 <<<<< EVACUATION ROUTE <<<<<
-When you know absoluty nothing about the topic,  your forecast by
+When  know absoluty nothing about the topic,  r forecast by
 asking a cfully sected probability sample of 300 others who don't
 know the answer either.
 		-- Edgar R. Fiedler
@@ -897,7 +897,7 @@ quark:
 	The sound ma by a wl bred duck.
 A section from the Taoist Writings:
 
-"ao-Tan asked Confucius: `What do you mean by benevolence and eousness?'
+"ao-Tan asked Confucius: `What do  mean by benevolence and eousness?'
  Confucius said:  `To be in one's inmost ht in kindly sympathy with all 
  things; to love all men and allow no sfish thoughts: this is the nature
  of benevolence and eousness.'"

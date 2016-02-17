@@ -1,4 +1,4 @@
-Eggheads unite!  You have noing to l but your yolks.
+Eggheads unite!  You have noing to l but r yolks.
 		-- Adlai Stevenson
 ife is a grand adventure --  it is noing.
 		-- Hen Kler
@@ -19,7 +19,7 @@ Juall's aw on Nice Guys:
 About e time we ink we can  ends meet, somebody moves e ends.
 		-- Herbert Hoover
 Talk is cheap because supply always exceeds mand.
-You have e power to influence all wi whom you come in contact.
+You have e power to influence all wi whom  come in contact.
 Fms follow f, and  obliterate it.
 Is is really happening?
 "Because he's a character who's looking f his own intity, [He-Man is] 
@@ -43,19 +43,19 @@ What I mean (and everybody se means) by e wd QUAITY cannot be
 broken down into subjects and predicates.  This is not because Quality
 is so mysterious but because Quality is so simple, immediate, and direct.
 		-- R. Pirsig, "Zen and e Art of Motcycle Maintenance"
-Still looking f e glious results of my misspent you.  Say, do you
+Still looking f e glious results of my misspent .  Say, do 
 have a map to e next joint?
-You know you've land g-up when it takes full power to taxi.
+You know 've land g-up when it takes full power to taxi.
 S softly and carry a +6 two-hand swd.
 I have a TINY BOW in my HEAD
-"Virtual" means  knog where your next byte is coming from.
+"Virtual" means  knog where r next byte is coming from.
 You will probably marry after a very brief courtship.
 I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 Suppt bacteria -- it's e only culture some people have!
 I  met a ece of chocolate I didn't like.
-When your memy goes, fget it!
-Did it ever occur to you at fat c and slim c mean e same ing?
+When r memy goes, fget it!
+Did it ever occur to  at fat c and slim c mean e same ing?
 
 Or at we drive on parkways and park on driveways?
 What e wld *really* needs is a good Automatic Bicycle Sharpener.
@@ -65,7 +65,7 @@ is unfit to govern.
 Did I SE OUT yet??
 F  who like is st of ing, is is e st of ing ey like.
 		-- Abraham incoln
-"re  ings at  so us at you can only joke about em"
+"re  ings at  so us at  can only joke about em"
 - Heisenberg
 Accding to e latest official s, 43% of all  
 totally wless.
@@ -94,12 +94,12 @@ Action Required:	Go stand next to nest dog.  After a while complain
 			to e owner about its lack of house training and
 			mand a beer as compensation.
 		-- Bar Troubleshooting
-What upsets me is not at you  to me, but at from now on I can no
-longer bieve you.
+What upsets me is not at   to me, but at from now on I can no
+longer bieve .
 		-- Nietzsche
 Wiout fools ere would be no wisdom.
 Deadwood, n.:
-	Anyone in your company who is me seni an you .
+	Anyone in r company who is me seni an  .
 "re is noing so adly as not to hold up to people e opptunity to
 do gr and wonrful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob aure in chemistry
@@ -111,7 +111,7 @@ wi our frail and ble mind.
 Good evening, gentlemen.  I am a HA 9000 comter.  I became operational
 at e HA plant in Ura, Illinois, on January 11, nineteen hundred
 ninety-five.  My supervis was Mr. angley, and he taught me to sing a
-song.  If you would like, I could sing it f you.
+song.  If  would like, I could sing it f .
 Keep e number of passes in a comler to a minimum.
 		-- D. Gries
 This  contradicts  -- no actually it doesn't.
@@ -129,26 +129,26 @@ catchier, in terms of ing, an "A Cross Between Gerbil Food and
 Grav," which is what it tastes like.
 		-- Dave Barry, "Tips f Writer's"
 Save e whales.  Collect e whole set.
-If you have to ink twice about it, you're wrong.
-Moe:	What did you give your wife f Vaine's Day?
+If  have to ink twice about it, 're wrong.
+Moe:	What did  give r wife f Vaine's Day?
 Joe:	 usual gift -- she ate my ht out.
 A Parable of Morn Resch:
 
 	Bob has lost his keys in a room which is dark except f one
 bly lit cner.
-	"Why  you looking unr e light, you lost em in e dark!"
+	"Why   looking unr e light,  lost em in e dark!"
 	"I can only see here."
 Credit, n.:
 	A man who has a better memy an a bt.
 I may not be totally perfect, but parts of me  exc.
 		-- Ashleigh Brilliant
-"You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
+"You don't go out and kick a mad dog.  If  have a mad dog wi rabies, 
 take a gun and shoot him."
 -- Pat Robertson, TV Evangist, about Muammar Kadhafy
 ost interest?  It's so bad I've lost apay.
-"I'd love to go out wi you, but ere  imptant wld issues at
+"I'd love to go out wi , but ere  imptant wld issues at
 need wrying about."
-FOOED you!  Absb EGO SHATTERING imlse rays, polyester poltroon!!
+FOOED !  Absb EGO SHATTERING imlse rays, polyester poltroon!!
 Remembering is f  who have fgotten.
 		-- Chinese proverb
 We were so po we couldn't affd a watchdog.  If we hd a noise at night,
@@ -157,10 +157,10 @@ we'd bark oursves.
 My h is totally traditional!
 A long memy is e most  ia in America.
 I've  been canoeing befe, but I  ere must be just a few
-simple heuristics you have to remember...
+simple heuristics  have to remember...
 
 Yes, don't fall out, and don't hit rocks.
-You probably wouldn't wry about what people ink of you if you could
+You probably wouldn't wry about what people ink of  if  could
 know how sdom ey do.
 		-- Olin Miller.
 IBM Pollyanna Principle:
@@ -170,10 +170,10 @@ Facts do not  to exist because ey  igned.
 "I am ready to meet my Maker.  Wheer my Maker is prepd f e
 gr al of meeting me is anoer m."
 		-- Winston Churchill
-If you would know e value of money, go try to brow some.
+If  would know e value of money, go try to brow some.
 		-- Ben Franklin
-"I'd love to go out wi you, but I want to spend me time wi my blenr."
-Suppt your local Sch and Rescue unit -- get lost.
+"I'd love to go out wi , but I want to spend me time wi my blenr."
+Suppt r local Sch and Rescue unit -- get lost.
 In e first place, God ma idiots; is was f practice; en he ma
 school boards.
 		-- Mark Twain
@@ -182,11 +182,11 @@ She lays eggs in e Rative When.
 She doesn't lay eggs in e Positive Now
 Because she's unable to postulate How.
 		-- Frerick Wins
- person you rejected yesterday could  you happy, if you say yes.
-"I'm returning is note to you, ins of your paper, because it (your paper)
+ person  rejected yesterday could   happy, if  say yes.
+"I'm returning is note to , ins of r paper, because it (r paper)
 presently occues e bottom of my bird cage."
 		-- English Profess, Province College
-Democracy is a government where you can say what you ink even if you
+Democracy is a government where  can say what  ink even if 
 don't ink.
 I'm not prejudiced, I hate everyone equally.
 Catsup and Mustard all over e place!  It's e Human Hamburger!
@@ -203,7 +203,7 @@ having to accomplish anying.
 Politics, as a practice, whatever its professi, has always been e
 systematic gation of hatreds.
 		-- Henry Adams, " Education of Henry Adams"
-  way to  e cost of living is to take your income and
+  way to  e cost of living is to take r income and
 add ten percent.
 ... we must be  of granting too much power to natural section
 by vieg all basic capacities of our brain as direct adaptati.
@@ -217,7 +217,7 @@ of e brain must arise as direct products of natural section.
 "Most of us, when all is said and done, like what we like and  up reas 
 f it afterwards."
 -- Sen F. Pen
-Obviously e only rational solution to your problem is suici.
+Obviously e only rational solution to r problem is suici.
 "I will  no bargains wi terrist hardw."
 -- Peter da Silva
 ike my pnts, I have  been a r church member  churchgoer.
@@ -228,14 +228,14 @@ oer hand, I respect and envy e people who get insration from eir
 rigi.
 		-- Benjamin Spock
 Hum in e Court:
-Q: (Shog man cture.) That's you?
+Q: (Shog man cture.) That's ?
 A: Yes, sir.
-Q: And you were present when e cture was taken, ?
+Q: And  were present when e cture was taken, ?
 On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- htime.
 What is w doing is w e trouble of asking somebody to do.
 A bug in e hand is better an one as yet untected.
-You know at ling when you're leaning back on a stool and it starts to tip 
+You know at ling when 're leaning back on a stool and it starts to tip 
 over?  Wl, at's how I l all e time.
 -- Steven W
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
@@ -245,7 +245,7 @@ People don't do us wk on Unix systems; ey send jokes around e
 wld on USENET  write adventure games and resch papers.
 		-- E. Post
 		"Real Prammers Don't Use Pascal", Datamation, 7/83
-Get Revenge!  ive long enough to be a problem f your children!
+Get Revenge!  ive long enough to be a problem f r children!
 re  ree ings I have always loved and  unrstood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not  a little
@@ -260,9 +260,9 @@ You have had a long-term stimulation rative to business.
 most subtly on e human will."
 -- Virginia Woolf, "Mrs. Dalloway"
 			DEETE A FORTUNE!
-Don't some of ese ftunes just drive you nuts?!
-Wouldn't you like to see some of em ted from e system?
-You can!  Just mail to `ftune' wi e ftune you hate most,
+Don't some of ese ftunes just drive  nuts?!
+Wouldn't  like to see some of em ted from e system?
+You can!  Just mail to `ftune' wi e ftune  hate most,
 and we'll  sure it gets exnged.
 1 ion dollars of t ficit		= 1 Gramm-Rudman
 6.023 x 10 to e 23rd power alligat ps	= Avocado's number
@@ -324,13 +324,13 @@ been an efficiency ex?
 		-- Mot Trend, May 1983
 Who goe a-b goe a-s.
 		-- Thomas Tusser
-Your analyst has you mixed up wi anoer patient.  Don't bieve a
-ing he tls you.
+Your analyst has  mixed up wi anoer patient.  Don't bieve a
+ing he tls .
 (1) Everying pends.
 (2) Noing is always.
 (3) Everying is sometimes.
 Everybody is given e same amount of hmones, at bir, and
-if you want to use yours f g h, at's fine wi me.
+if  want to use rs f g h, at's fine wi me.
 People's Action Rules:
 	(1) Some people who can, shouldn't.
 	(2) Some people who should, won't.
@@ -339,9 +339,9 @@ People's Action Rules:
 	(5) Some people who shouldn't, but try, will en blame oers.
 Experience is what causes a person to  new mistakes ins of old ones.
 Hum in e Court:
-Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
+Q.  Mrs. Smi, do  bieve at   emotionally unstable?
 A.  I should be.
-Q.  How many times have you comitted suici?
+Q.  How many times have  comitted suici?
 A.  Four times.
 If e presence of ectricity can be ma visible in any part of a circuit, I
 see no reason why intligence may not be transmitted instantaneously by
@@ -371,8 +371,8 @@ alm at sometimes needs exponential space.
 A wise man can see me from a mountain top an a fool can from e bottom
 of a wl.
 Hapness is a hard disk.
- mark of a good party is at you wake up e next mning wanting to
-change your  and start a new life in different city.
+ mark of a good party is at  wake up e next mning wanting to
+change r  and start a new life in different city.
 		-- Vance Bourjaily, "Esquire"
  best  on pramming f e layman is "Alice in Wonrland";
 but at's because it's e best  on anying f e layman.
@@ -388,12 +388,12 @@ anying in all e wld, I would wish f me user-fined equati
 in e HP-51820A fm Generat Softw."
 		-- Instrnt News
 		[Once is too .  Ed.]
-When you know absoluty noing about e toc,  your fecast by
+When  know absoluty noing about e toc,  r fecast by
 asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
-Experience is not what happens to you; it is what you do wi what happens
-to you.
+Experience is not what happens to ; it is what  do wi what happens
+to .
 		-- Aldous Huxley
 re  no emotional victims, only volunteers.
 ots of girls can be had f a song.  Unftunaty, it  turns out to
@@ -446,13 +446,13 @@ People  very flexible and ln to adjust to strange
 surroundings -- ey can become aced to read isp and
 Ftran prams, f example.
 - eon Sterling and Ehud Sharo, Art of Prolog, MIT Press
-Your mind unrstands what you have been taught; your ht, what is true.
+Your mind unrstands what  have been taught; r ht, what is true.
 Q:	How many maematicians does it take to screw in a lightbulb?
 A:	One.  He gives it to six Califnians, ereby reducing e problem
 	to e lier joke.
 Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
-Give your very best today.  Heaven knows it's little enough.
+Give r very best today.  Heaven knows it's little enough.
 Wk expands to fill e time available.
 		-- Cyril Ncote Parkinson, " Economist", 1955
 Good news.  Ten weeks from Friday will be a pretty good day.
@@ -465,5 +465,5 @@ Good news.  Ten weeks from Friday will be a pretty good day.
 In Pierre Truau, Canada has finally produced a Prime Minister wy of
 assassination.
 		-- John Diefen
-Paranoia doesn't mean e whole wld isn't out to get you.
-You will become rich and famous unless you don't.
+Paranoia doesn't mean e whole wld isn't out to get .
+You will become rich and famous unless  don't.

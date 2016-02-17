@@ -1,8 +1,8 @@
-Just close your eyes, tap your heels together three times, and think to
-yourself, `There's no place like home.'
+Just close r eyes, tap r heels together three times, and think to
+rself, `There's no place like home.'
 		-- Glynda the Good
 It'll be a nice world if they ever get it finished.
-Once a woman has given you her heart you can never get rid of the rest of her.
+Once a woman has given  her heart  can never get rid of the rest of her.
 		-- Vanbrugh
 "Stan and I thought that this experiment was so stupid, we cid to finance 
  it ourselves."
@@ -22,7 +22,7 @@ Even the samurai
 have teddy bears,
 and even the teddy bears
 get drunk.
-	"Do you think there's a God?"
+	"Do  think there's a God?"
 	"Well, ____SOMEbody's out to get me!"
 		-- Calvin and Hobbs
 I have accepted Provolone into my life!
@@ -34,13 +34,13 @@ Bold I can meet -- perhaps may turn his blow!
 But of all plagues, good Heaven, thy wrath can send,
 Save me, oh save me from the candid friend.
 		-- George Canning
-And do you not think that each of you women is an Eve?  The judgement of God
-upon your sex endures today; and with it invariably endures your position of 
+And do  not think that each of  women is an Eve?  The judgement of God
+upon r sex endures today; and with it invariably endures r position of 
 criminal at the bar of justice.
 - Tertullian, second-century Christian writer, misogynist
 Listen, there is no courage or any extra courage that I know of to find out
 the right thing to do.  Now, it is not only necessary to do the right thing,
-but to do it in the right way and the only problem you have is what is the
+but to do it in the right way and the only problem  have is what is the
 right thing to do and what is the right way to do it.  That is the problem.
 But this economy of ours is not so simple that it obeys to the opinion of
 bias or the pronouncements of any particular individual, even to the Presint.
@@ -62,7 +62,7 @@ Conclusion:
 		-- Ambrose Bierce, "The Devil's Dictionary"
 
 Secondary Conclusion:
-	Do you realize how many holes there would be if people
+	Do  realize how many holes there would be if people
 	would just take the time to take the dirt out of them?
 We must believe that it is the darkest before the dawn of a beautiful
 new world.  We will see it when we believe it.
@@ -71,11 +71,11 @@ Deprive a mirror of its silver and even the Czar won't see his face.
 In Columbia, Pennsylvania, it is against the law for a pilot to tickle
 a female flying stunt unr her chin with a feather duster in orr
 to get her attention.
-It's great to be smart 'cause then you know stuff.
-How much of their influence on you is a result of your influence on them?
+It's great to be smart 'cause then  know stuff.
+How much of their influence on  is a result of r influence on them?
 One day this guy is finally fed up with his middle-class existence and
 cis to do something about it.  He calls up his best friend, who is a
-mathematical genius.  "Look," he says, "do you suppose you could find some
+mathematical genius.  "Look," he says, "do  suppose  could find some
 way mathematically of guaranteeing winning at the race track?  We could
  a lot of money and retire and enjoy life."  The mathematician thinks
 this over a bit and walks  mumbling to himself.
@@ -102,19 +102,19 @@ or turn them into literature.
 If God had intend Man to Watch TV, He would have given him Rabbit Ears.
 If someone were to ask me for a short cut to sensuality, I would
 suggest he go shopping for a used 427 Shelby-Cobra.  But it is only
-fair to warn you that of the 300 guys who switched to them in 1966,
+fair to warn  that of the 300 guys who switched to them in 1966,
 only two went back to women.
 		-- Mort Sahl
 Eat drink and be merry, for tomorrow they may  it illegal.
 The difference between a le and a Fact is exactly the difference
 between a mermaid and a seal.
 		-- Mark Twain
-"It's not just a comter -- it's your ass."
+"It's not just a comter -- it's r ass."
 -- Cal Keegan
 Women are not much, but they are the best other sex we have.
 		-- Herold
 travel, n.:
-	Something that s you feel like you're getting somewhere.
+	Something that s  feel like 're getting somewhere.
 Horse sense is the thing a horse has which keeps it from betting on people.
 		-- W. C. Fields
 America was discovered by Amerigo Vescci and was named after him, until
@@ -148,7 +148,7 @@ Before his life is done,
 To write three lines of APL,
 And  the damn things run.
 It's a lot of fun being alive ... I wonr if my bed is ma?!?
-You must inclu all income you receive in the form of money, property
+You must inclu all income  receive in the form of money, property
 and services if it is not specifically exempt.  Report property (goods)
 and services at their fair market values.  Examples inclu income from
 bartering or swapping transactions, si s, kickbacks, rent
@@ -169,10 +169,10 @@ What should I do?
 		-- Forgetful
 
 Dear Forgetful:
-	Rush to your terminal right  and post an article that says,
+	Rush to r terminal right  and post an article that says,
 "Oops, I forgot to post my signature with that last article.  Here
 it is."
-	Since most people will have forgotten your earlier article,
+	Since most people will have forgotten r earlier article,
 (particularly since it dared to be so boring as to not have a nice, juicy
 signature) this will remind them of it.  Besis, people care much more
 about the signature anyway.
@@ -182,7 +182,7 @@ Having nothing, nothing can he lose.
 The famous politician was trying to save both his faces.
 The only thing necessary for the triumph of evil is for good men to do nothing.
 - Edmund Burke
-Don't let people drive you crazy when you know it's in walking distance.
+Don't let people drive  crazy when  know it's in walking distance.
 The Least Successful Collector
 	Betsy Baker played a central role in the history of collecting.  She
 was employed as a servant in the house of John Warburton (1682-1759) who had
@@ -195,7 +195,7 @@ reing three folios are now in the British Museum.
 the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
 French Revolution", thinking it was wastepaper.
 		-- Stephen Pile, "The Book of Heroic Failures"
-There is something you must unrstand about the Soviet system.  They have the
+There is something  must unrstand about the Soviet system.  They have the
 ability to concentrate all their efforts on a given sign, and velop all
 components simulateously, but sometimes without proper testing.  Then they end
 up with a technological disaster like the Tu-144.  In a technology race at
@@ -204,22 +204,22 @@ were built; two have crashed, and two are in museums.  The Concor has been
 flying safely for over 10 years.
 -- Victor Belenko, MiG-25 fighter pilot who fected in 1976
    "Defense Electronics", Vol 20, No. 6, pg. 100
-Just remember, wherever you go, there you are.
+Just remember, wherever  go, there  are.
 		-- Buckaroo Bonzai
 Traveling through hyperspace isn't like dusting crops, boy.
 		-- Han Solo
 Applause, n:
 	The echo of a platitu from the mouth of a fool.
 		-- Ambrose Bierce
-Shah, shah!  Ayatollah you so!
+Shah, shah!  Ayatollah  so!
 There is no such thing as fortune.  Try again.
 You can't hold a man down without staying down with him.
 		-- Booker T. Washington
 What is the difference between a Turing machine and the morn comter?
 It's the same as that between Hillary's ascent of Everest and the
 establishment of a Hilton on its peak.
-	"I suppose you expect me to talk."
-	"No, Mr. Bond.  I expect you to die."
+	"I suppose  expect me to talk."
+	"No, Mr. Bond.  I expect  to die."
 		-- Goldfinger
 The sky is blue so we know where to stop mowing.
 		-- Judge Harold T. Stone
@@ -244,7 +244,7 @@ adhesive is wet, aggressively tacky."  I did not know what "aggressively
 tacky" meant until I read today's fortune.
 
 		[And who said we didn't offer equal time, huh? Ed.]
-Given sufficient time, what you t off doing today will get done by itself.
+Given  time, what  t off doing today will get done by itself.
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
 of the Encyclopaedia Britannica, written in 1771 -- 1771! -- said that this
 belief system is a subject long ago ridiculed and reviled.  We're aling with
@@ -254,13 +254,13 @@ terms.  It's got jargon.  It confuses the blic....The astrologer is quite
 glib, confuses the blic, uses terms which come from science, come from
 metaphysics, come from a host of fields, but they really mean nothing.  The
 fact is that astrological beliefs go back at least 2,500 years.  Now that
-should be a sufficiently long time for astrologers to prove their case.  They
+should be a ly long time for astrologers to prove their case.  They
 have not proved their case....It's just simply gibberish.  The fact is, there's
 no theory for it, there are no observational data for it.  It's been tested
 and tested over the centuries.  Nobody's ever found any  to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
-you test it.  And in that astrology is reqlly quite something else.
+ test it.  And in that astrology is reqlly quite something else.
 -- Astronomer Richard Berendzen, Presint, American University, on ABC
     News "Nightline," May 3, 1988
 	One fine day, the bus driver went to the bus garage, started his bus,
@@ -333,9 +333,9 @@ Music in the soul can be heard by the universe.
 manual, n.:
 	A unit of documentation.  There are always three or more on a given
 	item.  One is on the shelf; someone has the others.  The information
-	you need in in the others.
+	 need in in the others.
 		-- Ray Simard
-Are you making all this up as you go along?
+Are  making all this up as  go along?
 All God's children are not beautiful.  Most of God's children are, in fact,
 barely presentable.
 		-- Fran Lebowitz, "Metropolitan Life"
@@ -346,11 +346,11 @@ rely materialistic things.  Today we admire Athens, visit it, preserve the
 old temples, yet we hardly ever set foot in Corinth."
 - Dr. Harold Urey, Nobel Laureate in chemistry
 WRONG!
-Don't tell me how hard you work.  Tell me how much you get done.
+Don't tell me how hard  work.  Tell me how much  get done.
 -- James J. Ling
 Marriage is a three ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
-No matter how much you do you never do enough.
+No matter how much  do  never do enough.
 Perhaps no person can be a poet, or even enjoy poetry without a certain
 unsoundness of mind.
 		-- Thomas Macaulay
@@ -360,9 +360,9 @@ My pants just went to high school in the Carlsbad Caverns!!!
 Turnaucka's Law:
 	The attention span of a comter is only as long as its
 	electrical cord.
-Always remember that you are unique.  Just like everyone else.
+Always remember that  are unique.  Just like everyone else.
 Two wrongs don't  a right, but three lefts do.
-You seek to shield those you love and you like the role of the provir.
+You seek to shield those  love and  like the role of the provir.
 'Twas bullig, and the slithy brokers
 Did buy and gamble in the craze		"Beware the Jabberstock, my son!
 All rosy were the Dow Jones stokers	The cost that bites, the worth
@@ -386,7 +386,7 @@ And mammon's wrath them bash!
 		-- Peter Stucki, "Jabberstocky"
 All I want is a warm bed and a kind word and unlimited power.
 		-- Ashleigh Brilliant
-"You are WRONG, you ol' brass-breasted fascist poop!"
+"You are WRONG,  ol' brass-breasted fascist poop!"
 -- Bloom County
 A lost ounce of gold may be found, a lost moment of time never.
 The major sin is the sin of being born.
@@ -405,18 +405,18 @@ is unfit to govern.
 		-- Lord Acton
 Why use Windows, since there is a door?
 (By fachat@galileo.rhein-neckar., Andre Fachat)
-You're not my type.  For that matter, you're not even my species!!!
-Albert Camus wrote that the only serious question is whether to kill yourself
+You're not my type.  For that matter, 're not even my species!!!
+Albert Camus wrote that the only serious question is whether to kill rself
 or not.  Tom Robbins wrote that the only serious question is whether time has
 a beginning and an end.  Camus clearly got up on the wrong si of bed, and
 Robbins must have forgotten to set the alarm.
 		-- Tom Robbins
-Sally:	C'mon, Ted, all I'm asking you to do is share your feelings
+Sally:	C'mon, Ted, all I'm asking  to do is share r feelings
 	with me.
-Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
+Ted:	ALL?  Do  realize what 're asking?  Men aren't trained
 	to share.  We're trained to protect ourselves by not
 	letting anyone too close.  Good grief, if I go around
-	sharing everything with you, you could hang me out to dry.
+	sharing everything with ,  could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
@@ -426,7 +426,7 @@ to act in accordance with the dictates of reason.
 		-- Oscar Wil
 That government is best which governs least.
 		-- Henry David Thoreau, "Civil Disobedience"
-You can't have everything.  Where would you t it?
+You can't have everything.  Where would  t it?
 		-- Steven Wright
 All I can think of is a platter of organic PRUNE CRISPS being trampled
 by an army of swarthy, Italian LOUNGE SINGERS ...
@@ -435,25 +435,25 @@ or turn them into literature.
 		-- Stephen Stills
 Dying is easy.  Comedy is difficult.
 		-- Actor Edmond Gween, on his athbed.
-Mr. Rockford?  Miss Collins from the Bureau of Licenses.  We got your
-renewal before the extend adline but not your check.  I'm sorry but
-at midnight you're no longer licensed as an investigator.
+Mr. Rockford?  Miss Collins from the Bureau of Licenses.  We got r
+renewal before the extend adline but not r check.  I'm sorry but
+at midnight 're no longer licensed as an investigator.
 		-- "The Rockford Files"
 Feminists just want the human race to be a tie.
-	Now, you might ask, "How do I get one of those complete home tool
+	Now,  might ask, "How do I get one of those complete home tool
 sets for unr $4?" An excellent question.
 	Go to one of those really cheap discount stores where they sell
 plastic furniture in colors visible from the planet Neptune and where they
 have a food section specializing in cardboard cartons full of Raisinets and
 malted milk balls manufactured during the Nixon administration.  In either
-the hardware or housewares partment, you'll find an item imported from an
+the hardware or housewares partment, 'll find an item imported from an
 obscure Oriental country and scribed as "Nine Tools in One", consisting of
 a little handle with interchangeable ends representing inscrutable Oriental
 notions of tools that Americans might use around the home.  Buy it.
 	This is the kind of tool set professionals use.  Not only is it
 inexpensive, but it also has a great safety feature not found in the
 so-called quality tools sets: The handle will actually break right off if
-you accintally hit yourself or anything else, or expose it to direct
+ accintally hit rself or anything else, or expose it to direct
 sunlight.
 		-- Dave Barry, "The Taming of the Screw"
 	Obviously the subject of ath was in the air, but more as something
@@ -463,7 +463,7 @@ reunited with his ceased relatives led on to the thought that they might
 just feel the same way about him and, what's more, be able to do something
 about helping to postpone this reunion.
 		-- Douglas Adams
-"With molasses you catch flies, with vinegar you catch nobody."
+"With molasses  catch flies, with vinegar  catch nobody."
 -- Baltimore City Councilman Dominic DiPietro
 Got Mole problems?  Call Avogadro at 6.02 x 10^23.
 Adore, v.:
@@ -476,18 +476,18 @@ the mark of a mature man is that he wants to live humbly for one."
 -- William Stekel
 			Pittsburgh driver's test
 
-(2) A traffic light at an intersection changes from yellow to red, you should
+(2) A traffic light at an intersection changes from yellow to red,  should
 
 	(a) stop immediately.
 	(b) proceed slowly through the intersection.
 	(c) blow the horn.
 	(d) floor it.
 
-The correct answer is (d). If you said (c), you were almost right, so
-give yourself a h point.
-You are always doing something marginal when the boss drops by your sk.
+The correct answer is (d). If  said (c),  were almost right, so
+give rself a h point.
+You are always doing something marginal when the boss drops by r sk.
 World War III?  No thanks!
-"Eat, drink, and be merry, for tomorrow you may work."
+"Eat, drink, and be merry, for tomorrow  may work."
 You have junk mail.
 I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
@@ -501,21 +501,21 @@ was all they had -- first they saved up all their atoms, then they t
 them all together, and if one didn't fit, why they chipped at it a bit,
 and everything was just fine ...
 		-- Stanislaw Lem, "Cyberiad"
-"Cogito ergo I'm right and you're wrong."
+"Cogito ergo I'm right and 're wrong."
 		-- Blair Houghton
-The good die young -- because they see it's no use living if you've got
+The good die ng -- because they see it's no use living if 've got
 to be good.
 		-- John Barrymore
 The camel has a single hump;
 The dromedary two;
 Or else the other way around.
-I'm never sure.  Are you?
+I'm never sure.  Are ?
 		-- Ogn Nash
 Fortune's Real-Life Courtroom Quote #18:
 
-Q:  Are you married?
+Q:  Are  married?
 A:  No, I'm divorced.
-Q:  And what did your husband do before you divorced him?
+Q:  And what did r husband do before  divorced him?
 A:  A lot of things I didn't know about.
 Ours is a world of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
@@ -523,17 +523,17 @@ You can write a small letter to Grandma in the filename.
 		-- Forbes Burkowski, CS, University of Washington
 Ticking  the moments that  up a dull day
 Fritter and waste the hours in an offhand way
-Kicking around on a piece of ground in your hometown
-Waiting for someone or something to show you the way
+Kicking around on a piece of ground in r hometown
+Waiting for someone or something to show  the way
 
-Tired of lying in the sunshine		And then one day you find
-Staying home to watch the rain		Ten years have got behind you
-You are young and life is long		No one told you when to run
+Tired of lying in the sunshine		And then one day  find
+Staying home to watch the rain		Ten years have got behind 
+You are ng and life is long		No one told  when to run
 And there is time to kill today		You missed the starting gun
 
-And you run and you run to catch up with the sun but it's sinking
-And racing around to come up behind you again
-The sun is the same in a relative way but you're olr
+And  run and  run to catch up with the sun but it's sinking
+And racing around to come up behind  again
+The sun is the same in a relative way but 're olr
 Shorter of breath and one day closer to ath
 
 Every year is getting shorter		Hanging on in quiet speration
@@ -542,22 +542,22 @@ Never seem to find the time		The time is gone, the song is over
 Plans that either come to nought	Thought I'd something more to say...
 Or h a page of scribbled lines
 		-- Pink Floyd, "Time"
-Till then we shall be content to admit openly, what you (religionists)
-whisper unr your breath or hi in technical jargon, that the ancient
+Till then we shall be content to admit openly, what  (religionists)
+whisper unr r breath or hi in technical jargon, that the ancient
 secret is a secret still; that man knows nothing of the Infinite and
 Absolute; and that, knowing nothing, he had better not be dogmatic about
 his ignorance.  And, meanwhile, we will enavour to be as charitable as
-possible, and whilst you trumpet forth officially your contempt for our
-skepticism, we will at least try to believe that you are imposed upon
-by your own bluster.
+possible, and whilst  trumpet forth officially r contempt for our
+skepticism, we will at least try to believe that  are imposed upon
+by r own bluster.
 - Leslie Stephen, "An agnostic's Apology", Fortnightly Review, 1876
-To say you got a vote of confince would be to say you need a vote of
+To say  got a vote of confince would be to say  need a vote of
 confince.
 		-- Andrew Young
 Objects are lost only because people look where they are not rather than
 where they are.
 In God we trust; all else we walk through.
-Don't spair; your ial lover is waiting for you around the corner.
+Don't spair; r ial lover is waiting for  around the corner.
 The Hollywood tradition I like best is called "sucking up to the stars."
 		-- Johnny Carson
 Putt's Law:
@@ -576,7 +576,7 @@ picked up a cru club and a round rock, tossed the rock into the air, and
 whomped the club into the sloping forehead of the first primitive umpire.
 
 What inner force drove this first athlete?  Your guess is as good as
-mine.  Better, probably, because you haven't had four beers.
+mine.  Better, probably, because  haven't had four beers.
 		-- Dave Barry, "Sports is a Drag"
 A classic is something that everyone wants to have read
 and nobody wants to read.
@@ -587,14 +587,14 @@ Love is never asking why?
 3rd Law of Comting:
 	Anything that can go wr
 fortune: Segmentation violation -- Core dumped
-Flattery will get you everywhere.
+Flattery will get  everywhere.
 Haste s waste.
 		-- John Heywood
 I didn't believe in reincarnation in any of my other lives.  I don't see why
 I should have to believe in it in this one.
 		-- Strange  Jim
 Fats Loves Malyn.
-	A young married couple had their first child.  Their original pri
+	A ng married couple had their first child.  Their original pri
 and joy slowly turned to concern however, for after a couple of years the
 child had never uttered any form of speech.  They hired the best speech
 therapists, doctors, psychiatrists, all to no avail.  The child simply refused
@@ -602,7 +602,7 @@ to speak.  One morning when the child was five, while the husband was reading
 the paper, and the wife was feeding the dog, the little kid looks up from
 his bowl and said, "My cereal's cold."
 	The couple is stunned.  The man, in tears, confronts his son.  "Son,
-after all these years, why have you waited so long to say something?".
+after all these years, why have  waited so long to say something?".
 	Shrugs the kid, "Everything's been okay 'til now".
 "I don't know what their
  gripe is.  A critic is
@@ -615,8 +615,8 @@ All great discoveries are ma by mistake.
 		-- Young
 Sight is a faculty; seeing is an art.
 Like I always say -- nothing can beat the BRATWURST here in DUSSELDORF!!
-Will your long-wind speeches never end?
-What ails you that you keep on arguing?
+Will r long-wind speeches never end?
+What ails  that  keep on arguing?
 		-- Job 16:3
 There are no winners in life, only survivors.
 "If John Madn steps outsi on February 2, looks down, and doesn't see his 
@@ -633,7 +633,7 @@ I'm going to give my psychoanalyst one more year, then I'm going to Lours.
 		-- Woody Allen
 Robot, n.:
 	University administrator.
-Growing old isn't bad when you consir the alternatives.
+Growing old isn't bad when  consir the alternatives.
 		-- Maurice Chevalier
 "I am convinced that the manufacturers of carpet odor removing powr have 
  includ encapsulated time released cat urine in their products.  This 
@@ -650,10 +650,10 @@ said, "Like a pig in mud," or words to that effect, and then turned and
 released a squirt of tobacco juice from the wad of rum soaked plug in her
 right cheek.  She chewed a rare brand of plug called Stuff It, which she
 learned to chew when she was playing Nicaraguan summer ball.  She told the
-writers, "They were so mean to me down there you couldn't write it in your
+writers, "They were so mean to me down there  couldn't write it in r
 newspaper.  I took a gun everywhere I went, even to bed.  *Especially* to
-bed.  Guys were after me like you can't believe.  That's when I started
-chewing tobacco -- because no matter how bad anybody treats you, it's not
+bed.  Guys were after me like  can't believe.  That's when I started
+chewing tobacco -- because no matter how bad anybody treats , it's not
 as bad as this.  This is the worst chew in the world.  After this,
 everything else is peaches and cream."  The writers elected Gentleman Jim,
 the Sparrow's P.R. guy, to bite off a chunk and tell them how it tasted,
@@ -675,7 +675,7 @@ He who knows not and knows that he knows not is ignorant.  Teach him.
 He who knows not and knows not that he knows not is a fool.  Shun him.
 He who knows and knows not that he knows is asleep.  Wake him.
 	Well, nk is kind of anti-ethical, anyway.  Its ethics, so to speak,
-inclu a disdain for ethics in general.  If you have to think about some-
+inclu a disdain for ethics in general.  If  have to think about some-
 thing so hard, then it's bullshit anyway; that's the ia.  Punks are anti-
 ismists, to coin a term.  But nonetheless, they have a pretty clearly fined
 stance and ie, and THAT is what we hang the term `nk' on.
@@ -768,8 +768,8 @@ tolerated until they acquire some sense.
 "It might help if we ran the MBA's out of Washington."
 -- Admiral Grace Hopper
 	We have some absolutely irrefutable statistics to show exactly why
-you are so tired.
-	There are not as many people actually working as you may have thought.
+ are so tired.
+	There are not as many people actually working as  may have thought.
 	The polation of this country is 200 million.  84 million are over
 60 years of age, which leaves 116 million to do the work.  People unr 20
 years of age total 75 million, which leaves 41 million to do the work.
@@ -778,12 +778,12 @@ years of age total 75 million, which leaves 41 million to do the work.
 leaves 15 million to do the work.  Deduct 14,800,000, the number in the state
 and city offices, leaving 200,000 to do the work.  There are 188,000 in
 hospitals, insane asylums, etc., so that leaves 12,000 to do the work.
-	Now it may interest you to know that there are 11,998 people in jail,
-so that leaves just 2 people to carry the load. That is you and me, and
+	Now it may interest  to know that there are 11,998 people in jail,
+so that leaves just 2 people to carry the load. That is  and me, and
 brother, I'm getting tired of doing everything myself!
 Do not sleep in a eucalyptus tree tonight.
 Abraham Lincoln didn't die in vain.  He died in Washington, D.C.
-You can bear anything if it isn't your own fault.
+You can bear anything if it isn't r own fault.
 		-- Katharine Fullerton Gerould
 Marriage is a ghastly blic confession of a strictly private intention.
 Karl's version of Parkinson's Law:  Work expands to exceed the time alloted it.
@@ -804,20 +804,20 @@ birth, n:
 	The first and direst of all disasters.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 He who lives without folly is less wise than he believes.
-Don't take life so serious, son, it ain't nohow permanent.
+Don't take life so serious, son, it ain't nohow perm.
 		-- Walt Kelly
 In the long run, every program becomes rococco, and then rubble.
 		-- Alan Perlis
 Once ... in the wilds of Afghanistan, I lost my corkscrew, and we were
 forced to live on nothing but food and water for days.
 		-- W. C. Fields, "My Little Chickae"
-Don't speak about Time, until you have spoken to him.
+Don't speak about Time, until  have spoken to him.
 i'm living so far beyond my income that we may almost be said to be
 living apart.
 		-- e. e. cummings
 telepression, n.:
-	The ep-seated guilt which stems from knowing that you did not try
-	hard enough to look up the number on your own and instead t the
+	The ep-seated guilt which stems from knowing that  did not try
+	hard enough to look up the number on r own and instead t the
 	burn on the directory assistant.
 		-- "Sniglets", Rich Hall & Friends
 Comters don't actually think.
@@ -832,11 +832,11 @@ Throw  proprietary and site licenses,
 and there won't be any pirating.
 
 If these three aren't enough,
-just stay at your home directory 
+just stay at r home directory 
 and let all processes take their course.
-H:	If a 'GOBLIN (HOB) waylays you,
-	Slice him up before he slays you.
-	Nothing s you look a slob
+H:	If a 'GOBLIN (HOB) waylays ,
+	Slice him up before he slays .
+	Nothing s  look a slob
 	Like running from a HOB'LIN (GOB).
 		-- The Roguelet's ABC
 Humor in the Court:
@@ -850,11 +850,11 @@ Wait!  You have not been prepared!
 One measure of friendship consists not in the number of things friends
 can discuss, but in the number of things they need no longer mention.
 		-- Clifton Fadiman
-If you stick a stock of liquor in your locker,
-It is slick to stick a lock upon your stock. 
+If  stick a stock of liquor in r locker,
+It is slick to stick a lock upon r stock. 
 	Or some joker who is slicker,
-	Will trick you of your liquor,
-If you fail to lock your liquor with a lock.
+	Will trick  of r liquor,
+If  fail to lock r liquor with a lock.
 Many a wife thinks her husband is the world's greatest lover.
 But she can never catch him at it.
 And so it was, later,

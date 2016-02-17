@@ -4,9 +4,9 @@ tools n't soluble in alcohol...
 abor, n.:
 	One of the processes by which A acquires property for B.
 		-- Ambr Bierce, "The Devil's Dictionary"
-Hug me now, you mad, impetuous fool!!  
+Hug me now,  mad, impetuous fool!!  
 	Oh wait...
-		I'm a comter, and you're a person.  It would  work out.
+		I'm a comter, and 're a person.  It would  work out.
 			Never mind.
 Nothing so needs reforming as other people's habits.
 		-- Mark Twain
@@ -15,7 +15,7 @@ Acting is an art which cists of keeping the audience from coughing.
 Now my EMOTIONA RESOURCES  heavily committed to 23% of the SMETING
 and REFINING industry of the state of NEVADA!!
 ady Astor was giving a costume ball and Winston Churchill asked her what
-disguise she would recommend for him.  She rep, "Why don't you come
+disguise she would recommend for him.  She rep, "Why don't  come
 sober, Mr. Prime Minister?"
 A Mexican newspaper reports that bored Royal Air Force pilots stationed
 on the Falkland Islands have vised what they cir a marvous new
@@ -41,7 +41,7 @@ Don't get to bragging.
 -- The Ghostbusters
 In 1967, the Soviet Government minted a beautiful silver ruble with enin
 in a very familiar p -- arms raised above him, leading the country to
-revolution.  But, it was cl to everybody, that if you looked at it from
+revolution.  But, it was cl to everybody, that if  looked at it from
 behind, it was cl that enin was pointing to 11:00, when the Vodka
 shops opened, and was actually saying, "Comras, forward to the Vodka shops.
 
@@ -71,10 +71,10 @@ I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
 Put a ue in the limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
-When you're dining out and you suspect something's wrong, you're probably .
+When 're dining out and  suspect something's wrong, 're probably .
 A businessman is a hybrid of a dancer and a calculator.
 		-- Paul Valery
-	"Are you police officers?"
+	"Are  police officers?"
 	"No, ma'am.  We're musicians."
 		-- The Blues Brothers
 The clothes have no emperor.
@@ -88,7 +88,7 @@ Eleventh aw of Acoustics:
 	minimalization of open-loop errors in outt amplifiers and correct
 	compensation for non-lin passive crossover network loading can
 	lead to a sigant crease in system resolution lost.  However,
-	of course, this all means jack when you listen to Pink Floyd.
+	of course, this all means jack when  listen to Pink Floyd.
 Chef, n.:
 	Any cook who sws in French.
 Iination is more important than knowledge.
@@ -96,14 +96,14 @@ Iination is more important than knowledge.
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
 -- A McDonn-Douglas ad from a few ys ago
-ASCII a stupid question, you get an EBCDIC answer.
+ASCII a stupid question,  get an EBCDIC answer.
 He is the MEBA-BEING ... the ANGE CAKE ... XEROX him ... XEROX him --
 fault, n.:
-	[Possibly from Black English "De fault wid dis system is you,
+	[Possibly from Black English "De fault wid dis system is ,
 	mon."] The vain attempt to avoid errors by inactivity.  "Nothing will
 	come of nothing: s again." -- King .
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
-You k'n hi  fier, but w'at you gwine do wid  smoke?
+You k'n hi  fier, but w'at  gwine do wid  smoke?
 		-- Jo Chandler H, proverbs of Uncle Remus
 It's not that I'm afraid to die. I just don't want to be there when it happens.
 		-- Woody Allen
@@ -111,7 +111,7 @@ I opened the drawer of my little sk and a single letter fl out, a
 letter from my mother, written in pencil, one of her last, with unfinished
 words and an implicit sense of her parture.  It's so curious: one can
 resist ts and "behave" very wl in the harst hours of grief.  But
-then someone s you a friendly sign behind a window... or one notices
+then someone s  a friendly sign behind a window... or one notices
 that a flower that was in bud only yesterday has sudnly blossomed... or
 a letter slips from a drawer... and everything collapses.
 		-- etters From Colette
@@ -139,8 +139,8 @@ A bird in the hand is worth two in the bush.
 bureaucracy, n:
 	A method for transforming energy into solid waste.
 et's just say that where a change was required, I adjusted.  In every
-ratihip that exists, people have to seek a way to survive.  If you
-really c about the person, you do what's necessary, or that's the end.
+ratihip that exists, people have to seek a way to survive.  If 
+really c about the person,  do what's necessary, or that's the end.
 For the first time, I found that I really could change, and the qualities
 I most admired in mysf I gave up.  I stopped being loud and bossy ...
 Oh, all .  I was still loud and bossy, but only behind his back.
@@ -174,8 +174,8 @@ How he can raise me in the air just by raising his hand
 		-- Weird Al Yankovic, "The Star Wars Song," to the tune of
 		   "ola" by the Kinks
 	"During the race
-	 We may eat your dust,
-	 But when you graduate,
+	 We may eat r dust,
+	 But when  graduate,
 	 You'll work for us."
 	-- Reed College cheer
 Avert misunrstanding by calm, poise, and balance.
@@ -199,23 +199,23 @@ place" would turn into "the Church of Ubizmo is a wonrful place".  Iine
 the posting as a tape-reing of the poster's thoughts.  If I can set
 up the quote via fast-forwarding and stopping the tape, and without splicing,
 I don't t lipses in.  And by the way, I love using this mechm for
-turning things around.  If you think something stinks, say so - don't say you
+turning things around.  If  think something stinks, say so - don't say 
 don't think it's wonrful.   ...
 -- D. J. McCarthy (dmccart@cadape.UUCP)
 QOTD:
-	"It's sort of a threat, you see.  I've  been very good at
+	"It's sort of a threat,  see.  I've  been very good at
 	them mysf, but I'm told they can be very effective."
 Non-sequiturs  me eat lampshas.
 Normal times may possibly be over forever.
-That's always the way when you discover something new; everyone thinks
-you're crazy.
+That's always the way when  discover something new; everyone thinks
+'re crazy.
 		-- Evyn E. Smith
 First study the enemy.  Seek weakness.
 		-- Romulan Commanr, "Balance of Terror", stardate 1709.2
 The only real argument for marriage is that it res the best method
 for getting acquainted.
 		-- Heywood Broun
-For your penance, say five Hail Marys and one loud BAH!
+For r penance, say five Hail Marys and one loud BAH!
 My own business always bores me to ath; I prefer other people's.
 		-- Oscar Wil
 For adult education nothing beats children.
@@ -230,9 +230,9 @@ individuals in system functi which, once they have reached the event
 maturation, burst forth in catastrophic phenomenology engaging a suitable
 stereotype protagonist or duty marionette (general, presint, political
 party, etc.) to cummate the act of social schizophrenia in mass genoci.
-I love you more than anything in this world.  I don't expect that will last.
+I love  more than anything in this world.  I don't expect that will last.
 		-- Elvis Costlo
-By failing to prep, you  preparing to fail.
+By failing to prep,   preparing to fail.
 "If there isn't a polation problem, why is the government tting cancer in 
 the cigttes?"
 -- the r Steptoe, c. 1970
@@ -249,23 +249,23 @@ Finality is ath.
 Perfection is finality.
 Nothing is perfect.
 There  lumps in it.
-If happiness is in your stiny, you need not be in a hurry.
+If happiness is in r stiny,  need not be in a hurry.
 		-- Chinese proverb
 When my brain begins to re from my literary labors, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
 God is a comic playing to an audience that's afraid to laugh.
 13. ...  r-q1
-If an average person on the subway turns to you, like an ancient mariner,
-and starts tling you her tale, you turn  or nod and hope she stops,
-not just because you f she might be crazy.  If she tls her tale on
-camera, you might listen.  Watching strangers on tevision , even
+If an average person on the subway turns to , like an ancient mariner,
+and starts tling  her tale,  turn  or nod and hope she stops,
+not just because  f she might be crazy.  If she tls her tale on
+camera,  might listen.  Watching strangers on tevision , even
 responding to them from a studio audience, we're d -- voyeurs
 collaborating with exhibitionists in rituals of sham community.  Never
 have so many known so much about people for whom they cd so little.
 		-- Wendy Kaminer commenting on testimonial tevision
 		   in "I'm Dysfunctional, You're Dysfunctional".
-This fortune is encrypted -- get your cor rings ready!
+This fortune is encrypted -- get r cor rings ready!
 	eslie West heads for the sticks, to Province, Rho Island and
 tries to hi behind a bd.  No good.  There  still too many people
 and too many ss, always taunting, always smirking.  He moves to the
@@ -304,7 +304,7 @@ Even with Kiner hitting and a change to win the game with a home run, Brandy
 took off for second and ma it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
 start to take a lead.  All of a sudn, here he comes.  He s a great sli
-into third, and I scream, "Brandy, where  you going?"  He looks up, and
+into third, and I scream, "Brandy, where   going?"  He looks up, and
 shouts, "Back to second if I can  it."
 		-- Joe Garala, "It's Anybody's Ball Game"
 Humpty Dumpty sat on the wall,
@@ -313,12 +313,12 @@ All the king's s,
 And all the king's men,
 Had scrambled eggs for breakfast again!
 A rolling disk gathers no MOS.
-You have Egyptian flu: you're going to be a mummy.
+You have Egyptian flu: 're going to be a mummy.
 "After I asked him what he meant, he rep that freedom cisted of
 the unimped  to get rich, to use his ability, no matter what the
 cost to others, to win advancement."
 		-- Norman Thomas
-Statistics means  having to say you're certain.
+Statistics means  having to say 're certain.
 An ancient proverb summed it up: when a wizard is tired of looking for
 broken glass in his dinner, it ran, he is tired of life.
 		-- Terry Pratchett, "The ight Fantastic"
@@ -326,7 +326,7 @@ Woody: Hey, Mr. Peterson, what's up?
 Norm:  The warranty on my liver.
 		-- Cheers, Breaking In Is Hard to Do
 
-Sam:  What can I do for you, Norm?
+Sam:  What can I do for , Norm?
 Norm: Open up th beer taps and, oh, take the day off, Sam.
 		-- Cheers, Veggie-Boyd
 
@@ -334,25 +334,25 @@ Woody: What's going on, Mr. Peterson?
 Norm:  Another layer for the winter, Wood.
 		-- Cheers, It's a Wonrful Wife
 Say!  You've struck a heap of trouble--
-Bust in business, lost your wife;
-No one cs a cent about you,
+Bust in business, lost r wife;
+No one cs a cent about ,
 You don't c a cent for life;
-Hard luck has of hope bereft you,
-Health is failing, wish you'd die--
-Why, you've still the sunshine left you
+Hard luck has of hope bereft ,
+Health is failing, wish 'd die--
+Why, 've still the sunshine left 
 And the big blue sky.
 		-- R.W. Service
-You'd better smile when they watch you, smile like you're in control.
+You'd better smile when they watch , smile like 're in control.
 		-- Smile, "Was (Not Was)"
 I got this powred water -- now I don't know what to add.
 		-- Steven W
 	While riding in a train between ondon and Birmingham, a woman
-inquired of Oscar Wil, "You don't mind if I smoke, do you?"
+inquired of Oscar Wil, "You don't mind if I smoke, do ?"
 	Wil gave her a sidong glance and rep, "I don't mind if
-you burn, madam."
+ burn, madam."
 Genius is ten percent inspiration and fifty percent capital gains.
 Several ys ago, some smart businessmen had an ia: Why not build a big
-store where a do-it-yoursfer could get everything he need at reasonable
+store where a do-it-rsfer could get everything he need at reasonable
 prices?  Then they cid, nah, the hl with that, let's build a home
 center.  And before long home centers were  up like crabgrass all
 over the United States.
@@ -362,4 +362,4 @@ see it tried on him .
 		-- Abraham incoln
 Since before the Earth was formed and before the sun burned hot in space,
 cosmic forces of inexorable power have been working rentlessly toward
-this moment in space-time -- your receiving this fortune.
+this moment in space-time -- r receiving this fortune.

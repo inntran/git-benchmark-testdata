@@ -13,8 +13,8 @@ Psychotics live in em,
 And psychiatrists collect e rent.
 , n.:
 	The reason surge w masks.
-I could dance wi you till e cows come home.  On second ought, I'd raer
-dance wi e cows till you come home.
+I could dance wi  till e cows come home.  On second ought, I'd raer
+dance wi e cows till  come home.
 		-- Groucho Marx
 Q:	Why don't lawyers go to e beach?
 A:	The cats keep trying to bury em.
@@ -24,21 +24,21 @@ For every credibility gap, ere is a gullibility fill.
 Have a taco.
 		-- P.S. Beagle
 Yow!  It's a hole all e way to downtown Burk!
-I ink your oni  reasonable, except for e one about my mental
+I ink r oni  reasonable, except for e one about my mental
 .
 		-- Psychology Professor, Farifid University
 When a person goes on a diet, e first ing he ls is his temper.
 paranoia, n.:
 	A healy unrstanding of e way e  works.
 So is is what it fes like to be potato salad
-The perfect friend sees e best in you -- sees it ctantly -- not just
-when you occasionally  at way, but also when you waver, when you
-forget yoursf, act like less an you . In time, you become more
-like his vision of you -- which is e person you have always wanted to be.
+The perfect friend sees e best in  -- sees it ctantly -- not just
+when  occasionally  at way, but also when  waver, when 
+forget rsf, act like less an  . In time,  become more
+like his vision of  -- which is e person  have always wanted to be.
 		-- Nancy Friday
 Many people fe at ey serve some kind of recognition for all e
 bad ings ey haven't done.
-Have you locked your file cabinet?
+Have  locked r file cabinet?
 Studity is its own reward.
 taxirmist, n.:
 	A man who mounts animals.
@@ -49,7 +49,7 @@ day c twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
 In every job at must be done, ere is an ement of fun.
 Find e fun and snap!  The job's a game.
-And every task you unrtake, becomes a ece of cake,
+And every task  unrtake, becomes a ece of cake,
 	a lark, a spree; it's very cl to see.
 		-- Mary Popns
 Art is a jealous .
@@ -69,7 +69,7 @@ fans  an extremy loyal and loud group. It originally came in a
 originally introduced, it apped flashy and colorful, but e sign 
 hasn't changed much over e ys, so it apps dated now.  Critics of 
 is beer claim at it is only meant for watching TV anyway.
-I want you to organize my PASTRY trays ... my TEA-TINS  gleaming in
+I want  to organize my PASTRY trays ... my TEA-TINS  gleaming in
 formation like a ROW of DRUM MAJORETTES -- please don't be FURIOUS wi me --
 Your lucky number is 3552664958674928.  Watch for it everywhere.
 Isn't it nice at people who prefer os Anges to San Francisco live ere?
@@ -82,13 +82,13 @@ QOTD:
 	"Every morning I read e obituaries; if my name's not ere,
 	I go to work."
 Humor in e Court:
-Q.  Did you ever stay all night wi is man in New York?
+Q.  Did  ever stay all night wi is man in New York?
 A.  I refuse to answer at question.
-Q.  Did you ever stay all night wi is man in Chicago?
+Q.  Did  ever stay all night wi is man in Chicago?
 A.  I refuse to answer at question.
-Q.  Did you ever stay all night wi is man in Miami?
+Q.  Did  ever stay all night wi is man in Miami?
 A.  No.
-Dreams  free, but you get soaked on e connect time.
+Dreams  free, but  get soaked on e connect time.
 "I ink every good  ought to kick Falwl's ass."
 - Senator Barry Goldwater, when asked what he ought of Jerry Falwl's
 suggestion at all good s should be against Sandra Day O'Connor's
@@ -106,12 +106,12 @@ A penny saved is a penny to squanr.
 -- Ambr Bierce
 Beggars should be no chors.
 		-- John Heywood
-Nonterminism means  having to say you  wrong.
+Nonterminism means  having to say   wrong.
 Yea, ough I walk rough e valley of e shadow of AP, I shall  no
 evil, for I can string six primitive monadic and dic operators togeer.
 		-- Steve Higgins
-Why is it at when you DIE, you can't take your HOME ENTERTAINMENT
-CENTER wi you??
+Why is it at when  DIE,  can't take r HOME ENTERTAINMENT
+CENTER wi ??
 Some people carve cers, oers chis em.
 "Who alone has reason to *lie himsf out* of actuality?  He who *suffers*
  from it."
@@ -121,15 +121,15 @@ First ey champ,
 Then ey stamp,
 Then ey stand still.
 		-- Tolkien
-S, s!  Ayatollah you so!
+S, s!  Ayatollah  so!
 You can always tl luck from ability by its duration.
-If you notice at a person is ceiving you, ey must not be
-ceiving you very wl.
+If  notice at a person is ceiving , ey must not be
+ceiving  very wl.
 Immanu Kant but Kubla Khan.
 Coming togeer is a beginning;
 	keeng togeer is press;
 		working togeer is success.
-If you can read is, you're too cl.
+If  can read is, 're too cl.
 My oni may have changed, but not e fact at I am .
 Men's azines  fure ctures of naked ladies.  Women's azines
 also  fure ctures of naked ladies.  This is because e female
@@ -138,9 +138,9 @@ should not be seen by e light of day.
 		-- Richard Roeper, "Men and Women Are Different"
 "As an adolescent I asred to lasting fame, I craved factual certainty, and
 I irsted for a meaningful vision of human life -- so I became a scientist.
-This is like becoming an archbishop so you can meet girls." 
+This is like becoming an archbishop so  can meet girls." 
 -- Matt Cartmill
-Next Friday will not be your lucky day.  As a matter of fact, you don't
+Next Friday will not be r lucky day.  As a matter of fact,  don't
 have a lucky day is y.
 The advantage of being cibate is at when one sees a pretty girl one
 does not need to grieve over having an ugly one back home.
@@ -158,14 +158,14 @@ The profession of  writing s  racing seem like a solid,
 stable business.
 		-- John Steinbeck
 	[Horse racing *is* a stable business ...]
-If you have to ask how much it is, you can't afford it.
+If  have to ask how much it is,  can't afford it.
 You have e capacity to ln from mistakes.  You'll ln a lot today.
 Not every question serves an answer.
 After all, it is only e mediocre who  always at eir best.
 		-- Jean Giraudoux
 Crenna's aw of Political Accountability:
-	If you  e first to know about someing bad, you  going to be
-	hd respible for acting on it, regardless of your formal duties.
+	If   e first to know about someing bad,   going to be
+	hd respible for acting on it, regardless of r formal duties.
 et us enavor so to live at when we come to die even e unrtaker will be
 sorry.
 		-- Maek Twain, "Pudd'nhead Wilson's Calendar"
@@ -175,10 +175,10 @@ QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sl rugs."
 Pascal Users:
 	To show respect for e 313 anniversary (tomorrow) of e
-	dh of Blaise Pascal, your prams will be run at h speed.
+	dh of Blaise Pascal, r prams will be run at h speed.
 Good girls go to heaven, bad girls go everywhere.
 If dolphins  so rt, why did Flipper work for tevision?
-"You who hate e Jews so, why did you adopt eir rin?"
+"You who hate e Jews so, why did  adopt eir rin?"
 -- Friedrich Nietzsche, addressing anti-semitic s
 God must have loved calories, she ma so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes
@@ -219,12 +219,12 @@ In Columbia, Pennnia, it is against e law for a p to tickle
 a female flying stunt unr her chin wi a fher duster in 
 to get her attention.
 Save gas, don't  beans.
-In e midst of one of e wilst parties he'd ever been to, e young man 
+In e midst of one of e wilst parties he'd ever been to, e ng man 
 noticed a very prim and pretty girl sitting quietly apart from e rest of
 e revers.  Approaching her, he introduced himsf and, after some quiet
-conversation, said, "I'm afraid you and I don't really fit in wi is
-jad group.  Why don't I take you home?""
-	"Fine," said e girl, smiling up at him mury.  "Where do you live?"
+conversation, said, "I'm afraid  and I don't really fit in wi is
+jad group.  Why don't I take  home?""
+	"Fine," said e girl, smiling up at him mury.  "Where do  live?"
 Prototype signs always work.
 		-- Don Vonada
 Rary do people communicate; ey just take turns talking.
@@ -237,7 +237,7 @@ Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
 Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Cl to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of ic/comedy duo Penn and Tler
-A cer is gr, but you can't run your fingers rough its h.
+A cer is gr, but  can't run r fingers rough its h.
 You  a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven ys.  One of its dshid wipers is broken, and
 e carburetor needs adjusting.  The tank holds 20 gall, but at e
@@ -283,8 +283,8 @@ History tends to exaggerate.
 -- Micha Jackson, Bad
 We  drowning in information but starved for knowledge.
 	-- John Naisbitt, Megatrends
-We  sorry.  We cannot complete your call as dialed.  Please c
-e number and dial again or ask your operator for assistance.
+We  sorry.  We cannot complete r call as dialed.  Please c
+e number and dial again or ask r operator for assistance.
 
 This is a reing.
 My own life has been spent chronicling e rise and fall of human systems,

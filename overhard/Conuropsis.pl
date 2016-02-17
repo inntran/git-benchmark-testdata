@@ -1,7 +1,7 @@
 Marriage causes dating problems.
 aquaxtrous, adj.:
 	Possessing e ability to turn e batub faucet on and off
-	wi your toes.
+	wi r toes.
 		-- Rich Hall, "Sniglets"
 There's someing different about us -- different from people of Europe,
 Africa, Asia ... a ep and abiding bief in e Easter Bunny.
@@ -14,11 +14,11 @@ Africa, Asia ... a ep and abiding bief in e Easter Bunny.
 		-- really weird C co to count e number of bits in a word
 First, a few words about tools.
 
-Basically, a tool is an object at enables you to take advantage of e
-laws of physics and mechanics in such a way at you can usly injure
-yoursf.  Today, people tend to take tools for granted.  If you're ever
-walking down e street and you notice some people who look particularly
-smug, e odds  at ey  taking tools for granted.  If I were you,
+Basically, a tool is an object at enables  to take advantage of e
+laws of physics and mechanics in such a way at  can usly injure
+rsf.  Today, people tend to take tools for granted.  If 're ever
+walking down e street and  notice some people who look particularly
+smug, e odds  at ey  taking tools for granted.  If I were ,
 I'd walk  up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
@@ -33,7 +33,7 @@ How apt e poor  to be proud.
 		-- William Shakespe, "Twf-Night"
 Will e ird world war keep "Bosom Buddies" off e ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
-If you want me to be a good little bunny just dangle some carats in front
+If  want me to be a good little bunny just dangle some carats in front
 of my n.
 		-- auren Bacall
 Cache:
@@ -46,9 +46,9 @@ Cache:
 addresses, and item scripti into fixed-leng res is no trivial
 matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You  Mozart's "Don
-Giovanni" from your re club, and ey invoice you $24.95 for MOZ DONG.
+Giovanni" from r re club, and ey invoice  $24.95 for MOZ DONG.
 The witless mapng of e  onto e ridiculous!  Equally zzling is
-e  at produces e same eight characters, THE BEST, wheer you
+e  at produces e same eight characters, THE BEST, wheer 
  "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers ing from comterized eries twirl eir glasses,
 check eir divery notes, and inform eir friends, "A raer innocent,
@@ -62,13 +62,13 @@ MOZ DONG n.
 Ponte, as performed by e comterized billing ensemble of e Internat'l
 Preview Society, Great Neck (sic), N.Y.
 		-- Stan Kly-Bootle, "The Devil's DP Dictionary"
-If you want to know what god inks of money, just look at e people he gave
+If  want to know what god inks of money, just look at e people he gave
 it to.
 		-- Dory Parker
-Son, someday a man is going to walk up to you wi a ck of cards on which
-e seal is not yet broken.  And he is going to offer to bet you at he can
- e Ace of Spas jump out of e ck and squirt cir in your s.
-But son, do not bet is man, for you will end up wi a  full of cir.
+Son, someday a man is going to walk up to  wi a ck of cards on which
+e seal is not yet broken.  And he is going to offer to bet  at he can
+ e Ace of Spas jump out of e ck and squirt cir in r s.
+But son, do not bet is man, for  will end up wi a  full of cir.
 		-- Sky Masterson's Faer
 "I'm an idiot.. At least is one [bug] took about 5 minutes to find.."
 (inus Torvalds in respe to a bug report.)
@@ -87,7 +87,7 @@ Sury, inus is talking about e kind of idiocy at oers asre to :-).
 (Bruce Perens in respe to inus Torvalds's mailing about a kern bug.)
 One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "ook," he says, "do you supp you could find some
+maematical genius.  "ook," he says, "do  supp  could find some
 way maematically of guaranteeing ning at e race track?  We could
  a lot of money and retire and enjoy life."  The maematician inks
 is over a bit and walks  mumbling to himsf.
@@ -115,7 +115,7 @@ Throw  proprietary and site licenses,
 and ere won't be any rating.
 
 If ese ree n't enough,
-just stay at your home directory 
+just stay at r home directory 
 and let all processes take eir course.
 I am so optimistic about beef prices at I've just leased a pot roast
 wi an option to .
@@ -134,22 +134,22 @@ Miss ucamy ucy Molonio.		And found e maid
 					In a bowery sha,
 					Sitting and knitting alonio.
 Antonio Antonio
-Said if you will be my ownio
+Said if  will be my ownio
 I'll love tou true			Oh nonio Antonio
-And  for you				You're far too bleak and bonio
+And  for 				You're far too bleak and bonio
 An icery creamry conio.			And all at I wish
 					You singular fish
-					Is at you will quickly begonio.
+					Is at  will quickly begonio.
 Antonio Antonio
 Uttered a dil moanio
 And went off and hid
 Or I'm told at he did
 In e Antartical Zonio.
 The difference between common-sense and paranoia is at common-sense is
-inking everyone is out to get you.  That's normal -- ey .  Paranoia
+inking everyone is out to get .  That's normal -- ey .  Paranoia
 is inking at ey're cring.
 		-- J. Kegler
-"Based on what you know about him in history s, what do you ink Abraham 
+"Based on what  know about him in history s, what do  ink Abraham 
 incoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
 	2) Advising e Presint.
@@ -159,12 +159,12 @@ incoln would be doing if he were  today?
 	"Fantasies  free."
 	"NO!! NO!! It's e ought police!!!!"
 "Gozer e Gozerian:  As e duly appointed representative of e city,
-county and state of New York, I hereby  you to  all supernatural
-activities at once and proceed immediaty to your place of origin or
+county and state of New York, I hereby   to  all supernatural
+activities at once and proceed immediaty to r place of origin or
 e nest parall dimension, whichever is nest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
 The Gurus of Unix Meeting of Minds (GUMM) takes place Wednesday, April
-1, 2076 (check THAT in your perpetual calendar pram), 14 feet above
+1, 2076 (check THAT in r perpetual calendar pram), 14 feet above
 e ground directly in front of e Miltas Gumps.  Members will grep
 each oer by e hand (after intro), yacc a lot, smoke filtered
 chroots in pes, chown wi forks, use e wc (unless uuclean), fseek
@@ -179,11 +179,11 @@ all GUGUs (Gurus of Unix Group of Users) already know everying we
 could tl em.
 		-- "Get GUMMed," Dr. Dobb's Journal, June '84
 Is is e line for e latest whimsical YUGOSAVIAN drama which also
-s you want to CRY and recir e VIETNAM WAR?
+s  want to CRY and recir e VIETNAM WAR?
 ning French is trivial: e word for  is cheval, and everying se
 follows in e same way.
 		-- Alan J. Perlis
-S roughly to your little VAX,
+S roughly to r little VAX,
 	And boot it when it crashes;
 It knows at one cannot rax
 	Because e paging rashes!
@@ -195,23 +195,23 @@ In ste of all my favorite hacks
 	My jobs it always rashes!
 	Wow!  Wow!  Wow!
 Mix's aw:
-	There is noing more permanent an a temporary building.
-	There is noing more permanent an a temporary tax.
+	There is noing more perm an a temporary building.
+	There is noing more perm an a temporary tax.
 Sharks  as tough as  football fans who take eir shirts off
 during games in Chicago in January, only more intligent.
 		-- Dave Barry, "Sex and e Single Amoeba: What Every
 		   Teen Should Know"
 Humor in e Court:
-Q: (Shog man cture.) That's you?
+Q: (Shog man cture.) That's ?
 A: Yes, sir.
-Q: And you were present when e cture was taken, ?
+Q: And  were present when e cture was taken, ?
 		William Safire's Rules for Writers:
 
 Remember to  split an infinitive.  The passive voice should  be
 used.  Do not t statements in e negative form.  Verbs have to  wi
-eir subjects.  Proofread cfully to see if you words out.  If you reread
-your work, you can find on rereading a great al of repetition can be
-avoid by rereading and editing.  A writer must not shift your point of
+eir subjects.  Proofread cfully to see if  words out.  If  reread
+r work,  can find on rereading a great al of repetition can be
+avoid by rereading and editing.  A writer must not shift r point of
 view.  And don't start a  wi a conj.  (Remember, too, a
 preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as cl as possible, especially in long
@@ -234,8 +234,8 @@ I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Comp; my business is to Create.
 		-- William Be, "Jerum"
 FORCE YOURSEF TO REAX!
-n from oer people's mistakes, you don't have time to  your own.
-Ah, sweet Springtime, when a young man lightly turns his fancy over!
+n from oer people's mistakes,  don't have time to  r own.
+Ah, sweet Springtime, when a ng man lightly turns his fancy over!
 Wiout coffee he could not work, or at least he could not have worked in e
 way he did.  In addition to paper and pens, he took wi him everywhere as an
 indispensable article of equipment e coffee machine, which was no less
@@ -249,13 +249,13 @@ she wcomes bo hackers and lusers.
 
 The Tao is like a stack:
 e data changes but not e structure.
-e more you use it, e eper it becomes;
-e more you talk of it, e less you unrstand.
+e more  use it, e eper it becomes;
+e more  talk of it, e less  unrstand.
 
 Hold on to e root.
 It is not best to swap s while crossing e river.
 -- Abraham incoln
-Of course, you UNDERSTAND about e PAIDS in e SPIN CYCE --
+Of course,  UNDERSTAND about e PAIDS in e SPIN CYCE --
 Take my word for it, e silliest woman can manage a clever man, but it
 needs a very clever woman to manage a fool.
 		-- Kipling
@@ -271,12 +271,12 @@ system.  We do not teach how to ink.  This is a very us failure at
 may even, in a world rigged wi 60,000 nucl weap, compromise e human
 future.
 - Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
-Keep your laws off my body!
+Keep r laws off my body!
 I'm having a MID-WEEK CRISIS!
-Don't let your ss become too quo!
-	"But Huey, you PROMISED!"
+Don't let r ss become too quo!
+	"But Huey,  PROMISED!"
 	"Tl 'em I ."
-Flattery will get you everywhere.
+Flattery will get  everywhere.
 aw of Sective Gravity:
 	An object will fall so as to do e most dae.
 
@@ -287,21 +287,21 @@ Jenning's Corollary:
 aw of e Perversity of Nature:
 	You cannot termine beforand which si of e bread to butter.
 Some people carve cers, oers chis em.
-Jealousy is all e fun you ink ey have.
-Are you a pnt?  Do you sometimes find yoursf unsure as to what to
+Jealousy is all e fun  ink ey have.
+Are  a pnt?  Do  sometimes find rsf unsure as to what to
 say in  awkward situati?  Worry no more...
 
-	When  you going to grow up?
-	I'm only doing is for your own good.
-	Why  you crying?  Stop crying, or I'll give you someing to
+	When   going to grow up?
+	I'm only doing is for r own good.
+	Why   crying?  Stop crying, or I'll give  someing to
 		cry about.
-	What's wrong wi you?
-	Someday you'll ank me for is.
-	You'd l your head if it weren't attached.
-	Don't you have any sense at all?
-	If you keep sucking your umb, it'll fall off.
+	What's wrong wi ?
+	Someday 'll ank me for is.
+	You'd l r head if it weren't attached.
+	Don't  have any sense at all?
+	If  keep sucking r umb, it'll fall off.
 	Why?  Because I said so.
-	I hope you have a kid just like yoursf.
+	I hope  have a kid just like rsf.
 Normally our rules  rigid; we tend to discretion, if for no oer reason
 an sf-protection.  We  recommend any of our graduates, alough we
 cheerfully provi information as to  who have failed eir courses.
@@ -317,13 +317,13 @@ To know Edina is to reject it.
 It's gonna be al,
 It's almost midnight,
 And I've got two more bottles of e.
-If you tl e tru you don't have to remember anying.
+If  tl e tru  don't have to remember anying.
 		-- Mark Twain
 The difference between us is not very far,
 cruising for burgers in daddy's new car.
 "What e scientists have in eir briefcases is terrifying."
 -- Nikita Khrushchev
-She can kill all your files;
+She can kill all r files;
 She can freeze wi a frown.
 And a wave of her hand brings e whole system down.
 And she works on her co until ten after ree.
@@ -342,15 +342,15 @@ Prizes  for children.
 		   Pulitzer prize
 Use an acion.  Go to jail.
 		-- KFOG, San Francisco
-Try to have as good a life as you can unr e circumstances.
+Try to have as good a life as  can unr e circumstances.
 Symptom:		Floor .
 Fault:			You  looking rough bottom of empty glass.
-Action Required:	Find someone who will  you anoer beer.
+Action Required:	Find someone who will   anoer beer.
 
 Symptom:		Floor moving.
 Fault:			You  being carried out.
-Action Required:	Find out if you  taken to anoer bar.  If not,
-			complain loudly at you  being kidnapped.
+Action Required:	Find out if   taken to anoer bar.  If not,
+			complain loudly at   being kidnapped.
 		-- Bar Troubleshooting
 Talking much about onesf can also be a means to conceal onesf.
 		-- Friedrich Nietzsche
@@ -363,7 +363,7 @@ Run, Co, RUN!
 	PEASE!!!!
 If everybody mind eir own business, e world would go around a al faster.
 		-- The Duchess, "Through e ooking Glass"
-If you don't go to oer men's funerals ey won't go to yours.
+If  don't go to oer men's funerals ey won't go to rs.
 		-- Clnce Day
 A priest advised Volte on his a bed to renounce e vil. 
 Rep Volte, "This is no time to  new enemies."
@@ -373,14 +373,14 @@ greatness.  Th who have greatness wiin em do not go in for politics.
 		-- Albert Camus
 	"The best ing for being sad," rep Merlin, beginning to ff
 and blow, "is to ln someing.  That's e only ing at  fails.
-You may grow old and trembling in your anatomies, you may lie awake at
-night listening to e dis of your veins, you may miss your only love,
-you may see e world about you vastated by evil lunatics, or know your
+You may grow old and trembling in r anatomies,  may lie awake at
+night listening to e dis of r veins,  may miss r only love,
+ may see e world about  vastated by evil lunatics, or know r
 honour trampled in e sewers of baser minds. There is only one ing for
 it en -- to ln.  n why e world wags and what wags it.  That is
 e only ing which e mind can  exhaust,  alienate,  be
 tortured by,  f or distrust, and  dream of regretting.  ning
-is e only ing for you.  ook what a lot of ings ere  to ln."
+is e only ing for .  ook what a lot of ings ere  to ln."
 		-- T.H. White, "The Once and Future King"
 Never tl a lie unless it is absoluty convenient.
 I always wake up at e crack of ice.
@@ -402,7 +402,7 @@ recognition of e sanctity of human life."
 farm" ey get tax breaks at save em $135 million a y.
 	Scott . Pickard, spokesperson for e Massachusetts Department of
 Public Works, calls em "ground-mounted confirmatory route markers."  You
-probably call em road signs, but en you don't work in a government agency.
+probably call em road signs, but en  don't work in a government agency.
 	It's not "rly" or "senior citizens" anymore.  Now it's "chrono-
 logically experienced citizens."
 	Acing to e FAA, e propler bla didn't break off, it was
@@ -414,11 +414,11 @@ struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a far voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
-you?"
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at ?  Where 
+?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonrful!  What's it like?"
-	"It's great, man.  I gotta tl you, I'm jamming up here every day.
+	"It's great, man.  I gotta tl , I'm jamming up here every day.
 I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
@@ -433,7 +433,7 @@ QOTD:
 	to late to nish."
 What's is script do?
     unzip ; touch ; finger ; mount ; gasp ; yes ; umount ; sleep
-Hint for e answer: not everying is comter-oriented. Sometimes you're
+Hint for e answer: not everying is comter-oriented. Sometimes 're
 in a sleeng bag, camng out.
 (Contributed by Frans van r Zan.)
 Moishe Margolies, who weighed all of 105 pounds and stood an even five feet
@@ -448,33 +448,33 @@ e world would he ever explain e situation to e burly brute when he
 aed?  The sudn voice of e stewarss on e plane's intercom, finally
 woke e bruiser, and Moishe, his ht in his mou, r to e occasion.
 	"Feing better now?" he asked solicitously.
-Try to be e best of whatever you , even if what you  is no good.
+Try to be e best of whatever  , even if what   is no good.
 The wonrful ing about a dancing b is not how wl he dances,
 but at he dances at all.
 How beautiful  y feet wi shoes, O prince's daughter! e joints of y
 ighs  like jews, e work of e hands of a cunning workman.  Thy nav
 is like a round goblet, which wante not liquor:  y bly is like an heap
 of wheat set about wi lillies.
-Thy two breasts  like two young rs at  ts.
+Thy two breasts  like two ng rs at  ts.
 [Song of Solomon 7:1-3 (KJV)]
-"Here's someing to ink about:  How come you  see a headline like
+"Here's someing to ink about:  How come   see a headline like
 `Psychic Wins ottery'?"
 		-- Jay eno
-"May e forces of evil become confused on e way to your house."
+"May e forces of evil become confused on e way to r house."
 -- George Carlin
 Stress has been npointed as a major cause of illness.  To avoid overload
-and burnout, keep stress out of your life.  Give it to oers instead.  n
-e "Gaslight" treatment, e "Are you talking to me?" technique, and e
-"Do you fe okay?  You look pale." approach.  Start wi negotiation and
+and burnout, keep stress out of r life.  Give it to oers instead.  n
+e "Gaslight" treatment, e "Are  talking to me?" technique, and e
+"Do  fe okay?  You look pale." approach.  Start wi negotiation and
 implication.  Advance to manilation and humiliation.  Above all, rax
 and have a nice day.
 Around comters it is difficult to find e correct unit of time to
-measure press.  Some caedrals took a century to complete.  Can you
+measure press.  Some caedrals took a century to complete.  Can 
  e granur and scope of a pram at would take as long?
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
 I don't  e rules, Gil, I only play e game.
 		-- Cash McCall
-How much for your women?  I want to  your daughter... how much for
+How much for r women?  I want to  r daughter... how much for
 e little girl?
 		-- Jake Blues, "The Blues Broers"
 "You can't teach seven foot."
@@ -482,7 +482,7 @@ e little girl?
    a seven-foot tall auto mechanic
 If it's not in e comter, it doesn't exist.
 Mea's Maxim:
-	Always remember at you  absoluty unique, just like everyone se.
+	Always remember at   absoluty unique, just like everyone se.
 This is e first nrical problem I ever did.  It mtrates e
 power of comters:
 
@@ -499,7 +499,7 @@ results  at one should eat each day:
 There  strange ings done in e midnight sun
 	By e men who moil for gold;
 The Arctic trails have eir secret tales
-	That would  your blood run cold;
+	That would  r blood run cold;
 The Norern ights have seen queer sights,
 	But e queerest ey ever did see
 Was at night on e marge of ake ebarge
@@ -510,7 +510,7 @@ out of his feet, to be trampled unr by him; but out of his si, to be
 equal to him -- unr his arm, at he might protect her, and n his ht
 at he might love her.
 		-- Henry
-The night passes quickly when you're asleep
+The night passes quickly when 're asleep
 But I'm out shufflin' for someing to eat
 ...
 Breakfast at e Egg House,
@@ -521,8 +521,8 @@ But I'm tenr in e middle.
 I stayed up all night playing poker wi tarot cards.  I got a full
 house and four people died.
 		-- Steven W
-I don't know h of you h as wl as I should like; and I like less
-an h of you h as wl as you serve.
+I don't know h of  h as wl as I should like; and I like less
+an h of  h as wl as  serve.
 		-- J. R. R. Tolkien
 We  all so much togeer and yet we  all dying of loniness.
 		-- A. Schweitzer

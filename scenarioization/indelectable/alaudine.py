@@ -1,8 +1,8 @@
 A conclusion is simply the place where someone got tired of thinking.
 Four thousand throats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of the Dove", stardate unknown
-Once you've tried to change the world you find it's a whole bunch easier
-to change your mind.
+Once 've tried to change the world  find it's a whole bunch easier
+to change r mind.
 "Bew of prammers carrying screwdrivers."
 -- Chip Salzenberg
 He who spairs over an event is a , but he who holds hopes for
@@ -16,7 +16,7 @@ The human animal differs from the lesser primates in his passion for
 lists of "Ten Best".
 		-- H. Allen Smith
 Mr. Rockford, this is the Thomas Crown  of Dance and Contemporary
-Etiquette.  We n't going to call again!  Now you want these free
+Etiquette.  We n't going to call again!  Now  want these free
 less or what?
 		-- "The Rockford Files"
 The shifts of Fortune test the riability of friends.
@@ -45,7 +45,7 @@ Positive, adj.:
 	Mistaken at the top of one's voice.
 		-- Ambr Bierce, "The Devil's Dictionary"
 You  lost in the Swamps of Despair.
-ook DEEP into the OPENINGS!!  Do you see any EVES or EDSES ... or a
+ook DEEP into the OPENINGS!!  Do  see any EVES or EDSES ... or a
 HIGHBA?? ...
 A man does not look behind the door unless he has stood there himsf.
 		-- Du Bois
@@ -62,7 +62,7 @@ Yet goln treasure insi is hid.
 When all se fails, read the instructi.
 I am two fools, I know, for loving, and for saying so.
 		-- John Donne
-The problem with people who have no vices is that generally you can
+The problem with people who have no vices is that generally  can
 be pretty sure they're going to have some pretty annoying virtues.
 		-- Elizabeth Taylor
 People who claim they don't let little things bother them have 
@@ -72,11 +72,11 @@ When the going gets weird, the weird turn pro.
 Don't l
 Your head
 To gain a minute
-You need your head
+You need r head
 Your brains  in it.
 		-- Burma Shave
-	"A penny for your thoughts?"
-	"A dollar for your ath."
+	"A penny for r thoughts?"
+	"A dollar for r ath."
 		-- The Odd Couple
 The Encyclopaedia Galactica fines a robot as a mechanical apparatus signed
 to do the work of a man.  The marketing division of Sirius Cybernetics
@@ -99,19 +99,19 @@ correctness  does.
 Fishbowl, n.:
 	A glass-encld isolation cl where newly promoted managers 
 	kept for observation.
-Never test for an error condition you don't know how to handle.
+Never test for an error condition  don't know how to handle.
 		-- Stein
 What is status?
-	Status is when the Presint calls you for your opinion.
+	Status is when the Presint calls  for r opinion.
 
 Uh, no...
-	Status is when the Presint calls you in to discuss a
+	Status is when the Presint calls  in to discuss a
 	problem with him.
 
 Uh, that still ain't ...
-	STATUS is when you're in the Oval Office talking to the Presint,
+	STATUS is when 're in the Oval Office talking to the Presint,
 	and the phone rings.  The Presint picks it up, listens for a
-	minute, and hands it to you, saying, "It's for you."
+	minute, and hands it to , saying, "It's for ."
 The astronomer Francesco Sizi, a contemporary of Galileo, argues that
 Jupiter can have no satlites:
 
@@ -129,7 +129,7 @@ Anyone who goes to a psychiatrist ought to have his head examined.
 		-- Samu Goldwyn
 Eighty percent of married men cheat in America.  The rest cheat in Europe.
 		-- Jackie Mason
-"There must be some mistake," he said, " you not a greater comter than
+"There must be some mistake," he said, "  not a greater comter than
 the Milliard Gargantubrain which can count all the atoms in a star in a
 millisecond?"
 "The Milliard Gargantubrain?" said Deep Thought with unconcealed contempt.
@@ -142,7 +142,7 @@ in the brewery.
 		-- George Jean Nathan
 Please stand for the National Anthem:
 
-	Oh, say can you see by dawn's ly light
+	Oh, say can  see by dawn's ly light
 	What so proudly we hailed at the twilight's last gleaming?
 	Wh broad ss and b stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
@@ -151,7 +151,7 @@ Please stand for the National Anthem:
 	Oh, say does that star-spangled banner yet wave
 	O'er the land of the free and the home of the brave?
 
-Thank you.  You may resume your seat.
+Thank .  You may resume r seat.
 Perilous to all of us  the vices of an art eper than we oursves
 possess.
 		-- Gand the Grey [J.R.R. Tolkien, "ord of the Rings"]
@@ -180,20 +180,20 @@ the th came back, they were presented with the answer:
 -=====/_/_//_/\_,_/ /_/\_\  /______\ \ \
 A proud member of Teaminux \_________\/
 (By CHaley (HAC), haley@unm.edu, ch008cth@pi.lanl.gov)
-You will receive a legacy which will place you above want.
+You will receive a legacy which will place  above want.
 "OK, now let's look at four dimensi on the blackboard."
 		-- Dr. Joy
 Should I start with the time I SWITCHED personalities with a BEATNIK
 hair stylist or my failure to refer five TEENAGERS to a good OCUIST?
 I have yet to see any problem, however complicated, which, when
-you looked at it in the  way, did not become still more complicated.
+ looked at it in the  way, did not become still more complicated.
 		-- Poul Anrson
 Cynic, n.:
 	Experienced.
 When one knows women one pities men, but when one studies men,
 one excuses women.
 		-- Horne Tooke
-Hey! now!  Come hoy now!  Whither do you wanr?
+Hey! now!  Come hoy now!  Whither do  wanr?
 Up, down, n or far, here, there or yonr?
 Sharp-s, Wise-n, Swish-tail and Bumpkin,
 White-socks my little lad, and old Fatty umpkin!
@@ -218,7 +218,7 @@ And offered god such swinish swill
 Now they sweat in flames of hl
 Sweat from lack of AP
 Sweat dung!
-Others will look to you for stability, so hi when you bite your nails.
+Others will look to  for stability, so hi when  bite r nails.
 "Pok pok pok, P'kok!"
 -- Superchicken
 New crypt.  See /usr/news/crypt.
@@ -235,7 +235,7 @@ Amid the world of woven trees!
 O stars that in the Sunless Y
 With shining hand by her were sown,
 In windy fids now b and cl
-We see you silver blossom blown!
+We see  silver blossom blown!
 
 	O Elbereth!  Gilthoni!
 	We still remember, we who dwl
@@ -255,34 +255,34 @@ too dangerous for university folks to run with their heads in the sand."
 A man arrived home ly to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husband, the
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
-you get a divorce so I can marry her.  If you win, I promise  to see
+ get a divorce so I can marry her.  If  win, I promise  to see
 her again.  Okay?"
 
 "Al," agreed the husband.  "But how about a quarter a point
 on the si to  it interesting?"
-And if you wonr,
+And if  wonr,
 What I am doing,
 As I am heading for the sink.
 I am  out all the bitterness,
 Along with h of my last drink.
 If they can  penicillin out of moldy bread, they can sure 
-something out of you.
+something out of .
 		-- Muhammad Ali
 Badges?  We don't need no stinking badges.
 Saturday night in Toledo Ohio,
 	Is like being nowhere at all,
 All through the day how the hours rush by,
-	You sit in the park and you watch the grass die.
+	You sit in the park and  watch the grass die.
 		-- John Denver, "Saturday Night in Toledo Ohio"
 QOTD:
-	"Don't let your mind wanr -- it's too little to be let out alone."
-A language that doesn't affect the way you think about pramming is
+	"Don't let r mind wanr -- it's too little to be let out alone."
+A language that doesn't affect the way  think about pramming is
 not worth knowing.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
 		-- Andy Capp
 Being owned by someone used to be called sy -- now it's called commitment.
-You scratch my tape, and I'll scratch yours.
+You scratch my tape, and I'll scratch rs.
 All of a sudn, I want to THROW OVER my promising ACTING CAREER, grow
 a ONG BACK BEARD and w a BASEBA HAT!! ...  Although I don't know WHY!!
 "Text processing has ma it possible to -justify any ia, even
@@ -302,7 +302,7 @@ pilots very capable. The fleet of jets the carrier operates is immense.
 Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explos without warning.
 He's been like a father to me,
-He's the only DJ you can get after three,
+He's the only DJ  can get after three,
 I'm an all-night musician in a rock and roll band,
 And why he don't like me I don't unrstand.
 		-- The Byrds
@@ -325,17 +325,17 @@ X:
 Due to lack of disk space, this fortune database has been discontinued.
 The human mind ordinarily operates at only ten percent of its capacity
 -- the rest is  for the operating system.
-You will pay for your sins.  If you have already paid, please disregard
+You will pay for r sins.  If  have already paid, please disregard
 this message.
-One planet is all you get.
+One planet is all  get.
 Kids always ben up a house; mostly by leaving the lights on.
 Vila: "I think I have just ma the biggest mistake of my life."
 
 Orac: "It is unliky.  I would predict there  far greater mistakes
-      waiting to be ma by someone with your obvious talent for it."
+      waiting to be ma by someone with r obvious talent for it."
 ord, fend me from my friends; I can account for my enemies.
 		-- Charles D'Hericault
-In an age when the fashion is to be in love with yoursf, confessing to
+In an age when the fashion is to be in love with rsf, confessing to
 be in love with somebody se is an admission of unfaithfulness to one's
 boved.
 		-- Russl Baker
@@ -353,7 +353,7 @@ morning.
 For a light ht lives long.
 		-- Shakespe, "ove's abour's ost"
 A truth that's told with bad intent
-Beats all the lies you can invent.
+Beats all the lies  can invent.
 		-- William Blake
 Voodoo Pramming:  Things prammers do that they know shouldn't work but
 they try anyway, and which sometimes actually work, such as recompiling
@@ -362,7 +362,7 @@ everything.
 Too clever is dumb.
 		-- Ogn Nash
 To err is human; to admit it, a blunr.
-How can you think and hit at the same time?
+How can  think and hit at the same time?
 		-- Yogi Berra
 Eating chocolate is like being in love without the aggravation.
 If  be the music of love, eat up, eat up.
@@ -392,29 +392,29 @@ new conciousness of an all-encompassing reality, which embraces the
 experiencing ego, a reality in which people fe their oneness with animate 
 nature and all of creation.
 - Dr. Albert Hoffman
-When you don't know what you  doing, do it neatly.
+When  don't know what   doing, do it neatly.
 QOTD:
 	The forest may be quiet, but that doesn't mean
 	the snakes have gone .
 I'm REIGIOUS!!  I love a man with a HAIRPIECE!!  Equip me with MISSIES!!
-Be circumspect in your liais with women.  It is better to be seen at
+Be circumspect in r liais with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
 A husband is what is left of the lover after the nerve has been extracted.
 		-- Hen Rowland
 In 1869 the waffle iron was invented for people who had  waffles.
-Be  and explicit with your lawyer ... it is his business to confuse
+Be  and explicit with r lawyer ... it is his business to confuse
 the issue afterwards.
 Women, when they  not in love, have all the cold blood of an experienced 
 attorney.
 		-- Honor'e  Balzac
-I'll fend to the ath your  to say that, but I  said I'd
+I'll fend to the ath r  to say that, but I  said I'd
 listen to it!
 		-- Tom Galloway with apologies to Voltaire
 A aw of Comter Pramming:
 	Make it possible for prammers to write in English
-	and you will find that prammers cannot write in English.
-When you're dining out and you suspect something's wrong, you're probably .
+	and  will find that prammers cannot write in English.
+When 're dining out and  suspect something's wrong, 're probably .
 All we know is the phenomenon: we spend our time sending messages to each
 other, talking and trying to listen at the same time, exchanging information.
 This seems to be our most urgent biological f; it is what we do with
@@ -439,15 +439,15 @@ Topics is be covered in future issues inclu proof by:
 	Mutual cent
 	ack of a counterexample, and
 	"It stands to reason"
-Never t off till tomorrow what you can avoid all together.
+Never t off till tomorrow what  can avoid all together.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl ehenbauer
 The five rules of Socialism:
 	(1) Don't think.
-	(2) If you do think, don't s.
-	(3) If you think and s, don't write.
-	(4) If you think, s and write, don't sign.
-	(5) If you think, s, write and sign, don't be surprised.
+	(2) If  do think, don't s.
+	(3) If  think and s, don't write.
+	(4) If  think, s and write, don't sign.
+	(5) If  think, s, write and sign, don't be surprised.
 		-- being told in Poland, 1987
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests  DATING CAREER DIPOMATS!!
@@ -471,7 +471,7 @@ as revant as the question of whether submarines can swim.
 		-- Dijkstra
 In the Halls of Justice the only justice is in the halls.
 		-- enny Bruce
-Intify your visitor.
+Intify r visitor.
 Every man is apt to form his noti of things difficult to be apprehend,
 or less familiar, from their analogy to things which  more familiar.
 Thus, if a man bred to the sea life, and accustomed to think and talk

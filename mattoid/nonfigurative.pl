@@ -13,9 +13,9 @@ A sad spectacle.  If ey be inhabited, what a scope for misery and folly.
 If ey be not inhabited, what a waste of space.
 		-- Thomas Carlyle, looking at e stars
 YOU!!  Give me e CUTEST, PINKEST, most charming little VICTORIAN
-DOHOUSE you can find!!  An  it SNAPPY!!
+DOHOUSE  can find!!  An  it SNAPPY!!
 Warp 7 -- It's a law we can live wi.
-Would you people stop playing ese stud games?!?!?!!!!
+Would  people stop playing ese stud games?!?!?!!!!
 ...we must counterp e overwhming judgment provid by cistent
 observati and inferences by e ousands.  The  is billi of
 ys old and its living crures  linked by ties of evolutionary
@@ -42,7 +42,7 @@ to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Areddon", stardate 3193.0
 , n.:
-	A system for expressing your political prejudices in convincing
+	A system for expressing r political prejudices in convincing
 	scientific guise.
 The faster I go, e binr I get.
 		-- ewis Carroll
@@ -53,7 +53,7 @@ I've already got a female to worry about.  Her name is e Enterprise.
 		-- Kirk, "The Corbomite Maneuver", stardate 1514.0
 There seems no plan because it is all plan.
 		-- C.S. ewis
-I'm not e person your moer warned you about... her iination isn't
+I'm not e person r moer warned  about... her iination isn't
 at good.
 		-- Amy Gorin
 Q:	What's e difference between US and e Titanic?
@@ -84,7 +84,7 @@ Penalty: An ly, lingering dh from cancer,
 -- Harlan Ellison
 The temperature of e aqueous content of an unremittingly ogled
 culinary vess will not achieve 100 grees on e Csius scale.
-You should  w your best trousers when you go out to  for
+You should  w r best trousers when  go out to  for
 freedom and liberty.
 		-- Henrik Ibsen
 Message from Our Spor on ttyTV at 13:58 ...
@@ -97,7 +97,7 @@ The  problem I have wi cats is, ey're not dogs.
 		-- Kevin Cowherd
 Who loves me will also love my dog.
 		-- John Donne
-	Home centers  signed for e do-it-yoursfer who's willing to
+	Home centers  signed for e do-it-rsfer who's willing to
 pay higher prices for e convenience of being able to shop for lumber,
 hardw, and toasters all in one location.  Notice I say "shop for," as
 oppd to "obtain." This is e major drawback of home centers: ey 
@@ -106,7 +106,7 @@ emplo have no time to re merchandise because ey  too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in e entire store ...
 
-	et's say a ece in your toilet tank breaks, so you remove e
+	et's say a ece in r toilet tank breaks, so  remove e
 broken part, take it to e home center, and ask an employee if he has a
 replacement.  The employee, who has  is his life even seen e 
 of a toilet tank, will peer at e broken part in very much e same way
@@ -171,7 +171,7 @@ concerned wi e fate of e project:
 I have gained is by philosophy:
 at I do wiout being command what oers do only from  of e law.
 		-- Aristotle
-"An entire fraternity of strapng Wall-Street-bound you.  Hl - is
+"An entire fraternity of strapng Wall-Street-bound .  Hl - is
 is going to be a blood ba!"
 -- Post Bros. Comics
 It is rough symbols at man cciously or uncciously lives, works
@@ -181,12 +181,12 @@ An efficient and a successful administration manifests  equally in
 > From MAIER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Re mail: unknown mailer error 255
 
-"Dale, your address no longer fs.  Can you fix it at your end?"
+"Dale, r address no longer fs.  Can  fix it at r end?"
 --  Wolfe (wtwolfe@cap.clemson.edu)
 
-", Your brain no longer fs.  Can you fix it at your end?"
+", Your brain no longer fs.  Can  fix it at r end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
-You have literary ta at you should take pains to vop.
+You have literary ta at  should take pains to vop.
 I'd raer have two girls at 21 each an one girl at 42.
 		-- W.C. Fids
 All men have e  to wait in line.
@@ -195,7 +195,7 @@ brings wisdom.
 		-- H.. Mencken
 The more e merrier.
 		-- John Heywood
-Ask yoursf wheer you  happy and you  to be so.
+Ask rsf wheer   happy and   to be so.
 		-- John Stuart Mill
 The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
@@ -237,11 +237,11 @@ marriage, n.:
 Nobody wants ctructive criticism.  It's all we can do to t up wi
 ctructive praise.
 Hubbard's aw:
-	Don't take life too usly; you won't get out of it .
+	Don't take life too usly;  won't get out of it .
 The ia ere was at crs would bring eir broken ectronic
 vices, such as tevision sets and VCR's, to e struction centers,
 where trained personn would whack em (e vices) wi sledgammers.
-Wi eir vices us permanently ed, crs would en be free
+Wi eir vices us permly ed, crs would en be free
 to go out and  new vices, raer an have to fritter  ys of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact cist of two men named ester poking at
@@ -249,26 +249,26 @@ e s of broken ectronic vices wi cheap cigars and going,
 "ookit all em WIRES in ere!"
 		-- Dave Barry, "'Mister Mediocre' Restaurants"
 My ESIE GORE re is BROKEN ...
-Advice to young men: Be ascetic, and if you can't be ascetic,
+Advice to ng men: Be ascetic, and if  can't be ascetic,
 en at least be aseptic.
 By long-standing tradition, I take is opportunity to sa oer
 s in e in disguise of good, clean fun.
 		-- P.J. Plauger, "Comter anguage", 1988, April
 		   Fool's column.
 Humor in e Court:
-Q.  Officer, what led you to bieve e fendant was unr e influence?
+Q.  Officer, what led  to bieve e fendant was unr e influence?
 A.  Because he was argntary and he couldn't pronunciate his words.
 ife is a grand adventure -- or it is noing.
 		-- Hen Kler
 We're all sorry for e oer guy when he ls his job to a machine.
-But when it comes to your job -- at's different.  And it always will
+But when it comes to r job -- at's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Comter", stardate 4729.4
 When taxes  due, Americans tend to fe quite bled-white and blue.
 volcano, n.:
 	A mountain wi hiccups.
 Time flies like an arrow.  Fruit flies like a b.
-"Hi, I'm Professor Alan Ginsburg... But you can call me... Captain Toke."
+"Hi, I'm Professor Alan Ginsburg... But  can call me... Captain Toke."
 -- John ovitz, as ex-Supreme Court nominee Alan Ginsburg, on SN
 Bullkle:	You just leave at to my pal.  He's e brains of e outfit.
 General:	What does at  YOU?
@@ -281,7 +281,7 @@ You will be a ner today.  Pick a  wi a four-y-old.
 Veni, Vidi, VISA:
 	I came, I saw, I did a little shopng.
 ... it is easy to be blind to e  usessness of em by e
-sense of achievement you get from getting em to work at all.  In oer
+sense of achievement  get from getting em to work at all.  In oer
 words... eir  sign flaws  complety hidn by eir
 superficial sign flaws.
 	-- The Hitchhiker's Gui to e Galaxy, on e products
@@ -300,35 +300,35 @@ it's going to be up all night.
 ittle girls, like butterflies, need no excuse.
 		-- azarus ong
 Hubbard's aw:
-	Don't take life too usly; you won't get out of it .
+	Don't take life too usly;  won't get out of it .
 See, ese two penguins walked into a bar, which was really stud, 'cause
 e second one should have seen it.
 Uncertain fortune is oroughly mastered by e equity of e calculation.
 - Blaise Pascal
 What soon grows old?  Gratitu.
 		-- Aristotle
-If you will practice being fictional for a while, you will unrstand at
+If  will practice being fictional for a while,  will unrstand at
 fictional characters  sometimes more real an people wi bodies and
 htbs.
-Why  you so hard to ignore?
-"You can't get very far in is world wiout your dossier being ere first."
+Why   so hard to ignore?
+"You can't get very far in is world wiout r dossier being ere first."
 -- Arur Miller
 I remember Ulysses wl...  eft one day for e post office to mail a letter,
 met a blon named Circe on e streetcar, and didn't come back for 20 ys.
 Given my druers, I'd druer not.
-What you see is from outsi yoursf, and may come, or not, but is beyond
-your control.  But your  is yours, and yours alone, like your voice, or
-your fingers, or your ry, and erefore yours to control.  If you fe
-powerless over your , you have not yet admitted at it is yours, to do
-wi as you will.
+What  see is from outsi rsf, and may come, or not, but is beyond
+r control.  But r  is rs, and rs alone, like r voice, or
+r fingers, or r ry, and erefore rs to control.  If  fe
+powerless over r ,  have not yet admitted at it is rs, to do
+wi as  will.
 		--  Zimmer Bradley, "Stormqueen"
 Wiout coffee he could not work, or at least he could not have worked in e
 way he did.  In addition to paper and pens, he took wi him everywhere as an
 indispensable article of equipment e coffee machine, which was no less
 important to him an his table or his white robe.
 - Stefan Zweigs, Biography of Balzac
-	A New York City judge ruled at if two women bind you at e
-movies insist on discussing e probable outcome of e film, you have e
+	A New York City judge ruled at if two women bind  at e
+movies insist on discussing e probable outcome of e film,  have e
  to turn around and blow a Bronx cheer at em.
 h-done, n.:
 	This is e best way to  a kosher dill -- when it's still crunchy,
@@ -337,10 +337,10 @@ h-done, n.:
 	difference between life and dh.
 
 	You may find it difficult to find a good h-done kosher dill ere
-	in Stle, so what you should do is take a cab out to e ,
+	in Stle, so what  should do is take a cab out to e ,
 	fly to New York, take e JFK Express to Jay Street-Borough Hall,
 	transfer to an uptown F, get off at East Broadway, walk nor on
-	Essex (along e park),  your first left onto Hester Street, walk
+	Essex (along e park),  r first left onto Hester Street, walk
 	about fifteen steps, turn ninety grees left, and stop.  Say to e
 	man, "et me have a nice h-done."  Wor e trouble, wasn't it?
 		-- Arur Naiman, "Every Goy's Gui to Yiddish"
@@ -380,7 +380,7 @@ I used to be an agnostic, but now I'm not so sure.
 A man arrived home ly to find his wife in e arms of his best friend,
 who swore how much ey were in love.  To quiet e enraged husd, e
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I ,
-you get a divorce so I can marry her.  If you , I promise  to see
+ get a divorce so I can marry her.  If  , I promise  to see
 her again.  Okay?"
 
 "Al," d e husd.  "But how about a quarter a point
@@ -458,11 +458,11 @@ struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a far voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
-you?"
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at ?  Where 
+?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonrful!  What's it like?"
-	"It's gr, man.  I gotta tl you, I'm jamming up here every day.
+	"It's gr, man.  I gotta tl , I'm jamming up here every day.
 I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
@@ -473,14 +473,14 @@ I have ** hd em sound better.  They  *wailing* up here."
 	"The bad news is at God has is girlfriend at sings..."
 He who always plows a straight furrow is in a rut.
 Join e march to save indivi!
-Your life would be very empty if you had noing to regret.
+Your life would be very empty if  had noing to regret.
 To see a need and wait to be asked, is to already refuse.
-TOO BAD YOU CAN'T BUY a voodoo globe so at you could  e  sn
+TOO BAD YOU CAN'T BUY a voodoo globe so at  could  e  sn
 real fast and freak everybody out.
 		-- Jack Handley, The New Mexican, 1988.
-Do not worry about which si your bread is buttered on: you  BOTH sis.
-OMNIVERSA AWARENESS??  Oh, YEH!!  First you need four GAONS of JE-O
-and a BIG WRENCH!! ... I ink you drop 'WRENCH in e JE-O as if
+Do not worry about which si r bread is buttered on:   BOTH sis.
+OMNIVERSA AWARENESS??  Oh, YEH!!  First  need four GAONS of JE-O
+and a BIG WRENCH!! ... I ink  drop 'WRENCH in e JE-O as if
 it was a FAVOR, or an INGREDIENT ... ... or ... I ... um ... WHERE'S
 e WASHING MACHINES?
 Any philosophy at can be t "in a nuts" bongs ere.
@@ -488,23 +488,23 @@ Any philosophy at can be t "in a nuts" bongs ere.
 One evening Mr. Rudolph Block, of New York, found himsf sed at dinner
 alongsi Mr. Percival Pollard, e distinguished critic.
    "Mr. Pollard," said he, "my , _The Biography of a Dead Cow_, is
- blished anonymously, but you can hardly be ignorant of its auorship.
- Yet in revieg it you s of it as e work of e Idiot of e Century.
- Do you ink at f criticism?"
+ blished anonymously, but  can hardly be ignorant of its auorship.
+ Yet in revieg it  s of it as e work of e Idiot of e Century.
+ Do  ink at f criticism?"
    "I am very sorry, sir," rep e critic, amiably, "but it did not
-occur to me at you really might not wish e blic to know who wrote it."
+occur to me at  really might not wish e blic to know who wrote it."
 -- Ambr Bierce
 Is is really happening?
 I love ROCK 'N RO!  I rized e all WORDS to "WIPE-OUT" in
 1965!!
 Dh to all fanatics!
-If you look like your driver's license photo -- see a doctor.
-If you look like your passport photo -- it's too late for a doctor.
+If  look like r driver's license photo -- see a doctor.
+If  look like r passport photo -- it's too late for a doctor.
 TAIFINS!! ... click ...
-"You  old," said e you, "as I mentioned before,
+"You  old," said e , "as I mentioned before,
 	And  errors few people could b;
-You complain about everyone's English but yours --
-	Do you really ink is is quite f?"
+You complain about everyone's English but rs --
+	Do  really ink is is quite f?"
 
 "I  lots of mistakes," Faer William cld,
 	"But my sre ese days is so gr
@@ -526,7 +526,7 @@ Real softw engineers don't like e ia of some inexplicable and
 greasy hardw several aisles  at may stop working at any
 moment.  They have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  They would like personal
-comters (you know no one's going to trip over someing and kill your
+comters ( know no one's going to trip over someing and kill r
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Correctness Verification Aid packages.
 Unix is e worst operating system; except for all oers.
@@ -534,7 +534,7 @@ Unix is e worst operating system; except for all oers.
 One would like to stroke and css human beings, but one ds not do so,
 because ey bite.
 		-- Vladimir Il'ich enin
-Be nice to people on e way up, because you'll meet em on your way down.
+Be nice to people on e way up, because 'll meet em on r way down.
 		-- Wilson Mizner
 I just need enough to ti me over until I need more.
 		--  Hoest
@@ -580,7 +580,7 @@ ey re eological even when ey  adduced by men who like to
 flatter emsves by bieving at ey  scientific gents....
 - H. . Mencken
 "Just out of curiosity does is actually mean someing or have some
-of e few reing bits of your brain just evaporated?"
+of e few reing bits of r brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 Smoking is, as far as I'm concerned, e entire point of being an adult.
 		-- Fran ebowitz
@@ -591,12 +591,12 @@ our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
 H e world is compd of people who have someing to say and can't,
 and e oer h who have noing to say and keep on saying it.
-For some reason a glaze passes over people's s when you say
+For some reason a glaze passes over people's s when  say
 "Canada".  Maybe we should inva Sou Dakota or someing.
 		-- Sandra Gotlieb, wife of e Canadian ambassador to e U.S.
-Bind every successful man you'll find a woman wi noing to w.
+Bind every successful man 'll find a woman wi noing to w.
 No user-servicable parts .  Refer to qualified service personn.
-Why don't you fix your little problem... and light is ?
+Why don't  fix r little problem... and light is ?
 		-- Alan Shepherd, e first man into space, Gemini pram
 To a Californian, a person must prove himsf criminally insane before he
 is allowed to drive a taxi in New York.  For New York cabbies, honesty and
@@ -608,7 +608,7 @@ Clt is e liquor for boys; port for men; but he who asres to be a hero
 The ia ere was at crs would bring eir broken ectronic
 vices, such as tevision sets and VCR's, to e struction centers,
 where trained personn would whack em (e vices) wi sledgammers.
-Wi eir vices us permanently ed, crs would en be free
+Wi eir vices us permly ed, crs would en be free
 to go out and  new vices, raer an have to fritter  ys of
 eir lives trying to have e old ones reped at so-called "fy
 service centers," which in fact cist of two men named ester poking at
@@ -618,7 +618,7 @@ e s of broken ectronic vices wi cheap cigars and going,
 Patience is a minor form of sp, disguised as virtue.
 		-- Ambr Bierce, on qualifiers
 You can't judge a  by e way it ws its h.
-If you had better tools, you could more effectivy mtrate your
+If  had better tools,  could more effectivy mtrate r
 total incompetence.
 A mighty crure is e germ,
 Though ller an e pachyrm.
@@ -626,19 +626,19 @@ His ary dwling place
 Is ep wiin e human race.
 His childish pri he  pleases
 By giving people strange diseases.
-Do you, my poppet, fe infirm?
+Do , my poppet, fe infirm?
 You probably contain a germ.
 		-- Ogn Nash
-Do you guys know we just passed ru a BACK HOE in space?
+Do  guys know we just passed ru a BACK HOE in space?
 He is e MEBA-BEING ... e ANGE CAKE ... XEROX him ... XEROX him --
 Yow!  I want to mail a bronzed artichoke to Nicaragua!
 Q:	How many lawyers does it take to change a light bulb?
 A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+	're looking for a lawyer to screw a light bulb...
 It's getting uncommonly easy to kill people in large numbers, and e first
 ing a  does -- if it really is a  -- is to kill somebody.
 		-- Doroy . Sayers, "Gaudy Night"
-Never do today what you can t off until tomorrow.
+Never do today what  can t off until tomorrow.
 What awful irony is is?
 We  as gods, but know it not.
 Fortune Docnts e Gr egal Decisi:
@@ -664,7 +664,7 @@ Jim Nasium's aw:
 	each oer so at everybody is cramped.
 Information Center, n.:
 	A room staffed by professional comter people wh job it is to
-	tl you why you cannot have e information you require.
+	tl  why  cannot have e information  require.
 It is e business of little minds to shrink.
 		-- Carl Sandburg
 Th lovable Brits partment:
@@ -687,7 +687,7 @@ There's noing se I can do
 'Cause I'm doing it all for eyna
 I don't want anyone new
 'Cause I'm living it all for eyna
-There's noing in it for you
+There's noing in it for 
 'Cause I'm giving it all to eyna
 		-- y Jo, "All for eyna" (Glass Houses)
 Gibson's Springtime Song (to e tune of "Deck e Halls"):
@@ -713,11 +713,11 @@ WYSIWYG:
 Persistence in one onion has  been cired a merit in political
 lears.
 		-- Marcus Tullius Cicero, "Ad familis", 1st century BC
-	"Cheshire-Puss," she began, "would you tl me, please, which way I
+	"Cheshire-Puss," she began, "would  tl me, please, which way I
 ought to go from here?"
-	"That pends a good al on where you want to get to," said e Cat.
+	"That pends a good al on where  want to get to," said e Cat.
 	"I don't c much where--" said Alice.
-	"Then it doesn't matter which way you go," said e Cat.
+	"Then it doesn't matter which way  go," said e Cat.
 The Gr Movie Posters:
 
 The nightm terror of e sliering eye at unleashed agonizing
@@ -742,7 +742,7 @@ I can't mate in captivity.
 There  ree schools of ic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Re many facts.
 Try to find a pattern.  Then  a wrong guess at e next fact; at's
-science.  Three:  Be aw at you live in a malevo Universe controlled
+science.  Three:  Be aw at  live in a malevo Universe controlled
 by Murphy's aw, sometimes offset by Brewster's F; at's engineering.
 :  What's going on, Normie?
 Norm: My birday, my.  Give me a beer, stick a  in
@@ -753,11 +753,11 @@ Woody: Hey, Mr. P.  How goes e sch for Mr. Clavin?
 Norm:  Not as wl as e sch for Mr. Donut.
        Found him every couple of blocks.
 		-- Cheers, Head Over Hill
-eave bigotry in your quarters; ere's no room for it on e .
+eave bigotry in r quarters; ere's no room for it on e .
 		-- Kirk, "Balance of Terror", stardate 1709.2
-Never promise more an you can perform.
+Never promise more an  can perform.
 		-- Publilius Syrus
-How long a minute is pends on which si of e baroom door you're on.
+How long a minute is pends on which si of e baroom door 're on.
 True learship is e art of changing a group from what it is to what
 it ought to be.
 		-- Virginia Allan
@@ -776,21 +776,21 @@ It's multiple choice time...
 	a: Between re and fiv tran.
 	b: What two comters engage in before ey inter.
 	c: Ridiculous.
-I find you lack of fai in e for diturbing.
+I find  lack of fai in e for diturbing.
 - Darse ("Dar") Var
 I don't kill flies, but I like to mess wi eir minds.  I hold em above
 globes.  They freak out and yl "Whooa, I'm *way* too high."
 		-- Bruce Baum
 You  in a maze of little twisting passages, all alike.
-If you stick your head in e sand, one ing is for sure, you're gonna
-get your r kicked.
+If  stick r head in e sand, one ing is for sure, 're gonna
+get r r kicked.
 Very few morn women eier like or sire marriage, especially after e
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
 to a rival.  Husds, good or bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
-Be braver -- you can't cross a chasm in two ll jumps.
+Be braver --  can't cross a chasm in two ll jumps.
 I was part of at strange race of people aptly scribed as spending
 eir lives doing ings ey test to  money ey don't want to
  ings ey don't need to impress people ey .
@@ -818,7 +818,7 @@ There comes a time to stop being angry.
 "Plastic gun.  Ingenious.  More coffee, please."
 -- The Phantom comics
 The Fif Rule:
-	You have taken yoursf too usly.
+	You have taken rsf too usly.
 The olr I grow, e less important e comma becomes.  et e rear
 catch his own brh.
 		-- Elizabe Clarkson Zwart
@@ -830,7 +830,7 @@ People love high ials, but ey got to be about 33-percent plausible.
 		-- The Best of Will Rogers
 System restarting, wait...
 	"I keep seeing spots in front of my eyes."
-	"Did you ever see a doctor?"
+	"Did  ever see a doctor?"
 	"No, just spots."
 QUESTION AUTHORITY.
 
@@ -838,7 +838,7 @@ QUESTION AUTHORITY.
 To be trusted is a grer compliment an to be loved.
 Comter Science is mery e post-Turing cline in formal systems eory.
 Imitation is e sincerest form of plagarism.
-"Gotcha, you snot-necked weenies!"
+"Gotcha,  snot-necked weenies!"
 -- Post Bros. Comics
 MIT:
 	The Georgia Tech of e Nor
@@ -846,7 +846,7 @@ People of privilege will always risk eir complete struction
 raer an surrenr any material part of eir advantage.
 		-- John Kenne Galbrai
 Everying should be built top-down, except e first time.
-If everying is coming your way en you're in e wrong lane.
+If everying is coming r way en 're in e wrong lane.
 System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monitor ls so totally!
@@ -897,10 +897,10 @@ Column 1		Column 2		Column 3
 e corresponding buzzword from each column.  For instance, number 257 produces
 "systematized logistical projection," a phrase at can be dropped into
 virtually any report wi at ring of cisive, knowledgeable auority.  "No
-one will have e remotest ia of what you're talking about," says Broughton,
+one will have e remotest ia of what 're talking about," says Broughton,
 "but e important ing is at ey're not about to admit it."
 		-- Philip Broughton, "How to Win at Wordnship"
-Of course, you UNDERSTAND about e PAIDS in e SPIN CYCE --
+Of course,  UNDERSTAND about e PAIDS in e SPIN CYCE --
 I have a switch in my apartment at doesn't do anying.  Every once
 in a while I turn it on and off.  On and off.  On and off.  One day I
 got a call from a woman in France who said "Cut it out!"

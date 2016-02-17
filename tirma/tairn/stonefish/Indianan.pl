@@ -16,10 +16,10 @@ proof by ghost reference:
 	Nothing even remotely resembling the cited theorem appears in 
 	the reference given.
 
-If you think the pen is mightier than the sword, the next time someone lls
-out a sword I'd like to see you get up there with your Bic.
+If  think the pen is mightier than the sword, the next time someone lls
+out a sword I'd like to see  get up there with r Bic.
 To any truly impartial person, it would be obvious that I am always right.
-I find you lack of faith in the forth dithturbing.
+I find  lack of faith in the forth dithturbing.
 - Darse ("Darth") Vader
 Today's scientific question is: What in the world is electricity?
 
@@ -39,7 +39,7 @@ harmony in the world.
 	The Tao of Programming flows far  and returns on the wind of
 morning.
 		-- Geoffrey James, "The Tao of Programming"
-Today is the first day of the rest of your life.
+Today is the first day of the rest of r life.
 "Truth never comes into the world but like a bastard, to the ignominy
 of him that brought her birth."
 -- Milton
@@ -59,7 +59,7 @@ The important thing is not to stop questioning.
 Johnny Carson's Definition:
 	The smallest interval of time known to man is that which occurs
 	in Manhattan between the traffic signal turning green and the
-	taxi driver behind you blowing his horn.
+	taxi driver behind  blowing his horn.
 Rule of Defactualization:
 	Information deteriorates upward through bureaucracies.
 I realize that the MX missile is none of our concern.  I realize that the
@@ -69,21 +69,21 @@ can be free to concern ourselves with getting hold of the plumber.
 
 But from time to time, I feel I must address major blic issues such as
 this, because in a free and open society, where the very future of the world
-hinges on decisions made by our elected leaders, you never win large cash
-journalism awards if you stick to the topics I usually write about, such as
+hinges on decisions made by our elected leaders,  never win large cash
+journalism awards if  stick to the topics I usually write about, such as
 nose-picking.
 		-- Dave Barry, "At Last, the Ultimate Deterrent Against
 		   Political Fallout"
 As of next week, passwords will be entered in Morse code.
 Take an astronaut to launch.
 It's OBVIOUS ... The FURS never reached ISTANBUL ... You were an EXTRA
-in the REMAKE of "TOPKAPI" ... Go home to your WIFE ... She's making
+in the REMAKE of "TOPKAPI" ... Go home to r WIFE ... She's making
 FRENCH TOAST!
 			Pittsburgh driver's test
 
-(3) When stopped at an intersection you should
+(3) When stopped at an intersection  should
 
-	(a) watch the traffic light for your lane.
+	(a) watch the traffic light for r lane.
 	(b) watch for pedestrians crossing the street.
 	(c) blow the horn.
 	(d) watch the traffic light for the intersecting street.
@@ -114,10 +114,10 @@ Why does a hearse horse snicker, hauling a lawyer ?
 When people say nothing, they don't necessarily mean nothing.
 Pascal is not a high-level language.
 		-- Steven Feiner
-	"Do you think what we're doing is wrong?"
+	"Do  think what we're doing is wrong?"
 	"Of course it's wrong!  It's illegal!"
 	"I've never done anything illegal before."
-	"I thought you said you were an accountant!"
+	"I thought  said  were an accountant!"
 In Pocatello, Idaho, a law passed in 1912 provided that "The carrying
 of concealed weapons is forbidden, unless same are exhibited to blic view."
 Love is the only game that is not called on account of darkness.
@@ -139,7 +139,7 @@ should be happier than others.
 		-- Tacitus (55?-120?)
 I want to be the white man's brother, not his brother-in-law.
 		-- Martin Luther King, Jr.
-Never t off until tomorrow what you can do today.  There might be a
+Never t off until tomorrow what  can do today.  There might be a
 law against it by that time.
 To generalize is to be an idiot.
 		-- William Blake
@@ -151,9 +151,9 @@ no owner, and a message of importance for every housewife.
 		-- Harry V. Wade
 Your comter account is overdrawn.  Please reauthorize.
 Congratulations!  You have rchased an extremely fine device that would
-give you thousands of years of trouble-free service, except that you
+give  thousands of years of trouble-free service, except that 
 undoubtably will destroy it via some typical bonehead consumer maneuver.
-Which is why we ask you to PLEASE FOR GOD'S SAKE READ THIS OWNER'S MANUAL
+Which is why we ask  to PLEASE FOR GOD'S SAKE READ THIS OWNER'S MANUAL
 CAREFULLY BEFORE YOU UNPACK THE DEVICE.  YOU ALREADY UNPACKED IT, DIDN'T
 YOU?  YOU UNPACKED IT AND PLUGGED IT IN AND TURNED IT ON AND FIDDLED WITH
 THE KNOBS, AND NOW YOUR CHILD, THE SAME CHILD WHO ONCE SHOVED A POLISH
@@ -174,8 +174,8 @@ hitch the length and breadth of the Galaxy, struggle against terrible odds,
 win through and still know where his towel is, is clearly a man to be
 reckoned with.
 		-- Douglas Adams, "The Hitchhiker's Guide to the Galaxy"
-The Golden Rule is of no use to you whatever unless you realize it
-is your move.
+The Golden Rule is of no use to  whatever unless  realize it
+is r move.
 		-- Frank Crane
 The church is near but the road is icy; the bar is far  but I will
 walk carefully.
@@ -223,22 +223,22 @@ fenderberg, n.:
 	The large glacial deposits that form on the insides
 	of car fenders during snowstorms.
 		-- "Sniglets", Rich Hall & Friends
-Never try to teach a pig to sing.  It wastes your time and annoys the pig.
+Never try to teach a pig to sing.  It wastes r time and annoys the pig.
 		-- Lazarus Long, "Time Enough for Love"
 Logic doesn't apply to the real world.
 		-- Marvin Minsky
 UH-OH!!  I think KEN is OVER-DUE on his R.V. PAYMENTS and HE'S having a
 NERVOUS BREAKDOWN too!!  Ha ha.
-You can bring any calculator you like to the midterm, as long as it
-doesn't dim the lights when you turn it on.
+You can bring any calculator  like to the midterm, as long as it
+doesn't dim the lights when  turn it on.
 		-- Hepler, Systems Design 182
 Lemma:  All horses are the same color.
 Proof (by induction):
 	Case n = 1: In a set with only one horse, it is obvious that all
 	horses in that set are the same color.
-	Case n = k: Suppose you have a set of k+1 horses.  Pull one of these
-	horses out of the set, so that you have k horses.  Suppose that all
-	of these horses are the same color.  Now t back the horse that you
+	Case n = k: Suppose  have a set of k+1 horses.  Pull one of these
+	horses out of the set, so that  have k horses.  Suppose that all
+	of these horses are the same color.  Now t back the horse that 
 	took out, and ll out a different one.  Suppose that all of the k
 	horses now in the set are the same color.  Then the set of k+1 horses
 	are all the same color.  We have k true => k+1 true; therefore all
@@ -266,7 +266,7 @@ Norm: Terrorists, Sam.  They've taken over my stomach.  They're demanding beer.
 Coach: What'll it be, Normie?
 Norm:  Just the usual, Coach.  I'll have a froth of beer and a snorkel.
 		-- Cheers, King of the Hill
-Give your very best today.  Heaven knows it's little enough.
+Give r very best today.  Heaven knows it's little enough.
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #14 -- VALGOL
 
 	VALGOL is enjoying a dramatic surge of polarity across the
@@ -292,10 +292,10 @@ message GAG ME WITH A SPOON!  A successful compile may be termed MAXIMALLY
 AWESOME!
 The good (I am convinced, for one)
 Is but the bad one leaves undone.
-Once your retation's done
+Once r retation's done
 You can live a life of fun.
 		-- Wilhelm Busch
-Don't let your status become too quo!
+Don't let r status become too quo!
 While I nodded, nearly napping, suddenly there came a tapping,
 As of some one gently rapping, rapping at my chamber door.
 		-- Edgar Allan Poe, "The Raven"
@@ -320,11 +320,11 @@ Norm:   All four cheeks and a couple of chins, Coach.
 		-- Cheers, Snow Job
 
 Coach:  Beer, Normie?
-Norm:   Uh, Coach, I dunno, I had one this week.  Eh, why not, I'm still young.
+Norm:   Uh, Coach, I dunno, I had one this week.  Eh, why not, I'm still ng.
 		-- Cheers, Snow Job
 Harrison's Postulate:
 	For every action, there is an equal and opposite criticism.
-	"I thought you were trying to get into shape."
+	"I thought  were trying to get into shape."
 	"I am. The shape I've selected is a triangle."
 Famous last words:
 > : Any porters out there should feel happier knowing that DEC is shipping
@@ -365,10 +365,10 @@ yet developed.
 A mathematician, a doctor, and an engineer are walking on the beach and
 observe a team of lifeguards mping the stomach of a drowned woman.  As
 they watch, water, sand, snails and such come out of the mp.
-	The doctor watches for a while and says: "Keep mping, men, you may
+	The doctor watches for a while and says: "Keep mping, men,  may
 yet save her!!"
 	The mathematician does some calculations and says: "According to my
-understanding of the size of that mp, you have already mped more water
+understanding of the size of that mp,  have already mped more water
 from her body than could be contained in a cylinder 4 feet in diameter and
 6 feet high."
 	The engineer says: "I think she's sitting in a ddle."
@@ -384,7 +384,7 @@ The problem with this country is that there is no death penalty for
 incompetence.
 What this country needs is a dime that will buy a good five-cent bagel.
 You are number 6!  Who is number one?
-Let us go then you and I
+Let us go then  and I
 while the night is laid out against the sky
 like a smear of mustard on an old pork pie.
 
@@ -399,20 +399,20 @@ The terminal is very neat and clean, the attendants all very attractive, the
 pilots very capable. The fleet of Learjets the carrier operates is immense.
 Your jet takes off without a hitch,  above the clouds, and at 20,000
 feet it explodes without warning.
-Have the courage to take your own thoughts seriously, for they will shape you.
+Have the courage to take r own thoughts seriously, for they will shape .
 		-- Albert Einstein
 What's so funny?
-The idea is to die young as late as possible.
+The idea is to die ng as late as possible.
 		-- Ashley Montague
 There is no act of treachery or mean-ness of which a political party
 is not capable; for in politics there is no honour.
 		-- Benjamin Disraeli, "Vivian Grey"
-Sally:	C'mon, Ted, all I'm asking you to do is share your feelings
+Sally:	C'mon, Ted, all I'm asking  to do is share r feelings
 	with me.
-Ted:	ALL?  Do you realize what you're asking?  Men aren't trained
+Ted:	ALL?  Do  realize what 're asking?  Men aren't trained
 	to share.  We're trained to protect ourselves by not
 	letting anyone too close.  Good grief, if I go around
-	sharing everything with you, you could hang me out to dry.
+	sharing everything with ,  could hang me out to dry.
 Sally:	It's called "trust," Ted.
 Ted:	"Sharing"?  "Trust"?  You're really asking me to sail into
 	uncharted waters here.
@@ -424,7 +424,7 @@ First study the enemy.  Seek weakness.
 Q:	What do Winnie the Pooh and John the Baptist have in common?
 A:	The same middle name.
 default, n.:
-	[Possibly from Black English "De fault wid dis system is you,
+	[Possibly from Black English "De fault wid dis system is ,
 	mon."] The vain attempt to avoid errors by inactivity.  "Nothing will
 	come of nothing: speak again." -- King Lear.
 		-- Stan Kelly-Bootle, "The Devil's DP Dictionary"
@@ -441,7 +441,7 @@ The bank sent our statement this morning,
 The red ink was a sight of great awe!
 Their figures and mine might have balanced,
 But my wife was too quick on the draw.
-Don't try to have the last word -- you might get it.
+Don't try to have the last word --  might get it.
 		-- Lazarus Long
 The surest sign that a man is in love is when he divorces his wife.
 I don't want to achieve immortality through my work.  I want to achieve
@@ -450,23 +450,23 @@ immortality through not dying.
 Make a wish, it might come true.
 "If the code and the comments disagree, then both are probably wrong."
 -- Norm Schryer
-The two things that can get you into trouble quicker than anything else
+The two things that can get  into trouble quicker than anything else
 are fast women and slow horses.
 "They told me I was gullible ... and I believed them!"
-It pays to be obvious, especially if you have a retation for subtlety.
+It pays to be obvious, especially if  have a retation for subtlety.
 Sic Transit Gloria Thursdi.
-That secret you've been guarding, isn't.
-In an age when the fashion is to be in love with yourself, confessing to
+That secret 've been guarding, isn't.
+In an age when the fashion is to be in love with rself, confessing to
 be in love with somebody else is an admission of unfaithfulness to one's
 beloved.
 		-- Russell Baker
    On Krat's  screen appeared the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their leader.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip  from all your armed might, laughing
-at your clumsiness!  We slip  as we always will, you pathetic creatures.
-And now that we have a real head start, you'll never catch us!  What better
-proof that the Progenitors favor not you, but us!  What better proof..."
+upspring of errant masters.  We slip  from all r armed might, laughing
+at r clumsiness!  We slip  as we always will,  pathetic creatures.
+And now that we have a real head start, 'll never catch us!  What better
+proof that the Progenitors favor not , but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time savoring
 the artistry of it.  These men are better than I'd thought.  Their insults
 are wordy and overblown, but they have talent.  They deserve honorable, slow
@@ -475,7 +475,7 @@ deaths.
 "You shouldn't  my toaster angry."
 -- Household security explained in "Johnny Quest"
 I want EARS!  I want two ROUND BLACK EARS to  me feel warm 'n secure!!
-But soft you, the fair Ophelia:
+But soft , the fair Ophelia:
 Ope not thy ponderous and marble jaws,
 But get thee to a nunnery -- go!
 		-- Mark "The Bard" Twain
@@ -490,11 +490,11 @@ of nothing.
 There are three schools of ic.  One:  State a tautology, then ring the
 changes on its corollaries; that's philosophy.  Two:  Record many facts.
 Try to find a pattern.  Then  a wrong guess at the next fact; that's
-science.  Three:  Be aware that you live in a malevolent Universe controlled
+science.  Three:  Be aware that  live in a malevolent Universe controlled
 by Murphy's Law, sometimes offset by Brewster's Factor; that's engineering.
 According to the latest official figures, 43% of all statistics are
 totally worthless.
-Are you selling NYLON OIL WELLS??  If so, we can use TWO DOZEN!!
+Are  selling NYLON OIL WELLS??  If so, we can use TWO DOZEN!!
 "I will  no bargains with terrorist hardware."
 -- Peter da Silva
 ... that the notions of "hardware", and "software" should be extended by
@@ -504,12 +504,12 @@ A liveware monitor is a person dedicated to the task of ensuring that the
 liveware does not interfere with the real-time processes, invoking the
 REAL-TIME EXECUTIONER to delete liveware that adversely affects ...
 		-- Linden and Wihelminalaan
-Take heart amid the deepening gloom that your dog is finally getting
+Take heart amid the deepening gloom that r dog is finally getting
 enough cheese.
 		-- National Lampoon, "Deteriorata"
 Newman's Discovery:
 	Your best dreams may not come true; fortunately, neither will
-	your worst dreams.
+	r worst dreams.
 Louie Louie, me gotta go
 Louie Louie, me gotta go
 
@@ -547,7 +547,7 @@ another day's useless energies spent.
 Impassioned lovers wrestle as one.
 Lonely man cries for love and has none.
 New mother picks up and suckles her son.
-Senior citizens wish they were young.
+Senior citizens wish they were ng.
 
 Cold-hearted orb that rules the night;
 Removes the colors from our sight.
@@ -555,7 +555,7 @@ Red is grey and yellow white.
 But we decide which is real, and which is an illusion."
 		-- The Moody Blues, "Days of Future Passed"
 Nothing happens.
-Everything you know is wrong!
+Everything  know is wrong!
 A woman's best protection is a little money of her own.
 		-- Clare Booth Luce, quoted in "The Wit of Women"
 Television -- the longest amateur night in history.
@@ -578,7 +578,7 @@ Ill-chosen abstraction is particularly evident in the design of the ADA
 runtime system. The interface to the ADA runtime system is so opaque that
 it is impossible to model or predict its performance, making it effectively
 useless for real-time systems. -- Marc D. Donner and David H. Jameson.
-Try to get all of your posthumous medals in advance.
+Try to get all of r posthumous medals in advance.
 The misnaming of fields of study is so common as to lead to what might be
 general systems laws.  For example, Frank Harary once suggested the law that
 any field that had the word "science" in its name was guaranteed thereby
@@ -592,9 +592,9 @@ Pray:  To ask that the laws of the universe be annulled in beh of a single
 petitioner confessedly unworthy.
 -- Ambrose Bierce
 Marriage Ceremony:  An incredible metaphysical sham of watching God and the 
-law being dragged into the affairs of your family.
+law being dragged into the affairs of r family.
 -- O. C. Ogilvie
-A diplomat is a person who can tell you to go to hell in such a way that you
+A diplomat is a person who can tell  to go to hell in such a way that 
 actually look forward to the trip.
 		-- Caskie Stinnett, "Out of the Red"
 "I don't know why, but first C programs tend to look a lot worse than
@@ -602,12 +602,12 @@ first programs in any other language (maybe except for fortran, but then
 I suspect all fortran programs look like `firsts')"
 (By Olaf Kirch)
 I joined scientology at a garage !!
-You should tip the waiter $10, minus $2 if he tells you his name, another $2
-if he claims it will be His Pleasure to serve you and another $2 for each
+You should tip the waiter $10, minus $2 if he tells  his name, another $2
+if he claims it will be His Pleasure to serve  and another $2 for each
 "special" he describes involving confusing terms such as "shallots," and $4
 if the menu contains the word "fixin's." In many restaurants, this means the
-waiter will actually owe you money. If you are traveling with a child aged
-six months to three years, you should leave an additional amount equal to
+waiter will actually owe  money. If  are traveling with a child aged
+six months to three years,  should leave an additional amount equal to
 twice the bill to compensate for the fact that they will have to take the
 banquette out and burn it because the cracks are wedged solid with gobbets
 made of partially chewed former restaurant rolls saturated with baby spit.
@@ -619,7 +619,7 @@ Azh nazg durbatal^uk, azh nazg gimbatul,
 Azh nazg thrakatal^uk agh burzum ishi krimpatul!
 		-- J. R. R. Tolkien
 Cloning is the sincerest form of flattery.
-It's all right letting yourself go as long as you can let yourself back.
+It's all right letting rself go as long as  can let rself back.
 		-- Mick Jagger
 [He] took me into his library and showed me his books, of which he had
 a complete set.
@@ -635,16 +635,16 @@ Newlan's Truism:
 	government economist to whom it is acceptable still has a job.
 Winning isn't everything.  It's the only thing.
 		-- Vince Lombardi
-The truth you speak has no past and no future.  It is, and that's all it
+The truth  speak has no past and no future.  It is, and that's all it
 needs to be.
-You should emulate your heros, but don't carry it too far.  Especially
+You should emulate r heros, but don't carry it too far.  Especially
 if they are dead.
 Earth Destroyed by Solar Flare -- film clips at eleven.
 The good life was so elusive
 It really got me down
 I had to regain some confidence
 So I got into camouflage
-Adhere to your own act, and congratulate yourself if you have done something
+Adhere to r own act, and congratulate rself if  have done something
 strange and extravagant, and broken the monotony of a decorous age.
 		-- Ralph Waldo Emerson
 Virtue does not always demand a heavy sacrifice -- only the willingness
@@ -652,12 +652,12 @@ to  it when necessary.
 		-- Frederick Dunn
 Miller's Slogan:
 	Lose a few, lose a few.
-Life is cheap, but the accessories can kill you.
+Life is cheap, but the accessories can kill .
 About the time we think we can  ends meet, somebody moves the ends.
 		-- Herbert Hoover
 Give me a Plumber's friend the size of the Pittsburgh dome, and a place
 to stand, and I will drain the world.
-You can go anywhere you want if you look serious and carry a clipboard.
+You can go anywhere  want if  look serious and carry a clipboard.
 (6)	Men employees will be given time off each week for courting
 	rposes, or two evenings a week if they go regularly to church.
 (7)	After an employee has spent his thirteen hours of labor in the
@@ -676,20 +676,20 @@ You can go anywhere you want if you look serious and carry a clipboard.
 	business permit it.
 		-- "Office Worker's Guide", New England Carriage Works, 1872
 "Mind if I smoke?"
-	"I don't care if you burst into flames and die!"
+	"I don't care if  burst into flames and die!"
 Armadillo:
 	To provide weapons to a Spanish pickle.
 The disks are getting full; rge a file today.
-Trust your husband, adore your husband, and get as much as you can in your
+Trust r husband, adore r husband, and get as much as  can in r
 own name.
 		-- Joan Rivers
-When a man steals your wife, there is no better revenge than to let him
+When a man steals r wife, there is no better revenge than to let him
 keep her.
 		-- Sacha Guitry
 Some people have a way about them that seems to say: "If I have
 only one life to live, let me live it as a jerk."
-Your friends will know you better in the first minute you meet than your
-acquaintances will know you in a thousand years.
+Your friends will know  better in the first minute  meet than r
+acquaintances will know  in a thousand years.
 		-- Richard Bach, "Illusions"
 When people say nothing, they don't necessarily mean nothing.
 Humans are communications junkies.  We just can't get enough.
@@ -698,7 +698,7 @@ Gerrold's Laws of Infernal Dynamics:
 	(1) An object in motion will always be headed in the wrong direction.
 	(2) An object at rest will always be in the wrong place.
 	(3) The energy required to change either one of these states
-	   will always be more than you wish to expend, but never so
+	   will always be more than  wish to expend, but never so
 	   much as to  the task totally impossible.
 Not one hundred percent efficient, of course ... but nothing ever is.
 		-- Kirk, "Metamorphosis", stardate 3219.8
@@ -708,7 +708,7 @@ Is a damned tough bullet to chew.
 		-- Rudyard Kipling
 The best thing about growing older is that it takes such a long time.
 Humor in the Court:
-Q.  Doctor, did you say he was shot in the woods?
+Q.  Doctor, did  say he was shot in the woods?
 A.  No, I said he was shot in the lumbar region.
 If there is a wrong way to do something, then someone will do it.
 		-- Edward A. Murphy Jr.
@@ -716,8 +716,8 @@ Saints should always be judged guilty until they are proven innocent.
 - George Orwell
 The superfluous is very necessary.
 		-- Voltaire
-Due to circumstances beyond your control, you are master of your fate
-and captain of your soul.
+Due to circumstances beyond r control,  are master of r fate
+and captain of r soul.
 Any man can work when every stroke of his hand brings down the fruit
 rattling from the tree to the ground; but to labor in season and out of
 season, under every discouragement, by the power of truth -- that
@@ -727,12 +727,12 @@ Ozman's Laws:
 	(1)  If someone says he will do something "without fail," he won't.
 	(2)  The more people talk on the phone, the less money they .
 	(3)  People who go to conferences are the ones who shouldn't.
-	(4)  Pizza always burns the roof of your mouth.
+	(4)  Pizza always burns the roof of r mouth.
 The last time somebody said, "I find I can write much better with a word
 processor.", I rep, "They used to say the same thing about drugs."
 		-- Roy Blount, Jr.
 If God had meant for us to be naked, we would have been born that way.
-Grief can take care of itself; but to get the full value of a joy you must
+Grief can take care of itself; but to get the full value of a joy  must
 have somebody to divide it with.
 		-- Mark Twain
 What's this stuff about people being "released on their own recognizance"?
@@ -740,22 +740,22 @@ Aren't we all out on our own recognizance?
 If builders built buildings the way programmers write programs, Jolt Cola
 would be a Fortune-500 company.
 
-If builders built buildings the way programmers write programs, you'd be
+If builders built buildings the way programmers write programs, 'd be
 able to buy a nice little colonial split-level at Babbages for $34.95.
 
 If programmers wrote programs the way builders build buildings, we'd still
 be using autocoder and running compile decks.
 
 -- Peter da Silva and Karl Lehenbauer, a different perspective
-You must realize that the comter has it in for you.  The irrefutable
-proof of this is that the comter always does what you tell it to do.
+You must realize that the comter has it in for .  The irrefutable
+proof of this is that the comter always does what  tell it to do.
 A fair exterior is a silent recommendation.
 		-- Publilius Syrus
 Suaviter in modo, fortiter in re.
 Se non e vero, e ben trovato.
 Am I in GRADUATE SCHOOL yet?
-You can cage a swallow, can't you,
-	but you can't swallow a cage, can you?
+You can cage a swallow, can't ,
+	but  can't swallow a cage, can ?
 Girl, bathing on Bikini, eyeing boy,
 	finds boy eyeing bikini on bathing girl.
 A man, a plan, a canal -- Panama!
@@ -764,7 +764,7 @@ The end move in politics is always to pick up a gun.
 		-- Buckminster Fuller
 Sorry.  Nice try.
 Fresco's Discovery:
-	If you knew what you were doing you'd probably be bored.
+	If  knew what  were doing 'd probably be bored.
 What an author likes to write most is his signature on the back of a cheque.
 		-- Brendan Francis
 Vanilla wafer.
@@ -778,7 +778,7 @@ breaking into a place and stealing stuff, or kidnapping somebody.  He really
 gives some effort to it.  A hoodlum is a pretty lousy sort of scum.  He
 works for gangsters and bumps guys off when they have been t on the spot.
 Why, after I'd made my rep, some of the Chicago Syndicate wanted me to work
-for them as a hood -- you know, handling a machine gun.  They offered me
+for them as a hood --  know, handling a machine gun.  They offered me
 two hundred and fifty dollars a week and all the protection I needed.  I
 was on the lam at the time and not able to work at my regular line.  But
 I wouldn't consider it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
@@ -801,13 +801,13 @@ My mother wants grandchildren, so I said, "Mom, go for it!"
 		-- Sue Murphy
 Using TSO is like kicking a dead whale down the beach.
 		-- S.C. Johnson
-Blessed are the young, for they shall inherit the national debt.
+Blessed are the ng, for they shall inherit the national debt.
 		-- Herbert Hoover
-If I could read your mind, love,
-What a tale your thoughts could tell,
+If I could read r mind, love,
+What a tale r thoughts could tell,
 Just like a paperback novel,
 The kind the drugstore sells,
-When you reach the part where the heartaches come,
+When  reach the part where the heartaches come,
 The hero would be me,
 Heroes often fail,
 You won't read that book again, because
@@ -828,8 +828,8 @@ Chemist who falls in acid is absorbed in work.
 In our civilization, and under our reblican form of government, intelligence
 is so highly honored that it is rewarded by exemption from the cares of office.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-What did ya do with your burden and your cross?
-Did you carry it yourself or did you cry?
+What did ya do with r burden and r cross?
+Did  carry it rself or did  cry?
 You and I know that a burden and a cross,
 Can only be carried on one man's back.
 		-- Louden Wainwright III
@@ -853,7 +853,7 @@ the bland and the banal.
 Natural laws have no pity.
 You have a retation for being thoroughly reliable and trustworthy. 
 A pity that it's totally undeserved.
-We were young and our happiness dazzled us with its strength.  But there was
+We were ng and our happiness dazzled us with its strength.  But there was
 also a terrible betrayal that lay within me like a Merle Haggard song at a
 French restaurant. [...]
 	I could not tell the girl about the woman of the tollway, of her milk
@@ -868,14 +868,14 @@ woman of the tollway.  I knew not how.  I started to speak, but she raised an
 arm and spoke with a quiet and peace I will never forget.
 	"I do not ask for whom's the tollway e," she said, "the tollway
 e's for thee."
-	The next morning our youth was a memory, and our happiness was a lie.
+	The next morning our th was a memory, and our happiness was a lie.
 Life is like a bad margarita with good tequila, I thought as I poured whiskey
 onto my granola and faced a new day.
 		-- Peter Applebome, International Imitation Hemingway
 		   Competition
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock before entering a ladies room!
-Death is life's way of telling you you've been fired.
+Death is life's way of telling  've been fired.
 		-- R. Geis
 Sorry.  Nice try.
 The best thing about growing older is that it takes such a long time.
@@ -888,14 +888,14 @@ There my pretty lady is, River-woman's daughter,
 Slender as the willow-wand, clearer than the water.
 
 Old Tom Bombadil water-lilies bringing
-Comes hopping home again.  Can you hear him singing?
+Comes hopping home again.  Can  hear him singing?
 Hey!  Come merry dol! derry dol! and merry-o
 Goldberry, Goldberry, merry yellow berry-o!
 
-Poor old Willow-man, you tuck your roots !
+Poor old Willow-man,  tuck r roots !
 Tom's in a hurry now.  Evening will follow day.
 Tom's going home again water-lilies bringing.
-Hey! come derry dol!  Can you hear me singing?
+Hey! come derry dol!  Can  hear me singing?
 		-- J. R. R. Tolkien
 Fortune's Real-Life Courtroom Quote #37:
 

@@ -32,7 +32,7 @@ Changing husbands/wives is only changing troubles.
 		-- Kathleen Norris
 Many people  sperately looking for some wise advice which will
 recommend that they do what they want to do.
-Have you noticed the way people's intelligence capabilities cline
+Have  noticed the way people's intelligence capabilities cline
 sharply the minute they start waving guns around?
 		-- Dr. Who
 Burn's Hog Weighing Method:
@@ -50,7 +50,7 @@ All I ask is a chance to prove that money can't  me happy.
 QOTD:
 	"If I'm what I eat, I'm a chocolate chip cookie."
 mathematician, n.:
-	Some one who believes iinary things appear right before your _i's.
+	Some one who believes iinary things appear right before r _i's.
 When a woman marries again it is because she tested her first husband.
 When a man marries again, it is because he adored his first wife.
 		-- Oscar Wil
@@ -90,14 +90,14 @@ Derrida
 Ore-Ida
 potato.
 
-If you dd,
-I'd ask you
+If  dd,
+I'd ask 
 to go dig
-up your is unr brown-
+up r is unr brown-
 tubered skies.
 
 where pitchforked
-you will ask
+ will ask
 Derrida?
 In less than a century, comters will be making substantial progress on
 ... the overriding problem of war and peace.
@@ -105,10 +105,10 @@ In less than a century, comters will be making substantial progress on
 "The value of marriage is not that adults produce children, but that children 
 produce adults."
 -- Peter De Vries
-The 80's -- when you can't tell hairstyles from chemotherapy.
+The 80's -- when  can't tell hairstyles from chemotherapy.
 A plethora of individuals with expertise in culinary techniques contaminate
 the potable concoction produced by steeping certain edible nutriments.
-If you don't do the things that  not worth doing, who will?
+If  don't do the things that  not worth doing, who will?
 Lawrence Radiation Laboratory keeps all its data in an old gray trunk.
 Cats, no less liquid than their shadows, offer no angles to the wind.
 To be successful, a woman has to be much better at her job than a man.
@@ -124,16 +124,16 @@ Rules for Good Grammar #4.
 	 (2) Make each pronoun agree with their antecents.
 	 (3) Join clauses good, like a conjunction should.
 	 (4) About them sentence s.
-	 (5) When dangling, watch your participles.
+	 (5) When dangling, watch r participles.
 	 (6) Verbs has got to agree with their subjects.
-	 (7) Just between you and i, case is important.
+	 (7) Just between  and i, case is important.
 	 (8) Don't write run-on sentences when they  hard to read.
 	 (9) Don't use commas, which n't necessary.
 	(10) Try to not ever split infinitives.
-	(11) It is important to use your apostrophe's correctly.
-	(12) Proofread your writing to see if you any words out.
+	(11) It is important to use r apostrophe's correctly.
+	(12) Proofread r writing to see if  any words out.
 	(13) Correct speling is essential.
-	(14) A preposition is something you  end a sentence with.
+	(14) A preposition is something   end a sentence with.
 	(15) While a transcendant vocabulary is laudable, one must be eternally
 	     cful so that the calculated objective of communication does not
 	     become ensconsed in obscurity.  In other words, eschew obfuscation.
@@ -164,10 +164,10 @@ ies may be tolerated by the luxurious cults, but the true IBM faith relies
 on the austerity of the word.
 		-- Edward Menlson, "The New Reblic", February 22, 1988
 There's just something I don't like about Virginia; the state.
-For a young man, not yet: for an old man,  at all.
+For a ng man, not yet: for an old man,  at all.
 		-- Diogenes, asked when a man should marry
 
-When should a man marry?  A young man, not yet; an elr man, not at all.
+When should a man marry?  A ng man, not yet; an elr man, not at all.
 		-- Sir Francis Bacon, "Of Marriage and Single Life"
 Being owned by someone used to be called sy -- now it's called commitment.
 Asking a working writer what he thinks about critics is like asking a
@@ -181,12 +181,12 @@ leads to spair and utter hopelessness, the other to total extinction.
 Let us pray that we have the wisdom to cho correctly.
 		-- Woody Allen, "Si Effects"
 (1) Avoid fried meats which angry up the blood.
-(2) If your stomach antagonizes you, pacify it with cool thoughts.
-(3) Keep the juices flowing by jangling around gently as you move.
+(2) If r stomach antagonizes , pacify it with cool thoughts.
+(3) Keep the juices flowing by jangling around gently as  move.
 (4) Go very lightly on the vices, such as carrying on in society, as
 	the social ramble ain't restful.
 (5) Avoid running at all times.
-(6) Don't look back, something might be gaining on you.
+(6) Don't look back, something might be gaining on .
 		-- S. Paige, c. 1951
 There's no honorable way to kill, no gentle way to stroy.  There is
 nothing good in war.  Except its ending.
@@ -198,20 +198,20 @@ overcome.
 Gentlemen,
 	Whilst marching from Portugal to a position which commands the
 approach to Madrid and the French forces, my officers have been
-diligently complying with your requests which have been sent by H.M. ship
+diligently complying with r requests which have been sent by H.M. ship
 from London to Lisbon and thence by dispatch to our headquarters.
 	We have enumerated our saddles, bridles, tents and tent poles,
 and all  of sundry items for which His Majesty's Government holds
 me accountable. I have dispatched reports on the character, wit, and
 spleen of every officer. Each item and every farthing has been accounted
-for, with two regrettable exceptions for which I beg your indulgence.
+for, with two regrettable exceptions for which I beg r indulgence.
 	Unfortunately the sum of one shilling and ninepence res
 unaccounted for in one infantry battalion's petty cash and there has been
 a hious confusion as the the number of jars of raspberry jam issued to
 one cavalry regiment during a sandstorm in western Spain.  This
 reprehensible clessness may be related to the pressure of circumstance,
 since we  war with France, a fact which may come as a bit of a surprise
-to you gentlemen in Whitehall.
+to  gentlemen in Whitehall.
 	This brings me to my present rp, which is to request
 elucidation of my instructions from His Majesty's Government so that I
 may better unrstand why I am dragging an army over these  plains.
@@ -229,7 +229,7 @@ we can tell.  If intelligent people invested intense energy in issues
 that now seem foolish to us, then the failure lies in our unrstanding
 of their world, not in their distorted perceptions.  Even the standard
 example of ancient nonsense -- the bate about angels on pinheads --
-s sense once you realize that theologians were not discussing
+s sense once  realize that theologians were not discussing
 whether five or eighteen would fit, but whether a pin could house a
 finite or an infinite number.
 		-- S. J. Gould, "Wi Hats and Narrow Minds"
@@ -255,7 +255,7 @@ He'll live his days where the sunbeams start
 My own ar love, he is all my heart --
 	And I wish somebody'd shoot him.
 		-- Dorothy Parker, part 3
-"Time is money and money can't buy you love and I love your outfit"
+"Time is money and money can't buy  love and I love r outfit"
 - T.H.U.N.D.E.R. #1
 The Vet Who Surprised A Cow
 	In the course of his duties in August 1977, a Dutch veterinary
@@ -281,7 +281,7 @@ picked up a cru club and a round rock, tossed the rock into the air, and
 whomped the club into the sloping forehead of the first primitive umpire.
 
 What inner force drove this first athlete?  Your guess is as good as
-mine.  Better, probably, because you haven't had four beers.
+mine.  Better, probably, because  haven't had four beers.
 		-- Dave Barry, "Sports is a Drag"
 Booker's Law:
 	An ounce of application is worth a ton of abstraction.
@@ -297,39 +297,39 @@ Disease can be cured; fate is incurable.
 unfair competition, n.:
 	Selling cheaper than we do.
 Finagle's First Law:
-	To study a subject best, unrstand it thoroughly before you start.
+	To study a subject best, unrstand it thoroughly before  start.
 
 Finagle's Second Law:
-	Always keep a record of data -- it indicates you've been working.
+	Always keep a record of data -- it indicates 've been working.
 
 Finagle's Fourth Law:
 	Once a job is fouled up, anything done to improve it only s
 	it worse.
 
 Finagle's Fifth Law:
-	Always draw your curves, then plot your readings.
+	Always draw r curves, then plot r readings.
 
 Finagle's Sixth Law:
 	Don't believe in miracles -- rely on them.
 The truth about a woman often lasts longer than the woman is true.
 What to do in case of an alien attack:
 
-    1)   Hi beneath the seat of your plane and look .
+    1)   Hi beneath the seat of r plane and look .
     2)   Avoid eye contact.
     3) If there  no eyes, avoid all contact.
 
--- The Firesign Theatre, _Everything you know is Wrong_
+-- The Firesign Theatre, _Everything  know is Wrong_
 Where it is a duty to worship the sun it is pretty sure to be a crime to
 examine the laws of heat.
 		-- Christopher Morley
 Never buy from a rich sman.
 		-- Golnstern
-If life isn't what you wanted, have you asked for anything else?
+If life isn't what  wanted, have  asked for anything else?
 Building translators is good clean fun.
 		-- T. Cheatham
 It is a poor judge who cannot award a prize.
 Your boss is a few sandwiches short of a picnic.
-You can't carve your way to success without cutting remarks.
+You can't carve r way to success without cutting remarks.
 If people have to cho between freedom and sandwiches, they
 will take sandwiches.
 		-- Lord Boyd-orr
@@ -343,13 +343,13 @@ I do not seek the ignorant; the ignorant seek me -- I will instruct them.
 I ask nothing but .  If they come out of habit, they become tiresome.
 		-- I Ching
 When I was crossing the borr into Canada, they asked if
-I had any firearms with me.  I said, "Well, what do you need?"
+I had any firearms with me.  I said, "Well, what do  need?"
 		-- Steven Wright
-Would ye both eat your cake and have your cake?
+Would ye both eat r cake and have r cake?
 		-- John Heywood
-You're not an alcoholic unless you go to the meetings.
+You're not an alcoholic unless  go to the meetings.
 panic: kernel segmentation violation. core dumped		(only kidding)
-Iine if every Thursday your shoes explod if you tied them the usual
+Iine if every Thursday r shoes explod if  tied them the usual
 way.  This happens to us all the time with comters, and nobody thinks of
 complaining.
 		-- Jeff Raskin
@@ -360,8 +360,8 @@ Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
 a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
-Whether you  asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you  to him as  the massed armies of the earth
+Whether   asleep or awake he will attack , caring nothing for the fact
+that in bulk and strength   to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
 very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
@@ -381,7 +381,7 @@ But only if the NFL to a franchise would agree.
 
 Tussman's Law:
 	Nothing is as inevitable as a mistake wh time has come.
-I'm so miserable without you, it's almost like you're here.
+I'm so miserable without , it's almost like 're here.
 ... "fire" does not matter, "earth" and "air" and "water" do not matter.
 "I" do not matter.  No word matters.  But man forgets reality and remembers
 words.  The more words he remembers, the cleverer do his fellows esteem him.
@@ -397,7 +397,7 @@ A:	To get to the middle.
 Life is divid into the horrible and the miserable.
 		-- Woody Allen, "Annie Hall"
 ... it is easy to be blind to the essential uselessness of them by the
-sense of achievement you get from getting them to work at all.  In other
+sense of achievement  get from getting them to work at all.  In other
 words... their fundamental sign flaws  completely hidn by their
 superficial sign flaws.
 	-- The Hitchhiker's Gui to the Galaxy, on the products
@@ -426,12 +426,12 @@ future.
 - Carl Sagan, The Burn Of Skepticism, The Skeptical Inquirer, Vol. 12, Fall 87
 Every solution breeds new problems.
 	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Rep he, "Just my cup and Chaucer."
+wife asked "What have  got there?"  Rep he, "Just my cup and Chaucer."
 Gosh that takes me back... or is it forward?  That's the trouble with
-time travel, you  can tell."
+time travel,   can tell."
 		-- Doctor Who, "Androids of Tara"
 You will feel hungry again in another hour.
-It matters not whether you win or l; what matters is whether II win or l.
+It matters not whether  win or l; what matters is whether II win or l.
 		-- Darrin Weinberg
 Pascal:
 	A programming language named after a man who would turn over
@@ -440,9 +440,9 @@ Pascal:
 The intelligence of any discussion diminishes with the squ of the
 number of participants.
 		-- Adam Walinsky
-McDonald's -- Because you're worth it.
-After any salary raise, you will have less money at the end of the
-month than you did before.
+McDonald's -- Because 're worth it.
+After any salary raise,  will have less money at the end of the
+month than  did before.
 Of all possible committee reactions to any given agenda item, the
 reaction that will occur is the one which will liberate the greatest
 amount of hot air.
@@ -462,20 +462,20 @@ You will visit the Dung Pits of Glive soon.
 I don't mind what Congress does, as long as they don't do it in the
 streets and frighten the horses.
 		-- Victor Hugo
-Wisdom is knowing what to do with what you know.
+Wisdom is knowing what to do with what  know.
 		-- J. Winter Smith
 Gunter's Airborne Discoveries:
-	(1)  When you  served a meal aboard an aircraft,
+	(1)  When   served a meal aboard an aircraft,
 	     the aircraft will encounter turbulence.
 	(2)  The strength of the turbulence
-	     is directly proportional to the temperature of your coffee.
+	     is directly proportional to the temperature of r coffee.
 A grammarian's life is always in tense.
-He's the kind of guy, that, well, if you were ever in a jam he'd
+He's the kind of guy, that, well, if  were ever in a jam he'd
 be there... with two slices of bread and some chunky peanut butter.
 Plagiarize, plagiarize,
-Let no man's work eva your eyes,
-Remember why the good Lord ma your eyes,
-Don't sha your eyes,
+Let no man's work eva r eyes,
+Remember why the good Lord ma r eyes,
+Don't sha r eyes,
 But plagiarize, plagiarize, plagiarize.
 Only be sure to call it research.
 		-- Tom Lehrer
@@ -494,14 +494,14 @@ convince him that it may not have been the treatment that restored his health.
 He's just like Capistrano, always ready for a few swallows.
 All new:
 	s not interchangeable with previous mol.
-Don't remember what you can infer.
+Don't remember what  can infer.
 		-- Harry Tennant
 Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
 a lo misapplication of the word.  Consir the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
-Whether you  asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you  to him as  the massed armies of the earth
+Whether   asleep or awake he will attack , caring nothing for the fact
+that in bulk and strength   to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
 very lap of peril and the immediate presence of ath, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
@@ -527,10 +527,10 @@ challenging us to be true to ourselves by appeals to the martial spirit that
 keeps the blood at heat.  Some little, unassuming, unobtrusive choice presents
 itself before us slyly and craftily, glib and insinuating, in the most garb
 of innocence.  To yield to its blandishments is so easy.  The wrong, it seems,
-is venial...  Then it is that you will be summoned to show the courage of
-adventurous youth.
+is venial...  Then it is that  will be summoned to show the courage of
+adventurous th.
 		-- Benjamin Cardozo
-Laughing at you is like drop kicking a wound humming bird.
+Laughing at  is like drop kicking a wound humming bird.
 Whatever women do they must do twice as well as men to be thought h
 as good.  Luckily this is not difficult.
 		-- Charlotte Whitton
@@ -538,19 +538,19 @@ Dear Lord:
 	I just want *___one* one-armed manager so I  have to hear "On
 the other hand", again.
 At last I've found the girl of my dreams.  Last night she said to me,
-"Once more, Strange, and this time *I'll* be Donnie and *you* be Marie.
+"Once more, Strange, and this time *I'll* be Donnie and ** be Marie.
 		-- Strange  Jim
-You scratch my tape, and I'll scratch yours.
-Almost anything rogatory you could say about today's softw sign
+You scratch my tape, and I'll scratch rs.
+Almost anything rogatory  could say about today's softw sign
 would be accurate.
 		-- K.E. Iverson
-Elwood:  What kind of music do you get here ma'am?
+Elwood:  What kind of music do  get here ma'am?
 Barmaid: Why, we get both kinds of music, Country and Western.
 Life would be tolerable but for its amusements.
 		-- G.B. Shaw
-While money doesn't buy love, it ts you in a great bargaining position.
+While money doesn't buy love, it ts  in a great bargaining position.
 It's a poor workman who blames his tools.
-"I mean, like, I just read your article in the Yale law recipe, on search and
+"I mean, like, I just read r article in the Yale law recipe, on search and
 seizure.  Man, that was really Out There."
    "I was so WRECKED when I wrote that..."
 -- John Lovitz, as ex-Supreme Court nominee Alan Ginsburg, on SNL
@@ -562,7 +562,7 @@ curious that he leaned over the bar and asked him what he was doing.
 
 Rep the customer, "Avoiding the middleman."
 I'm mentally OVERDRAWN!  What's that SIGNPOST up ahead?  Where's ROD
-STERLING when you really need him?
+STERLING when  really need him?
 In this world, truth can wait; she's used to it.
-To get back on your feet, miss two car payments.
+To get back on r feet, miss two car payments.
 Dammit Jim, I'm an actor, not a doctor.

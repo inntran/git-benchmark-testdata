@@ -1,6 +1,6 @@
-Most people will listen to your unreasonable demands, if you'll consider
+Most people will listen to r unreasonable demands, if 'll consider
 their unacceptable offer.
-You could live a better life, if you had a better mind and a better body.
+You could live a better life, if  had a better mind and a better body.
 A jury consists of twelve persons chosen to decide who has the better lawyer.
 		-- Robert Frost
 Pilfering Treasury property is paticularly dangerous: big thieves are
@@ -9,8 +9,8 @@ ruthless in nishing little thieves.
 Iowans ask why Minnesotans don't drink more Kool-Aid.  That's because
 they can't figure out how to get two quarts of water into one of those
 little paper envelopes.
-"I'd love to go out with you, but I have to floss my cat."
-If you fool around with something long enough, it will eventually break.
+"I'd love to go out with , but I have to floss my cat."
+If  fool around with something long enough, it will eventually break.
 No character, however upright, is a match for constantly reiterated attacks,
 however false.
 		-- Alexander Hamilton
@@ -18,10 +18,10 @@ First Rule of History:
 	History doesn't repeat itself -- historians merely repeat each other.
 To be a kind of moral Unix, he touched the hem of Nature's shift.
 		-- Shelley
-Laugh at your problems; everybody else does.
+Laugh at r problems; everybody else does.
 "At least they're ___________EXPERIENCED incompetents"
 Hofstadter's Law:
-	It always takes longer than you expect, even when you take
+	It always takes longer than  expect, even when  take
 	Hofstadter's Law into account.
 "An honest god is the noblest work of man.  ... God has always resembled his
 creators.  He hated and loved what they hated and loved and he was invariably
@@ -36,12 +36,12 @@ buses and closer to the shops.
 It is often easier to ask for forgiveness than to ask for permission.
 		-- Grace Murray Hopper
 Is that really YOU that is reading this?
-Some of them want to use you,
-Some of them want to be used by you,
+Some of them want to use ,
+Some of them want to be used by ,
 ...Everybody's looking for something.
 		-- Eurythmics
 Many pages  a thick book.
-If you sow your wild oats, hope for a crop failure.
+If  sow r wild oats, hope for a crop failure.
 If comters take over (which seems to be their natural tendency), it will
 serve us right.
 		-- Alistair Cooke
@@ -81,5 +81,5 @@ Latin is a language,
 As dead as can be.
 First it killed the Romans,
 And now it's killing me.
-"If you can, help others.  If you can't, at least don't hurt others."
+"If  can, help others.  If  can't, at least don't hurt others."
 -- the Dalai Lama

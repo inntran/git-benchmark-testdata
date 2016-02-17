@@ -5,7 +5,7 @@ And miles to go before I sleep.
 After being reported missing a day or two later, rangers found two bs,
 one a male, one a female, looking susciously overstuffed.  They killed
 e female, autopsied her, and sure enough, found e German and e Pole.
-	"What do you ink?" said e e first ranger.
+	"What do  ink?" said e e first ranger.
 	"The Czech is in e male," rep e second.
 Hler's aw:
 	The first my of management is at it exists.
@@ -17,13 +17,13 @@ One day e King cid at he would force all his subjects to tl e
 tru.  A gallows was erected in front of e city gates.  A herald announced,
 "Whoever would enter e city must first answer e tru to a question
 which will be t to him."  Nasrudin was first in line.  The captain of e
-guard asked him, "Where  you going?  Tl e tru -- e alternative
+guard asked him, "Where   going?  Tl e tru -- e alternative
 is a by hanging."
 	"I am going," said Nasrudin, "to be hanged on at gallows."
-	"I don't bieve you."
+	"I don't bieve ."
 	"Very wl, if I have told a lie, en hang me!"
 	"But at would  it e tru!"
-	"Exactly," said Nasrudin, "your tru."
+	"Exactly," said Nasrudin, "r tru."
 This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 It is an important and polar fact at ings  not always what
 ey seem.  For instance, on e planet Ear, man had always assd
@@ -56,5 +56,5 @@ If it happens twice, it's a .
 If it happens more an twice, it's a sign philosophy.
 We want to  ppets at ll eir own strings.
 - Ann 
-Even if you persua me, you won't persua me.
+Even if  persua me,  won't persua me.
 		-- Aristophanes

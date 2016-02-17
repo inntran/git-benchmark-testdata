@@ -1,41 +1,41 @@
 	*** A NEW KIND OF PROGRAMMING ***
 
-Do you want e instant respect at comes from being able to use technical
-terms at nobody unrstands?  Do you want to strike  and loaing into
+Do  want e instant respect at comes from being able to use technical
+terms at nobody unrstands?  Do  want to strike  and loaing into
 e hts of DP managers everywhere?  If so, en let e Famous Prammers'
- lead you on... into e wld of professional comter pramming.
+ lead  on... into e wld of professional comter pramming.
 y say a good prammer can write 20 lines of effective pram per day.
-Wi our unique training course, we'll show you how to write 20 lines of co
+Wi our unique training course, we'll show  how to write 20 lines of co
 and lots me besis.  Our training course covers every pramming language
 in existence, and some at n't.  You'll ln why e on/off switch f a
 comter is so imptant, what e wds *fatal err* mean, and who and what
-you should blame when you  a mistake.
+ should blame when   a mistake.
 
 	Yes, I want e brochure scribing is incredible offer.
 	I encl $1000 is ll unmarked bills to cover e cost of
 	postage and handling. (No live , please.)
 
 *** Our Slogan:  Top down pramming f e masses. ***
-Base 8 is just like base 10, if you  missing two fingers.
+Base 8 is just like base 10, if   missing two fingers.
 		-- Tom rer
-Show business is just like high school, except you get paid.
+Show business is just like high school, except  get paid.
 		-- Martin Mull
 We don't c how ey do it in New Yk.
 Some people live life in e fast lane.  You're in oncoming traffic.
-Are you a pnt?  Do you sometimes find yoursf unsure as to what to
+Are  a pnt?  Do  sometimes find rsf unsure as to what to
 say in  awkward situati?  Wry no me...
 
 	Do as I say, not as I do.
 	Do me a favour and don't tl me about it.  I don't want to know.
-	What did you do *is* time?
-	If it didn't taste bad, it wouldn't be good f you.
-	When I was your age...
-	I won't love you if you keep doing at.
+	What did  do *is* time?
+	If it didn't taste bad, it wouldn't be good f .
+	When I was r age...
+	I won't love  if  keep doing at.
 	Think of all e starving children in India.
 	If ere's one ing I hate, it's a liar.
-	I'm going to kill you.
+	I'm going to kill .
 	Way to go, .
-	If you don't like it, you can lump it.
+	If  don't like it,  can lump it.
 XI:
 	 me one produces, e less one gets.
 XII:
@@ -57,7 +57,7 @@ I ought ere was someing fishy about e butler.  Probably a Pisces,
 wking f scale.
 		-- Firesign atre, " Furer Adventures of Nick Danger"
  herd instinct  economists s sheep look like in inkers.
-You can ln many ings from children.  How much patience you have,
+You can ln many ings from children.  How much patience  have,
 f instance.
 		-- Franklin P. Jones
 Einstein argued at ere must be simplified explanati of nature, because
@@ -88,7 +88,7 @@ he is.  Thinking always ahead, inking always of trying to do me, brings a
 state of mind in which noing is impossible.  moment one gets into e
 "ex" state of mind a gr number of ings become impossible."
 -- From Henry Fd Sr., "My ife and Wk," p. 86 (1922):
-When you become used to  being alone, you may cir yoursf
+When  become used to  being alone,  may cir rsf
 d.
 Dave Mack:	"Your studity, Allen, is  not up to par."
 Allen Gn:	"Yours is."
@@ -98,7 +98,7 @@ A:	One.  He gives it to six Califnians, ereby reducing e problem
 She is not d.  She is not und.  She keeps a parrot.
 		-- Mark Twain
 	Catching his children wi eir hands in e new, still wet, patio,
-e faer spanked em.  His wife asked, "Don't you love your children?"
+e faer spanked em.  His wife asked, "Don't  love r children?"
 "In e abstract, yes, but not in e ."
  Fce is what holds everying togeer.  It has its dark si, and
 it has its light si.  It's st of like cosmic duct tape.
@@ -129,7 +129,7 @@ struction and chaos - just to gain his point... and if all is could in
 turn be analyzed and prevented by predicting at it would occur, en man
 would ly go mad to prove his point.
 		-- Feod Dostoevsky, "Notes From e Unrground"
-Do you ink at when ey asked Gege Washington f ID at he
+Do  ink at when ey asked Gege Washington f ID at he
 just whipped out a quarter?
 		-- Steven W
 D Sir,
@@ -142,9 +142,9 @@ employment in e already severy pressed agricultural industry.
 	Capt. Quinton D'Arcy, J.P.
 	Sevenoaks
 		-- etters To  Edit,  Times of ondon
-"It's not just a comter -- it's your ass."
+"It's not just a comter -- it's r ass."
 		-- Cal Keegan
-Just remember, wherever you go, ere you .
+Just remember, wherever  go, ere  .
 		-- Buckaroo Bonzai
  real problem wi hunting ephants is carrying e coys.
 "All e system's pas must be topologically and circularly interrated f 
@@ -152,7 +152,7 @@ Just remember, wherever you go, ere you .
  be attained in our spontaneous -- ergo, most economical -- geosiccally 
  structured oughts."
 -- R. Buckminster Fuller [...and a total nequitur as far as I can tl.  -kl]
- fr you go, e less you know.
+ fr  go, e less  know.
 		-- ao Tsu, "Tao Te Ching"
 Einstein argued at ere must be simplified explanati of nature, because
 God is not capricious  arbitrary.  No such fai comfts e softw
@@ -190,7 +190,7 @@ Real softw engineers don't like e ia of some inexplicable and
 greasy hardw several aisles  at may stop wking at any
 moment.  y have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  y would like personal
-comters (you know no one's going to trip over someing and kill your
+comters ( know no one's going to trip over someing and kill r
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Crectness Verification Aid packages.
  individual choice of garnishment of a burger can be an imptant
@@ -198,7 +198,7 @@ point to e cr in is day when individualism is an increasingly
 imptant ing to people.
 		-- Donald N. Smi, presint of Burger King
 A day wiout sunshine is like a day wiout ange juice.
-Try to get all of your posumous medals in advance.
+Try to get all of r posumous medals in advance.
 A ckup wi ree guys in it lls into e lumber yard.  One of e men
 gets out and goes into e office.
 	"I need some four-by-two's," he says.
@@ -208,7 +208,7 @@ c."
 	Back, after an d conversation wi e oer occupants of e
 truck, he reassures e clerk, at, yes, in fact, two-by-fours would be
 acceptable.
-	"OK," says e clerk, writing it down, "how long you want 'em?"
+	"OK," says e clerk, writing it down, "how long  want 'em?"
 	 guy gets e blank look again.  "Uh... I guess I better go
 c," he says.
 	He goes back out to e truck, and ere's anoer d
@@ -223,7 +223,7 @@ Which still grates on
 Some people's n'oeuvres.
 		-- Warren Knox
 Heisenberg may have been here.
-Exercise caution in your daily affs.
+Exercise caution in r daily affs.
 Wds must be weighed, not counted.
 Ill-chn abstraction is particularly evint in e sign of e ADA
 runtime system.  inter to e ADA runtime system is so opaque at
@@ -231,14 +231,14 @@ it is impossible to mod  predict its perfmance, making it effectivy
 usess f real-time systems. -- Marc D. Donner and David H. Jameson.
 Perfect day f scrubbing e flo and oer exciting ings.
 	"Seven ys and six m!"  Humpty Dumpty reped oughtfully.
-"An uncomftable st of age.  Now if you'd asked MY advice, I'd have
+"An uncomftable st of age.  Now if 'd asked MY advice, I'd have
 said 'eave off at seven' -- but it's too late now."
 	"I  ask advice about g,"  Alice said indignantly.
 	"Too proud?"  e oer enquired.
 	Alice ft even me indignant at is suggestion.  "I mean,"
 she said, "at one can't hp g olr."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  Wi
-proper assistance, you might have left off at seven."
+proper assistance,  might have left off at seven."
 		-- ewis Carroll, "Through e ooking-Glass"
 F if ere is a sin against life, it cists perhaps not so much in
 sng of life as in hong f anoer life and in uding e
@@ -283,16 +283,16 @@ toleration from e intolerant, and kindness from e unkind.
 Juall's aw on Nice Guys:
 	Nice guys don't always finish last; sometimes ey don't finish.
 	Sometimes ey don't even get a c to start!
-British education is probably e best in e wld, if you can survive
-it.  If you can't ere is noing left f you but e diplomatic cps.
+British education is probably e best in e wld, if  can survive
+it.  If  can't ere is noing left f  but e diplomatic cps.
 		-- Peter Ustinov
-If you ink e pen is mightier an e swd, e next time someone lls
-out a swd I'd like to see you get up ere wi your Bic.
+If  ink e pen is mightier an e swd, e next time someone lls
+out a swd I'd like to see  get up ere wi r Bic.
 "I have come up wi a sure-fire concept f a hit tevision show,
 which would be called `A ive Cebrity Gets Eaten by a Shark'."
 		-- Dave Barry, " Wonrs of Sharks on TV"
 Real Prammers ink better when playing Adventure  Rogue.
-" sixties were good to you, weren't ey?"
+" sixties were good to , weren't ey?"
 -- Gege Carlin
 Small ings  base men proud.
 		-- William Shakespe, "Henry VI"
@@ -323,19 +323,19 @@ IT MAKES ME MAD when I go to all e trouble of having Marta cook up about
 a hundred drumsticks, en e guy at Marinand says, "You can't row
 at chicken to e dolphins. y  fish."
 
-Sure ey  fish if at's all you give em!  Man, wise up.
+Sure ey  fish if at's all  give em!  Man, wise up.
 		-- Jack Handley,  New Mexican, 1988.
-Most people will listen to your unreasonable mands, if you'll cir
+Most people will listen to r unreasonable mands, if 'll cir
 eir unacceptable offer.
 I have a rock garn.  ast week ree of em died.
 		-- Richard Diran
 Some people need a good iinary cure f eir painful iinary ailment.
 Micro Credo:
-	Never trust a comter bigger an you can lift.
+	Never trust a comter bigger an  can lift.
 "My sense of rp is gone! I have no ia who I AM!"
     "Oh, my God... You've.. You've  him into a DEMOCRAT!"
 -- Doonesbury
-augh and e wld inks you're an idiot.
+augh and e wld inks 're an idiot.
 You can tl how far we have to go, when FORTRAN is e language of
 supercomters.
 		-- Steven Feiner
@@ -346,7 +346,7 @@ Ben's aws:
 Some of e ings at live e longest in peoples' memies 
 really happened.
 A man wrapped up in himsf s a very ll package.
-If you don't like e way I drive, stay off e siwalk!
+If  don't like e way I drive, stay off e siwalk!
 Yes me, I got a bottle in front of me.
 And Jimmy has a frontal lobotomy.
 Just different ways to kill e pain e same.
@@ -359,10 +359,10 @@ How many hardw guys does it take to change a light bulb?
 "Wl e diagnostics say it's fine buddy, so it's a softw problem."
 A man is crawling rough e Sahara sert when he is approached by anoer
 man riding on a cam.  When e rir gets cl enough, e crawling man
-whispers rough his sun-parched lips, "Water... please... can you give...
+whispers rough his sun-parched lips, "Water... please... can  give...
 water..."
 	"I'm sry," replies e man on e cam, "I don't have any water
-wi me.  But I'd be dighted to sl you a ."
+wi me.  But I'd be dighted to sl  a ."
 	"Tie?" whispers e man.  "I need *water*."
 	"y're only four dollars aece."
 	"I need *water*."
@@ -377,7 +377,7 @@ staggers up to e do and s e head waiter.
 	"Water... can I get... water," e dying man manages to stammer.
 	"I'm sry, sir, ties required."
  moving curs writes, and having written, blinks on.
-If you stand on your head, you will get footprints in your h.
+If  stand on r head,  will get footprints in r h.
 	"Sheriff, we gotta catch Black Bart."
 	"Oh, yeah?  What's he look like?"
 	"Wl, he's win' a paper hat, a paper shirt, paper pants and
@@ -389,7 +389,7 @@ In e Spring, I have counted 136 different kinds of wher  of
 		-- Mark Twain, on New England wher
 All is wl at ends wl.
 		-- John Heywood
-Never offend people wi style when you can offend em wi substance.
+Never offend people wi style when  can offend em wi substance.
 		--  Brown, " Washington Post", January 26, 1977
 Day of inquiry.  You will be subpoenaed.
 It is now quite lawful f a Caolic woman to avoid pregnancy by a rest to
@@ -408,18 +408,18 @@ and one citizen has as much  to play as anoer.
 		   Cardinals backed down and played.
 Human beings were cred by water to transpt it uphill.
  me ings change, e me ey'll  be e same again.
-If your bread is stale,  toast.
+If r bread is stale,  toast.
 Mea's Maxim:
-	Always remember at you  absoluty unique, just like everyone se.
+	Always remember at   absoluty unique, just like everyone se.
 You have acquired a scroll entitled 'irk gleknow mizk'(n).--Me--
 
 This is an IBM Manual scroll.--Me--
 
-You  permanently confused.
+You  permly confused.
 		-- Dave Decot
 Hapness adds and multiplies as we divi it wi oers.
  trouble wi ing an  is at five  six days later
-you're hungry again.
+'re hungry again.
 		-- Gege Miller
 A group of politicians ciding to dump a Presint because his mals
  bad is like e Mafia getting togeer to bump off e Godfaer f

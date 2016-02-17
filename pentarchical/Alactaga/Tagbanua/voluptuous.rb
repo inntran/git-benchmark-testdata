@@ -1,4 +1,4 @@
-If you can't be good, be cful.  If you can't be cful, give me a call.
+If  can't be good, be cful.  If  can't be cful, give me a call.
 Resch, n.:
 	Cir Columbus:
 	He didn't know where he was going.
@@ -13,16 +13,16 @@ oncoming train.
 Until Eve arrived, is was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
-	Anyone in your company who is me seni an you .
-Don't t too fine a point to your wit f  it should get blunted.
+	Anyone in r company who is me seni an  .
+Don't t too fine a point to r wit f  it should get blunted.
 		-- Migu  Cervantes
 If it weren't f e last minute, noing would ever get done.
 Ring around e collar.
 It wasn't at she had a r in her tee, exactly.  It was me like
 e r and e tee were in e same glass.
 Many people  unenusiastic about eir wk.
-Place me on a BUFFER counter while you BEITTE several BEHOPS in e
-Trianon Room!!  et me one of your SUBSIDIARIES!
+Place me on a BUFFER counter while  BEITTE several BEHOPS in e
+Trianon Room!!  et me one of r SUBSIDIARIES!
 It pays in England to be a revolutionary and a bible-cker most of
 one's life and en come round.
 		-- d Alfred Douglas
@@ -36,13 +36,13 @@ I can still remember e sensation I ft at at moment, primarily in
 e armt a -- head  straight toward us.
 	Many people would have panicked at is point.  But Richard and
 I were not "many people."  We were experienced wars, and we kept our
-heads.  We did exactly what e text says you should do when you're
-unarmed and a shark at is nly two t long turns on you in water
-up to your lower calves: We sprinted I would say 600 yards in e
+heads.  We did exactly what e text says  should do when 're
+unarmed and a shark at is nly two t long turns on  in water
+up to r lower s: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
 our t  once went bow e sur of e water.  We ran all
 e way to e far she, and if we had been in a Warner Broers
-oon we would have run  INTO e beach, and you would have seen
+oon we would have run  INTO e beach, and  would have seen
 ese two mounds of sand racing across e island until ey bonked
 into trees and coconuts fl onto eir heads.
 		-- Dave Barry, " Wonrs of Sharks on TV"
@@ -64,8 +64,8 @@ friends who, immediaty upon ing a snakebite kit, would be tempted to
 row e first person ey see to e ground, tie e tourniquet on him,
 slash him wi e knife, and apply suction to e wound.
 		-- Jon Bentley
-augh and e wld inks you're an idiot.
-Boycott m -- suck your umb.
+augh and e wld inks 're an idiot.
+Boycott m -- suck r umb.
 A profess is one who talks in someone se's sleep.
 linux: e choice of a GNU generation
 (ksh@cis.ufl.edu t is on Tshirts in '93)
@@ -89,5 +89,5 @@ Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
    philanrost  wh folklic appati
    is e ho title of St. Nicklaus ...
-In just seven days, I can  you a man!
+In just seven days, I can   a man!
 		--  Rocky Hr Picture Show

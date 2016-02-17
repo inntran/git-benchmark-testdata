@@ -9,7 +9,7 @@ by our children.
 		-- Clarence Darrow
 Dijkstra probably hates me
 (Linus Torvalds, in kernel/sched.c)
-You can get much further with a kind word and a gun than you can with a
+You can get much further with a kind word and a gun than  can with a
 kind word alone.
 		-- Al Capone
 		[Also attributed to Johnny Carson.  Ed.]
@@ -18,8 +18,8 @@ Elliptic paraboloids for .
 Some people have a great ambition: to build something
 that will last, at least until they've finished building it.
 Bunker's Admonition:
-	You cannot buy beer; you can only rent it.
-"Here's something to think about:  How come you never see a headline like
+	You cannot buy beer;  can only rent it.
+"Here's something to think about:  How come  never see a headline like
 `Psychic Wins Lottery'?"
 		-- Jay Leno
 Lucas is the source of many of the components of the legendarily reliable
@@ -28,9 +28,9 @@ Prince of Darkness".  Of course, if Lucas were to sign and manufacture
 nuclear weapons, World War III would never get off the ground.  The British
 don't like warm beer any more than the Americans do.  The British drink warm
 beer because they have Lucas refrigerators.
-Everything you know is wrong!
+Everything  know is wrong!
 Humor in the Court:
-Q.  Doctor, did you say he was shot in the woods?
+Q.  Doctor, did  say he was shot in the woods?
 A.  No, I said he was shot in the lumbar region.
 The system was down for backups from 5am to 10am last Saturday.
 		Hard Copies and Chmod
@@ -56,7 +56,7 @@ on personal stationery
 		-- terri@csd4.milw.wisc.edu
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
-	KOBOLDS topple when you strike them;
+	KOBOLDS topple when  strike them;
 	Don't feel bad, it's hard to like them.
 		-- The Roguelet's ABC
 It's no use crying over spilt milk -- it only s it salty for the cat.
@@ -66,9 +66,9 @@ over all the fruits of the earth.  When one has tasted it, he knows what the
 angels eat.  It was not a Southern watermelon that Eve took; we know it because
 she repented.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Why can't you be a non-conformist like everyone else?
+Why can't  be a non-conformist like everyone else?
 Reliable source, n.:
-	The guy you just met.
+	The guy  just met.
 Start every day off with a smile and get it over with.
 		-- W.C. Fields
 The most advantageous, pre-eminent thing thou canst do is not to exhibit
@@ -76,7 +76,7 @@ nor display thyself within the limits of our galaxy, but rather part
 instantaneously whence thou even now stanst and flee to yet another rotten
 planet in the universe, if thou canst have the good fortune to find one.
 		-- Carlyle
-When you go into court you are tting your fate into the hands of twelve
+When  go into court  are tting r fate into the hands of twelve
 people who weren't smart enough to get out of jury duty.
 		-- Norm Crosby
 Allen's Axiom:
@@ -89,15 +89,15 @@ Come on, Virginia, don't  me wait!
 Catholic girls start much too late,
 Ah, but sooner or later, it comes down to fate,
 I might as well be the one.
-Well, they showed you a statue, told you to pray,
-Built you a temple and locked you ,
-Ah, but they never told you the price that you paid,
-The things that you might have done.
+Well, they showed  a statue, told  to pray,
+Built  a temple and locked  ,
+Ah, but they never told  the price that  paid,
+The things that  might have done.
 So come on, Virginia, show me a sign,
-Send up a signal, I'll throw you a line,
-That stained glass curtain that you're hiding behind,
+Send up a signal, I'll throw  a line,
+That stained glass curtain that 're hiding behind,
 Never lets in the sun.
-Darling, only the good die young!
+Darling, only the good die ng!
 		-- Billy Joel, "Only The Good Die Young"
 Rho's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
@@ -157,7 +157,7 @@ A rolling stone gathers no moss.
 After being reported missing a day or two later, rangers found two bears,
 one a male, one a female, looking suspiciously overstuffed.  They killed
 the female, autopsied her, and sure enough, found the German and the Pole.
-	"What do you think?" said the the first ranger.
+	"What do  think?" said the the first ranger.
 	"The Czech is in the male," rep the second.
 Tan me hi when I'm ad, Fred,
 Tan me hi when I'm ad.
@@ -172,7 +172,7 @@ All together now...
 It's not hard to admit errors that are [only] cosmetically wrong.
 		-- J.K. Galbraith
 My brother sent me a postcard the other day with this big satellite photo
-of the entire earth on it. On the back it said: "Wish you were here".
+of the entire earth on it. On the back it said: "Wish  were here".
 		-- Steven Wright
 egrep -n '^[a-z].*\(' $ | sort -t':' +2.0
 The only winner in the War of 1812 was Tchaikovsky.
@@ -217,8 +217,8 @@ It's not that I'm afraid to die. I just don't want to be there when it happens.
 Because the wine remembers.
 You can't judge a book by the way it wears its hair.
 Where are the calculations that go with a calculated risk?
-"The pathology is to want control, not that you ever get it, because of
-course you never do."
+"The pathology is to want control, not that  ever get it, because of
+course  never do."
 -- Gregory Bateson
 	So we get to my point.  Surely people around here read things that
 aren't on the *Officially Sanctioned Cybernk Reading List*.  Surely we
@@ -238,7 +238,7 @@ restrictive in scope than alt.cybernk.
 much larger than all others.  It towers above its competition like a giant
 among dwarfs.  Any one of its divisions could comprise an entire business.
 Why is this so?"
-	The master rep, "Why do you ask such foolish questions?  That
+	The master rep, "Why do  ask such foolish questions?  That
 company is large because it is so large.  If it only ma hardware, nobody
 would buy it.  If it only tained systems, people would treat it like a
 servant.  But because it combines all of these things, people think it one
@@ -273,13 +273,13 @@ It just doesn't seem right to go over the river and through the woods
 to Grandmother's condo.
 Two can Live as Cheaply as One for H as Long.
 		-- Howard Kanl
-I think your opinions are reasonable, except for the one about my mental
+I think r opinions are reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Why did the Lord give us so much quickness of movement unless it was to
 avoid responsibility with?
 That does not comte.
-You know you are getting old when you think you should drive the speed limit.
+You know  are getting old when  think  should drive the speed limit.
 		-- E.A. Gilliam
 linux: the choice of a GNU generation
 (ksh@cis.ufl.edu t this on Tshirts in '93)
@@ -293,8 +293,8 @@ five hundred years of mocracy and peace -- and what did they produce?
 The cuckoo-clock.
 		-- Orson Welles, "The Third Man"
 America's best buy for a quarter is a telephone call to the right person.
-You know it's going to be a bad day when you want to t on the clothes
-you wore home from the party and there aren't any.
+You know it's going to be a bad day when  want to t on the clothes
+ wore home from the party and there aren't any.
 Scratch the disks, dump the core,	Shut it down, ll the plug
 Roll the tapes across the floor,	Give the core an extra tug
 And the system is going to crash.	And the system is going to crash.
@@ -302,7 +302,7 @@ Teletypes smashed to bits.		Mem'ry cards, one and all,
 Give the scopes some nasty hits		Toss out hway down the hall
 And the system is going to crash.	And the system is going to crash.
 And we've also found			Just flip one switch
-When you turn the power down,		And the lights will cease to twitch
+When  turn the power down,		And the lights will cease to twitch
 You turn the disk rears into trash.	And the tape drives will crumble
 						in a flash.
 Oh, it's so much fun,			When the CPU

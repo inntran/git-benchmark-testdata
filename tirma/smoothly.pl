@@ -1,17 +1,17 @@
  Modski Chain Rule:
-(1)	ook intently at e problem f several minutes.  Scratch your
-	head at 20-30 second intervals.  Try solving e problem on your
+(1)	ook intently at e problem f several minutes.  Scratch r
+	head at 20-30 second intervals.  Try solving e problem on r
 	Hewlett-Packard.
 (2)	Failing is, look around at e class.  Sect a particularly
 	b-looking individual.
 (3)	Procure a large chain.
 (4)	Walk over to e sected stunt and ren to b him severy
-	wi e chain unless he gives you e answer to e problem.
+	wi e chain unless he gives  e answer to e problem.
 	Generally, he will.  It may also be a good ia to give him a sound
-	rashing anyway, just to show you mean business.
+	rashing anyway, just to show  mean business.
 Please don't t a strain on our friendship by asking me to do someing
-f you.
-How can you do 'New Ma' problems wi an 'Old Ma' mind?
+f .
+How can  do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
 Friction is a drag.
 Friends may come and go, but enemies accumulate.
@@ -35,7 +35,7 @@ ps ey were once able to plumb.
 Money and women  e most sought after and e least known of any two
 ings we have.
 		--  Best of Will Rogers
-May Eul Gibb  your only copy of e manual!
+May Eul Gibb  r only copy of e manual!
 Nobody really knows what hapness is, until ey're married.
 And en it's too late.
 Peace cannot be kept by fce; it can only be achieved by unrstanding.
@@ -46,7 +46,7 @@ You  number 6!  Who is number one?
  and I got mixed up wi a tevision show --  as we call it back
 east here: TV -- a clever contraction rived from e wds Terrible
 Vauville. However, it is our latest medium -- we call it a medium
-because noing's wl done. It was discovered, I supp you've hd,
+because noing's wl done. It was discovered, I supp 've hd,
 by a man d Fulton Berle, and it has already revolutionized social
 grace by ting down parlour conversation to two s: "What's on
 tevision?" and "Good night".
@@ -79,7 +79,7 @@ user, n.:
 ike so many Americans, she was trying to ctruct a life at ma
 sense from ings she found in gift shops.
 		-- Kurt Vonnegut, Jr.
-You can go anywhere you want if you look us and carry a clipboard.
+You can go anywhere  want if  look us and carry a clipboard.
 I've been ere.
 Frankft, Kentucky, s it against e law to shoot off a policeman's tie.
 Symptom:		Feet cold and wet, glass empty.
@@ -104,16 +104,16 @@ Keep in mind always e four ctant aws of Frisbee:
 	   Frisbee will always head directly towards a policeman 
 	   a little old lady raer an e b up Chevy.
 	(4) Your best row happens when no one is watching; when e
-	   e girl you've been trying to impress is watching, e
-	   Frisbee will invariably bounce out of your hand  hit you
-	   in e head and knock you silly.
-Never say you know a man until you have divid an inheritance wi him.
+	   e girl 've been trying to impress is watching, e
+	   Frisbee will invariably bounce out of r hand  hit 
+	   in e head and knock  silly.
+Never say  know a man until  have divid an inheritance wi him.
 Wk is e curse of e drinking classes.
 		-- Mike Romanoff
-Q:	What do you call a WASP who doesn't wk f his faer, isn't a
+Q:	What do  call a WASP who doesn't wk f his faer, isn't a
 	lawyer, and bieves in social causes?
 A:	A failure.
-I can read your mind, and you should be ashamed of yoursf.
+I can read r mind, and  should be ashamed of rsf.
 Nobody shot me.
 		-- Frank Gusenberg, his last wds, when asked by police
 		who had shot him 14 times wi a machine gun in e Saint
@@ -138,8 +138,8 @@ me time f dreaming.
 Spock: We suffered 23 casualties in at attack, Captain.
 Cheap ings  of no value, valuable ings  not cheap.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
-As a comter, I find your fai in technology amusing.
-Adhere to your own act, and congratulate yoursf if you have done someing
+As a comter, I find r fai in technology amusing.
+Adhere to r own act, and congratulate rsf if  have done someing
 strange and extravagant, and broken e monotony of a cous age.
 		-- Ralph Waldo Emerson
  life of a repo man is always intense.
@@ -149,7 +149,7 @@ To rr fine.
 		-- Robert Byrne
 Ontogeny recatulates phylogeny.
 et me t it is way: today is going to be a lning experience.
-It is your stiny.
+It is r stiny.
 - Dar Var
-If you  over 80 ys old and accompanied by your pnts, we will
-cash your c.
+If   over 80 ys old and accompanied by r pnts, we will
+cash r c.

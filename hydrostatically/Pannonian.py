@@ -1,7 +1,7 @@
 Was my SOY LOAF left out in th'RAIN?  It tastes REAL GOOD!!
 Poorman's Rule:
-	When you ll a plastic garbage bag from its handy dispenser package,
-	you always get hold of the closed end and try to ll it open.
+	When  ll a plastic garbage bag from its handy dispenser package,
+	 always get hold of the closed end and try to ll it open.
 Walking on water wasn't built in a day.
 		-- Jack Kerouac
 [Astrology is] 100 percent hokum, Ted.  As a matter of fact, the first edition
@@ -13,16 +13,16 @@ terms.  It's got jargon.  It confuses the blic....The astrologer is quite
 glib, confuses the blic, uses terms which come from science, come from
 metaphysics, come from a host of fields, but they really mean nothing.  The
 fact is that astrological beliefs go back at least 2,500 years.  Now that
-should be a sufficiently long time for astrologers to prove their case.  They
+should be a ly long time for astrologers to prove their case.  They
 have not proved their case....It's just simply gibberish.  The fact is, there's
 no theory for it, there are no observational data for it.  It's been tested
 and tested over the centuries.  Nobody's ever found any  to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
-you test it.  And in that astrology is reqlly quite something else.
+ test it.  And in that astrology is reqlly quite something else.
 -- Astronomer Richard Berendzen, Presint, American University, on ABC
     News "Nightline," May 3, 1988
-Tact in audacity is knowing how far you can go without going too far.
+Tact in audacity is knowing how far  can go without going too far.
 		-- Jean Cocteau
 If I had any humility I would be perfect.
 		-- Ted Turner
@@ -38,18 +38,18 @@ neither think nor feel, she thought, where is one?
 	 referring to powerfail recovery.]
 			Pittsburgh driver's test
 
-(3) When stopped at an intersection you should
+(3) When stopped at an intersection  should
 
-	(a) watch the traffic light for your lane.
+	(a) watch the traffic light for r lane.
 	(b) watch for pestrians crossing the street.
 	(c) blow the horn.
 	(d) watch the traffic light for the intersecting street.
 
 The correct answer is (d). You need to start as soon as the traffic light
 for the intersecting street turns yellow. Answer (c) is worth a h point.
-NEVER swerve to hit a lawyer riding a bicycle -- it might be your bicycle.
-You got to be very careful if you don't know where you're going,
-because you might not get there.
+NEVER swerve to hit a lawyer riding a bicycle -- it might be r bicycle.
+You got to be very careful if  don't know where 're going,
+because  might not get there.
 		-- Yogi Berra
 The Least Successful Executions
 	History has furnished us with two ers worthy of attention.
@@ -65,7 +65,7 @@ occasion failed to get the trap door open.
 Lee's sentence to "life" imprisonment.  He was released in 1917, emigrated
 to America and lived until 1933.
 		-- Stephen Pile, "The Book of Heroic Failures"
-Do you mean that you not only want a wrong answer, but a certain wrong answer?
+Do  mean that  not only want a wrong answer, but a certain wrong answer?
 		-- Tobaben
 Comters are not intelligent.  They only think they are.
 Why I Can't Go Out With You:
@@ -116,12 +116,12 @@ A:	To get to the other sli.
 I know things about TROY DONAHUE that can't even be PRINTED!!
 "There is no stae of limitations on stupidity."
 -- Randomly produced by a comter program called Markov3.
-It does not do to leave a live dragon out of your calculations.
-Did you hear about the mol who sat on a broken bottle and cut a nice figure?
-I like young girls.  Their stories are shorter.
+It does not do to leave a live dragon out of r calculations.
+Did  hear about the mol who sat on a broken bottle and cut a nice figure?
+I like ng girls.  Their stories are shorter.
 		-- Tom McGuane
 Two is company, three is an orgy.
-I love you, not only for what you are, but for what I am when I am with you.
+I love , not only for what  are, but for what I am when I am with .
 		-- Roy Croft
 All my friends and I are crazy.  That's the only thing that keeps us sane.
 I'm continually AMAZED at th'breathtaking effects of WIND EROSION!!
@@ -132,18 +132,18 @@ job interview, n.:
 	The excruciating process during which personnel officers
 	separate the wheat from the chaff -- then hire the chaff.
 Humor in the Court:
-Q: (Showing man picture.) That's you?
+Q: (Showing man picture.) That's ?
 A: Yes, sir.
-Q: And you were present when the picture was taken, right?
-The star of riches is shining upon you.
+Q: And  were present when the picture was taken, right?
+The star of riches is shining upon .
 At the hospital, a doctor is training an intern on how to announce bad news
 to the patients.  The doctor tells the intern "This man in 305 is going to
 die in six months.  Go in and tell him."  The intern boldly walks into the
-room, over to the man's bedis and tells him "Seems like you're gonna die!"
+room, over to the man's bedis and tells him "Seems like 're gonna die!"
 The man has a heart attack and is rushed into surgery on the spot.  The doctor
-grabs the intern and screams at him, "What!?!? are you some kind of moron?
-You've got to take it easy, work your way up to the subject.  Now this man in
-213 has about a week to live.  Go in and tell him, but, gently, you hear me,
+grabs the intern and screams at him, "What!?!? are  some kind of moron?
+You've got to take it easy, work r way up to the subject.  Now this man in
+213 has about a week to live.  Go in and tell him, but, gently,  hear me,
 gently!"
 	The intern goes softly into the room, humming to himself, cheerily
 opens the drapes to let the sun in, walks over to the man's bedsi, fluffs
@@ -151,14 +151,14 @@ his pillow and wishes him a "Good morning!"  "Wonrful day, no?  Say...
 guess who's going to die soon!"
 One man's constant is another man's variable.
 		-- A.J. Perlis
-Ah, sweet Springtime, when a young man lightly turns his fancy over!
+Ah, sweet Springtime, when a ng man lightly turns his fancy over!
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock before entering a ladies room!
 Lee's Law:
 	Mother said there would be days like this,
 	but she never said that there'd be so many!
 Cats, no less liquid than their shadows, offer no angles to the wind.
-Receiving a million dollars tax free will  you feel better than
+Receiving a million dollars tax free will   feel better than
 being flat broke and having a stomach ache.
 		-- Dolph Sharp, "I'm O.K., You're Not So Hot"
 A day for firm cisions!!!!!  Or is it?
@@ -180,12 +180,12 @@ A:	"So far, it seems to be going according to specks."
 Delay not, Caesar.  Read it instantly.
 		-- Shakespeare, "Julius Caesar" 3,1
  
-Here is a letter, read it at your leisure.
+Here is a letter, read it at r leisure.
 		-- Shakespeare, "Merchant of Venice" 5,1
  
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
 	 referring to I/O system services.]
-It's not reality that's important, but how you perceive things.
+It's not reality that's important, but how  perceive things.
 Armor's Axiom:
 	Virtue is the failure to achieve vice.
 Succumb to natural tenncies.  Be hateful and boring.
@@ -195,7 +195,7 @@ open it up a little bit, and I get a phone call.  One day I dropped the
 box all over the floor.  The phone wouldn't stop ringing.  I had to get
 it disconnected.  So I got a new phone.  I didn't have much money, so I
 had to get an irregular.  It doesn't have a five.  I ran into a friend
-of mine on the street the other day.  He said why don't you give me a
+of mine on the street the other day.  He said why don't  give me a
 call.  I told him I can't call everybody I want to anymore, my phone
 doesn't have a five.  He asked how long had it been that way.  I said I
 didn't know -- my calendar doesn't have any sevens.
@@ -206,7 +206,7 @@ Research is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
 Presincy:  The greased pig in the field game of American politics.
 -- Ambrose Bierce
-This life is a test.  It is only a test.  Had this been an actual life, you
+This life is a test.  It is only a test.  Had this been an actual life, 
 would have received further instructions as to what to do and where to go.
 It is impossible to experience one's ath objectively and still carry a tune.
 		-- Woody Allen
@@ -228,7 +228,7 @@ We are Pentium of Borg. Division is futile. You will be approximated.
 (seen in someone's .signature)
 Nice boy, but about as sharp as a sack of wet mice.
 		-- Foghorn Leghorn
-What you don't know can hurt you, only you won't know it.
+What  don't know can hurt , only  won't know it.
 Overall, the philosophy is to attack the availability problem from two
 complementary directions:  to reduce the number of software errors through
 rigorous testing of running systems, and to reduce the effect of the reing
@@ -276,7 +276,7 @@ Johnson's First Law:
 	When any mechanical contrivance fails, it will do so at the
 	most inconvenient possible time.
 HOW YOU CAN TELL THAT IT'S GOING TO BE A ROTTEN DAY:
-	#32: You call your answering service and they've never heard of you.
+	#32: You call r answering service and they've never heard of .
 Normal times may possibly be over forever.
 Onward through the fog.
 Nearly every complex solution to a programming problem that I
@@ -300,19 +300,19 @@ Caution: Keep out of reach of children.
 One seldom sees a monument to a committee.
 Mac Beer: At first, came only a 16-oz. can, but now comes in a 32-oz. 
 can. Consired by many to be a "light" beer. All the cans look 
-intical. When you take one from the fridge, it opens itself. The 
-ingredients list is not on the can. If you call to ask about the 
-ingredients, you are told that "you don't need to know." A notice on the 
-si reminds you to drag your empties to the trashcan.
+intical. When  take one from the fridge, it opens itself. The 
+ingredients list is not on the can. If  call to ask about the 
+ingredients,  are told that " don't need to know." A notice on the 
+si reminds  to drag r empties to the trashcan.
 It's recently come to Fortune's attention that scientists have stopped
 using laboratory rats in favor of attorneys.  Seems that there are not
-only more of them, but you don't get so emotionally attached.  The only
+only more of them, but  don't get so emotionally attached.  The only
 difficulty is that it's sometimes difficult to apply the experimental
 results to humans.
 
 	[Also, there are some things even a rat won't do.  Ed.]
 You never get a second chance to  a first impression.
-You will forget that you ever knew me.
+You will forget that  ever knew me.
 "For three days after ath hair and fingernails continue to grow but
 phone calls taper off."
 		-- Johnny Carson
@@ -324,26 +324,26 @@ yo-yo, n.:
 	(see also Comter).
 Pascal Users:
 	The Pascal system will be replaced next Tuesday by Cobol.
-	Please modify your programs accordingly.
+	Please modify r programs accordingly.
 When my brain begins to reel from my literary labors, I  an occasional
 cheese dip.
 		-- Ignatius Reilly
-Leave bigotry in your quarters; there's no room for it on the bridge.
+Leave bigotry in r quarters; there's no room for it on the bridge.
 		-- Kirk, "Balance of Terror", stardate 1709.2
 Riffle West Virginia is so small that the Boy Scout had to double as the
 town drunk.
 travel, n.:
-	Something that s you feel like you're getting somewhere.
+	Something that s  feel like 're getting somewhere.
 Grandpa Charnock's Law:
-	You never really learn to swear until you learn to drive.
+	You never really learn to swear until  learn to drive.
 
-	[I thought it was when your kids learned to drive.  Ed.]
+	[I thought it was when r kids learned to drive.  Ed.]
 linux: because a PC is a terrible thing to waste
 (ksh@cis.ufl.edu t this on Tshirts in '93)
 Nudists are people who wear one-button suits.
 You know the great thing about TV?  If something important happens
 anywhere at all in the world, no matter what time of the day or night,
-you can always change the channel.
+ can always change the channel.
 		-- Jim Ignatowski
 Comparing software engineering to classical engineering assumes that software
 has the ability to wear out.  Software typically behaves, or it does not.  It
@@ -366,16 +366,16 @@ turned to Harry, and said, "Harry, I think we've drifted off course!  We
 need to find out where we are."
 	Harry cools the air in the balloon, and they scend to below the
 cloud cover.  Slowly drifting over the countrysi, George spots a man
-standing below them and yells out, "Excuse me!  Can you please tell me
+standing below them and yells out, "Excuse me!  Can  please tell me
 where we are?"
 	The man on the ground yells back, "You're in a balloon, approximately
 fifty feet in the air!"
 	George turns to Harry and says, "Well, that man *must* be a lawyer".
-	Replies Harry, "How can you tell?".
+	Replies Harry, "How can  tell?".
 	"Because the information he gave us is 100% accurate, and totally
 useless!"
 
-That's the end of The Joke, but for you people who are still worried about
+That's the end of The Joke, but for  people who are still worried about
 George and Harry: they end up in the drink, and  the front page of the
 New York Times: "Balloonists Soaked by Lawyer".
 A stunt who changes the course of history is probably taking an exam.
@@ -391,15 +391,15 @@ Incision is the true basis for flexibility.
 	A musician of more ambition than talent composed an elegy at
 the ath of composer Edward MacDowell.  She played the elegy for the
 pianist Josef Hoffman, then asked his opinion.  "Well, it's quite
-nice," he rep, but don't you think it would be better if..."
+nice," he rep, but don't  think it would be better if..."
 	"If what?" asked the composer.
-	"If ... if you had died and MacDowell had written the elegy?"
+	"If ... if  had died and MacDowell had written the elegy?"
 Brooke's Law:
 	Whenever a system becomes completely fined, some damn fool
 	discovers something which either abolishes the system or
 	expands it beyond recognition.
 It's interesting to think that many quite distinguished people have
-bodies similar to yours.
+bodies similar to rs.
 Q:	What does friendship among Soviet nationalities mean?
 A:	It means that the Armenians take the Russians by the hand; the
 	Russians take the Ukrainians by the hand; the Ukranians take
@@ -421,7 +421,7 @@ Brooke's Law:
 	discovers something which either abolishes the system or
 	expands it beyond recognition.
 Who's on first?
-Have you seen how Sonny's burning,
+Have  seen how Sonny's burning,
 Like some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
@@ -438,7 +438,7 @@ What we see pends on ly what we look for.
 Conceptual integrity in turn dictates that the sign must proceed from one
 mind, or from a very small number of agreeing resonant minds.
 - Frerick Brooks Jr., "The Mythical Man Month" 
-Of course you have a rpose -- to find a rpose.
+Of course  have a rpose -- to find a rpose.
 I wonr if I could ever get started in the credit world?
 I came home the other night and tried to open the door with my car keys...and 
 the building started up.  So I took it out for a drive.  A cop lled me over 
@@ -447,12 +447,12 @@ for speeding.  He asked me where I live... "Right here".
 Time is the most valuable thing a man can spend.
 		-- Theophrastus
 You have only to mumble a few words in church to get married and few words
-in your sleep to get divorced.
-Boy, get your head out of the stars above,
+in r sleep to get divorced.
+Boy, get r head out of the stars above,
 You get the maximum pleasure from a minimum of love.
-Save your heart and let your body be enough,
+Save r heart and let r body be enough,
 To get the maximum pleasure from a minimum of love.
-Save your heart and let your body be enough,
+Save r heart and let r body be enough,
 And get the maximum pleasure from a minimum of love.
 		-- Mac Macinelli, "Minimum Love"
 "An honest god is the noblest work of man.  ... God has always resembled his
@@ -472,7 +472,7 @@ Alimony is the curse of the writing classes.
 Weinberg's Principle:
 	An expert is a person who avoids the small errors while
 	sweeping on to the grand fallacy.
-You can stroy your now by worrying about tomorrow.
+You can stroy r now by worrying about tomorrow.
 		-- Janis Joplin
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
 A:	Chicken Teriyaki.
@@ -482,7 +482,7 @@ what if only that fat guy in the third row exists?
 		-- Woody Allen, "Without Feathers"
 Living on Earth may be expensive, but it inclus an annual free trip
 around the Sun.
-On a clear disk you can seek forever.
+On a clear disk  can seek forever.
 		-- P. Denning
 The idle man does not know what it is to enjoy rest.
 I have an existential map.  It has "You are here" written all over it.
@@ -493,7 +493,7 @@ the wheels turned round,
 and the letters read
 "Better head back to Tennessee Jed"
 		-- Grateful Dead
-After a time, you may find that "having" is not so pleasing a thing,
+After a time,  may find that "having" is not so pleasing a thing,
 after all, as "wanting."  It is not logical, but it is often true.
 		-- Spock, "Amok Time", stardate 3372.7
 I'm shaving!!  I'M SHAVING!!
@@ -504,12 +504,12 @@ Yet kindly sells himself for nought;
 		-- Jonathan Swift
 aquaxtrous, adj.:
 	Possessing the ability to turn the bathtub faucet on and off
-	with your toes.
+	with r toes.
 		-- Rich Hall, "Sniglets"
-Be not anxious about what you have, but about what you are.
+Be not anxious about what  have, but about what  are.
 		-- Pope St. Gregory I
 Deflector shields just came on, Captain.
-Whatever you may be sure of, be sure of this: that you are dreadfully like
+Whatever  may be sure of, be sure of this: that  are dreadfully like
 other people.
 		-- James Russell Lowell, "My Study Windows"
 There is no royal road to geometry.

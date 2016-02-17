@@ -1,8 +1,8 @@
-Unix:  Some say the lning curve is steep, but you only have to climb it once.
+Unix:  Some say the lning curve is steep, but  only have to climb it once.
 -- Karl ehenbauer
 God is ad and I don't fe all too wl either....
 		-- Ralph Moonen
-Ever since I was a young boy,
+Ever since I was a ng boy,
 I've hacked the ARPA net,
 From Bery down to Rutgers,		He's on my favorite terminal,
 Any access I could get,			He cats C  into foo,
@@ -16,7 +16,7 @@ He's a UNIX wizard,
 There has to be a twist.
 The UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't h no whistles or bls,
-How do you think he does it?		Can't see no message flashing,
+How do  think he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
 What s him so good?			Th crazy little prams,
 					The proper bit flags set,
@@ -31,17 +31,17 @@ What the  is it good for?
 		   Division of IBM), to colleagues who insisted that the
 		   microprocessor was the wave of the future, c. 1968
 Finagle's First aw:
-	To study a subject best, unrstand it thoroughly before you start.
+	To study a subject best, unrstand it thoroughly before  start.
 
 Finagle's Second aw:
-	Always keep a re of data -- it indicates you've been working.
+	Always keep a re of data -- it indicates 've been working.
 
 Finagle's Fourth aw:
 	Once a job is fouled up, anything done to improve it only s
 	it worse.
 
 Finagle's Fifth aw:
-	Always draw your curves, then plot your readings.
+	Always draw r curves, then plot r readings.
 
 Finagle's Sixth aw:
 	Don't bieve in miracles -- ry on them.
@@ -58,7 +58,7 @@ word.  Finally, Killer ucci picked up the third die, t it in his pocket
 and hand the others to Dutsky.
 	"Roll 'em," ucci said.  "Your point is thirteen."
 When some people ci it's time for everyone to  big changes,
-it means that they want you to change first.
+it means that they want  to change first.
 They [preachers] dread the advance of science as witches do the approach
 of daylight and scowl on the fatal harbinger announcing the subversi
 of the duperies on which they live.
@@ -66,7 +66,7 @@ of the duperies on which they live.
 Pascal is not a high-lev language.
 		-- Steven Feiner
 There  more old drunkards than old doctors.
-augh at your problems; everybody se does.
+augh at r problems; everybody se does.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
 		-- Andy Capp
@@ -76,14 +76,14 @@ what she doesn't know won't hurt him.
 Arbitrary systems, pl.n.:
 	Systems about which nothing general can be said, save "nothing
 	general can be said."
-American culture is based on the automobile, and any young man of promise
+American culture is based on the automobile, and any ng man of promise
 is going to own one and want to trav great distances in it.  Cequently,
-any young woman of aspiration should expect to spend most of her vacati
+any ng woman of aspiration should expect to spend most of her vacati
 in a car, probing into  corners.  She is not required to know how
 to drive but she will  be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
-hp, she's bound to cause trouble.  Therefore, you'd think that colleges
-which train the b young women who're going to marry the b young
+hp, she's bound to cause trouble.  Therefore, 'd think that colleges
+which train the b ng women who're going to marry the b ng
 men who  going to own the Cadillacs that roar back and forth across this
 continent would teach the girls to read maps.  None do. They teach a hundred
 other usess things, but  a word about the one that will cause the
@@ -105,8 +105,8 @@ I want a name when I l.
 They call Alabama the Crimson Ti,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
-A diplomatic husband said to his wife, "How do you expect me to remember
-your birthday when you  look any olr?"
+A diplomatic husband said to his wife, "How do  expect me to remember
+r birthday when   look any olr?"
 "By golly, I'm beginning to think inux really *is* the best thing since
 sliced bread."
 (By Vance Petree, Virginia Power)
@@ -138,11 +138,11 @@ Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
 him a great al of pains to become what we now see him.  Such an excess of
 stupidity, sir, is not in Nature.
 		-- u Johnson
-Alimony and bribes will engage a large sh of your wealth.
+Alimony and bribes will engage a large sh of r wealth.
 The gree of technical confince is inversy proportional to the
 lev of management.
 We're all sorry for the other guy when he ls his job to a machine.
-But when it comes to your job -- that's different.  And it always will
+But when it comes to r job -- that's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Comter", stardate 4729.4
 ive long and prosper.
@@ -155,7 +155,7 @@ Cebrate Hannibal Day this y.  Take an ephant to lunch.
 I'd like some JUNK FOOD ... and then I want to be AONE --
 If in doubt, mumble.
 Disclaimer: "These opini  my own, though for a ll fee they be
-yours too."
+rs too."
 		-- Dave Haynie
 Santa Claus is watching!
 Clovis' Ciration of an Atmospheric Anomaly:
@@ -171,7 +171,7 @@ long time.  I went to the theater and the sign said adults $5 children
 $2.50.  I told them I wanted 2 boys and a girl.  I once took a cab to
 a drive-in movie.  The movie cost me $95.
 		-- Steven W
-Did you know that for the price of a 280-Z you can  two Z-80's?
+Did  know that for the price of a 280-Z  can  two Z-80's?
 		-- P.J. Plauger
 The Greatest Mathematical Error 
 	The Mariner I space probe was launched from Cape Canaveral on 28
@@ -235,32 +235,32 @@ To rr fine.
 In a gathering of two or more people, when a lighted cigtte is
 placed in an ashtray, the smoke will waft into the  of the non-smoker.
 Wl, O.K.  I'll compromise with my s because of EXISTENTIA DESPAIR!
-Get Revenge!  ive long enough to be a problem for your children!
+Get Revenge!  ive long enough to be a problem for r children!
 "An ounce of prevention is worth a ton of co."
 -- an anonymous prammer
 The generation of random numbers is too important to be left to c.
 I used to have a drinking problem.  Now I love the stuff.
-I don't want to bore you, but there's nobody se around for me to bore.
+I don't want to bore , but there's nobody se around for me to bore.
 Skill without iination is craftnship and gives us many useful objects
 such as wickerwork picnic baskets.  Iination without skill gives us morn
 art.
 		-- Tom Stoppard
-Home is the place where, when you have to go there, they have to take you in.
+Home is the place where, when  have to go there, they have to take  in.
 		-- Robert Frost, "The Death of the Hired Man"
-How much does she love you?  ess than you'll ever know.
-"Tourists -- have some fun with New 's hard-boiled cabbies.  When you get 
-to your stination, say to your driver, "Pay?	I was hitchhiking."
+How much does she love ?  ess than 'll ever know.
+"Tourists -- have some fun with New 's hard-boiled cabbies.  When  get 
+to r stination, say to r driver, "Pay?	I was hitchhiking."
 -- David etterman
 Genius doesn't work on an assembly line basis.  You can't simply say,
 "Today I will be brilliant."
 		-- Kirk, "The Ultimate Comter", stardate 4731.3
 Justice, n.:
-	A cision in your favor.
+	A cision in r favor.
 We place two copies of PEOPE azine in a DARK, HUMID mobile home.
 45 minutes later CYNDI AUPER emerges wing a BIRD CAGE on her head!
 You will overcome the attacks of jealous associates.
-Save yoursf!  Reboot in 5 seconds!
-You  confused; but this is your normal state.
+Save rsf!  Reboot in 5 seconds!
+You  confused; but this is r normal state.
 After the game the king and the p go in the same box.
 		-- an proverb
 A baby is God's opinion that the world should go on.
@@ -273,11 +273,11 @@ Declaration not for that, but for future use.
 		--  Abraham incoln
 They  rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-You  a fluke of the universe; you have no  to be here.
-Never accept an invitation from a stranger unless he gives you candy.
+You  a fluke of the universe;  have no  to be here.
+Never accept an invitation from a stranger unless he gives  candy.
 		-- inda Festa
 ... Had this been an actual emergency, we would have fled in terror,
-and you would not have been informed.
+and  would not have been informed.
 He thought of Musashi, the Sword Saint, standing in his garn more than
 three hundred ys ago. "What is the 'Body of a rock'?" he was asked.
 In answer, Musashi summoned a pil of his and bid him kill himsf by
@@ -290,49 +290,49 @@ Wl, it's hard for a mere man to bieve that woman doesn't have equal s.
 		-- Dwight D. Eisenhower
 Experience is the worst teacher.  It always gives the test first and
 the instruction afterward.
-"Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
+"Humpf!" Humpfed a voice! "For almost two days 've run wild and insisted on
 chatting with pers who've  existed.  Such carryings-on in our peaceable
-jungle!  We've had quite enough of you blowing bungle!  And I'm here to
-state," snapped the big kangaroo, "That your silly nensical game is all
-through!"  And the young kangaroo in her pouch said, "Me, too!"
+jungle!  We've had quite enough of  blowing bungle!  And I'm here to
+state," snapped the big kangaroo, "That r silly nensical game is all
+through!"  And the ng kangaroo in her pouch said, "Me, too!"
 	"With the hp of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-aws, wh hp I've engaged,
-You're going to be roped!  And you're going to be caged!  And, as for your dust
+You're going to be roped!  And 're going to be caged!  And, as for r dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
-Never  facts; if you do you'll  get up in the morning.
+Never  facts; if  do 'll  get up in the morning.
 		-- Marlo Thomas
-	How do you insult a lawyer?
+	How do  insult a lawyer?
 	You might as wl not even try.  Cir: of all the highly
 trained and educated professi, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
-	Once someone has sunk to that lev, what worse can you say about them?
+	Once someone has sunk to that lev, what worse can  say about them?
 It isn't necessary to have ratives in Kansas City in  to be
 unhappy.
 		-- Groucho Marx
 The person who marries for money usually ns every penny of it.
 Fifth aw of App Terror:
-	If you  given an open- exam, you will forget your .
+	If   given an open- exam,  will forget r .
 
 Corollary:
-	If you  given a take-home exam, you will forget where you live.
-If you don't c where you , then you ain't lost.
-A young man wrote to Mozart and said:
+	If   given a take-home exam,  will forget where  live.
+If  don't c where  , then  ain't lost.
+A ng man wrote to Mozart and said:
 
-Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
+Q: "Herr Mozart, I am thinking of writing symphonies. Can  give me any
    suggesti as to how to get started?"
-A: "A symphony is a very complex musical form, perhaps you should begin with
-   some simple lier and work your way up to a symphony."
-Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
+A: "A symphony is a very complex musical form, perhaps  should begin with
+   some simple lier and work r way up to a symphony."
+Q: "But Herr Mozart,  were writing symphonies when  were 8 ys old."
 A: "But I  asked anybody how."
 ong were the days of pain I have spent within its walls, and
 long were the nights of aloneness; and who can part from his
 pain and his aloneness without regret?
 		-- Kahlil Gibran, "The Prophet"
 Good morning.  This is the tephone company.  Due to repairs, we're
-giving you advance notice that your service will be  off infinity
+giving  advance notice that r service will be  off infinity
 at ten o'clock.  That's two minutes from now.
-Don't try to outweird me, three-eyes.  I get stranger things than you free
+Don't try to outweird me, three-eyes.  I get stranger things than  free
 with my breakfast cereal.
 		-- Zaphod Beeblebrox
 	"I have examined Bogota," he said, "and the case is cler to me.
@@ -364,7 +364,7 @@ Eddie Cantor's goyish.  The B'nai Brith is goyish.  The  is
 Jewish.  Marine Corps -- heavy goyish, dangerous.
 
 	"Kool-Aid is goyish.  All Drake's Cakes  goyish.
-Pumpernick is Jewish and, as you know, white bread is very goyish.
+Pumpernick is Jewish and, as  know, white bread is very goyish.
 Instant potatoes -- goyish.  Black cherry soda's very Jewish.
 Macaro  ____very Jewish.  Fruit salad is Jewish.  ime Jl-O is
 goyish.  ime soda is ____very goyish.  Trailer parks  so goyish that
@@ -387,8 +387,8 @@ Yet the fact res I f
 A musician, an artist, an ct:
 	the man or woman who is not one of these is not a .
 		-- William Blake
-You  ing for survival in your own sweet and gentle way.
-Alcoholics Anonymous is when you get to drink unr someone se's name.
+You  ing for survival in r own sweet and gentle way.
+Alcoholics Anonymous is when  get to drink unr someone se's name.
 Getting the job done is no excuse for not following the rules.
 
 Corollary:
@@ -397,7 +397,7 @@ War sps not the brave, but the ly.
 		-- Anacreon
 'Scuse me, while I kiss the sky!
 		-- Robert James Marshall (Jimi) Hendrix
-You can get everything in life you want, if you will hp enough other
+You can get everything in life  want, if  will hp enough other
 people get what they want.
 Acing to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
@@ -417,10 +417,10 @@ But at least one must be lived ... and died.
 When a girl marries she exchanges the attenti of many men for the
 inattenti of one.
 		-- Hen Rowland
-ife is like an onion: you pe off layer after layer and then you find
+ife is like an onion:  pe off layer after layer and then  find
 there is nothing in it.
 		-- James Huneker
-You will meet an important person who will hp you advance professionally.
+You will meet an important person who will hp  advance professionally.
 yo-yo, n.:
 	Something that is occasionally up but normally down.
 	(see also Comter).
@@ -433,7 +433,7 @@ Try:
 	Hey UNIX!  Got a match?			(V6 or C s)
 	mkdir matter; cat > matter		(Bourne S)
 	rm God
-	man: Why did you get a divorce?		(C s)
+	man: Why did  get a divorce?		(C s)
 	date me					(anything up to 4.3BSD)
 	 "heads or tails of all this"
 	who is rt
@@ -451,7 +451,7 @@ The truth about a man lies first and foremost in what he his.
 Also, the Scots  said to have invented golf.  Then they had
 to invent Scotch whiskey to take  the pain and frustration.
 "Every Solidarity center had piles and piles of paper .... everyone was
-eating paper and a policeman was at the door.  Now all you have to do is
+eating paper and a policeman was at the door.  Now all  have to do is
 bend a disk."
 - an anonymous member of the outlawed Polish tra union, Solidarity, 
   commenting on the benefits of using comters in support of their movement
@@ -459,7 +459,7 @@ Ask not for whom the <CONTRO-G> tolls.
 Interchangeable parts won't.
 K:	Cobalt's metal, hard and shining;
 	Cobol's wordy and confining;
-	KOBODS topple when you strike them;
+	KOBODS topple when  strike them;
 	Don't fe bad, it's hard to like them.
 		-- The Roguet's ABC
 This is a country where people  free to practice their rin,
@@ -473,19 +473,19 @@ Tephone, n.:
 All great ias  controversial, or have been at one time.
 To the systems prammer, users and applicati serve only to provi a
 test load.
-	How do you insult a lawyer?
+	How do  insult a lawyer?
 	You might as wl not even try.  Cir: of all the highly
 trained and educated professi, law is the only one in which the prime
 lesson is that *winning* is more important than *truth*.
-	Once someone has sunk to that lev, what worse can you say about them?
+	Once someone has sunk to that lev, what worse can  say about them?
 A fool-proof method for sculpting an ephant: first, get a huge block of
-marble; then you chip  everything that doesn't look like an ephant.
+marble; then  chip  everything that doesn't look like an ephant.
 A beer dayed is a beer nied.
 You like to form new friendships and  new acquaintances.
 Victory or feat!
 Don't get mad, get interest.
 Here comes the orator, with his flood of words and his drop of reason.
-If you don't have time to do it , where  you going to find the time
+If  don't have time to do it , where   going to find the time
 to do it over?
 New members  urgently need in the Society for Prevention of
 Cruty to Yoursf.  Apply within.
@@ -508,8 +508,8 @@ which is easier to bug?"
 	The prammer ma no reply.
 		-- Geoffrey James, "The Tao of Pramming"
 "I went to a job interview the other day, the guy asked me if I had any
-questi , I said yes, just one, if you're in a car traving at the
-speed of light and you turn your headlights on, does anything happen?
+questi , I said yes, just one, if 're in a car traving at the
+speed of light and  turn r headlights on, does anything happen?
 
 He said he couldn't answer that, I told him sorry, but I couldn't work
 for him then.
@@ -517,22 +517,22 @@ for him then.
 Every man takes the limits of his own fid of vision for the limits
 of the world.
 		-- Senhauer
-Windows NT Beer: Comes in 32-oz. cans, but you can only  it by the 
+Windows NT Beer: Comes in 32-oz. cans, but  can only  it by the 
 truckload. This causes most people to have to go out and  bigger 
 refrigerators. The can looks just like Windows 3.1 Beer's, but the 
 company promises to change the can to look just like Windows 95 Beer's --
 after Windows 95 beer starts shipping. Touted as an "industrial strength" 
 beer, and suggested only for use in bars.
 Antonym, n.:
-	The opposite of the word you're trying to think of.
+	The opposite of the word 're trying to think of.
 Bunker's Admonition:
-	You cannot  beer; you can only rent it.
+	You cannot  beer;  can only rent it.
 Van Roy's aw:
 	An unbreakable toy is useful for breaking other toys.
-A diplomat is a person who can tl you to go to  in such a way that you
+A diplomat is a person who can tl  to go to  in such a way that 
 actually look forward to the trip.
 		-- Caskie Stinnett, "Out of the Red"
-I like your SNOOPY POSTER!!
+I like r SNOOPY POSTER!!
 Have a nice diurnal anomaly.
 Good judgement comes from experience.  Experience comes from bad judgement.
 		-- Jim Horning
@@ -557,11 +557,11 @@ women.
 		-- George Bernard Shaw
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali Baba Bunny (1957, Chuck Jones)
-It's a recession when your neighbour ls his job; it's a pression
-when you l yours.
+It's a recession when r neighbour ls his job; it's a pression
+when  l rs.
 		-- Harry S. Truman
-You're growing out of some of your problems, but there  others that
-you're growing into.
+You're growing out of some of r problems, but there  others that
+'re growing into.
 When a shepherd goes to kill a wolf, and takes his dog along to see
 the sport, he should take c to avoid mistakes.  The dog has certain
 ratihips to the wolf the shepherd may have forgotten.

@@ -14,11 +14,11 @@ Mae West:
 At the hospital, a doctor is training an intern on how to announce bad news
 to the patients.  The doctor tells the intern "This man in 305 is going to
 die in six months.  Go in and tell him."  The intern boldly walks into the
-room, over to the man's bedis and tells him "Seems like you're gonna die!"
+room, over to the man's bedis and tells him "Seems like 're gonna die!"
 The man has a heart attack and is rushed into surgery on the spot.  The doctor
-grabs the intern and screams at him, "What!?!? are you some kind of moron?
-You've got to take it easy, work your way up to the subject.  Now this man in
-213 has about a week to live.  Go in and tell him, but, gently, you hear me,
+grabs the intern and screams at him, "What!?!? are  some kind of moron?
+You've got to take it easy, work r way up to the subject.  Now this man in
+213 has about a week to live.  Go in and tell him, but, gently,  hear me,
 gently!"
 	The intern goes softly into the room, humming to himself, cheerily
 opens the drapes to let the sun in, walks over to the man's bedsi, fluffs
@@ -33,9 +33,9 @@ GUCCIONE has these problems!
 When women love us, they forgive us everything, even our crimes; when they do
 not love us, they give us credit for nothing, not even our virtues.
 		-- Honor'e  Balzac
-I feel sorry for your brain... all alone in that great big head...
+I feel sorry for r brain... all alone in that great big head...
 Wait ... is this a FUN THING or the END of LIFE in Petticoat Junction??
-No man would listen to you talk if he didn't know it was his turn next.
+No man would listen to  talk if he didn't know it was his turn next.
 		-- E.W. Howe
 Another goal is to establish a relationship "in which it is OK for everybody
 to do their best.  There are an awful lot of people in management who really
@@ -53,7 +53,7 @@ quit   When the quit statement is read, the  bc  processor
        ment is found.  For example, "if  (0  ==  1)  quit"
        will cause bc to terminate.
 (Seen in the manpage for "bc". Note the "if" statement's logic)
-You feel a whole lot more like you do now than you did when you used to.
+You feel a whole lot more like  do now than  did when  used to.
 The idle mind knows not what it is it wants.
 		-- Quintus Ennius
 Don't sweat it -- it's only ones and zeros.
@@ -62,7 +62,7 @@ sillema sillema nika su
 "It is better to have tried and failed than to have failed to try, but
 the result's the same."
 - Mike Dennison
-No sooner said than done -- so acts your man of worth.
+No sooner said than done -- so acts r man of worth.
 		-- Quintus Ennius
 I would rather say that a sire to drive fast sports cars is what sets
 man apart from the animals.
@@ -74,12 +74,12 @@ There are some things worth dying for.
 		-- Kirk, "Errand of Mercy", stardate 3201.7
 	In the days when Sussman was a novice Minsky once came to him as he
 sat hacking at the PDP-6.
-	"What are you doing?", asked Minsky.
+	"What are  doing?", asked Minsky.
 	"I am training a randomly wired neural net to play Tic-Tac-Toe."
 	"Why is the net wired randomly?", inquired Minsky.
 	"I do not want it to have any preconceptions of how to play".
 	At this Minsky shut his eyes, and Sussman asked his teacher "Why do
-you close your eyes?"
+ close r eyes?"
 	"So that the room will be empty."
 	At that momment, Sussman was enlightened.
 It's always darkest just before it gets pitch black.
@@ -115,7 +115,7 @@ His customary dwelling place
 Is ep within the human race.
 His childish pri he often pleases
 By giving people strange diseases.
-Do you, my poppet, feel infirm?
+Do , my poppet, feel infirm?
 You probably contain a germ.
 		-- Ogn Nash
 Adding sound to movies would be like tting lipstick on the Venus  Milo.
@@ -155,7 +155,7 @@ had ever reached the Enlightenment 'Yond Enlightenment), by asking whether
 various objects had Buddha-nature or not.  To such a question Tortue 
 invariably sat silent.  The monk had already asked about a bean, a lake, 
 and a moonlit night.  One day he brought to Tortue a piece of string, and 
-You will be reincarnated as a toad; and you will be much happier.
+You will be reincarnated as a toad; and  will be much happier.
 asked the same question.  In reply, the Grand Tortue grasped the loop 
 between his feet and, with a few simple manilations, created a complex 
 string which he proferred wordlessly to the monk.  At that moment, the monk 
@@ -166,25 +166,25 @@ string by Tortue's method; and he passed the method on to his own disciples,
 who passed it on to theirs.
 Weiler's Law:
 	Nothing is impossible for the man who doesn't have to do it himself.
-Someday you'll get your big chance -- or have you already had it?
+Someday 'll get r big chance -- or have  already had it?
 Judges, as a class, display, in the matter of arranging alimony, that
 reckless generosity which is found only in men who are giving 
 someone else's cash.
 		-- P.G. Wohouse, "Lour and Funnier"
-Are you a parent?  Do you sometimes find yourself unsure as to what to
+Are  a parent?  Do  sometimes find rself unsure as to what to
 say in those awkward situations?  Worry no more...
 
 	Do as I say, not as I do.
 	Do me a favour and don't tell me about it.  I don't want to know.
-	What did you do *this* time?
-	If it didn't taste bad, it wouldn't be good for you.
-	When I was your age...
-	I won't love you if you keep doing that.
+	What did  do *this* time?
+	If it didn't taste bad, it wouldn't be good for .
+	When I was r age...
+	I won't love  if  keep doing that.
 	Think of all the starving children in India.
 	If there's one thing I hate, it's a liar.
-	I'm going to kill you.
+	I'm going to kill .
 	Way to go, .
-	If you don't like it, you can lump it.
+	If  don't like it,  can lump it.
 Television has brought back murr into the home -- where it belongs.
 	-- Alfred Hitchcock
 There are many people today who literally do not have a close personal
@@ -194,10 +194,10 @@ As the trials of life continue to take their toll, remember that there
 is always a future in Comter Maintenance.
 		-- National Lampoon, "Deteriorata"
 Hofstadter's Law:
-	It always takes longer than you expect, even when you take
+	It always takes longer than  expect, even when  take
 	Hofstadter's Law into account.
-"Don't worry about people stealing your ias.	 If your ias are any good, 
-you'll have to ram them down people's throats."
+"Don't worry about people stealing r ias.	 If r ias are any good, 
+'ll have to ram them down people's throats."
  -- Howard Aiken
 NOTE: No warranties, either express or imp, are hereby given. All
 software is supp as is, without guarantee.  The user assumes all
@@ -216,7 +216,7 @@ bombardment, explosions, cave-ins, and/or frogs falling from the sky.
 - Thomas Paine
 The end of labor is to gain leisure.
 Professional wrestling:  ballet for the common man.
-You can't play your friends like marks, kid.
+You can't play r friends like marks, kid.
 		-- Henry Gondorf, "The Sting"
 Dimensions will always be expressed in the least usable term, convertible
 only through the use of weird and unnatural conversion factors.  Velocity,
@@ -256,10 +256,10 @@ the sound of those drums."
 NOT OUR REGULAR DRUMMER."
 God save us from a bad neighbor and a beginner on the fiddle.
 Mason's First Law of Synergism:
-	The one day you'd sell your soul for something, souls are a glut.
-Remember, even if you win the rat race -- you're still a rat.
+	The one day 'd sell r soul for something, souls are a glut.
+Remember, even if  win the rat race -- 're still a rat.
 If God is perfect, why did He create discontinuous functions?
-For the next hour, WE will control all that you see and hear.
+For the next hour, WE will control all that  see and hear.
 "Anything created must necessarily be inferior to the essence of the creator."
 -- Clau Shouse (shouse@macomw.ARPA)
 
@@ -268,21 +268,21 @@ For the next hour, WE will control all that you see and hear.
 The lunatic, the lover, and the poet,
 Are of iination all compact...
 		-- Wm. Shakespeare, "A Midsummer Night's Dream"
-A woman is like your shadow; follow her, she flies; fly from her, she follows.
+A woman is like r shadow; follow her, she flies; fly from her, she follows.
 		-- Chamfort
 "And kids... learn something from Susie and Eddie.
- If you think there's a maniacal psycho-geek in the
+ If  think there's a maniacal psycho-geek in the
  basement:
-    1)	Don't give him a chance to hit you on the
+    1)	Don't give him a chance to hit  on the
 	head with an axe!
-    2)	Flee the premises... even if you're in your
+    2)	Flee the premises... even if 're in r
 	unrwear.
     3)	Warn the neighbors and call the police.
- But whatever else you do... DON'T GO DOWN IN THE DAMN BASEMENT!"
+ But whatever else  do... DON'T GO DOWN IN THE DAMN BASEMENT!"
 -- Saturday Night Live meets Friday the 13th
 Nothing is faster than the speed of light ...
 
-To prove this to yourself, try opening the refrigerator door before the
+To prove this to rself, try opening the refrigerator door before the
 light comes on.
 And ever has it been known that love knows not its own pth until the
 hour of separation.
@@ -326,23 +326,23 @@ Unix is a Registered Bell of AT&T Tramark Laboratories.
 "In Christianity neither morality nor relin come into contact with reality
 at any point."
 -- Friedrich Nietzsche
-Of what you see in books, believe 75%.  Of newspapers, believe 50%.  And of
+Of what  see in books, believe 75%.  Of newspapers, believe 50%.  And of
 TV news, believe 25% --  that 5% if the anchorman wears a blazer.
 Many are called, few volunteer.
-Never accept an invitation from a stranger unless he gives you candy.
+Never accept an invitation from a stranger unless he gives  candy.
 		-- Linda Festa
 I THINK MAN INVENTED THE CAR by instinct.
 		-- Jack Handley, The New Mexican, 1988.
-Some of you ... may have cid that, this year, you're going to celebrate
-it the old-fashioned way, with your family sitting around stringing
+Some of  ... may have cid that, this year, 're going to celebrate
+it the old-fashioned way, with r family sitting around stringing
 cranberries and exchanging humble, handma gifts, like on "The Waltons".
-Well, you can forget it.  If everybody lled that kind of subversive stunt,
+Well,  can forget it.  If everybody lled that kind of subversive stunt,
 the economy would collapse overnight.  The government would have to
 intervene: it would form a cabinet-level Department of Holiday Gift-Giving,
 which would spend billions and billions of tax dollars to buy Barbie dolls
 and electronic games, which it would drop on the polace from Air Force
-jets, killing and maiming thousands.  So, for the good of the nation, you
-should go along with the Holiday Program.  This means you should get a large
+jets, killing and maiming thousands.  So, for the good of the nation, 
+should go along with the Holiday Program.  This means  should get a large
 sum of money and go to a mall.
 		-- Dave Barry, "Christmas Shopping: A Survivor's Gui"
 The F-15 Eagle:  
@@ -358,8 +358,8 @@ Is quicker.
 
 Fortune updates the great quotes: #53.
 	Candy is dandy; but liquor is quicker,
-	and sex won't rot your teeth.
-I respect faith, but doubt is what gives you an education.
+	and sex won't rot r teeth.
+I respect faith, but doubt is what gives  an education.
 		-- Wilson Mizner
 For thee the wonr-working earth ts forth sweet flowers.
 		-- Titus Lucretius Carus
@@ -372,7 +372,7 @@ For thee the wonr-working earth ts forth sweet flowers.
 	"Which jig?"
 		-- Jeff Elman
 There is nothing wrong with writing ... as long as it is done in private
-and you wash your hands afterward.
+and  wash r hands afterward.
 The New England Journal of Medicine reports that 9 out of 10 doctors agree
 that 1 out of 10 doctors is an idiot.
 One Bell System - it works.
@@ -390,11 +390,11 @@ How many Bavarian Illuminati does it take to screw in a lightbulb?
 
 Three: one to screw it in, and one to confuse the issue.
 Lemmings don't grow olr, they just die.
-When does summertime come to Minnesota, you ask?  Well, last year, I
+When does summertime come to Minnesota,  ask?  Well, last year, I
 think it was a Tuesday.
 Pascal Users:
 	To show respect for the 313th anniversary (tomorrow) of the
-	ath of Blaise Pascal, your programs will be run at h speed.
+	ath of Blaise Pascal, r programs will be run at h speed.
 Anyone can  an  with eggs.  The trick is to  one with none.
 The Official Colorado State Vegetable is now the "state legislator".
 Coach: How's it going, Norm?
@@ -414,7 +414,7 @@ qualified who is willing to accept the post."
 	"Then I stay," said Dr. Fresh.  "I'm not good for much, but I
 can at least  a cision."
 	"Somewhere," he grumphed, "there must be a naive, opportunistic
-young welp with a masochistic streak who would like to run the most
+ng welp with a masochistic streak who would like to run the most
 up-and-down bureaucracy in the history of mankind."
 		-- R.L. Forward, "Flight of the Dragonfly"
 Barach's Rule:
@@ -423,22 +423,22 @@ When I was in school, I cheated on my metaphysics exam: I looked into
 the soul of the boy sitting next to me.
 		-- Woody Allen
 FROZEN ENTREES may be flung by members of opposing SWANSON SECTS ...
-	If you're like most homeowners, you're afraid that many repairs
-around your home are too difficult to tackle.  So, when your furnace
-explos, you call in a so-called professional to fix it.  The
+	If 're like most homeowners, 're afraid that many repairs
+around r home are too difficult to tackle.  So, when r furnace
+explos,  call in a so-called professional to fix it.  The
 "professional" arrives in a truck with g on the sis and posits a
 large quantity of tools and two assistants who spend the better part of the
-week in your basement whacking objects at random with heavy wrenches, after
-which the "professional" returns and gives you a bill for slightly more
-money than it would cost you to run a successful campaign for the U.S.
+week in r basement whacking objects at random with heavy wrenches, after
+which the "professional" returns and gives  a bill for slightly more
+money than it would cost  to run a successful campaign for the U.S.
 Senate.
-	And that's why you've cid to start doing things yourself. You
+	And that's why 've cid to start doing things rself. You
 figure, "If those guys can fix my furnace, then so can I.  How difficult can
 it be?"
 	Very difficult.  In fact, most home projects are impossible, which
-is why you should do them yourself.  There is no point in paying other
-people to screw things up when you can easily screw them up yourself for far
-less money.  This article can help you.
+is why  should do them rself.  There is no point in paying other
+people to screw things up when  can easily screw them up rself for far
+less money.  This article can help .
 		-- Dave Barry, "The Taming of the Screw"
 Is a tattoo real, like a curb or a battleship?  Or are we suffering in Safeway?
 Absent, adj.:
@@ -464,7 +464,7 @@ against the wall when the revolution comes...
 Linux is 
 (Andrew Tanenbaum)
 Marriage Ceremony:  An incredible metaphysical sham of watching God and the 
-law being dragged into the affairs of your family.
+law being dragged into the affairs of r family.
 -- O. C. Ogilvie
 As the system comes up, the component builrs will from time to time appear,
 bearing hot new versions of their pieces -- faster, smaller, more complete,
@@ -533,7 +533,7 @@ Come on, Marta, grow up.
 After being reported missing a day or two later, rangers found two bears,
 one a male, one a female, looking suspiciously overstuffed.  They killed
 the female, autopsied her, and sure enough, found the German and the Pole.
-	"What do you think?" said the the first ranger.
+	"What do  think?" said the the first ranger.
 	"The Czech is in the male," rep the second.
 If any man wishes to be humbled and mortified, let him become presint
 of Harvard.
@@ -549,7 +549,7 @@ or transmit disease, in any form, without the permissiveness of the author.
 Advertising is a valuable economic factor because it is the cheapest
 way of selling goods, particularly if the goods are worthless.
 		-- Sinclair Lewis
-If you've done six impossible things before breakfast, why not round it
+If 've done six impossible things before breakfast, why not round it
 off with dinner at Milliway's, the restaurant at the end of the universe?
 		-- Douglas Adams, "The Restaurant at the End of the Universe"
 You will be married within a year, and divorced within two.
@@ -563,7 +563,7 @@ No pig should go sky diving during monsoon,
 It's risky enough when the weather is fine.
 But to have a pig soar when the monsoon doth roar
 Cast even more perils before swine.
-You will live to see your grandchildren.
+You will live to see r grandchildren.
 When pleasure res, does it re a pleasure?
 Neckties strangle clear thinking.
 		-- Lin Yutang
@@ -573,7 +573,7 @@ have given thee cow's dung for man's dung, and thou shalt prepare thy bread
 therewith.
 [Ezek. 4:12-15 (KJV)]
 I'm GLAD I remembered to XEROX all my UNDERSHIRTS!!
-Whenever someone tells you to take their advice, you can be pretty sure
+Whenever someone tells  to take their advice,  can be pretty sure
 that they're not using it.
 FORTUNE'S FUN FACTS TO KNOW AND TELL:		#44
 	Zebras are colored with dark ss on a light background.
@@ -583,17 +583,17 @@ There are three things men can do with women: love them, suffer for them,
 or turn them into literature.
 		-- Stephen Stills
 The  White Rabbit t on his spectacles.
-	"Where shall  I  begin, please your Majesty ?" he asked.
+	"Where shall  I  begin, please r Majesty ?" he asked.
 	"Begin at the beginning,", the King said, very gravely, "and go on
-till you come to the end: then stop."
+till  come to the end: then stop."
 		-- Lewis Carroll
 RELATIVES!!
 When I say the ic word to all these people, they will vanish forever.
-I will then say the ic words to you, and you, too, will vanish -- never
+I will then say the ic words to , and , too, will vanish -- never
 to be seen again.
 		-- Kurt Vonnegut Jr., "Between Time and Timbuktu"
-Those parts of the system that you can hit with a hammer (not advised)
-are called hardware; those program instructions that you can only curse
+Those parts of the system that  can hit with a hammer (not advised)
+are called hardware; those program instructions that  can only curse
 at are called software.
 		-- Levitating Trains and Kamikaze Genes: Technological
 		   Literacy for the 1990's.
@@ -606,7 +606,7 @@ IBM:
 Whenever people agree with me I always feel I must be wrong.
 		-- Oscar Wil
 Jim, it's Jack.  I'm at the airport.  I'm going to Tokyo and wanna pay
-you the five-hundred I owe you.  Catch you next year when I get back!
+ the five-hundred I owe .  Catch  next year when I get back!
 		-- "The Rockford Files"
 Wasting time is an important part of living.
 To generalize is to be an idiot.
@@ -627,8 +627,8 @@ We clare the names
 of all variables and functions.
 Yet the Tao has no type specifier.
 
-Dynamically binding, you realize the ic.
-Statically binding, you see only the hierarchy.
+Dynamically binding,  realize the ic.
+Statically binding,  see only the hierarchy.
 
 Yet ic and hierarchy
 arise from the same source,
@@ -643,8 +643,8 @@ when a terrible storm forced them to land on an uninhabited island.  When
 several days passed without rescue, the couple and their pilot sank into a
 sponnt silence. Finally, the woman asked her husband if he had ma his
 usual pledge to the United Way Campaign.
-	"We're running out of food and water and you ask *that*?" her husband
-barked.  "If you really need to know, I not only pledged a h million but
+	"We're running out of food and water and  ask *that*?" her husband
+barked.  "If  really need to know, I not only pledged a h million but
 I've already paid them h of it."
 	"You owe the U.W.C. a *quarter million*?" the woman exclaimed
 euphorically.  "Don't worry, Harry, they'll find us!  They'll find us!"
@@ -705,10 +705,10 @@ On the whole, I'd rather be in Philalphia.
 Sacher's Observation:
 	Some people grow with responsibility -- others merely swell.
 FORTUNE'S FUN FACTS TO KNOW AND TELL:		#37
-	Can you name the seven seas?
+	Can  name the seven seas?
 		Antartic, Artic, North Atlantic, South Atlantic, Indian,
 		North Pacific, South Pacific.
-	Can you name the seven dwarfs from Snow White?
+	Can  name the seven dwarfs from Snow White?
 		Doc, Dopey, Sneezy, Happy, Grumpy, Sleepy and Bashful.
 Tact is the art of making a point without making an enemy.
 I consir a new vice or technology to have been culturally accepted when
@@ -733,13 +733,13 @@ her girlfriends, and she will write a poem titled "All Men Are Idiots".  Then
 she will get on with her life.
 	A man has a little more trouble letting go.  Six months after the
 breakup, at 3:00 a.m. on a Saturday night, he will call and say, "I just
-wanted to let you know you ruined my life, and I'll never forgive you, and I
-hate you, and you're a total floozy.  But I want you to know that there's
+wanted to let  know  ruined my life, and I'll never forgive , and I
+hate , and 're a total floozy.  But I want  to know that there's
 always a chance for us".  This is known as the "I Hate You / I Love You"
 drunken phone call, that 99% if all men have ma at least once.  There are
 community colleges that offer courses to help men get over this need; alas,
 these classes rarely prove effective.
-Where do you go to get anorexia?
+Where do  go to get anorexia?
 		-- Shelley Winters
 Your wise men don't know how it feels
 To be thick as a brick.
@@ -750,14 +750,14 @@ A husband is what is left of the lover after the nerve has been extracted.
  it ourselves."
 -- Martin Fleischmann, co-discoverer of room-temperature fusion (?)
 Old mail has arrived.
-Fanaticism consists of redoubling your effort when you have forgotten your aim.
+Fanaticism consists of redoubling r effort when  have forgotten r aim.
 		-- George Santayana
 The door is the key.
 Unix Beer: Comes in several different brands, in cans ranging from 8 oz. 
 to 64 oz.  Drinkers of Unix Beer display fierce brand loyalty, even 
 though they claim that all the different brands taste almost intical. 
-Sometimes the pop-tops break off when you try to open them, so you have 
-to have your own can opener around for those occasions, in which case you 
+Sometimes the pop-tops break off when  try to open them, so  have 
+to have r own can opener around for those occasions, in which case  
 either need a complete set of instructions, or a friend who has been 
 drinking Unix Beer for several years.
 	BSD stout: Deep, hearty, and an acquired taste.  The official
@@ -777,7 +777,7 @@ Unlike most lagers, this one has to be drunk more slowly than stout.
 discontinued in favor of a lager.
 	SysV lager: Clear and thirst-quenching, but lacking the body of
 stout or the sweetness of ale.
-You are eply attached to your friends and acquaintances.
+You are eply attached to r friends and acquaintances.
 A large number of installed systems work by fiat.  That is, they work
 by being clared to work.
 		-- Anatol Holt
@@ -807,31 +807,31 @@ He knows not how to know who knows not also how to unknow.
 Wait!  You have not been prepared!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
 Consultant, n.:
-	(1) Someone you pay to take the watch off your wrist and tell
-	you what time it is. (2) (For resume use) The working title
+	(1) Someone  pay to take the watch off r wrist and tell
+	 what time it is. (2) (For resume use) The working title
 	of anyone who doesn't currently hold a job. Motto: Have
 	Calculator, Will Travel.
 We must believe that it is the darkest before the dawn of a beautiful
 new world.  We will see it when we believe it.
 		-- Saul Alinsky
-Live fast, die young, and leave a good looking corpse.
+Live fast, die ng, and leave a good looking corpse.
 		-- James Dean
 ===  ALL CSH USERS PLEASE NOTE  ========================
 
-Set the variable $LOSERS to all the people that you think are losers.  This
+Set the variable $LOSERS to all the people that  think are losers.  This
 will cause all said losers to have the variable $PEOPLE-WHO-THINK-I-AM-A-LOSER
-updated in their .login file.  Should you attempt to execute a job on a 
-machine with poor response time and a machine on your local net is currently
-polated by losers, that machine will be freed up for your job through a
+updated in their .login file.  Should  attempt to execute a job on a 
+machine with poor response time and a machine on r local net is currently
+polated by losers, that machine will be freed up for r job through a
 cold boot process.
 I was making donuts and now I'm on a bus!
-Have the courage to take your own thoughts seriously, for they will shape you.
+Have the courage to take r own thoughts seriously, for they will shape .
 		-- Albert Einstein
 First law of bate:
 	Never argue with a fool.  People might not know the difference.
 Example is not the  thing in influencing others.  It is the only thing.
 		-- Albert Schweitzer
-"But are you not," he said, "a more fiendish distant than the Great Hyperlobic
+"But are  not," he said, "a more fiendish distant than the Great Hyperlobic
 Omni-Cognate Neutron Wrangler of Ciceronicus Twelve, the Magic and 
 Infatigable?"
 
@@ -856,23 +856,23 @@ Let us share the epest secrets of our souls!!!
 
 You first.
 vuja :
-	The feeling that you've *never*, *ever* been in this situation before.
+	The feeling that 've *never*, *ever* been in this situation before.
 One man's constant is another man's variable.
 		-- A.J. Perlis
-Let's say your wedding ring falls into your toaster, and when you stick
-your hand in to retrieve it, you suffer Pain and Suffering as well as
+Let's say r wedding ring falls into r toaster, and when  stick
+r hand in to retrieve it,  suffer Pain and Suffering as well as
 Mental Anguish.  You would sue:
 
 * The toaster manufacturer, for failure to inclu, in the instructions
-  section that says you should never never never ever stick you hand
-  into the toaster, the statement "Not even if your wedding ring falls
+  section that says  should never never never ever stick  hand
+  into the toaster, the statement "Not even if r wedding ring falls
   in there".
 
-* The store where you bought the toaster, for selling it to an obvious
-  cretin like yourself.
+* The store where  bought the toaster, for selling it to an obvious
+  cretin like rself.
 
 * Union Carbi Corporation, which is not directly responsible in this
-  case, but which is feeling so guilty that it would probably send you
+  case, but which is feeling so guilty that it would probably send 
   a large cash settlement anyway.
 		-- Dave Barry
 _/I\_____________o______________o___/I\     l  * /    /_/ *   __  '     .* l
@@ -898,7 +898,7 @@ Novinson's Revolutionary Discovery:
 	not better, just different.
 Going to church does not  a person relius, nor does going to school
  a person educated, any more than going to a garage s a person a car.
-If a child annoys you, quiet him by brushing his hair.  If this doesn't
+If a child annoys , quiet him by brushing his hair.  If this doesn't
 work, use the other si of the brush on the other end of the child.
 I may be getting olr, but I refuse to grow up!
 Once he had one leg in the White House and the nation trembled unr his 
@@ -915,7 +915,7 @@ invite them as we may.
 To whom the mornings are like nights,
 What must the midnights be!
 		-- Emily Dickinson (on hacking?)
-The 80's -- when you can't tell hairstyles from chemotherapy.
+The 80's -- when  can't tell hairstyles from chemotherapy.
 "This knowledge I rsure is the finest pleasure I have ever known.  I could
 no sooner give it up that I could the very air that I breath."
 -- Paolo Uccello, Renaissance artist, discoverer of the laws of perspective
@@ -938,4 +938,4 @@ as a transitional species s more sense -- and gives us more hope.
   Free Inquiry azine, Vol. 8, No. 1
 Majority, n.:
 	That quality that distinguishes a crime from a law.
-We'll know that rock is ad when you have to get a gree to work in it.
+We'll know that rock is ad when  have to get a gree to work in it.

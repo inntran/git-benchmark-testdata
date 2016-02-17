@@ -20,27 +20,27 @@ Iine what we can !
 Test-tube babies shouldn't row stones.
 FORTUNE'S PARTY TIPS		#14
 
-Tired of finding at oer people  hng emsves to your good
-liqu at BYOB parties?  Take along a , which you insert and
-light after you've opened e bottle.  No one ever expects anying
+Tired of finding at oer people  hng emsves to r good
+liqu at BYOB parties?  Take along a , which  insert and
+light after 've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.
-Among e lucky, you  e chn one.
+Among e lucky,   e chn one.
 Visit beautiful Wiscin Dls.
-American culture is based on e automobile, and any young man of promise
+American culture is based on e automobile, and any ng man of promise
 is going to own one and want to trav gr distances in it.  Cequently,
-any young woman of asration should expect to spend most of her vacati
+any ng woman of asration should expect to spend most of her vacati
 in a car, probing into  cners.  She is not required to know how
 to drive but she will  be expected to read e road map while her
 husd drives, and if she can't,  if she's abnmally slow in giving him
-hp, she's bound to cause trouble.  refe, you'd ink at colleges
-which train e b young women who're going to marry e b young
+hp, she's bound to cause trouble.  refe, 'd ink at colleges
+which train e b ng women who're going to marry e b ng
 men who  going to own e Cadillacs at roar back and f across is
 continent would teach e girls to read maps.  None do. y teach a hundred
 oer usess ings, but  a wd about e one at will cause e
 grest friction.
 		-- James Michener, "Space"
 "Interesting survey in e current Journal of Abnmal Psychology: New Yk 
-City has a higher percentage of people you shouldn't  any sudn moves 
+City has a higher percentage of people  shouldn't  any sudn moves 
 around an any oer city in e wld."
 -- David etterman
 A handful of friends is w me an a wagon of gold.
@@ -76,7 +76,7 @@ PBC	Print and Break Chain
 PDSK	Punch Disk
 "You stay here,  -- is is between me and e vegetable!"
 -- Seymour, from _ittle Shop Of Hrs_
-It's not so hard to lift yoursf by your bootstraps once you're off e ground.
+It's not so hard to lift rsf by r bootstraps once 're off e ground.
 		-- Dani B. uten
 re may be said to be two classes of people in e wld;  who ctantly
 divi e people of e wld into two classes and  who do not.
@@ -109,7 +109,7 @@ It is illegal to say "Oh, Boy" in Jonesbo, Gegia.
 Anger kills as sury as e oer vices.
 "You can't teach people to be lazy - eier ey have it,  ey don't."
 		-- Dagwood Bums
-If you can survive dh, you can probably survive anying.
+If  can survive dh,  can probably survive anying.
 Be warned at tyng \fBkillall \fI\fP may not have e sired
 effect on non-inux systems, especially when done by a privileged user.
 (From e killall manual page)
@@ -132,18 +132,18 @@ And sudnly e novice was enlightened.
 Reply hazy, ask again later.
 Now I'm concentrating on a specific tank battle toward e end of Wld War II!
 "It was a virgin fest, a place where e Hand of Man had  set foot."
-Don't you wish you had me energy...  less ambition?
+Don't  wish  had me energy...  less ambition?
 Today's weirdness is tomrow's reason why.
 		-- Hunter S. Thompson
-A friend is a present you give yoursf.
+A friend is a present  give rsf.
 		-- Robert ouis Stevenson
-Apay Club meeting is Friday.  If you want to come, you're not invited.
+Apay Club meeting is Friday.  If  want to come, 're not invited.
 An apple a day s 365 apples a y.
-re   any bugs you haven't found yet.
+re   any bugs  haven't found yet.
 re  two kinds of trians... e quick and e ad.
 		-- d Thomas Rober Dewar
 HEY KIDS!  ANN ANDERS SAYS:
-	Be sure it's true, when you say "I love you".  It's a sin to
+	Be sure it's true, when  say "I love ".  It's a sin to
 	tl a lie.  Milli of hts have been broken, just because
 	ese wds were sn.
 You're wking unr a slight handicap.  You happen to be human.
@@ -164,7 +164,7 @@ Column 1		Column 2		Column 3
 e cresponding buzzwd from each column.  F instance, number 257 produces
 "systematized logistical projection," a phrase at can be dropped into
 virtually any rept wi at ring of cisive, knowledgeable auity.  "No
-one will have e remotest ia of what you're talking about," says Broughton,
+one will have e remotest ia of what 're talking about," says Broughton,
 "but e imptant ing is at ey're not about to admit it."
 		-- Philip Broughton, "How to Win at Wdnship"
 Many mental processes admit of being roughly measured.  F instance,
@@ -194,7 +194,7 @@ ieberman's aw:
  follog statement is not true.   previous statement is true.
 One Bl System - it sometimes wks.
 adybug, ladybug,
-ook to your stern!
+ook to r stern!
 Your house is on fire,
 Your children will burn!
 So jump ye and sing, f
@@ -220,30 +220,30 @@ Deja vu:
 Democracy is a fm of government in which it is permitted to wonr
 aloud what e country could do unr first-class management.
 		-- Senat Soaper
-re is a fly on your n.
+re is a fly on r n.
 Finagle's First aw:
-	To study a subject best, unrstand it oughly befe you start.
+	To study a subject best, unrstand it oughly befe  start.
 
 Finagle's Second aw:
-	Always keep a recd of data -- it indicates you've been wking.
+	Always keep a recd of data -- it indicates 've been wking.
 
 Finagle's Four aw:
 	Once a job is fouled up, anying done to improve it only s
 	it wse.
 
 Finagle's Fif aw:
-	Always draw your curves, en plot your readings.
+	Always draw r curves, en plot r readings.
 
 Finagle's Six aw:
 	Don't bieve in miracles -- ry on em.
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and  which abounds!!
-" paology is to want control, not at you ever get it, because of
-course you  do."
+" paology is to want control, not at  ever get it, because of
+course   do."
 -- Gregy Bateson
 Sinners can repent, but stud is fever.
-	"So you don't have to, Cindy, but I was wonring if you might
-want to go to someplace, you know, wi me, sometime."
+	"So  don't have to, Cindy, but I was wonring if  might
+want to go to someplace,  know, wi me, sometime."
 	"Wl, I can ink of a lot of wse ings, David."
 	"Friday, en?"
 	"Why not, David, it might even be fun."
@@ -273,7 +273,7 @@ a system so complete and sophisticated at noing showed; no machines,
 no wires, no controls.
 - Micha Swanwick, "Vacuum Flowers"
 So is is what it ls like to be potato salad
-I hate ll towns because once you've seen e cannon in e park
+I hate ll towns because once 've seen e cannon in e park
 ere's noing se to do.
 		-- enny Bruce
 Actually, what I'd like is a little toy spaceship!!
@@ -281,7 +281,7 @@ re  no games on is system.
 I have lots of ings in my pockets;
 None of em is w anying.
 Sociopolitical whines asi,
-Gan you give me, gratis, free,
+Gan  give me, gratis, free,
  price of h a gallon
 Of Gallo extra bad
 And most of e bus f home.
@@ -308,17 +308,17 @@ In me R'ecamier vies wi Kitty O'Shea,
 
 I'm all of e glamous ladies
 	At wh beckoning histy shook.
-But you  a man, and see only my pan,
+But   a man, and see only my pan,
 	So I stay at home wi a .
 		-- Doy Parker
 Si jeunesse savait, si vieillesse pouvait.
-	[If you but knew, if old age but could.]
+	[If  but knew, if old age but could.]
 		-- Henri Estienne
 QOTD:
-	I love your outfit, does it come in your size?
+	I love r outfit, does it come in r size?
 You'll be sry...
 All power crupts, but we need ectricity.
-If you don't do e ings at  not w doing, who will?
+If  don't do e ings at  not w doing, who will?
 Education is an admirable ing, but it is wl to remember from time to
 time at noing at is w knog can be taught.
 		-- Oscar Wil, " Critic as Artist"
@@ -342,8 +342,8 @@ Yow!  Is my fallout shter termite proof?
 -- vi
 All e simple prams have been written.
 Burke's Postulates:
-	Anying is possible if you don't know what you  talking about.
-	Don't cre a problem f which you do not have e answer.
+	Anying is possible if  don't know what   talking about.
+	Don't cre a problem f which  do not have e answer.
 O.K., fine.
 	Talking Pinhead Blues:
 Oh, I OST my ``HEO KITTY'' DO and I get BAD reception on chann
@@ -383,7 +383,7 @@ game.  y had e volley of e Dills.
 I'm pre I'm lling in a TROUT!  Am I doing it crectly??
 He who s and runs  lives to  anoer day.
 re's only one everying.
-Never say you know a man until you have divid an inheritance wi him.
+Never say  know a man until  have divid an inheritance wi him.
 Far back in e mists of ancient time, in e gr and glious days of e
 fmer Galactic Emre, life was wild, rich and largy tax free.
 
@@ -398,7 +398,7 @@ was e Emre fged.
 CCI Power 6/40: one board, a megabyte of cache, and an attitu...
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tl
-Many Americans wk si by si wi space aliens who look human -- but you
+Many Americans wk si by si wi space aliens who look human -- but 
 can spot ese visits by looking f certain tip-offs, say exs. y
 listed 10 signs to watch f:
     (3) Bizarre sense of hum.  Space aliens who don't unrstand
@@ -412,11 +412,11 @@ listed 10 signs to watch f:
 	high-tech hardw.  "An alien may experience a mood change when
 	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
-all of ese traits befe you can positivy intify him as a space alien.
+all of ese traits befe  can positivy intify him as a space alien.
 		-- National Enquirer, Micha Casss, August, 1984.
 
 	[I ought everybody laughed at company training films.  Ed.]
-et not e sands of time get in your lunch.
+et not e sands of time get in r lunch.
 	*** STUDENT SUCCESSES ***
 
 Many of our stunts have gone on to achieve gr success in all fids of
@@ -427,11 +427,11 @@ sold a "My Most Unfgettable Pram" article to Crosive Comting azine.
 Anoer of our graduates writes, "I recently completed a datse-management
 pram f my partment manager.  My pram touched him so eply at he
 was speechless.  He told me later at he had  seen such a pram in
-his entire cer.  Thank you, Famous Prammers' school; only you could
+his entire cer.  Thank , Famous Prammers' school; only  could
 have ma is possible."  Send f our introducty brochure which explains
-in vague tail e operation of e Famous Prammers' , and you'll
+in vague tail e operation of e Famous Prammers' , and 'll
 be igible to  a possible c to enter a drag, e ner of which
-can vie f a set of free steak knives.  If you don't do it now, you'll hate
-yoursf in e mning.
+can vie f a set of free steak knives.  If  don't do it now, 'll hate
+rsf in e mning.
 Q:	What's a light-y?
 A:	One-ird less calies an a r y.

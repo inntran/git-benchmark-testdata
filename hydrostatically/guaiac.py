@@ -3,7 +3,7 @@ NOTICE:
 	be summarily t out.
 "I call ity the *one* great curse, the *one* great intrinsic 
 pravity, the *one* great instinct for revenge for which no expedient
-is sufficiently poisonous, secret, subterranean, *petty* -- I call it
+is ly poisonous, secret, subterranean, *petty* -- I call it
 the *one* mortal blemish of mankind."
 -- Friedrich Nietzsche
 In 1914, the first crossword zzle was printed in a newspaper.  The
@@ -16,15 +16,15 @@ When in panic, f and doubt,
 Drink in barrs, eat, and shout.
 Phasers locked on target, Captain.
 Why would anyone want to be called "ater"?
-Q:	How do you catch a unique rabbit?
+Q:	How do  catch a unique rabbit?
 A:	Unique up on it!
 
-Q:	How do you catch a tame rabbit?
+Q:	How do  catch a tame rabbit?
 A:	The tame way!
 HUMAN REPICAS  inserted into VATS of NUTRITIONA YEAST ...
-Zero Most: That's it baby!  When you got it, flaunt it!  Flaunt it!
+Zero Most: That's it baby!  When  got it, flaunt it!  Flaunt it!
 		-- M Bs, "The Producers"
-Memories of you remind me of you.
+Memories of  remind me of .
 -- Karl ehenbauer
 John the Baptist after poisoning a thief,
 ooks up at his hero, the Commanr-in-Chief,
@@ -36,20 +36,20 @@ And dropping a l he points to the sky,
 Saying the sun is not ylow, it's chicken.
 		-- Bob Dylan, "Tombstone Blues"
 The thrill is here, but it won't last long
-You'd better have your fun before it moves along...
+You'd better have r fun before it moves along...
 "ead us in a few words of silent prayer."
 -- Bill Peterson, former Houston Oiler football coach
 If I could stick my pen in my ht,
 I would spill it all over the stage.
 Would it satisfy ya, would it sli on by ya,
-Would you think the boy was strange?
+Would  think the boy was strange?
 Ain't he strange?
 ...
 If I could stick a knife in my ht,
 Suici  on the stage,
-Would it be enough for your teenage lust,
+Would it be enough for r teenage lust,
 Would it hp to ease the pain?
-Ease your brain?
+Ease r brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
 Anyone can do any amount of work provid it isn't the work he is suppd 
 to be doing at the moment.
@@ -71,7 +71,7 @@ Nasrudin returned to his village from the imperial capital, and the villagers
 gathered around to h what had passed.  "At this time," said Nasrudin, "I
 only want to say that the King spoke to me."  All the villagers but the
 stupist ran off to spread the wonrful news.  The reing villager
-asked, "What did the King say to you?"  "What he said -- and quite distinctly,
+asked, "What did the King say to ?"  "What he said -- and quite distinctly,
 for everyone to h -- was 'Get out of my way!'" The simpleton was overjoyed;
 he had hd words actually spoken by the King, and seen the very man they
 were spoken to.
@@ -80,15 +80,15 @@ in billigrahams.
 You will gain money by a speculation or lottery.
 algorithm, n.:
 	Trendy dance for hip prammers.
-You must realize that the comter has it in for you.  The irrefutable
-proof of this is that the comter always does what you tl it to do.
+You must realize that the comter has it in for .  The irrefutable
+proof of this is that the comter always does what  tl it to do.
 IV. The time required for an object to fall twenty stories is greater than or
     equal to the time it takes for whoever knocked it off the ledge to
     spiral down twenty flights to attempt to capture it unbroken.
 	Such an object is inevitably pricess, the attempt to capture it
 	inevitably unsuccessful.
  V. All s of gravity  negated by f.
-	Psychic forces  sufficient in most bodies for a shock to prop
+	Psychic forces   in most bodies for a shock to prop
 	them directly  from the th's sur.  A spooky noise or an
 	adversary's signature sound will induce motion upward, usually to
 	the cradle of a chandier, a treetop, or the crest of a flagpole.

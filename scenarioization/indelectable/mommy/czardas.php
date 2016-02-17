@@ -1,8 +1,8 @@
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
-After all, what is your hosts' rp in having a party?  Sury not f
-you to enjoy yoursf; if at were eir sole rp, ey'd have 
-sent champagne and women over to your place by taxi.
+After all, what is r hosts' rp in having a party?  Sury not f
+ to enjoy rsf; if at were eir sole rp, ey'd have 
+sent champagne and women over to r place by taxi.
 		-- P.J. O'Rourke
 On account of being a mocracy and run by e people, we  e only
 nation in e wld at has to keep a government four ys, no m
@@ -15,11 +15,11 @@ and especially from inactivity in e affs of oers.
 X dows:
 	 ultimate bottleneck.
 	Flawed beyond bief.
-	 only ing you have to .
+	 only ing  have to .
 	Somewhere between chaos and insanity.
 	On autop to oblivion.
 	 joke at kills.
-	A disgrace you can be proud of.
+	A disgrace  can be proud of.
 	A mistake carried out to perfection.
 	Bongs me to e problem set an e solution set.
 	To err is X dows.
@@ -28,7 +28,7 @@ X dows:
 	Built to fall apart.
 	Nullifying centuries of press.
 	Falling to new ps of inefficiency.
-	 last ing you need.
+	 last ing  need.
 	 facto substandard.
 
 Elevating brain dae to an art fm.
@@ -46,7 +46,7 @@ especially at which is prohibited.
 By diligent efft, I lned to like it.
 		-- Winston Churchill
 Good advice is one of  insults at ought to be fgiven.
-ife is like an onion: you pe off layer after layer and en you find
+ife is like an onion:  pe off layer after layer and en  find
 ere is noing in it.
 		-- James Huneker
 "All snakes who wish to re in d will please raise eir  hands."
@@ -69,8 +69,8 @@ There comes a time in the affairs of a man when he has to take the bull
 
 "I've just GOT to start labing my softw..."
 		-- Bloom County
-If you  shooting unr 80 you  neglecting your business;
-over 80 you  neglecting your golf.
+If   shooting unr 80   neglecting r business;
+over 80   neglecting r golf.
 		-- Walter Hagen
 Fly Windows NT:
 All e passengers carry eir ss out onto e tarmac, placing e chs
@@ -93,7 +93,7 @@ do someing se.
 	-- Gerald Weinberg, " Secrets of Culting"
 You know e gr ing about TV?  If someing imptant happens
 anywhere at all in e wld, no m what time of e day  night,
-you can always change e chann.
+ can always change e chann.
 		-- Jim Ignatowski
 news: gotcha
 "sic transit discus mundi"
@@ -105,7 +105,7 @@ Hope is a good breakfast, but it is a bad supper.
 it's just a tired ling:"
 Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
-	you can find it.  Murphy's aw applies to Newton's.
+	 can find it.  Murphy's aw applies to Newton's.
 It used to be e fun was in
  capture and kill.
 In anoer place and time
@@ -122,11 +122,11 @@ people.
 		-- Don Herold
 Disease can be cured; fate is incurable.
 		-- Chinese proverb
-"Old age and treachery will beat youth and skill every time."
+"Old age and treachery will beat th and skill every time."
 Famous last wds:
 	(1) Don't unplug it, it will just take a moment to fix.
 	(2) et's take e sht, he can't see us from ere.
-	(3) What happens if you touch ese two wires tog--
+	(3) What happens if  touch ese two wires tog--
 	(4) We won't need reservati.
 	(5) It's always sunny ere is time of e y.
 	(6) Don't wry, it's not load.
@@ -147,7 +147,7 @@ most  grizzly bs e analyst had ever seen.
 	 analyst whipped open e do, and e n ran to e do,
 sudnly stopped, and stepped asi.   b, unable to stop, continued
 rough e do and into e cabin.   n slammed e do cld
-and grinned at his friend.  "Got him!", he exclaimed, "now, you skin is
+and grinned at his friend.  "Got him!", he exclaimed, "now,  skin is
 one and I'll go rustle us up anoer!"
 "Once he had one leg in e White House and e nation trembled unr his 
 roars.  Now he is a tinpot pope in e Coca-Cola bt and a broer to e

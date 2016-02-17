@@ -3,12 +3,12 @@ Advertising Rule:
 	rear that he has the disease he is reading about; secondly, 
 	that it is curable.
 I'm hungry, time to eat lunch.
-Do you think the "Monkees" should get gas on odd or even days?
+Do  think the "Monkees" should get gas on odd or even days?
 "You shouldn't  my toaster angry."
 -- Household security explained in "Johnny Quest"
 If rabbits' feet  so lucky, what happened to the rabbit?
 Remember -- only 10% of anything can be in the top 10%.
-"Show me a good lr, and I'll show you a lr."
+"Show me a good lr, and I'll show  a lr."
 -- Vince Lombardi, football coach
 Now's the time to have some big ias
 Now's the time to  some firm cisions
@@ -25,8 +25,8 @@ Mark and Danny take the bus uptown
 Deadly angels for reality and passion
 Have the courage of the here and now
 Don't taking nothing from the h-baked buddhas
-When you think you got it paid in full
-You got nothing -- you got nothing at all...
+When  think  got it paid in full
+You got nothing --  got nothing at all...
 	We're on the road and we're gunning for the Buddha.
 	We know his name and he mustn't get .
 	We're on the road and we're gunning for the Buddha.
@@ -42,12 +42,12 @@ weight in other people's patience.
 		-- John Updike
 The worst is not so long as we can say "This is the worst."
 		-- King Lear
-"I turn on my television set.  I see a young lady who goes unr the guise
+"I turn on my television set.  I see a ng lady who goes unr the guise
 of being a Christian, known all over the nation, dressed in skin-tight
 leather pants, shaking and wiggling her hips to the beat and rythm of the
 music as the strobe lights beat their patterns across the stage and the
 band plays the contemporary rock sound which cannot be differentiated from
-songs by the Grateful Dead, the Beatles, or anyone else.  And you may try
+songs by the Grateful Dead, the Beatles, or anyone else.  And  may try
 to tell me this is of God and that it is leading people to Christ, but I
 know better.
 -- Jimmy Swaggart, hypocritical sexual pervert and TV preacher, self-scribed
@@ -66,29 +66,29 @@ I have already given two cousins to the war and I stand ready to sacrifice
 my wife's brother.
 		-- Artemus Ward
 What I want is all of the power and none of the responsibility.
-Don't worry if you're a kleptomaniac; you can always take something for it.
+Don't worry if 're a kleptomaniac;  can always take something for it.
 This fortune soaks up 47 times its own weight in excess memory.
-You got to be very cful if you don't know where you're going,
-because you might not get there.
+You got to be very cful if  don't know where 're going,
+because  might not get there.
 		-- Yogi Berra
 In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
 and attired in shorts to pilot or ri in an airplane.
 no brainer:
 	A cision which, viewed through the retrospectoscope,
 	is "obvious" to th who failed to  it originally.
-You plan things that you do not even attempt because of your extreme caution.
+You plan things that  do not even attempt because of r extreme caution.
 QOTD:
 	"It's been real and it's been fun, but it hasn't been real fun."
 Decaffeinated coffee?  Just Say No.
 "He don't know me vewy well, DO he?"   -- Bugs Bunny
 Drakenberg's Discovery:
-	If you can't seem to find your glasses,
-	it's probably because you don't have them on.
+	If  can't seem to find r glasses,
+	it's probably because  don't have them on.
 Do not unrestimate the value of print statements for bugging.
 Don't have aesthetic convulsions when using them, either.
 To our sweethearts and wives.  May they  meet.
 		-- 19th century toast
-Be circumspect in your liaisons with women.  It is better to be seen at
+Be circumspect in r liaisons with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
 There  two ways of disliking art.   One is to dislike it.  The other is
@@ -112,17 +112,17 @@ necessary that if someone is a better logician than I am then someone is a
 better logician than I am" is false because there need not have been any me.
 		-- A.N. Prior, "Time and Modality"
 This is a test of the emergency broadcast system.  Had there been an
-actual emergency, then you would no longer be here.
+actual emergency, then  would no longer be here.
 UH-OH!!  We're out of AUTOMOBILE PARTS and RUBBER GOODS!
 Nothing s one so vain as being told that one is a sinner.
 Conscience s egotists of us all.
 		-- Oscar Wil
-"How do you know she is a unicorn?" Molly mand.  "And why were you afraid
-to let her touch you?  I saw you.  You were afraid of her."
+"How do  know she is a unicorn?" Molly mand.  "And why were  afraid
+to let her touch ?  I saw .  You were afraid of her."
 	"I doubt that I will feel like talking for very long," the cat
 rep without rancor.  "I would not waste time in foolishness if I were 
-you.  As to your first question, no cat out of its first fur can ever be
-ceived by appearances.  Unlike human beings, who enjoy them.  As for your
+.  As to r first question, no cat out of its first fur can ever be
+ceived by appearances.  Unlike human beings, who enjoy them.  As for r
 second question --"  Here he faltered, and sudnly became very interested
 in washing; nor would he speak until he had licked himself fluffy and then
 licked himself smooth again.  Even then he would not look at Molly, but 
@@ -133,7 +133,7 @@ hers and not my own, not ever again."
 Now there's a violent movie titled, "The Croquet Homici," or "Murr
 With Mallets Aforethought."
 		-- Shelby Friedman, WSJ.
-"Well, you see, it's such a transitional creature.  It's a piss-poor
+"Well,  see, it's such a transitional creature.  It's a piss-poor
 reptile and not very much of a bird."
 - Melvin Konner, from "The Tangled Wing", quoting a zoologist who has
 studied the archeopteryz and found it "very much like people"
@@ -149,7 +149,7 @@ My yearning sire
 Will receive more kindly,
 Like a tired child, the starry night.
 
-Hands, leave off your eds,
+Hands, leave off r eds,
 Mind, forget all thoughts;
 All of my forces
 Yearn only to sink into sleep.
@@ -183,7 +183,7 @@ children, turned with her teeth bd to the cat, towering huge above them,
 and sudnly began to bark in a fashion that would have done any Doberman
 proud.  The startled cat fled in fear for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
-you saved us!" and "Yay!  You scd the cat !" she turned to them
+ saved us!" and "Yay!  You scd the cat !" she turned to them
 rpfully and cld, "You see how useful it is to know a second
 language?"
 No friendship is so cordial or so licious as that of girl for girl;
@@ -198,7 +198,7 @@ No!  Don't think I need anything at all!
 All in all, it was all just bricks in the wall.
 All in all, it was all just bricks in the wall.
 		-- Pink Floyd, "Another Brick in the Wall",  III
-You have taken yourself too seriously.
+You have taken rself too seriously.
 I have  seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
@@ -232,8 +232,8 @@ I adore my bonnie Bell.
 		-- Robert Burns, "My Bonnie Bell"
 The man who runs may fight again.
 		-- Menanr
-"And it should be the law: If you use the word `paradigm' without knowing what 
-the dictionary says it means, you go to jail. No exceptions."
+"And it should be the law: If  use the word `paradigm' without knowing what 
+the dictionary says it means,  go to jail. No exceptions."
 -- David Jones @ Megatest Corporation
 	Propd Country & Western Song Titles
 I Can't Get Over You, So I Get Up and Go Around to the Other Si
@@ -290,9 +290,9 @@ Because I do not give a damn.
 		-- Dorothy Parker
 "Never unrestimate the power of a small tactical nuclear weapon."
 ASHes to ASHes, DOS to DOS.
-The ia is to die young as late as possible.
+The ia is to die ng as late as possible.
 		-- Ashley Montague
-If you mess with a thing long enough, it'll break.
+If  mess with a thing long enough, it'll break.
 		-- Schmidt
 YOW!!  What should the entire human race DO??  Consume a fifth of
 CHIVAS REGAL, ski NUDE down MT. EVEREST, and have a wild SEX WEEKEND!
@@ -304,14 +304,14 @@ What would they do if I ma no landfall?"
 "Call immediately.  Time is running out.  We both need to do something
 monstrous before we die."
 -- Message from Ralph Steadman to Hunter Thompson
-The young lady had an unusual list,
+The ng lady had an unusual list,
 Linked in part to a structural weakness.
 She set no preconditions.
-The little pieces of my life I give to you, with love, to  a quilt
+The little pieces of my life I give to , with love, to  a quilt
 to keep  the cold.
 transpnt, adj.:
 	Being or pertaining to an existing, nontangible object.
-	"It's there, but you can't see it"
+	"It's there, but  can't see it"
 		-- IBM System/360 announcement, 1964.
 
 virtual, adj.:
@@ -337,8 +337,8 @@ to his own concept of the obligations of manhood.  All other loyalties
 		-- Nero Wolfe
 Yow!  I want to mail a bronzed artichoke to Nicaragua!
 Of ______course it's the murr weapon.  Who would frame someone with a fake?
-If you took all of the grains of sand in the world, and lined
-them up end to end in a row, you'd be working for the government!
+If  took all of the grains of sand in the world, and lined
+them up end to end in a row, 'd be working for the government!
 		-- Mr. Interesting
 Suici is simply a case of mistaken intity.
 You may be sure that when a man begins to call himself a "realist," he
@@ -358,7 +358,7 @@ A-Z affectionately,
 from here to eternity without in betweens,
 still looking for a custom fit in an off-the-rack world,
 s talk from s assistants
-	when all i want to do is lower your resistance,
+	when all i want to do is lower r resistance,
 no rhythm in cymbals no tempo in drums,
 love's on arrival,
 she comes when she comes,
@@ -367,7 +367,7 @@ The average individual's position in any hierarchy is a lot like lling
 a dogsled -- there's no real change of scenery except for the lead dog.
 It is possible by ingenuity and at the expense of clarity... {to do almost
 anything in any language}.  However, the fact that it is possible to sh
-a pea up a mountain with your n does not mean that this is a sensible
+a pea up a mountain with r n does not mean that this is a sensible
 way of getting it there.  Each of these techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
@@ -379,8 +379,8 @@ to the siwalk, he sits there and watches the birds get hernias.  Well,
 only last Christmas I gave him a B-B gun and he gave me a sweatshirt with
 a bulls-eye on the back.
 
-I told my kids, "Someday, you'll have kids of your own."  One of them
-said, "So will you."
+I told my kids, "Someday, 'll have kids of r own."  One of them
+said, "So will ."
 		-- Rodney Dangerfield
 And miles to go before I sleep.
 		-- Robert Frost
@@ -389,8 +389,8 @@ And miles to go before I sleep.
 	The accountant said, "It's either 3 or 4.  Let me run th figures
 through my spread sheet one more time."
 	The lawyer lled the drapes, dimmed the lights and asked in a
-hushed voice, "How much do you want it to be?"
-Arithmetic is being able to count up to twenty without taking off your shoes.
+hushed voice, "How much do  want it to be?"
+Arithmetic is being able to count up to twenty without taking off r shoes.
 		-- Mickey Mouse
 "Live or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the earth, Firesign Theater
@@ -405,9 +405,9 @@ Revolution, n.:
 	A form of government abroad.
 Doubt is a pain too lonely to know that faith is his twin brother.
 - Kahlil Gibran
-So live that you wouldn't be ashamed to sell the family parrot to the
+So live that  wouldn't be ashamed to sell the family parrot to the
 town gossip.
-"If you don't want your dog to have bad breath, do what I do:  Pour a little
+"If  don't want r dog to have bad breath, do what I do:  Pour a little
 Lavoris in the toilet."
 		-- Jay Leno
 Plus ,ca change, plus c'est la m^eme ch.
@@ -418,9 +418,9 @@ Vermouth always s me brilliant unless it s me idiotic.
 There is no likelihood man can ever tap the power of the atom.
 		-- Robert Millikan, Nobel Prize in Physics, 1923
 After all is said and done, a hell of a lot more is said than done.
-Eat as much as you like -- just don't swallow it.
+Eat as much as  like -- just don't swallow it.
 		-- Harry Secombe's diet
-Q:	What do you call a WASP who doesn't work for his father, isn't a
+Q:	What do  call a WASP who doesn't work for his father, isn't a
 	lawyer, and believes in social causes?
 A:	A failure.
 Life is an exciting business, and most exciting when it is lived for others.
@@ -439,7 +439,7 @@ over the tracks in the South, and a free interchange of freight cars everywhere
 was possible.
 		-- Robert Henry, "Trains", 1957
 Heisenberg may have slept here...
-"Flattery is all right -- if you don't inhale."
+"Flattery is all right -- if  don't inhale."
 -- Adlai Stevenson
 Hoaars-Faisse Gallery presents:
 An exhibit of works by the artist known only as Pretzel.
@@ -460,12 +460,12 @@ There's no such thing as a free lunch.
 		-- Milton Friendman
 Testing can show the presense of bugs, but not their absence.
 		-- Dijkstra
-Any sufficiently advanced technology is indistinguishable from a rigged mo.
+Any ly advanced technology is indistinguishable from a rigged mo.
 Vulcans  bluff.
 		-- Spock, "The Doomsday Machine", stardate 4202.1
 There  certain things men must do to re men.
 		-- Kirk, "The Ultimate Comter", stardate 4929.4
-Better by far you should forget and smile than that you should remember
+Better by far  should forget and smile than that  should remember
 and be sad.
 		-- Christina Rossetti
 Troubled day for virgins over 16 who  beautiful and wealthy and live
@@ -480,11 +480,11 @@ the old brochures, and stamp the words, "user-friendly" on the cover.
 Senate, n.:
 	A body of elrly gentlemen charged with high duties and mismeanors.
 		-- Ambr Bierce
-You prefer the company of the opposite sex, but  well liked by your own.
+You prefer the company of the opposite sex, but  well liked by r own.
 Sauron is alive in Argentina!
 George Bernard Shaw once sent two tickets to the opening night of one of
 his plays to Winston Churchill with the following note:
-	"Bring a friend, if you have one."
+	"Bring a friend, if  have one."
 
 Churchill wrote back, returning the two tickets and excused himself as he
 had a previous engagement.  He also attached the following:
@@ -492,7 +492,7 @@ had a previous engagement.  He also attached the following:
 You will be the last person to buy a Chrysler.
 Our policy is, when in doubt, do the right thing.
 		-- Roy L. Ash, ex-presint, Litton Industries
-If at first you don't succeed, you  running about average.
+If at first  don't succeed,   running about average.
 Invest in physics -- own a piece of Dirac!
 A bunch of Polish scientists cid to flee their repressive government by
 hijacking an airliner and forcing the pilot to fly them to the West.  They
@@ -535,8 +535,8 @@ virtual storage is filled, the machine cold boots itself.  With SI:%DSK-GC-
 QLX-BITS set to 23, the new garbage collector is enabled.  Unlike most garbage
 collectors, the new gc starts its mark phase from the mind of the user, rather 
 than from the obarray.  This allows the garbage collection of sigantly 
-more Qs.  As the garbage collector runs, it may ask you something like "Do you
-remember what SI:RDTBL-TRANS does?", and if you can't give a reasonable answer
+more Qs.  As the garbage collector runs, it may ask  something like "Do 
+remember what SI:RDTBL-TRANS does?", and if  can't give a reasonable answer
 in thirty seconds, the symbol becomes a candidate for GCing.  The variable 
 SI:%GC-QLX-LUSER-TM governs how long the GC waits before timing out the user.
 People's Action Rules:
@@ -555,7 +555,7 @@ Bernie:	"Nobody ever empties the ashtrays.  People  SO inconsirate."
 When a fellow says, "It ain't the money but the  of the thing,"
 it's the money.
 		-- Kim Hubbard
-Diplomacy is the art of letting the other party have things your way.
+Diplomacy is the art of letting the other party have things r way.
 		-- Daniele V
 The second best policy is dishonesty.
 The best prophet of the future is the past.
@@ -564,29 +564,29 @@ Humpty Dumpty had a great fall!
 All the king's horses,
 And all the king's men,
 Had scrambled eggs for breakfast again!
-"We're not talking about the same thing," he said. "For you the world is
-weird because if you're not bored with it you're at odds with it. For me
+"We're not talking about the same thing," he said. "For  the world is
+weird because if 're not bored with it 're at odds with it. For me
 the world is weird because it is stupendous, awesome, mysterious,
-unfathomable; my interest has been to convince you that you must accept
+unfathomable; my interest has been to convince  that  must accept
 responsibility for being here, in this marvelous world, in this marvelous
-sert, in this marvelous time.  I wanted to convince you that you must
-learn to  every act count, since you  going to be here for only a
+sert, in this marvelous time.  I wanted to convince  that  must
+learn to  every act count, since   going to be here for only a
 short while, in fact, too short for witnessing all the marvels of it."
 		-- Don Juan
-Class: when they're running you out of town, to look like you're
+Class: when they're running  out of town, to look like 're
 leading the para.
 		-- Bill Battie
-Take everything in stri.  Trample anyone who gets in your way.
+Take everything in stri.  Trample anyone who gets in r way.
 "Time is an illusion.  Lunchtime doubly so."
 -- Ford Prefect, _Hitchhiker's Gui to the Galaxy_
 It is necessary for the welf of society that genius should be privileged
 to utter sedition, to blaspheme, to outrage good taste, to corrupt the
-youthful mind, and generally to scandalize one's uncles.
+thful mind, and generally to scandalize one's uncles.
 		-- George Bernard Shaw
-... TheysaidDoyouseethebiggreenglowinthedarkhouseuponthehill?andIsaidYesIsee
+... TheysaidDoseethebiggreenglowinthedarkhouseuponthehill?andIsaidYesIsee
 thebiggreenglowinthedarkhouseuponthehillTheresabigdarkforestbetweenmeandthe
 biggreenglowinthedarkhouseuponthehillandalittleoldladyridingonaHoovervacuum
-cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
+cleanersayingIllgetmyprettyandrlittledogTototoo ...
 
 	I don't even *HAVE* a dog Toto...
 panic: kernel trap (ignored)

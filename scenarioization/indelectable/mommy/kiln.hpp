@@ -38,6 +38,6 @@ Commitment, n.:
 	illustrated by a breakfast of ham and eggs.  The chicken was
 	involved, the pig was committed.
 I'm having a MID-WEEK CRISIS!
-How can you be in two places at once when you're not anywhere at all?
-I never forget a face, but in your case I'll  an exception.
+How can  be in two places at once when 're not anywhere at all?
+I never forget a face, but in r case I'll  an exception.
 		-- Groucho Marx

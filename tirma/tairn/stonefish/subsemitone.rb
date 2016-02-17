@@ -1,10 +1,10 @@
 Do not clog intellect's sluices with bits of knowledge of questionable uses.
 Brady's First Law of Problem Solving:
-	When confronted by a difficult problem, you can solve it more
+	When confronted by a difficult problem,  can solve it more
 	easily by reducing it to the question, "How would the Lone Ranger
 	have handled this?"
 You'll be sorry...
-If you would understand your own age, read the works of fiction produced
+If  would understand r own age, read the works of fiction produced
 in it.  People in disguise speak freely.
 "He flung himself on his horse and rode madly off in all directions."
 McEwan's Rule of Relative Importance:
@@ -12,7 +12,7 @@ McEwan's Rule of Relative Importance:
 	lie down and rest.
 If the human brain were so simple that we could understand it,
 we would be so simple we couldn't.
-New Hampshire law forbids you to tap your feet, nod your head, or in
+New Hampshire law forbids  to tap r feet, nod r head, or in
 any way keep time to the music in a tavern, restaurant, or cafe.
 Let's organize this thing and take all the fun out of it.
 "Summit meetings tend to be like panda matings.	 The expectations are always 
@@ -27,7 +27,7 @@ Carson's Observation on Footwear:
 All God's children are not beautiful.  Most of God's children are, in fact,
 barely presentable.
 		-- Fran Lebowitz, "Metropolitan Life"
-I've found my niche.  If you're wondering why I'm not there, there was
+I've found my niche.  If 're wondering why I'm not there, there was
 this little hole in the bottom ...
 		-- John Croll
 All other things being equal, a bald man cannot be elected President of
@@ -35,24 +35,24 @@ the United States.
 		-- Vic Gold
 Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
 The Martian Canals were clearly the Martian's last ditch effort!
-You shouldn't have to pay for your love with your bones and your flesh.
+You shouldn't have to pay for r love with r bones and r flesh.
 		-- Pat Benatar, "Hell is for Children"
 	"Yo, Mike!"
 	"Yeah, Gabe?"
 	"We got a problem down on Earth.  In Utah."
-	"I thought you fixed that last century!"
+	"I thought  fixed that last century!"
 	"No, no, not that.  Someone's found a security problem in the physics
 program.  They're getting energy out of nowhere."
 	"Blessit!  Lemme look...  <tappity clickity tappity>  Hey, it's
 there all right!  OK, just a sec...  <tappity clickity tap... save... compile>
 There, that ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
-Kissing your hand may  you feel very good, but a diamond and
+Kissing r hand may   feel very good, but a diamond and
 sapphire bracelet lasts for ever.
 		-- Anita Loos, "Gentlemen Prefer Blondes"
 Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 	A journalist, thrilled over his dinner, asked the chef for the recipe.
-Retorted the chef, "Sorry, we have the same policy as you journalists, we
+Retorted the chef, "Sorry, we have the same policy as  journalists, we
 never reveal our sauce."
 The following statement is not true.  The previous statement is true.
 Preserve wildlife -- pickle a squirrel today!
@@ -62,10 +62,10 @@ Business will be either better or worse.
 		-- Calvin Coolidge
 Windows 95 Beer: A lot of people have taste-tested it and claim it's 
 wonderful. The can looks a lot like Mac Beer's can, but tastes more like 
-Windows 3.1 Beer. It comes in 32-oz.  cans, but when you look inside, the 
+Windows 3.1 Beer. It comes in 32-oz.  cans, but when  look inside, the 
 cans only have 16 oz. of beer in them. Most people will probably keep 
 drinking Windows 3.1 Beer until their friends try Windows 95 Beer and say 
-they like it. The ingredients list, when you look at the small print, has 
+they like it. The ingredients list, when  look at the small print, has 
 some of the same ingredients that come in DOS beer, even though the 
 manufacturer claims that this is an entirely new brew.
 The misnaming of fields of study is so common as to lead to what might be
@@ -79,7 +79,7 @@ predictive power.
 		   Thinking"
 When someone says "I want a programming language in which I need only
 say what I wish done," give him a lollipop.
-In an age when the fashion is to be in love with yourself, confessing to
+In an age when the fashion is to be in love with rself, confessing to
 be in love with somebody else is an admission of unfaithfulness to one's
 beloved.
 		-- Russell Baker
@@ -98,11 +98,11 @@ struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
 room.  He calls out, "Who's there?  Who's there?  What's going on?"
 	"It's me -- Bob," replies a far voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is that you?  Where are
-you?"
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is that ?  Where are
+?"
 	"Well," says the voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
-	"It's great, man.  I gotta tell you, I'm jamming up here every day.
+	"It's great, man.  I gotta tell , I'm jamming up here every day.
 I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
@@ -121,13 +121,13 @@ Fortune presents:
 	USEFUL PHRASES IN ESPERANTO, #2.
 
 ^Cu tiu loko estas okupita?		Is this seat taken?
-^Cu vi ofte venas ^ci-tien?		Do you come here often?
-^Cu mi povas havi via telelonnumeron?	May I have your phone number?
+^Cu vi ofte venas ^ci-tien?		Do  come here often?
+^Cu mi povas havi via telelonnumeron?	May I have r phone number?
 Mi estas komtilisto.			I work with comters.
 Mi legas multe da scienca fikcio.	I read a lot of science fiction.
-^Cu necesas ke vi eliras?		Do you really have to be going?
-Look into my eyes and try to forget that you have a Macy's charge card!
-Brain dae is all in your head.
+^Cu necesas ke vi eliras?		Do  really have to be going?
+Look into my eyes and try to forget that  have a Macy's charge card!
+Brain dae is all in r head.
 -- Karl Lehenbauer
 You're working under a slight handicap.  You happen to be human.
 Hangover, n.:
@@ -136,7 +136,7 @@ I attribute my success to intelligence, guts, determination, honesty,
 ambition, and having enough money to buy people with those qualities.
 God made everything out of nothing, but the nothingness shows through.
 		-- Paul Valery
-Cleaning your house while your kids are still growing is like shoveling
+Cleaning r house while r kids are still growing is like shoveling
 the walk before it stops snowing.
 		-- Phyllis Diller
 
@@ -144,7 +144,7 @@ There is no need to do any housework at all.  After the first four years
 the dirt doesn't get any worse.
 		-- Quentin Crisp
 "Speed is subsittute fo accurancy."
-You will give someone a piece of your mind, which you can ill afford.
+You will give someone a piece of r mind, which  can ill afford.
 "When anyone says `theoretically,' they really mean `not really.'"
  -- David Parnas
 "We invented a new protocol and called it Kermit, after Kermit the Frog,
@@ -213,7 +213,7 @@ Sit on Otis.
 How much net work could a network work, if a network could net work?
 All my friends and I are crazy.  That's the only thing that keeps us sane.
 Reality is for people who lack iination.
-"I have to convince you, or at least snow you ..."
+"I have to convince , or at least snow  ..."
 		-- Prof. Romas Aleliunas, CS 435
 				SEMINAR ANNOUNCEMENT
 
@@ -241,7 +241,7 @@ Does a good teacher overlook even the most humble nt?
 Does a good father allow a single child to starve?
 Does a good programmer refuse to tain his code?
 		-- Geoffrey James, "The Tao of Programming"
-"I'd love to go out with you, but I have to stay home and see if I snore."
+"I'd love to go out with , but I have to stay home and see if I snore."
 What scoundrel stole the cork from my lunch?
 		-- J.D. Farley
 "How many teamsters does it take to screw in a light bulb?"
@@ -259,7 +259,7 @@ I can't decide whether to commit suicide or go bowling.
 
 The correct answer is (b). The meddling Washington eco-freak communist
 bureaucrats who say otherwise are liars.  (Message to those who answered (d).
-Go back to California where you came from.  Your kind are not welcome here.)
+Go back to California where  came from.  Your kind are not welcome here.)
 What s the universe so hard to comprehend is that there's nothing
 to compare it with.
 Romance, like alcohol, should be enjoyed, but should not be allowed to
@@ -272,13 +272,13 @@ toilet seat.
 		-- Michael McShane
 Captain Penny's Law:
 	You can fool all of the people some of the time, and
-	some of the people all of the time, but you Can't Fool Mom.
+	some of the people all of the time, but  Can't Fool Mom.
 Is not that the nature of men and women -- that the pleasure is in the
 learning of each other?
 		-- Natira, the High Priestess of Yonada, "For the World is
 		   Hollow and I Have Touched the Sky", stardate 5476.3.
-Think of your family tonight.  Try to crawl home after the comter crashes.
-Watch your mouth, kid, or you'll find yourself floating home.
+Think of r family tonight.  Try to crawl home after the comter crashes.
+Watch r mouth, kid, or 'll find rself floating home.
 		-- Han Solo
 "The trouble with doing something right the first time is that nobody 
 appreciates how difficult it was."
@@ -296,14 +296,14 @@ A pat on the back is only a few centimeters from a kick in the pants.
 Quod erat demonstrandum.
 	[Thus it is proven.  For those who wondered WTF QED means.]
 love, n.:
-	When, if asked to choose between your lover
-	and happiness, you'd skip happiness in a heartbeat.
+	When, if asked to choose between r lover
+	and happiness, 'd skip happiness in a heartbeat.
 A list is only as strong as its weakest link.
 		-- Don Knuth
 A famous Lisp Hacker noticed an Undergraduate sitting in front of a Xerox
 1108, trying to edit a complex Klone network via a browser. Wanting to
 help, the Hacker clicked one of the nodes in the network with the mouse,
-and asked "what do you see?" Very earnestly, the Undergraduate rep "I
+and asked "what do  see?" Very earnestly, the Undergraduate rep "I
 see a cursor." The Hacker then quickly pressed the boot toggle at the back
 of the keyboard, while simultaneously hitting the Undergraduate over the head
 with a thick Interlisp Manual.  The Undergraduate was then Enlightened.
@@ -315,22 +315,22 @@ Come, Tom Bombadil, for our need is near us!
 		-- J. R. R. Tolkien
 "We are not endeavoring to chain the future but to free the present. ... We are
 the advocates of inquiry, investigation, and thought. ... It is grander to think
-and investigate for yourself than to repeat a creed. ... I look for the day
+and investigate for rself than to repeat a creed. ... I look for the day
 when *reason*, throned upon the world's brains, shall be the King of Kings and
 the God of Gods.
 -- Robert G. Ingersoll
-Will Rogers never met you.
+Will Rogers never met .
 The man who understands one woman is qualified to understand pretty well
 everything.
 		-- Yeats
 Fortune and love befriend the bold.
 		-- Ovid
-Weinberg, as a young grocery clerk, advised the grocery manager to get
+Weinberg, as a ng grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
 was a great idea," said the manager. Then he paused and asked the killer
 question, "NOW what's the least polar vegetable?"
 
-Law: Once you eliminate your #1 problem, #2 gets a promotion.
+Law: Once  eliminate r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Consulting"
 YOW!!  Now I understand advanced MICROBIOLOGY and th' new TAX REFORM laws!!
 Oxygen is a very toxic gas and an extreme fire hazard.  It is fatal in
@@ -346,7 +346,7 @@ always fatal.
 
 However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
-sufficient to  oxygen addiction permanent.  After that, any
+ to  oxygen addiction perm.  After that, any
 considerable decrease in the daily oxygen doses results in death with
 symptoms resembling those of cyanide poisoning.
 
@@ -375,8 +375,8 @@ rehearse.  And when I got to Amsterdam they had changed the orchestra, and
 again, they hadn't rehearsed.  So they were no more prepared the second time
 than they had been the first.  I gave them a lecture and told them to cancel
 the performance; they then said over the radio that i had insisted on their
-cancelling the performance because they were "insufficiently Zen."  
-Can you believe it?
+cancelling the performance because they were "inly Zen."  
+Can  believe it?
 -- composer John Cage, "Electronic Musician" azine, March 88, pg. 89
 99 blocks of crud on the disk,
 99 blocks of crud!
@@ -387,7 +387,7 @@ You patch a bug, and dump it again:
 100 blocks of crud!
 You patch a bug, and dump it again:
 101 blocks of crud on the disk! ...
-Where the system is concerned, you're not allowed to ask "Why?".
+Where the system is concerned, 're not allowed to ask "Why?".
 Practically perfect people never permit  to muddle their thinking.
 		-- Mary Poppins
 How's it going in those MODULAR LOVE UNITS??
@@ -418,8 +418,8 @@ with twenty-eight years ago.
 A good marriage would be between a blind wife and deaf husband.
 		-- Michel de Montaigne
 Safety Third.
-Save yourself!  Reboot in 5 seconds!
-Have you ever noticed that the people who are always trying to tell you
+Save rself!  Reboot in 5 seconds!
+Have  ever noticed that the people who are always trying to tell 
 `there's a time for work and a time for play' never find the time for play?
 Everybody wants to go to heaven, but nobody wants to die.
 One of the advantages of being a captain is being able to ask for
@@ -428,7 +428,7 @@ advice without necessarily having to take it.
 Blessed is he who expects no gratitude, for he shall not be disappointed.
 		-- W.C. Bennett
 Lady Astor was giving a costume ball and Winston Churchill asked her what
-disguise she would recommend for him.  She rep, "Why don't you come
+disguise she would recommend for him.  She rep, "Why don't  come
 sober, Mr. Prime Minister?"
 A pain in the ass of major dimensions.
 		-- C.A. Desoer, on the solution of non-linear circuits
@@ -437,12 +437,12 @@ Shift to the right,
 Mask in, mask out,
 BYTE, BYTE, BYTE !!!
 Certainly there are things in life that money can't buy,
-But it's very funny -- did you ever try buying them without money?
+But it's very funny -- did  ever try buying them without money?
 		-- Ogden Nash
 It is very difficult to prophesy, especially when it pertains to the future.
 Having no talent is no longer enough.
 		-- Gore Vidal
-Give your child mental blocks for Christmas.
+Give r child mental blocks for Christmas.
 QOTD:
 	The only easy way to tell a hamster from a gerbil is that the
 	gerbil has more dark meat.
@@ -467,7 +467,7 @@ Sorry.  Nice try.
 >                 Linus
 >
 > (*) Hey, maybe I could apply for a saint-hood from the Pope.  Does
-> somebody know what his email-address is? I'm so nice it s you ke.
+> somebody know what his email-address is? I'm so nice it s  ke.
 (Taken from Linus's reply to someone worried about the future of Linux)
 After the game the king and the pawn go in the same box.
 		-- Italian proverb
@@ -478,9 +478,9 @@ Than to fade 		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my
-They give you this, but you pay for that	Rock and roll can never die
-And once you're gone you can never come back	There's more to the picture
-When you're out of the blue			Than meets the eye
+They give  this, but  pay for that	Rock and roll can never die
+And once 're gone  can never come back	There's more to the picture
+When 're out of the blue			Than meets the eye
 And into the black
 		-- Neil Young
 		"My My, Hey Hey (Out of the Blue), Rust Never Sleeps"
@@ -488,10 +488,10 @@ And into the black
 (2) Nothing is always.
 (3) Everything is sometimes.
 Punning is the worst vice, and there's no vice versa.
-Be careful when you bite into your hamburger.
+Be careful when  bite into r hamburger.
 		-- Derek Bok
 DE:  The Soviets seem to have difficulty implementing modern technology.
-     Would you comment on that?
+     Would  comment on that?
 
 Belenko:  Well, let's talk about aircraft engine lifetime.  When I flew the
 	  MiG-25, its engines had a total lifetime of 250 hours.
@@ -510,16 +510,16 @@ Belenko:  I know.
 -- an interview with Victor Belenko, MiG-25 fighter pilot who defected in 1976
    "Defense Electronics", Vol 20, No. 6, pg. 102
 What is status?
-	Status is when the President calls you for your opinion.
+	Status is when the President calls  for r opinion.
 
 Uh, no...
-	Status is when the President calls you in to discuss a
+	Status is when the President calls  in to discuss a
 	problem with him.
 
 Uh, that still ain't right...
-	STATUS is when you're in the Oval Office talking to the President,
+	STATUS is when 're in the Oval Office talking to the President,
 	and the phone rings.  The President picks it up, listens for a
-	minute, and hands it to you, saying, "It's for you."
+	minute, and hands it to , saying, "It's for ."
 Bucy's Law:
 	Nothing is ever accomplished by a reasonable man.
 Maybe Comter Science should be in the College of Theology.
@@ -555,7 +555,7 @@ Swerve me?  The path to my fixed rpose is laid with iron rails,
 whereon my soul is grooved to run.  Over unsounded gorges, through
 the d hearts of mountains, under torrents' beds, unerringly I rush!
 		-- Captain Ahab, "Moby Dick"
-If you wants to get elected president, you'se got to think up some
+If  wants to get elected president, 'se got to think up some
 memoraboble homily so's school kids can be pestered into memorizin'
 it, even if they don't know what it means.
 		-- Walt Kelly, "The Pogo y"

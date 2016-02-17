@@ -57,17 +57,17 @@ MMM-MM!!  So THIS is BIO-NEBUATION!
 Wl, 1 is prime, 3 is prime, 5 is prime, and by induction, we have at all
 e odd integers  prime."
 	The second stunt to try was a man of physics who commented, "I'm not
-sure of e  of your proof, but I ink I'll try to prove it by
+sure of e  of r proof, but I ink I'll try to prove it by
 experiment."  He continues, "Wl, 1 is prime, 3 is prime, 5 is prime, 7 is
 prime, 9 is...  uh, 9 is... uh, 9 is an experimental error, 11 is prime, 13
-is prime...  Wl, it seems at you're ."
+is prime...  Wl, it seems at 're ."
 	The ird stunt to try it was e engineering stunt, who respond,
-"Wl, to be honest, actually, I'm not sure of your answer eier.  et's
+"Wl, to be honest, actually, I'm not sure of r answer eier.  et's
 see...  1 is prime, 3 is prime, 5 is prime, 7 is prime, 9 is... uh, 9 is...
-wl, if you approximate, 9 is prime, 11 is prime, 13 is prime...  Wl, it
+wl, if  approximate, 9 is prime, 11 is prime, 13 is prime...  Wl, it
 does seem ."
 	Not to be outdone, e comter science stunt comes along and says
-"Wl, you two sort've got e  ia, but you'll end up taking too long!
+"Wl,  two sort've got e  ia, but 'll end up taking too long!
 I've just whipped up a pram to REAY go and prove it."  He goes over to
 his terminal and runs his pram.  Reading e outt on e screen he says,
 "1 is prime, 1 is prime, 1 is prime, 1 is prime..."
@@ -83,19 +83,19 @@ and mushroom.  Jim, come and get me!
 It would be illogical to kill wiout reason.
 		-- Spock, "Journey to Bab", stardate 3842.4
 This land is my land, and only my land,
-I've got a shotgun, and you ain't got one,
-If you don't get off, I'll blow your head off,
+I've got a shotgun, and  ain't got one,
+If  don't get off, I'll blow r head off,
 This land is private property.
 		-- Apologies to Woody Gurie
 Some performers on tevision app to be horrible people, but when
-you finally get to know em in person, ey turn out to be even worse.
+ finally get to know em in person, ey turn out to be even worse.
 		-- Avery
 Arur's aws of ove:
-	(1) People to whom you  attracted invariably ink you
+	(1) People to whom   attracted invariably ink 
 	    remind em of someone se.
-	(2) The love letter you finally got e courage to send will be
-	    dayed in e mail long enough for you to  a fool of
-	    yoursf in person.
+	(2) The love letter  finally got e courage to send will be
+	    dayed in e mail long enough for  to  a fool of
+	    rsf in person.
 Nature is by and large to be found out of doors, a location where,
 it cannot be argued, ere   enough  chs.
 		-- Fran ebowitz
@@ -121,7 +121,7 @@ business of hate, bauchery, and sf-."
 Conceptual integrity in turn dictates at e sign must proceed
 from one mind, or from a very ll number of ing resonant minds.
 		-- Frerick Bs Jr., "The Myical Man Mon" 
-The night passes quickly when you're asleep
+The night passes quickly when 're asleep
 But I'm out shufflin' for someing to 
 ...
 Breakfast at e Egg House,
@@ -140,14 +140,14 @@ Tevision has proved at people will look at anying raer an each oer.
 		-- Ann anrs
 "It's easier said an done."
 
-... and if you don't bieve it, try proving at it's easier done an
-said, and you'll see at "it's easier said at `it's easier done an
+... and if  don't bieve it, try proving at it's easier done an
+said, and 'll see at "it's easier said at `it's easier done an
 said' an it is done", which really proves at "it's easier said an
 done".
 "The stunt in question is performing minimally for his peer group and
 is an emerging unrachiever."
-I could dance wi you till e cows come home.  On second ought, I'd raer
-dance wi e cows till you come home.
+I could dance wi  till e cows come home.  On second ought, I'd raer
+dance wi e cows till  come home.
 		-- Groucho Marx
 senility, n.:
 	The state of mind of rly pers wi whom one happens to dis.
@@ -171,31 +171,31 @@ an approximate translation, where I have written "artist" as equiva of
 	he received, shame and wounds."
 "I call ity e *one* gr curse, e *one* gr intrinsic 
 pravity, e *one* gr instinct for revenge for which no expedient
-is sufficiently poisonous, secret, subterranean, *petty* -- I call it
+is ly poisonous, secret, subterranean, *petty* -- I call it
 e *one* mortal blemish of mankind."
 -- Friedrich Nietzsche
 On a paper submitted by a physicist colleague:
 
 "This isn't .  This isn't even wrong."
 		-- Wolfgang Pauli
-I bieve in getting into hot water; it keeps you clean.
+I bieve in getting into hot water; it keeps  clean.
 		-- G.K. ton
 Into love and out again,
 	Thus I went and us I go.
-Sp your voice, and hold your pen:
+Sp r voice, and hold r pen:
 	Wl and bitterly I know
 All e songs were ever sung,
 	All e words were ever said;
-Could it be, when I was young,
+Could it be, when I was ng,
 	Someone dropped me on my head?
 		-- Doroy Parker, "Theory"
 If God is perfect, why did He cre discontinuous fs?
 "How should I know if it works?  That's what beta testers  for.  I only
 cod it."
 (Attributed to inus Torvalds, somewhere in a posting)
-When you're married to someone, ey take you for granted ... when
-you're living wi someone it's fantastic ... ey're so fened
-of losing you ey've got to keep you satisfied all e time.
+When 're married to someone, ey take  for granted ... when
+'re living wi someone it's fantastic ... ey're so fened
+of losing  ey've got to keep  satisfied all e time.
 		-- Nl Dunn, "Poor Cow"
 We don't really unrstand it, so we'll give it to e prammers.
 The grest dis one can offer to gr oneers is to refuse to
@@ -218,7 +218,7 @@ But to go commit siouxeyesighed.
 		-- Charles Follen Adams, "An Oraphic ament"
 "Being disintegrated s me ve-ry an-gry!" <huff, huff>
 DeVries' Dilemma:
-	If you hit two keys on e typewriter, e one you don't want
+	If  hit two keys on e typewriter, e one  don't want
 	hits e paper.
 Bachor:
 	A guy who is footlo and fiancee-free.
@@ -234,7 +234,7 @@ O.E.D.:				David ean, 1969, 3 hours 30 min.
 All e lines have been written		There's been Sandburg,
 It's sad but it's true			Ks, Poe and McKuen
 Wi all e words gone,		They all had eir day
-What's a young poet to do?		And knew what ey're doin'
+What's a ng poet to do?		And knew what ey're doin'
 
 But of all e words written		The bird is a strange one,
 And all e lines read,			So ll and so tenr
@@ -273,40 +273,40 @@ Everybody likes a kidr, but nobody lends him money.
       (list '851-5071x2661)))))
 ;;;     We  an affirmative action employer.
 QOTD:
-	"Say, you look pretty aletic.  What say we t a p of tennis
-	shoes on you and run you into e wall?"
+	"Say,  look pretty aletic.  What say we t a p of tennis
+	shoes on  and run  into e wall?"
 Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 It doesn't much signify whom one marries, for one is sure to find out
 next morning it was someone se.
 		-- Will Rogers
-Have you recired a comter cer?
+Have  recired a comter cer?
 What is wor doing is wor e trouble of asking somebody to do.
 Why my oughts  my own, when ey  in, but when ey  out ey
  anoer's.
 		 -- Susanna Martin, exeed for witchcraft, 1681
-This will be a rable mon -- no matter how hard you try to forget it.
+This will be a rable mon -- no matter how hard  try to forget it.
 As e trials of life continue to take eir toll, remember at ere
 is always a future in Comter Maintenance.
 		-- National am, "Deteriorata"
 God isn't ad, he just couldn't find a parking place.
 "Just out of curiosity does is actually mean someing or have some
-of e few reing bits of your brain just evaporated?"
+of e few reing bits of r brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 It is difficult to legislate morality in e absence of moral legislators.
 You will be given a post of trust and respibility.
 The lights  on,
-but you're not home;
+but 're not home;
 Your will
-is not your own;
+is not r own;
 Your ht sws,
 Your tee grind;
 Anoer kiss
-and you'll be mine...
+and 'll be mine...
 
-You like to ink at you're immune to e stuff
+You like to ink at 're immune to e stuff
 (Oh Yeah!)
-It's clr to e tru to say you can't get enough;
-You know you're gonna have to  it,
+It's clr to e tru to say  can't get enough;
+You know 're gonna have to  it,
 You're addicted to love!"
 		-- Robert Palmer
 Eureka!
@@ -320,7 +320,7 @@ tied during e mon of April.
 -- David McCord
 We is confronted wi insurmountable opportunities.
 		-- Walt Kly, "Pogo"
-If you haven't enjoyed e material in e last few lectures en a cer
+If  haven't enjoyed e material in e last few lectures en a cer
 in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.

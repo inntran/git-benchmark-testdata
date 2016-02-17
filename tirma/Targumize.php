@@ -1,5 +1,5 @@
 Pete:	Waiter, this meat is bad.
-Waiter:	Who told you?
+Waiter:	Who told ?
 Pete:	A little swallow.
 Certain passages in several laws have always fied interpretation and the
 most inexplicable must be a matter of opinion.  A judge of the Court of
@@ -30,7 +30,7 @@ I have an existential map.  It has "You  here" written all over it.
 Conformity is the refuge of the uniinative.
 question = ( to ) ? be : ! be;
 		-- Wm. Shakespe
-Having a baby isn't so bad.  If you're a female Emperor penguin in the
+Having a baby isn't so bad.  If 're a female Emperor penguin in the
 Antarctic.  She lays the egg, rolls it over to the father, then takes off
 for warmer weather where she eats and eats and eats.  For two months, the
 father stands stiff, without food, blind in the 24-hour dark, balancing
@@ -44,8 +44,8 @@ I don't do it for the money.
 Every word is like an unnecessary stain on silence and nothingness.
 		-- ett
 Justice, n.:
-	A cision in your favor.
-The eyes of taxes  upon you.
+	A cision in r favor.
+The eyes of taxes  upon .
 Shannon's Observation:
 	Nothing is so frustrating as a bad situation that is beginning to
 	improve.
@@ -67,7 +67,7 @@ slow march of intelligence has brought us, in our generation, to a point
 from which we can explore and unrstand and utilize it. To turn back now
 would be to  our history, our capabilities.
 		-- James A. Michener
-You could live a better life, if you had a better mind and a better body.
+You could live a better life, if  had a better mind and a better body.
 Work was impossible.  The geeks had broken my spirit.  They had done too
 many things wrong.  It was  like this for Mencken.  He lived like
 a Prussian gambler -- sweating worse than Bryan on some nights and drunker
@@ -107,14 +107,14 @@ When I asked him why he dressed
 With forty pounds of headlines 
 Stapled to his chest.
 But he cursed me when I proved to him
-I said, "Not even you can hi.
-You see, you're just like me.
-I hope you're satisfied."
+I said, "Not even  can hi.
+You see, 're just like me.
+I hope 're satisfied."
 		-- Bob Dylan
 It's no longer a question of staying healthy.  It's a question of finding
-a sickness you like.
+a sickness  like.
 		-- Jackie Mason
-ove your neighbour, yet don't ll down your hedge.
+ove r neighbour, yet don't ll down r hedge.
 		-- Benjamin Franklin
 My central memory of that time seems to hang on one or five or maybe forty
 nights -- or very ly mornings -- when I left the Fillmore h-crazy and,
@@ -158,12 +158,12 @@ Some think it is the voice of God.
 et's send the Russians fective lifestyle accessories!
 Q:	How many lawyers does it take to change a light bulb?
 A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+	're looking for a lawyer to screw a light bulb...
 Question: Is it better to abi by the rules until they're changed or
 help speed the change by breaking them?
 You may easily play a joke on a man who likes to argue -- agree with him.
 		-- Ed Howe
-You will forget that you ever knew me.
+You will forget that  ever knew me.
 I generally avoid temptation unless I can't resist it.
 		-- Mae West
 Unr a government which impris any unjustly, the true place for a
@@ -183,20 +183,20 @@ have ma them cute and furry.
 All theoretical chemistry is really physics; and all theoretical chemists 
 know it.
 		-- Richard P. Feynman
-Q:	How many elephants can you fit in a VW Bug?
+Q:	How many elephants can  fit in a VW Bug?
 A:	Four.  Two in the front, two in the back.
 
-Q:	How can you tell if an elephant is in your refrigerator?
+Q:	How can  tell if an elephant is in r refrigerator?
 A:	There's a footprint in the mayo.
 
-Q:	How can you tell if two elephants  in your refrigerator?
+Q:	How can  tell if two elephants  in r refrigerator?
 A:	There's two footprints in the mayo.
 
-Q:	How can you tell if three elephants  in your refrigerator?
+Q:	How can  tell if three elephants  in r refrigerator?
 A:	The door won't shut.
 
-Q:	How can you tell if four elephants  in your refrigerator?
-A:	There's a VW Bug in your driveway.
+Q:	How can  tell if four elephants  in r refrigerator?
+A:	There's a VW Bug in r driveway.
 Comter science:
 	(1) A study akin to numerology and astrology, but lacking the
 	   precision of the former and the success of the latter.
@@ -207,12 +207,12 @@ Comter science:
 	(6) The Post-Turing cline in formal systems theory.
 	In the days when Sussman was a novice Minsky once came to him as he
 sat hacking at the PDP-6.
-	"What  you doing?", asked Minsky.
+	"What   doing?", asked Minsky.
 	"I am training a randomly wired neural net to play Tic-Tac-Toe."
 	"Why is the net wired randomly?", inquired Minsky.
 	"I do not want it to have any preconcepti of how to play".
 	At this Minsky shut his eyes, and Sussman asked his teacher "Why do
-you cl your eyes?"
+ cl r eyes?"
 	"So that the room will be empty."
 	At that momment, Sussman was enlightened.
 War is like love, it always finds a way.
@@ -233,7 +233,7 @@ my soul.  At flood ti I returned to read what I had inscribed and found my
 ignorance upon the shore.
 		-- Kahlil Gibran
 Here there be tygers.
-If you steal from one author it's plagiarism; if you steal from
+If  steal from one author it's plagiarism; if  steal from
 many it's resch.
 		-- Wilson Mizner
 The geographical center of Boston is in Roxbury.  Due north of the
@@ -247,18 +247,18 @@ Hand, n.:
 QOTD:
 	Talk about willing people... over h of them  willing to work
 	and the others  more than willing to watch them.
-A budget is just a method of worrying before you spend money, as well
+A budget is just a method of worrying before  spend money, as well
 as afterward.
 How wonrful opera would be if there were no singers.
 Concept, n.:
-	Any "ia" for which an outsi cultant billed you more than
+	Any "ia" for which an outsi cultant billed  more than
 	$25,000.
 It is easier to fight for one's s than to live up to them.
 		-- Alfred Adler
 You will inherit some money or a small piece of land.
 He's ad, Jim.
 		-- McCoy, "The Devil in the Dark", stardate 3196.1
-You will be imprisoned for contributing your time and skill to a bank robbery.
+You will be imprisoned for contributing r time and skill to a bank robbery.
 The connection between the language in which we think/pram and the problems
 and soluti we can iine is very cl.  For this reason restricting
 language features with the intent of eliminating prammer errors is at best
@@ -275,7 +275,7 @@ Stretchy tapes and snarley tapes
 And tapes mixed up on the racks --
 	Take hold of the tape
 	And ll off the strip,
-	And then you'll be sure
+	And then 'll be sure
 	Your tape drive will s.
 		-- Uncle Colonel's Cursory Rhymes
 The universe does not have laws -- it has habits, and habits can be broken.
@@ -288,7 +288,7 @@ can't talk for people who can't read.
 Been Transferred ately?
 I  met a man I didn't want to fight.
 		-- yle Alzado, professional football lineman
-ife is like an egg stain on your chin -- you can lick it, but it still
+ife is like an egg stain on r chin --  can lick it, but it still
 won't go .
 I accept chaos.  I am not sure whether it accepts me.  I know some people
  terrified of the bomb.  But then some people  terrified to be seen
@@ -301,23 +301,23 @@ memo, n.:
 	An interoffice communication too often written more for the benefit
 	of the person who sends it than the person who receives it.
 Hi! How  things going?
-	(just fine, thank you...)
-Great! Say, could I bother you for a question?
-	(you just asked one...)
+	(just fine, thank ...)
+Great! Say, could I bother  for a question?
+	( just asked one...)
 Well, how about one more?
 	(one more than the first one?)
 Yes.
-	(you already asked that...)
+	( already asked that...)
 [at this point, Alpho gets smart...	]
 May I ask two questi, sir?
 	(no.)
 May I ask ONE then?
 	(nope...)
-Then may I ask, sir, how I may ask you a question?
-	(yes, you may.)
-Sir, how may I ask you a question?
-	(you must ask for retroactive question asking privileges for
-	 the number of questi you have asked, then ask for that
+Then may I ask, sir, how I may ask  a question?
+	(yes,  may.)
+Sir, how may I ask  a question?
+	( must ask for retroactive question asking privileges for
+	 the number of questi  have asked, then ask for that
 	 number plus two, one for the current question, and one for the
 	 next one)
 Sir, may I ask nine questi?
@@ -333,21 +333,21 @@ undreamed of by its author.
 Comter Science is the only discipline in which we view adding a new wing
 to a building as being tenance
 		-- Jim Horning
-What you don't know won't help you much either.
+What  don't know won't help  much either.
 		-- D. Bennett
 How many QA engineers does it take to screw in a lightbulb?
 
-3: 1 to screw it in and 2 to say "I told you so" when it doesn't work.
+3: 1 to screw it in and 2 to say "I told  so" when it doesn't work.
 The shortest distance between any two ns is a straight line.
 Biology is the only science in which multiplication means the same thing
 as division.
 Humor in the Court:
-Q: So, after the , when you came out of it, what did you observe
-   with respect to your scalp?
+Q: So, after the , when  came out of it, what did  observe
+   with respect to r scalp?
 A: I didn't see my scalp the whole time I was in the hospital.
 Q: It was covered?
 A: Yes, bandaged.
-Q: Then, later on.. what did you see?
+Q: Then, later on.. what did  see?
 A: I had a skin graft. My whole buttocks and leg were removed and t on top
    of my head.
 There's no real need to do housework -- after four ys it doesn't get
@@ -361,12 +361,12 @@ A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 	like some condoms," and then, leaning over the counter, whispers,
 	"and some cigttes."
 My analyst told me that I was  out of my head,
-	But I said, "D Doctor, I think that it is you instead.
+	But I said, "D Doctor, I think that it is  instead.
 Because I have got a thing that is unique and new,
-	To prove it I'll have the last laugh on you.
+	To prove it I'll have the last laugh on .
 'Cause instead of one head -- I've got two.
 
-And you know two heads  better than one.
+And  know two heads  better than one.
 Never  anything simple and efficient when a way can be found to
  it complex and wonrful.
 You will be Told about it Tomorrow.  Go Home and Prep Thyself.
@@ -374,20 +374,20 @@ Woman was God's second mistake.
 		-- Nietzsche
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
-Thinking you know something is a sure way to blind yourself.
+Thinking  know something is a sure way to blind rself.
 		-- Frank Herbert, "Chapterhouse: Dune"
-I think your opini  reasonable, except for the one about my mental
+I think r opini  reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Texas A&M football coach Jackie Sherrill went to the office of the Dean
 of Acamics because he was concerned about his players' mental abilities.
 "My players  just too stupid for me to al with them", he told the
 unbelieving an.  At this point, one of his players happened to enter
-the an's office.  "et me show you what I mean", said Sherrill, and he
+the an's office.  "et me show  what I mean", said Sherrill, and he
 told the player to run over to his office to see if he was in.  "OK, Coach",
 the player rep, and was off.  "See what I mean?" Sherrill asked.
 "Yeah", rep the an.  "He could have just picked up this phone and
-called you from here."
+called  from here."
 The one sure way to  a lazy man look respectable is to t a fishing
 rod in his hand.
 Violence is molding.
@@ -403,11 +403,11 @@ they might force their beliefs on us.
 Captain Penny's aw:
 	You can fool all of the people some of the
 	time, and some of the people all of the
-	time, but you can't fool mom.
-A prisoner of war is a man who tries to kill you and fails, and then
-asks you not to kill him.
+	time, but  can't fool mom.
+A prisoner of war is a man who tries to kill  and fails, and then
+asks  not to kill him.
 		-- Sir Winston Churchill, 1952
-Every time you manage to cl the door on Reality, it comes in through the
+Every time  manage to cl the door on Reality, it comes in through the
 window.
 An elephant is a mouse with an operating system.
 "You can't expect a mother to be with a small child all the time," Margt
@@ -460,7 +460,7 @@ History is the version of past events that people have cid to agree on.
 		-- Napoleon Bonaparte, "Maxims"
 One good reason why comters can do more work than people is that they
  have to stop and answer the phone.
-Silence is the only virtue you have left.
+Silence is the only virtue  have left.
 Q:	What do Winnie the Pooh and John the Baptist have in common?
 A:	The same middle name.
 If all the seas were ink,
@@ -486,9 +486,9 @@ for into darkness fell his star
 in Mordor where the shadows .
 		-- J. R. R. Tolkien
 Never eat at a place called Mom's.  Never play cards with a man named Doc.
-And  lie down with a woman who's got more troubles than you.
+And  lie down with a woman who's got more troubles than .
 		-- Nelson Algren, "What Every Young Man Should Know"
-You know that feeling when you're leaning back on a stool and it starts to tip 
+You know that feeling when 're leaning back on a stool and it starts to tip 
 over?  Well, that's how I feel all the time.
 -- Steven W
 I'm GAD I remembered to XEROX all my UNDERSHIRTS!!
@@ -499,7 +499,7 @@ Hurewitz's Memory Principle:
 	The chance of forgetting something is directly proportional
 	to... to... uh.....
 I love being married.  It's so great to find that one special person
-you want to annoy for the rest of your life.
+ want to annoy for the rest of r life.
 		-- Rita Rudner
 Try not.
 Do.
@@ -540,15 +540,15 @@ Q:	Minnesotans ask, "Why n't there more pharmacists from Alabama?"
 A:	Easy.  It's because they can't  out how to get the little
 	bottles into the typewriter.
 Hempstone's Question:
-	If you have to travel on the Titanic, why not go first class?
+	If  have to travel on the Titanic, why not go first class?
 Yow!  Th people look exactly like Donnie and Marie Osmond!!
 DON'T go!!  I'm not HOWARD COSE!!  I know POISH JOKES ... WAIT!!
 Don't go!!  I AM Howard Cll! ... And I DON'T know Polish jokes!!
-You will have a long and unpleasant discussion with your supervisor.
+You will have a long and unpleasant discussion with r supervisor.
 He played the king as if afraid someone else would play the ace.
 		-- John Mason Brown, drama critic
-If you can't unrstand it, it is intuitively obvious.
-If you marry a man who cheats on his wife, you'll be married to a man who
+If  can't unrstand it, it is intuitively obvious.
+If  marry a man who cheats on his wife, 'll be married to a man who
 cheats on his wife.
 		-- Ann anrs
 		Accints cause History.
@@ -570,7 +570,7 @@ Even with Kiner hitting and a change to win the game with a home run, Brandy
 took off for second and ma it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
 start to take a lead.  All of a sudn, here he comes.  He s a great sli
-into third, and I scream, "Brandy, where  you going?"  He looks up, and
+into third, and I scream, "Brandy, where   going?"  He looks up, and
 shouts, "Back to second if I can  it."
 		-- Joe Garala, "It's Anybody's Ball Game"
 Morn art is what happens when painters stop looking at girls and persua
@@ -580,8 +580,8 @@ Digital circuits  ma from analog parts.
 		-- Don Vonada
 An effective way to al with predators is to taste terrible.
 The sheep died in the wool.
-If you  too busy to read, then you  too busy.
-If your happiness pends on what somebody else does, I guess you do
+If   too busy to read, then   too busy.
+If r happiness pends on what somebody else does, I guess  do
 have a problem.
 		-- Richard Bach, "Illusi"
 Remember: Silly is a state of Mind, Stupid is a way of ife.
@@ -597,14 +597,14 @@ argument about what I cired an Odd number.
 	"Whattaya need?"
 	"How about an eye?"
 		-- Sam Giancana
-"If you lived today as if it were your last, you'd buy up a box of rockets and 
-fire them all off, wouldn't you?"
+"If  lived today as if it were r last, 'd buy up a box of rockets and 
+fire them all off, wouldn't ?"
 -- Gon Keillor
 A would-be disciple came to Nasrudin's hut on the mountain-si.  Knowing
 that every action of such an enlightened one is sigant, the seeker
-watched the teacher clly.  "Why do you blow on your hands?"  "To warm
+watched the teacher clly.  "Why do  blow on r hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
-and the newcomer, and blew on his own.  "Why  you doing that, Master?"
+and the newcomer, and blew on his own.  "Why   doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
 to arrive at two different results -- hot and cold -- the disciple parted.
 "I'll rob that rich person and give it to some poor serving .

@@ -5,11 +5,11 @@ Kindness is a language which the deaf can hear and the blind can read.
  be attained in our spontaneous -- ergo, most economical -- geodesiccally 
  structured thoughts."
 -- R. Buckminster Fuller [...and a total nonsequitur as far as I can tell.  -kl]
-Telling the truth to people who misunderstand you is generally promoting
+Telling the truth to people who misunderstand  is generally promoting
 a falsehood, isn't it?
 		-- A. Hope
-He didn't run for reelection.  "Politics brings you into contact with all
-the people you'd give anything to avoid," he said. "I'm staying home."
+He didn't run for reelection.  "Politics brings  into contact with all
+the people 'd give anything to avoid," he said. "I'm staying home."
 		-- Garrison Keillor, "Lake Wobegone Days"
 "Gravitation cannot be held responsible for people falling in love."
 -- Albert Einstein
@@ -27,7 +27,7 @@ So I went to the kitchen, but WALNUT PANELING whup me upside mah HAID!!
     (on no, no, no..  Heh, heh)
 You can fool some of the people all of the time,
 and all of the people some of the time,
-but you can  a fool of yourself anytime.
+but  can  a fool of rself anytime.
 If two people love each other, there can be no happy end to it.
 		-- Ernest Hemingway
 Comters are unreliable, but humans are even more unreliable.
@@ -91,8 +91,8 @@ You will find me drinking gin
 In the lowest kind of inn,
 Because I am a rigid Vegetarian.
 		-- G.K. Chesterton
-"I see little divinity about them or you.  You talk to me of Christianity
-when you are in the act of hanging your enemies.  Was there ever such
+"I see little divinity about them or .  You talk to me of Christianity
+when  are in the act of hanging r enemies.  Was there ever such
 blasphemous nonsense!"
 -- Shaw, "The Devil's Disciple"
 Proposed Additions to the PDP-11 Instruction Set:
@@ -123,12 +123,12 @@ the sport, he should take care to avoid mistakes.  The dog has certain
 relationships to the wolf the shepherd may have forgotten.
 		-- Robert Pirsig, "Zen and the Art of Motorcycle Maintenance"
 Everybody is given the same amount of hormones, at birth, and
-if you want to use yours for growing hair, that's fine with me.
-When you find yourself in danger,
-When you're threatened by a stranger,
-When it looks like you will take a lickin'...
+if  want to use rs for growing hair, that's fine with me.
+When  find rself in danger,
+When 're threatened by a stranger,
+When it looks like  will take a lickin'...
 
-There is one thing you should learn,
+There is one thing  should learn,
 When there is no one else to turn to,
 	Caaaall for Super Chicken!!    (**bwuck-bwuck-bwuck-bwuck**)
 	Caaaall for Super Chicken!!
@@ -137,18 +137,18 @@ C'est nifique, mais ce n'est pas l'Informatique.
 If two wrongs don't  a right, try three.
 		-- Laurence J. Peter
 X windows:
-	Something you can be ashamed of.
+	Something  can be ashamed of.
 	30% more entropy than the leading window system.
 	The first fully modular software disaster.
 	Rome was destroyed in a day.
-	Warn your friends about it.
+	Warn r friends about it.
 	Climbing to new depths.  Sinking to new heights.
 	An accident that couldn't wait to happen.
 	Don't wait for the movie.
 	Never use it after a big meal.
 	Need we say less?
 	Plumbing the depths of human incompetence.
-	It'll  your day.
+	It'll  r day.
 	Don't get frustrated without it.
 	Power tools for power losers.
 	A software disaster of Biblical proportions.
@@ -194,13 +194,13 @@ together, and say nothing.  After years of interacting with this other man,
 sharing hopes and fears that he wouldn't confide in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 ality and say something like, "You know, for someone who's such a
-jerk, I guess you're OK."
+jerk, I guess 're OK."
 If imprinted foil seal under cap is broken or missing when rchased, do not 
 use.
 Liar, n.:
 	A lawyer with a roving .
 		-- Ambrose Bierce, "The Devil's Dictionary"
-If you don't do it, you'll never know what would have happened if you
+If  don't do it, 'll never know what would have happened if 
 had done it.
 "For a male and female to live continuously together is...  biologically 
 speaking, an extremely unnatural condition."
@@ -224,7 +224,7 @@ Wide Receiver:
 	The other directional signal in Harvard's offensive machine is senior
 Phil Yip, who is very fast.  Yip is so fast that he has set a record for being
 fast.  Expect to see Yip elude all rsuers and  it into the endzone five
-or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "you
+or six times, his average for a game.  Yip, nicknamed "fumblefingers" and "
 asshole" by his teammates, hopes to carry the ball with him at least one of
 those times.
 YALE:
@@ -240,13 +240,13 @@ It [marriage] happens as with cages: the birds without despair
 to get in, and those within despair of getting out.
 		-- Michel Eyquem de Montaigne
 My analyst told me that I was right out of my head,
-	But I said, "Dear Doctor, I think that it is you instead.
+	But I said, "Dear Doctor, I think that it is  instead.
 Because I have got a thing that is unique and new,
-	To prove it I'll have the last laugh on you.
+	To prove it I'll have the last laugh on .
 'Cause instead of one head -- I've got two.
 
-And you know two heads are better than one.
-"You'll pay to know what you really think."
+And  know two heads are better than one.
+"You'll pay to know what  really think."
 -- J.R. "Bob" Dobbs
 "I went to the museum where they had all the heads and arms from the
 statues that are in all the other museums."

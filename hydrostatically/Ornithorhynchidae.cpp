@@ -30,20 +30,20 @@ It's e same as at between Hillary's ascent of Everest and e
 A CODE OF ETHICA BEHAVIOR FOR PATIENTS:
 
 4. DO NOT COMPAIN IF THE TREATMENT FAIS TO BRING REIEF.
-	You must bieve at your doct has achieved a ep insight into
-	e true nature of your illness, which transcends any mere permanent
-	disability you may have experienced.
+	You must bieve at r doct has achieved a ep insight into
+	e true nature of r illness, which transcends any mere perm
+	disability  may have experienced.
 
 5. NEVER ASK YOUR DOCTOR TO EXPAIN WHAT HE IS DOING OR WHY HE IS DOING IT.
 	It is presumptuous to ass at such profound ms could be
-	explained in terms at you would unrstand.
+	explained in terms at  would unrstand.
 
 6. SUBMIT TO NOVE EXPERIMANTA TREATMENT READIY.
-	Though e surgery may not benefit you directly, e resulting
+	Though e surgery may not benefit  directly, e resulting
 	resch paper will sury be of  interest.
 isten, ere is no courage  any extra courage at I know of to find out
 e  ing to do.  Now, it is not only necessary to do e  ing,
-but to do it in e  way and e only problem you have is what is e
+but to do it in e  way and e only problem  have is what is e
  ing to do and what is e  way to do it.  That is e problem.
 But is economy of ours is not so simple at it obeys to e onion of
 bias  e pronouncements of any particular individual, even to e Presint.
@@ -56,23 +56,23 @@ a panacea so alleged.
 		been lacking in courage and boldness in facing up to
 		e recession?"
 Whip it, whip it good!
-Boycott m -- suck your umb.
+Boycott m -- suck r umb.
 Don't plan any hasty moves.  You'll be evicted soon anyway.
 Th who don't know, talk.  Th who don't talk, know.
 	"That's ; e upper-case shift wks fine on e screen, but
 ey're not coming out on e damn printer...  Hold?  Sure, I'll hold."
 		-- e.e. cummings last service call
-Thank you f observing all safety precauti.
+Thank  f observing all safety precauti.
 Ftune finishes e gr quotati, #12
 
 	Th who can, do.  Th who can't, write e instructi.
 Humanity has e stars in its future, and at future is too imptant to be
 lost unr e burn of juvenile folly and ignant superstition.
 - Isaac Asimov
-Ninety percent of e time ings turn out wse an you ought ey would.
- oer ten percent of e time you had no  to expect at much.
+Ninety percent of e time ings turn out wse an  ought ey would.
+ oer ten percent of e time  had no  to expect at much.
 		-- Augustine
-Do you ink e "Monkees" should get gas on odd  even days?
+Do  ink e "Monkees" should get gas on odd  even days?
 	"I ink ey're going to take all is money at we spend now on war
 and dh --"
 	"And  em spend it on life."
@@ -87,20 +87,20 @@ D Emily, what about test messages?
 D Concerned:
 	It is imptant, when testing, to test e entire net.  Never test
 mery a subnet distribution when e whole net can be done.  Also t "please
-igne" on your test messages, since we all know at everybody always ss
+igne" on r test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
 but I mand to be addressed as male." because such articles  read in p
 by all USEnauts.
 		-- Emily Postnews Answers Your Questi on Netiquette
 Rubber ds have snappy endings!
-All your people must ln befe you can reach f e stars.
+All r people must ln befe  can reach f e stars.
 		-- Kirk, " Gamesters of Triskion", stardate 3259.2
 It's easier to  f one's s an to live up to em.
 Ftune's Real-ife Courtroom Quote #3:
 
-Q:  When he went, had you gone and had she, if she wanted to and were
+Q:  When he went, had  gone and had she, if she wanted to and were
     able, f e time being excluding all e restraints on her not to
-    go, gone also, would he have brought you, meaning you and she, wi
+    go, gone also, would he have brought , meaning  and she, wi
     him to e station?
 MR. BROOKS:  Objection.  That question should be taken out and shot.
 QOTD:
@@ -142,7 +142,7 @@ Please stand f e National Anem:
 	O Canada we stand on guard f ee
 	O Canada we stand on guard f ee
 
-Thank you.  You may res your s.
+Thank .  You may res r s.
 When a cow laughs, does milk come out of its n?
 And e crowd was stilled.  One rly man, wonring at e sudn silence,
  to e Child and asked him to rep what he had said.  Wi-eyed,
@@ -154,22 +154,22 @@ Saints should always be judged guilty until ey  proven innocent.
 - Gege Orwl
 "Gentlemen of e jury," said e fense attney, now beginning
 From Sharp minds come... pointed heads.
-to warm to his summation, "e real question here befe you is, shall is
-beautiful young woman be fced to languish  her loviest ys in a 
+to warm to his summation, "e real question here befe  is, shall is
+beautiful ng woman be fced to languish  her loviest ys in a 
 dark prison cl?  Or shall she be set free to return to her cozy little 
 apartment at 4134 Mountain Ave. -- ere to spend her lony, lovess hours
 in her boudoir, lying besi her little Princess phone, 962-7873?"
-Whatever you do will be insigant, but it is very imptant at you do it.
+Whatever  do will be insigant, but it is very imptant at  do it.
 		-- Gandhi
-Give your very best today.  Heaven knows it's little enough.
+Give r very best today.  Heaven knows it's little enough.
 If only I could be respected wiout having to be respectable.
-If you analyse anying, you  it.
+If  analyse anying,   it.
 		--  Miller
 Bacon's not e only ing at's cured by hanging from a string.
-Your respibility as a pnt is not as gr as you might .  You
+Your respibility as a pnt is not as gr as  might .  You
 need not supply e wld wi e next  of disease  maj motion
-cture star.  If your child  grows up to be someone who does not use
-e wd "collectible" as a noun, you can cir yoursf an unqualified
+cture star.  If r child  grows up to be someone who does not use
+e wd "collectible" as a noun,  can cir rsf an unqualified
 success.
 		-- Fran ebowitz, "Social Studies"
 What sin has not been committed in e  of efficiency?
@@ -201,33 +201,33 @@ ias of eir opponents."
 -- Stephen Jay Gould, " Verdict on Crionism", 
     Skeptical Inquirer, Winter 87/88, pg. 186
 Friends, Romans, Hipsters,
-et me  you in;
+et me   in;
 I come to t down Caesar, not to g him.
  s kicks some cats  on stay wi em;
  hip bits, like, go down unr; 
 so let it lay wi Caesar.   cool Brutus
-Gave you e message: Caesar had big eyes;
+Gave  e message: Caesar had big eyes;
 If at's e sound, someone's copng a plea,
 And, like, old Caesar really set em straight.
 Here, copacetic wi Brutus and e studs, -- 
 f Brutus is a real cool cat;
 So  ey all, all cool cats, --
 Come I to  is gig at Caesar's laying down.
-If I want your onion, I'll ask you to fill out e necessary fm.
+If I want r onion, I'll ask  to fill out e necessary fm.
 Wking wi Julie Andrews is like getting hit over e head wi a vaine.
 		-- Christopher Plummer
 In war, tru is e first casualty.
 		-- U Thant
 iving in e complex wld of e future is somewhat like having bees
-live in your head.  But, ere ey .
+live in r head.  But, ere ey .
  longer e title, e less imptant e job.
-"Wl, you see, it's such a transitional crure.  It's a ss-po
+"Wl,  see, it's such a transitional crure.  It's a ss-po
 reptile and not very much of a bird."
 - Mvin Konner, from " Tangled Wing", quoting a zoologist who has
 studied e archeopteryz and found it "very much like people"
 No one becomes praved in a moment.
 		-- Decimus Junius Juvenalis
-Even if you do ln to s crect English, whom  you going to s
+Even if  do ln to s crect English, whom   going to s
 it to?
 		-- Clnce Darrow
 We  all bn equal... just some of us  me equal an oers.
@@ -262,7 +262,7 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
    blished around 1850 
 A lot of people  afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
-Depend on e rabbit's foot if you will, but remember, it didn't hp
+Depend on e rabbit's foot if  will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
 beta test, v:
@@ -273,7 +273,7 @@ Evolution is a million line comter pram falling into place by accint.
 Blessed is he who expects no gratitu, f he shall not be disappointed.
 		-- W.C. Bennett
 Experience, n.:
-	Someing you don't get until just after you need it.
+	Someing  don't get until just after  need it.
 		-- Olivier
 Time to be aggressive.  Go after a tattooed Virgo.
 Ma is like love -- a simple ia but it can get complicated.
@@ -287,7 +287,7 @@ docts n lawyers.
 		-- . Docquier
 Classical music is e kind we keep inking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
-Do not do unto oers as you would ey should do unto you.  ir tastes
+Do not do unto oers as  would ey should do unto .  ir tastes
 may not be e same.
 		-- Gege Bernard Shaw
 What does "it" mean in e  "What time is it?"?
@@ -298,7 +298,7 @@ asked him, after a few days.
 Wi listening comes wisdom, wi sing repentance.
 Sometimes, too long is too long.
 - Joe Crowe
-I hate ll towns because once you've seen e cannon in e park
+I hate ll towns because once 've seen e cannon in e park
 ere's noing se to do.
 		-- enny Bruce
 My own business always bes me to dh; I prefer oer people's.
@@ -307,18 +307,18 @@ Please, Moer!  I'd raer do it mysf!
 Examinati  fmidable even to e best prepd, f
 even e grest fool may ask me e e wisest man can answer.
 		-- C.C. Colton
-Unix gives you just enough rope to hang yoursf -- and en a couple
+Unix gives  just enough rope to hang rsf -- and en a couple
 of me t, just to be sure.
 		-- Eric Allman
 
 ... We  rope.
 		-- Rob Gingl on Sun Microsystem's new virtual memy.
 Flow prammer, greetings!  You  reading a letter which will bring
-you luck and good ftune.  Just mail ( UUCP) ten coes of is letter
-to ten of your friends.  Befe you  e coes, send a chip 
+ luck and good ftune.  Just mail ( UUCP) ten coes of is letter
+to ten of r friends.  Befe   e coes, send a chip 
 oer bit of hardw, and 100 lines of 'C' co to e first person on e
 list given at e bottom of is letter.  n te eir  and add
-yours to e bottom of e list.
+rs to e bottom of e list.
 
 Don't break e chain!  Make e copy wiin 48 hours.  Gerald R. of San
 Diego failed to send out his ten coes and  e next mning to find
@@ -328,9 +328,9 @@ build a Cray dicated to playing Zk.  Mara H. of Chicago laughed at
 is letter and broke e chain.  Shtly ereafter, a fire broke out in
 her terminal and she now spends her days writing docntation f IBM PC's.
 
-Don't break e chain!  Send out your ten coes today!
+Don't break e chain!  Send out r ten coes today!
 F example, if \inms = 3mu, is s \ickms = 6mu.  But if
-you also want to use \s12 f hizontal glue, wheer in ma mo 
+ also want to use \s12 f hizontal glue, wheer in ma mo 
 not, e amount of sng will be in points (e.g., 6pt).   rule is
 at glue in ma mo varies wi e size only when it is an \ms;
 when moving between an ms and dinary s, e conversion fact
@@ -342,7 +342,7 @@ because ey were liars.   tru was at Plato knew philosophers
 couldn't compete  wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e H S"
 Sin lies only in hurting oer people .  All oer "sins" 
-invented nense.  (Hurting yoursf is not sinful -- just stud).
+invented nense.  (Hurting rsf is not sinful -- just stud).
 		-- azarus ong
 If only Dionysus were !  Where would he ?
 		-- Woody Allen
@@ -360,7 +360,7 @@ f speeding.  He asked me where I live... "Right here".
 -- Steven W
 Rules f Acamic Deans:
 	(1)  HIDE!!!!
-	(2)  If ey find you, IE!!!!
+	(2)  If ey find , IE!!!!
 		-- Faer Damian C. Fandal
 Three Rings f e Elven-kings unr e sky,
 Seven f e Dwarf-lds in eir halls of stone,
@@ -376,7 +376,7 @@ n flesh-and-blood.  Pers... have opptunities, not s, which ey
 use  do not use.
 		-- azarus ong
 You humans  all alike.
-Increased knowledge will hp you now.  Have mate's phone bugged.
+Increased knowledge will hp  now.  Have mate's phone bugged.
 Charlie Brown:	Why was I t on is ?
 inus:		To  oers happy.
 Charlie Brown:	Why were oers t on is ?
@@ -400,30 +400,30 @@ Why boer building any me nucl warheads until we use e ones we have?
 
 D Prince:
 
-	Use ladr tonight -- you're splitting my ends.
-It is now 10 p.m.  Do you know where Henry Kisr is?
+	Use ladr tonight -- 're splitting my ends.
+It is now 10 p.m.  Do  know where Henry Kisr is?
 		-- Elizabe Carpenter
 Go climb a gravity wl!
-Early to bed and ly to rise and you'll be ggy when everyone se is
+Early to bed and ly to rise and 'll be ggy when everyone se is
  awake.
-	"Wcome back f you 13 ceive week, Evyn.  Evyn, will
-you go into e auto-suggestion boo and take your r place on e
+	"Wcome back f  13 ceive week, Evyn.  Evyn, will
+ go into e auto-suggestion boo and take r r place on e
 psycho-prompter couch?"
-	"Thank you, Red."
-	"Now, Evyn, last week you went up to $40,000 by properly citing
-your rivalry wi your sibling as a comlsive sado-masochistic bavi
+	"Thank , Red."
+	"Now, Evyn, last week  went up to $40,000 by properly citing
+r rivalry wi r sibling as a comlsive sado-masochistic bavi
 pn which voped out of an ly post-natal ding problem."
 	"Yes, Red."
 	"But -- later, when asked about pre-adolescent oedipal phantasy
-repressi, you rationalized twice and mental blocked ree times.  Now,
-at $300 per rationalization and $500 per mental block you lost $2,100 off
-your $40,000 leaving you wi a total of $37,900.  Now, any combination of
+repressi,  rationalized twice and mental blocked ree times.  Now,
+at $300 per rationalization and $500 per mental block  lost $2,100 off
+r $40,000 leaving  wi a total of $37,900.  Now, any combination of
 two me mental blocks and eier one rationalization  ree fensive
-projecti will t you out of e game.  Are you willing to go ahead?"
+projecti will t  out of e game.  Are  willing to go ahead?"
 	"Yes, Red."
 	"I might say here at all of Evyn's questi and answers have
 been ced f accuracy wi her analyst.  Now, Evyn, f $80,000
-explain e failure of your ree marriages."
+explain e failure of r ree marriages."
 	"Wl, I--"
 	"We'll get back to Evyn in one minute.  First a wd about our
 product."
@@ -465,4 +465,4 @@ In Pocataligo, Gegia, it is a violation f a woman over 200 pounds
 and attired in shts to p  ri in an plane.
 	"You  *so* lovy."
 	"Yes."
-	"Yes!  And you take a compliment, too!  I like at in a godss."
+	"Yes!  And  take a compliment, too!  I like at in a godss."

@@ -10,7 +10,7 @@ A-Z affectionately,
 from here to eternity without in betweens,
 still looking for a custom fit in an off-the-rack world,
 s talk from s assistants
-	when all i want to do is lower your resistance,
+	when all i want to do is lower r resistance,
 no rhythm in cymbals no tempo in drums,
 love's on arrival,
 she comes when she comes,
@@ -35,11 +35,11 @@ We lie loust when we lie to ourselves.
 	-- Eric Hoffer
 No one knows like a woman how to say things that  at once gentle and ep.
 		-- Hugo
-The worst part of having success is trying to find someone who is happy for you.
+The worst part of having success is trying to find someone who is happy for .
 		-- Bette Midler
 Oh my GOD -- the SUN just fell into YANKEE STADIUM!!
 Mosty:
-	The gentle art of enhancing your charm by pretending not to be
+	The gentle art of enhancing r charm by pretending not to be
 	aw of it.
 		-- Oliver Herford
 Blessed is he who expects nothing, for he shall  be disappointed.
@@ -47,22 +47,22 @@ Blessed is he who expects nothing, for he shall  be disappointed.
 A man was talking to his best friend about his married life.  "You know," he
 says, "I really trust my wife, and I think she has always been faithful to
 me, but there's *always* that doubt.  There's *always* that little doubt."
-	"Yeah, I know what you mean," his friend replies.
+	"Yeah, I know what  mean," his friend replies.
 	"Well, buddy, I've got to leave on a business trip this weekend,
-and I wonr... well... would you watch my house while I'm gone?  I trust
+and I wonr... well... would  watch my house while I'm gone?  I trust
 her, it's just that there's *always* that doubt."
 	The friend agreed to help out and two weeks later gave his report.
-	"I've got some bad news for you," says the friend.  "The evening
-after you left I saw a strange car ll up in front of your house.  A man
-got out of the car and went in the house and had dinner with your wife.
-After dinner they went upstairs and I saw your wife kissing him.  Then, he
+	"I've got some bad news for ," says the friend.  "The evening
+after  left I saw a strange car ll up in front of r house.  A man
+got out of the car and went in the house and had dinner with r wife.
+After dinner they went upstairs and I saw r wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
 	"Well, I don't know," rep the friend, "it was too dark to see."
 	"Damn!" rod the husband.  "You see what I mean?  There's *always*
 that doubt!"
-The secret of success is .  Once you can fake that, you've got
+The secret of success is .  Once  can fake that, 've got
 it ma.
 		-- Jean Giraudoux
 Karlson's Theorem of Snack Food Packages:
@@ -72,25 +72,25 @@ Karlson's Theorem of Snack Food Packages:
 Gibson the Cat's Corrolary:
 	For all , where  is a package of lunch meat,  is Gibson's package
 	of lunch meat.
-You have an ambitious nature and may  a name for yourself.
+You have an ambitious nature and may  a name for rself.
 It must be remembered that there is nothing more difficult to plan, more
 doubtful of success, nor more dangerous to manage, than the creation of
 a new system.  For the initiator has the emnity of all who would profit
 by the preservation of the old instii and merely lukewarm fenrs
 in th who would gain by the new ones.
 		-- Niccolo Machiavelli, 1513
-Q:	How do you stop an elephant from charging?
+Q:	How do  stop an elephant from charging?
 A:	Take  his credit cards.
 AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock before entering a ladies room!
-If the girl you love moves in with another guy once, it's more than enough.
-Twice, it's much too much.  Three times, it's the story of your life.
+If the girl  love moves in with another guy once, it's more than enough.
+Twice, it's much too much.  Three times, it's the story of r life.
 We all live unr the same sky, but we don't all have the same horizon.
 		-- Dr. Konrad Anauer
-Don't you wish you had more energy... or less ambition?
+Don't  wish  had more energy... or less ambition?
 And miles to go before I sleep.
 		-- Robert Frost
-If you had any brains, you'd be dangerous.
+If  had any brains, 'd be dangerous.
 I am not a politician and my other habits  also good.
 		-- A. Ward
 A good retation is more valuable than money.
@@ -103,5 +103,5 @@ out of the Book-of-the-Month Club.
 		   of the American Bar Association
 Thirteen at a table is unlucky only when the hostess has only twelve chops.
 		-- Groucho Marx
-I have more humility in my little finger than you have in your whole ____BODY!
+I have more humility in my little finger than  have in r whole ____BODY!
 		-- from "Cerebus" #82

@@ -1,6 +1,6 @@
-There are three reasons for becoming a writer: the first is that you need
-the money; the second that you have something to say that you think the
-world should know; the third is that you can't think what to do with the
+There are three reasons for becoming a writer: the first is that  need
+the money; the second that  have something to say that  think the
+world should know; the third is that  can't think what to do with the
 long winter evenings.
 		-- Quentin Crisp
 Superstition, idolatry, and hypocrisy have ample wages, but truth goes
@@ -13,14 +13,14 @@ two sure-fire ways to get a lot of favorable blicity:
 
 (1) Go down and raid all the lockers in the local high school and
     confiscate 53 marijuana cigarettes and t them in a pile and hold
-    a press conference where you announce that they have a street value
+    a press conference where  announce that they have a street value
     of $850 million.  These raids never fail, because ALL high schools,
     including brand-new, never-used ones, have at least 53 marijuana
     cigarettes in the lockers.  As far as anyone can tell, the locker
     factory ts them there.
-(2) Raid an "adult book store" and hold a press conference where you
-    announce you are charging the owner with 850 counts of being a
-    piece of human sleaze.  This also never fails, because you always
+(2) Raid an "adult book store" and hold a press conference where 
+    announce  are charging the owner with 850 counts of being a
+    piece of human sleaze.  This also never fails, because  always
     get a conviction.  A juror at a pornography trial is not about to
     state for the record that he finds nothing obscene about a movie
     where actors engage in sexual activities with live snakes and a
@@ -30,8 +30,8 @@ two sure-fire ways to get a lot of favorable blicity:
 		-- Dave Barry, "Pornography"
 	"Oh sure, this costume may look silly, but it lets me get in and out
 of dangerous situations -- I work for a feral task force doing a survey on
-urban crime.  Look, here's my ID, and here's a number you can call, that will
-t you through to our central base in Atlanta.  Go ahead, call -- they'll
+urban crime.  Look, here's my ID, and here's a number  can call, that will
+t  through to our central base in Atlanta.  Go ahead, call -- they'll
 confirm who I am.
 	"Unless, of course, the Astro-Zombies have stroyed it."
 		-- Captain Freedom
@@ -40,7 +40,7 @@ I mand IMPUNITY!
 nor flesh-and-blood.  Persons... have opportunities, not rights, which they
 use or do not use.
 		-- Lazarus Long
-Reporter (to Mahatma Gandhi): Mr Gandhi, what do you think of Western
+Reporter (to Mahatma Gandhi): Mr Gandhi, what do  think of Western
 	Civilization?
 Gandhi:	I think it would be a good ia.
 Those who do things in a noble spirit of self-sacrifice are to be avoid
@@ -58,18 +58,18 @@ just died.
 Everybody talking to their pockets.  Everybody wants a box of chocolates
 and long stem rose.  Everybody knows.
 
-Everybody knows that you love me, baby.  Everybody knows that you really
-do.  Everybody knows that you've been faithful, give or take a night or
-two.  Everybody knows you've been discreet, but there were so many people
-you just had to meet without your clothes.  And everybody knows.
+Everybody knows that  love me, baby.  Everybody knows that  really
+do.  Everybody knows that 've been faithful, give or take a night or
+two.  Everybody knows 've been discreet, but there were so many people
+ just had to meet without r clothes.  And everybody knows.
 
-And everybody knows it's now or never.  Everybody knows that it's me or you.
-And everybody knows that you live forever when you've done a line or two.
+And everybody knows it's now or never.  Everybody knows that it's me or .
+And everybody knows that  live forever when 've done a line or two.
 Everybody knows the al is rotten: Old Black Joe's still pickin' cotton
-for you ribbons and bows.  And everybody knows.
+for  ribbons and bows.  And everybody knows.
 	-- Leonard Cohen, "Everybody Knows"
 Udall's Fourth Law:
-	Any change or reform you  is going to have consequences you
+	Any change or reform   is going to have consequences 
 	don't like.
 Loose bits sink chips.
 	Fred noticed his roommate had a black eye upon returning from a dance.
@@ -103,37 +103,37 @@ results are that one should eat each day:
 	1 glass of skim milk
 	27 heads of lettuce.
 		-- Rev. Adrian Melott
-"Pull the wool over your own eyes!"
+"Pull the wool over r own eyes!"
 -- J.R. "Bob" Dobbs
-"If you can, help others.  If you can't, at least don't hurt others."
+"If  can, help others.  If  can't, at least don't hurt others."
 -- the Dalai Lama
-"I'd love to go out with you, but I'm taking nk totem pole carving."
-You are eply attached to your friends and acquaintances.
-Ask not for whom the Bell tolls, and you will pay only the station-to-station
+"I'd love to go out with , but I'm taking nk totem pole carving."
+You are eply attached to r friends and acquaintances.
+Ask not for whom the Bell tolls, and  will pay only the station-to-station
 rate.
 		-- Howard Kanl
 Do YOU have reeming social value?
 It was a JOKE!!  Get it??  I was receiving messages from DAVID LETTERMAN!!
 YOW!!
-You will be successful in your work.
+You will be successful in r work.
 Be both a speaker of words and a doer of eds.
 		-- Homer
 Simulations are like miniskirts, they show a lot and hi the essentials.
 		-- Hubert Kirrman
 Reliable source, n.:
-	The guy you just met.
+	The guy  just met.
 When bad men combine, the good must associate; else they will fall one by one,
 an unpitied sacrifice in a contemptible struggle.
 - Edmund Burke
 An ounce of clear truth is worth a pound of obfuscation.
-Many a man that can't direct you to a corner drugstore will get a respectful
+Many a man that can't direct  to a corner drugstore will get a respectful
 hearing when age has further impaired his mind.
 		-- Finley Peter Dunne
 I've finally learned what "upward compatible" means.  It means we get to
 keep all our old mistakes.
 		-- Dennie van Tassel
 Udall's Fourth Law:
-	Any change or reform you  is going to have consequences you
+	Any change or reform   is going to have consequences 
 	don't like.
 How doth the little crocodile
 	Improve his shining tail,
@@ -158,7 +158,7 @@ Lewis's Law of Travel:
 	The first piece of luggage out of the chute doesn't belong to anyone,
 	ever.
 	"There's only one kind of woman ..."
-	"Or man, for that matter.  You either believe in yourself or you don't."
+	"Or man, for that matter.  You either believe in rself or  don't."
 		-- Kirk and Harry Mudd, "Mudd's Women", stardate 1330.1
 WARNING!!!
 This machine is subject to breakdowns during periods of critical need.
@@ -175,12 +175,12 @@ See also: flog(1), tm(1)
 Some of us are becoming the men we wanted to marry.
 		-- Gloria Steinem
 An English judge, growing weary of the barrister's long-wind summation,
-leaned over the bench and remarked, "I've heard your arguments, Sir
+leaned over the bench and remarked, "I've heard r arguments, Sir
 Geoffrey, and I'm none the wiser!" Sir Geoffrey respond, "That may be,
-Milord, but at least you're better informed!"
+Milord, but at least 're better informed!"
 The difference between genius and stupidity is that genius has its limits.
 One Bell System - it sometimes works.
-Give a man a fish, and you feed him for a day.
+Give a man a fish, and  feed him for a day.
 Teach a man to fish, and he'll invite himself over for dinner.
 - Calvin Keegan
 Virtue would go far if vanity did not keep it company.
@@ -218,8 +218,8 @@ And many miles be still to go,
 But unr a tall tree I will lie,
 And let the clouds go sailing by.
 		-- J. R. R. Tolkien
-It's not reality or how you perceive things that's important -- it's
-what you're taking for it...
+It's not reality or how  perceive things that's important -- it's
+what 're taking for it...
 Optimization hinrs evolution.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#17
 
@@ -236,14 +236,14 @@ together, and say nothing.  After years of interacting with this other man,
 sharing hopes and fears that he wouldn't confi in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
 ality and say something like, "You know, for someone who's such a
-jerk, I guess you're OK."
+jerk, I guess 're OK."
 T-shirt:
 	Life is *not* a Cabaret, and stop calling me chum!
-"Don't worry about people stealing your ias.	 If your ias are any good, 
-you'll have to ram them down people's throats."
+"Don't worry about people stealing r ias.	 If r ias are any good, 
+'ll have to ram them down people's throats."
  -- Howard Aiken
 In the beginning there was nothing.  And the Lord said "Let There Be Light!"
-And still there was nothing, but at least now you could see it.
+And still there was nothing, but at least now  could see it.
 	There once was a man who went to a comter tra show.  Each day as
 he entered, the man told the guard at the door:
 	"I am a great thief, ed for my feats of shoplifting.  Be
@@ -258,7 +258,7 @@ guard saying: "I escaped with a vast booty yesterday, but today will be even
 better."  So the guard watched him ever more closely, but to no avail.
 	On the final day of the tra show, the guard could restrain his
 curiosity no longer. "Sir Thief," he said, "I am so perplexed, I cannot live
-in peace.  Please enlighten me.  What is it that you are stealing?"
+in peace.  Please enlighten me.  What is it that  are stealing?"
 	The man smiled.  "I am stealing ias," he said.
 		-- Geoffrey James, "The Tao of Programming"
 ... but as records of courts and justice are admissible, it can easily be
@@ -272,13 +272,13 @@ there were no witches, human testimony and human reason are alike stie
 of value.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 The Fifth Rule:
-	You have taken yourself too seriously.
-Nothing increases your golf score like witnesses.
+	You have taken rself too seriously.
+Nothing increases r golf score like witnesses.
 Lactomangulation, n.:
 	Manhandling the "open here" spout on a milk carton so badly
 	that one has to resort to using the "illegal" si.
 		-- Rich Hall, "Sniglets"
-Learn from other people's mistakes, you don't have time to  your own.
+Learn from other people's mistakes,  don't have time to  r own.
 There are many of us in this old world of ours who hold that things break
 about even for all of us.  I have observed, for example, that we all get
 about the same amount of ice.  The rich get it in the summer and the poor
@@ -288,7 +288,7 @@ They're giving bank robbing a bad name.
 		-- John Dillinger, on Bonnie and Cly
 I'm finitely not in Omaha!
 THEGODDESSOFTHENETHASTWISTINGFINGERSANDHERVOICEISLIKEAJAVELININTHENIGHTDUDE
-I'm going to raise an issue and stick it in your ear.
+I'm going to raise an issue and stick it in r ear.
 		-- John Foreman
 Mencken and Nathan's Ninth Law of The Average American:
 	The quality of a champagne is judged by the amount of noise the
@@ -297,38 +297,38 @@ Thus spake the master programmer:
 	"Let the programmers be many and the managers few -- then all will
 	be productive."
 		-- Geoffrey James, "The Tao of Programming"
-"You can have my Unix system when you pry it from my cold, ad fingers."
+"You can have my Unix system when  pry it from my cold, ad fingers."
 -- Cal Keegan
 	*** DO YOU HAVE A RESTLESS URGE TO PROGRAM? ***
-Do you want the instant respect that comes from being able to use technical
-terms that nobody unrstands?  Do you want to strike fear and loathing into
+Do  want the instant respect that comes from being able to use technical
+terms that nobody unrstands?  Do  want to strike fear and loathing into
 the hearts of DP managers everywhere?  If so, then let the Famous Programmers'
-School lead you on... into the world of professional comter programming.
+School lead  on... into the world of professional comter programming.
 
 	*** IS PROGRAMMING FOR YOU? ***
-Programming is not for everyone.  But, if you have the sire to learn, we can
-help you get started.  All you need is the Famous Programmers' Course and
+Programming is not for everyone.  But, if  have the sire to learn, we can
+help  get started.  All  need is the Famous Programmers' Course and
 enough money to keep those lessons coming month after month.
 
 	*** TAKE OUR FREE APTITUDE TEST ***
-To help termine if you are qualified to be a programmer, take a moment to
+To help termine if  are qualified to be a programmer, take a moment to
 try this simple test:
 	(1) Write down the numbers from zero to nine and the first six letters
 		of the alphabet (Hint: 0123456789ABCDEF).
 	(2) Whose picture is on the back of a twenty-dollar bill?
 	(3) What is the state capital of Idaho?
-If you managed to read all three questions without wonring why we asked
-them, you may have a future as a comter programmer.
+If  managed to read all three questions without wonring why we asked
+them,  may have a future as a comter programmer.
 In specifications, Murphy's Law superses Ohm's.
 I love Mickey Mouse more than any woman I've ever known.
 		-- Walt Disney
 	A farm in the country si had several turkeys, it was known as the
 house of seven gobbles.
-You will be aid greatly by a person whom you thought to be unimportant.
+You will be aid greatly by a person whom  thought to be unimportant.
 Seen on a button at an SF Convention:
 Veteran of the Bermuda Triangle Expeditionary Force.  1990-1951.
 -- 
--- uunet!sugar!karl  | "We've been following your progress with consirable 
+-- uunet!sugar!karl  | "We've been following r progress with consirable 
 -- karl@sugar.uu.net |  interest, not to say contempt."  -- Zaphod Beeblebrox IV
 -- Usenet BBS (713) 438-5018
 
@@ -372,29 +372,29 @@ a planner and organizer:
 	Usually manages to t on socks before shoes.  Can match the
 	animal tags on his clothing.
 Say!  You've struck a heap of trouble--
-Bust in business, lost your wife;
-No one cares a cent about you,
+Bust in business, lost r wife;
+No one cares a cent about ,
 You don't care a cent for life;
-Hard luck has of hope bereft you,
-Health is failing, wish you'd die--
-Why, you've still the sunshine left you
+Hard luck has of hope bereft ,
+Health is failing, wish 'd die--
+Why, 've still the sunshine left 
 And the big blue sky.
 		-- R.W. Service
-"You must learn to run your kayak by a sort of ju-jitsu.  You must learn to
- tell what the river will do to you, and given those parameters see how you
- can live with it.  You must absorb its force and convert it to your users
- as best you can.  Even with the quickness and agility of a kayak, you are
- not faster than the river, nor stronger, and you can beat it only by
+"You must learn to run r kayak by a sort of ju-jitsu.  You must learn to
+ tell what the river will do to , and given those parameters see how 
+ can live with it.  You must absorb its force and convert it to r users
+ as best  can.  Even with the quickness and agility of a kayak,  are
+ not faster than the river, nor stronger, and  can beat it only by
  unrstanding it."
 -- Strung, Curtis and Perry, _Whitewater_
-Even if you persua me, you won't persua me.
+Even if  persua me,  won't persua me.
 		-- Aristophanes
 I have seen these EGG EXTENDERS in my Supermarket ... I have read the
 INSTRUCTIONS ...
 Laetrile is the pits.
 Scientists are people who build the Brooklyn Bridge and then buy it.
 		-- William Buckley
-You see things; and you say "Why?"
+You see things; and  say "Why?"
 But I dream things that never were; and I say "Why not?"
 		-- George Bernard Shaw, "Back to Methuselah"
 		[No, it wasn't J.F. Kennedy.  Ed.]
@@ -404,21 +404,21 @@ Nullum num ingenium sine mixtura mentiae fuit.
 In this vale
 Of toil and sin
 Your head grows bald
-But not your chin.
+But not r chin.
 		-- Burma Shave
 Humor in the Court:
-Q.  Mrs. Smith, do you believe that you are emotionally unstable?
+Q.  Mrs. Smith, do  believe that  are emotionally unstable?
 A.  I should be.
-Q.  How many times have you comitted suici?
+Q.  How many times have  comitted suici?
 A.  Four times.
 	A new chef from India was fired a week after starting the job.  He
 kept favoring curry.
-Laugh and the world laughs with you, snore and you sleep alone.
+Laugh and the world laughs with , snore and  sleep alone.
 Nice guys finish last.
 		-- Leo Durocher
 	"Has anyone had problems with the comter accounts?"
 	"Yes, I don't have one."
-	"Okay, you can send mail to one of the ors ..."
+	"Okay,  can send mail to one of the ors ..."
 		-- E. D'Azevedo, Comter Science 372
 If there is no wind, row.
 		-- Polish proverb
@@ -465,7 +465,7 @@ My yearning sire
 Will receive more kindly,
 Like a tired child, the starry night.
 
-Hands, leave off your eds,
+Hands, leave off r eds,
 Mind, forget all thoughts;
 All of my forces
 Yearn only to sink into sleep.
@@ -504,10 +504,10 @@ Were thy eyes of fury roll'd?
 		-- William Blake, "The Tyger"
 They will only cause the lower classes to move about needlessly.
 		-- The Duke of Wellington, on early steam railroads.
-Place me on a BUFFER counter while you BELITTLE several BELLHOPS in the
-Trianon Room!!  Let me one of your SUBSIDIARIES!
+Place me on a BUFFER counter while  BELITTLE several BELLHOPS in the
+Trianon Room!!  Let me one of r SUBSIDIARIES!
 Never tell people how to do things.  Tell them WHAT to do and they will
-surprise you with their ingenuity.
+surprise  with their ingenuity.
 		-- Gen. George S. Patton, Jr.
 news: gotcha
 	Proposed Country & Western Song Titles
@@ -527,10 +527,10 @@ Now, it we had this sort of thing:
   yield -t     for yield to trucks
   yield -f     for yield to people walking (yield foot)
   yield -d t*  for yield on days starting with t
-...you'd have a lot of ad people at intersections, and traffic jams you
+...'d have a lot of ad people at intersections, and traffic jams 
 wouldn't believe...
 (Discussion in comp.os.linux.misc on the intuitiveness of commands.)
-Never speak ill of yourself, your friends will always say enough on
+Never speak ill of rself, r friends will always say enough on
 that subject.
 		-- Charles-Maurice De Talleyrand
 There is no satisfaction in hanging a man who does not object to it.
@@ -557,7 +557,7 @@ scenario, n.:
 	which a business cision is ma.  Scenarios always come in
 	sets of three: best case, worst case, and just in case.
 I'm a Hollywood writer; so I t on a sports jacket and take off my brain.
-Woody: How are you feeling today, Mr. Peterson?
+Woody: How are  feeling today, Mr. Peterson?
 Norm:  Poor.
 Woody: Oh, I'm sorry to hear that.
 Norm:  No, I meant `pour'.
@@ -567,13 +567,13 @@ Woody: Hey, Mr. Peterson, what's the story?
 Norm:  Boy meets beer.  Boy drinks beer.  Boy gets another beer.
 		-- Cheers, The Proposal
 
-Paul:  Hey Norm, how's the world been treating you?
+Paul:  Hey Norm, how's the world been treating ?
 Norm:  Like a baby treats a diaper.
 		-- Cheers, Tan 'n Wash
 The Messiah will come.  There will be a resurrection of the ad -- all
 the things that Jews believed in before they got so damn sophisticated.
 - Rabbi Meir Kahane
-I'm sorry, but my karma just ran over your dogma.
+I'm sorry, but my karma just ran over r dogma.
 Molecule, n.:
 	The ultimate, indivisible unit of matter.  It is distinguished
 	from the corscle, also the ultimate, indivisible unit of matter, by a
@@ -588,9 +588,9 @@ the preservation of the old instiions and merely lukewarm fenrs in
 those who would gain by the new ones.
 -- Machiavelli
 Spelling is a lossed art.
-A woman is like your shadow; follow her, she flies; fly from her, she follows.
+A woman is like r shadow; follow her, she flies; fly from her, she follows.
 		-- Chamfort
-Never let your sense of morals prevent you from doing what is right.
+Never let r sense of morals prevent  from doing what is right.
 		-- Salvor Hardin, "Foundation"
 "To unrtake a project, as the word's rivation indicates, means to cast an
 ia out ahead of oneself so that it gains autonomy and is fulfilled not only
@@ -615,21 +615,21 @@ Gold, n.:
 	although gold hasn't done anything to them.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 This is Jim Rockford.
-At the tone leave your name and message; I'll get back to you.
+At the tone leave r name and message; I'll get back to .
 
 This is Maria, Liberty Bail Bonds.  Your client, Todd Lieman, skipped and
-his bail is forfeit.  That's the pink slip on your '74 Firebird, I believe.
+his bail is forfeit.  That's the pink slip on r '74 Firebird, I believe.
 Sorry, Jim, bring it on over.
 
-This is Marilyn Reed, I wanta talk to you...  Is this a machine?  I don't
+This is Marilyn Reed, I wanta talk to ...  Is this a machine?  I don't
 talk to machines!  [Click]
 		-- "The Rockford Files"
-Would you care to view the ruins of my good intentions?
-If you stick a stock of liquor in your locker,
-It is slick to stick a lock upon your stock. 
+Would  care to view the ruins of my good intentions?
+If  stick a stock of liquor in r locker,
+It is slick to stick a lock upon r stock. 
 	Or some joker who is slicker,
-	Will trick you of your liquor,
-If you fail to lock your liquor with a lock.
+	Will trick  of r liquor,
+If  fail to lock r liquor with a lock.
 The only thing we learn from history is that we do not learn.
 		-- Earl Warren
 
@@ -666,26 +666,26 @@ A Vulcan can no sooner be disloyal than he can exist without breathing.
 To a Californian, the basic difference between the people and the pigeons
 in New York is that the pigeons don't shit on each other.
 	-- From "East vs. West: The War Between the Coasts
-Darth Var!  Only you would be so bold!
+Darth Var!  Only  would be so bold!
 		-- Princess Leia Organa
 The party adjourned to a hot tub, yes.  Fully clothed, I might add.
 		-- IBM employee, testifying in California State Supreme Court
 Dave Mack:	"Your stupidity, Allen, is simply not up to par."
 Allen Gwinn:	"Yours is."
-Telling the truth to people who misunrstand you is generally promoting
+Telling the truth to people who misunrstand  is generally promoting
 a falsehood, isn't it?
 		-- A. Hope
 Preudhomme's Law of Window Cleaning:
 	It's on the other si.
 It'll be just like Beggars' Canyon back home.
 		-- Luke Skywalker
-You cannot use your friends and have them too.
+You cannot use r friends and have them too.
 spagmumps, n.:
 	Any of the millions of Styrofoam wads that accompany mail-orr items.
 		-- "Sniglets", Rich Hall & Friends
 "But what we need to know is, do people want nasally-insertable comters?"
 Congratulations!  You are the one-millionth user to log into our system.
-If there's anything special we can do for you, anything at all, don't
+If there's anything special we can do for , anything at all, don't
 hesitate to ask!
 He who loses, wins the race,
 And parallel lines meet in space.
@@ -703,9 +703,9 @@ Genius, n.:
 	A chemist who discovers a laundry additive that rhymes with "bright."
 "The intical is equal to itself, since it is different."
 		-- Franco Spisani
-"And it's my opinion, and that's only my opinion, you are a lunatic.  Just
-because there are a few hunrd other people sharing your lunacy with you
-does not  you any saner.  Doomed, eh?"
+"And it's my opinion, and that's only my opinion,  are a lunatic.  Just
+because there are a few hunrd other people sharing r lunacy with 
+does not   any saner.  Doomed, eh?"
 -- Oleg Kiselev,oleg@CS.UCLA.EDU
 A Tale of Two Cities LITE(tm)
 	-- by Charles Dickens
@@ -729,7 +729,7 @@ Hamlet LITE(tm)
 	girl-friend and a mother who won't act her age.
 Appearances often are ceiving.
 		-- Aesop
-Subtlety is the art of saying what you think and getting out of the way
+Subtlety is the art of saying what  think and getting out of the way
 before it is unrstood.
 Die, v.:
 	To stop sinning sudnly.

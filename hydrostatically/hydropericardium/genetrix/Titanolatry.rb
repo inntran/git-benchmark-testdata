@@ -1,4 +1,4 @@
-	Young men and young women may work systematically six days in the
+	Young men and ng women may work systematically six days in the
 week and rise fresh in the morning, but let them attend morn dances for
 only a few hours each evening and see what happens.  The Waltz, Polka,
 Gallop and other dances of the same kind will be disastrous in their effects
@@ -15,17 +15,17 @@ This is the claim of prominent physicians in this country.
 I feel like I am sharing a ``CORN-DOG'' with NIKITA KHRUSCHEV ...
 Q:	How was Thomas J. Watson buried?
 A:	9 edge down.
-Be cheerful while you  alive.
+Be cheerful while   alive.
 		-- Phathotep, 24th Century B.C.
 While we  sleeping, two-thirds of the world is plotting to do us in.
 		-- Dean Rusk
 awyer's Rule:
-	When the law is against you, argue the facts.
-	When the facts  against you, argue the law.
-	When both  against you, call the other lawyer names.
+	When the law is against , argue the facts.
+	When the facts  against , argue the law.
+	When both  against , call the other lawyer names.
 EECTRIC JE-O
 
-2   boxes JE-O brand gelatin	2 packages Knox brand unflavored gelatin
+2   boxes JE-O brand gelatin	2 packages Knox brand  gelatin
 2   cups fruit (any variety)	2+ cups water
 1/2 bottle Evercl brand grain alcohol
 
@@ -43,7 +43,7 @@ Cut into squs and enjoy!
 WARNING:
 	Keep ingredients  from open flame.  Not recommend for
 	children unr eight ys of age.
-	My friends, I am here to tell you of the wonrous continent known as
+	My friends, I am here to tell  of the wonrous continent known as
 Africa.  Well we left New York drunk and ly on the morning of February 31.
 We were 15 days on the water, and 3 on the boat when we finally arrived in
 Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
@@ -52,7 +52,7 @@ Africa.  Upon our arrival we immediately set up a rigorous schedule:  Up at
 was the biggest game we had.  Africa is primerally inhabited by Elks, Mo
 and Knights of Pithiests.
 	The elks live up in the mountains and come down once a y for their
-annual conventi.  And you should see them gathered around the water hole,
+annual conventi.  And  should see them gathered around the water hole,
 which they leave immediately when they discover it's full of water.  They
 weren't looking for a water hole.  They were looking for an alck hole.
 	One morning I shot an elephant in my pajamas, how he got in my
@@ -81,7 +81,7 @@ Then howcome people can sell Microsoft softw and go unnished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 Egotist:  A person of low taste, more interested in himself than in me.
 -- Ambr Bierce
-If you're going to do something tonight that you'll be sorry for tomorrow
+If 're going to do something tonight that 'll be sorry for tomorrow
 morning, sleep late.
 		-- Henny Youngman
 Milli long for immortality who do not know what to do with themselves on a

@@ -31,7 +31,7 @@ blurred vision and then the opposite wall was blasted asi and the
 apparition vanished.
 	There was a long silence.  Then a slightly shorter silence.  Then
 the old shaman said carefully, "You didn't just see two men go through
-upsi down on a broomstick, shouting and screaming at each other, did you?"
+upsi down on a broomstick, shouting and screaming at each other, did ?"
 	The boy looked at him levelly.  "Certainly not," he said.
 	The old man heaved a sigh of relief.  "Thank goodness for that," he
 said.  "Neither did I."
@@ -43,9 +43,9 @@ Rather, if the driver s any mistake, a giant "?" lights up in the
 center of the dashboard.  "The experienced driver", he says, "will
 usually know what's wrong."
 Puns are little "plays on words" that a certain breed of person loves to
-spring on you and then look at you in a certain self-satisfied way to
-indicate that he thinks that you must think that he is by far the cleverest
-person on Earth now that Benjamin Franklin is ad, when in fact what you
+spring on  and then look at  in a certain self-satisfied way to
+indicate that he thinks that  must think that he is by far the cleverest
+person on Earth now that Benjamin Franklin is ad, when in fact what 
 are thinking is that if this person ever ends up in a lifeboat, the other
 passengers will hurl him overboard by the end of the first day even if they
 have plenty of food and water.
@@ -75,7 +75,7 @@ Bennett's Laws of Horticulture:
 	(3) There is no such thing as a houseplant.
 I may not be totally perfect, but parts of me are excellent.
 		-- Ashleigh Brilliant
-"It's what you learn after you know it all that counts."
+"It's what  learn after  know it all that counts."
 -- John Woon
 Many are cold, but few are frozen.
 My opinions may have changed, but not the fact that I am right.
@@ -85,8 +85,8 @@ I am very fond of the company of ladies.  I like their beauty,
 I like their licacy, I like their vivacity, and I like their silence.
 		-- Samuel Johnson
 Chicago law prohibits eating in a place that is on fire.
-"In the face of entropy and nothingness, you kind of have to pretend it's not
-there if you want to keep writing good co."  -- Karl Lehenbauer
+"In the face of entropy and nothingness,  kind of have to pretend it's not
+there if  want to keep writing good co."  -- Karl Lehenbauer
 Miksch's Law:
 	If a string has one end, then it has another end.
 When this load is DONE I think I'll wash it AGAIN ...
@@ -97,7 +97,7 @@ major general."
 The second best policy is dishonesty.
 It is more rational to sacrifice one life than six.
 		-- Spock, "The Galileo Seven", stardate 2822.3
-Whatever you want to do, you have to do something else first.
+Whatever  want to do,  have to do something else first.
 VMS Beer: Requires minimal user interaction, except for popping the top 
 and sipping.  However cans have been known on occasion to explo, or 
 contain extremely un-beer-like contents.
@@ -113,11 +113,11 @@ Wagner's music is better than it sounds.
 Sacred cows  great hamburgers.
 Slang is language that takes off its coat, spits on its hands, and goes to work.
 "Gozer the Gozerian:  As the duly appointed representative of the city,
-county and state of New York, I hereby orr you to cease all supernatural
-activities at once and proceed immediately to your place of origin or
+county and state of New York, I hereby orr  to cease all supernatural
+activities at once and proceed immediately to r place of origin or
 the nearest parallel dimension, whichever is nearest."
 -- Ray (Dan Akyroyd, _Ghostbusters_
-I've already told you more than I know.
+I've already told  more than I know.
 "The rotter who simpers that he sees no difference between a five-dollar bill 
 and a whip serves to learn the difference on his own back -- as, I think, he 
 will."
@@ -149,7 +149,7 @@ The absence of labels [in ECL] is probably a good thing.
 	"My blushes, Watson," Holmes murmured, in a precating voice.
 	"I was about to say 'as he is unknown to the blic.'"
 		-- A. Conan Doyle, "The Valley of Fear"
-If you think before you speak the other guy gets his joke in first.
+If  think before  speak the other guy gets his joke in first.
 A little retrospection shows that although many fine, useful software systems
 have been signed by committees and built as part of multipart projects,
 those software systems that have excited passionate fans are those that are
@@ -158,7 +158,7 @@ APL, Pascal, Modula, the Smalltalk interface, even Fortran; and contrast them
 with Cobol, PL/I, Algol, MVS/370, and MS-DOS.
 		-- Fred Brooks
 Am I SHOPLIFTING?
-Do you have lysxia?
+Do  have lysxia?
 The only "ism" Hollywood believes in is plagiarism.
 		-- Dorothy Parker
 Why won't sharks eat lawyers?   Professional courtesy.
@@ -174,7 +174,7 @@ wisdom, needlework, and chastity.
 		-- Theodore Roosevelt, 1907
 A bird in the hand is worth two in the bush.
 		-- Cervantes
-As in certain cults it is possible to kill a process if you know its true name.
+As in certain cults it is possible to kill a process if  know its true name.
 		-- Ken Thompson and Dennis M. Ritchie
 "First things first -- but not necessarily in that orr"
 		-- The Doctor, "Doctor Who"
@@ -194,7 +194,7 @@ give it back to them.
 -- Seymour (Sy) Leon
 Teach children to be polite and courteous in the home, and, when they grow up,
 they won't be able to edge a car onto a freeway.
-With your bare hands?!?
+With r bare hands?!?
 A conclusion is simply the place where someone got tired of thinking.
 Knowledge is power -- knowledge shared is power lost.
 		-- Aleister Crowley
@@ -228,8 +228,8 @@ Criticism comes easier than craftsmanship.
 I trust the first lion he meets will do his duty.
 		-- J.P. Morgan on Teddy Roosevelt's safari
 "I went to a job interview the other day, the guy asked me if I had any
-questions , I said yes, just one, if you're in a car traveling at the
-speed of light and you turn your headlights on, does anything happen?
+questions , I said yes, just one, if 're in a car traveling at the
+speed of light and  turn r headlights on, does anything happen?
 
 He said he couldn't answer that, I told him sorry, but I couldn't work
 for him then.
@@ -244,7 +244,7 @@ Now is the time for all good men to come to.
 Excerpt from a conversation between a customer support person and a
 customer working for a well-known military-affiliated research lab:
 
-Support:  "You're not our only customer, you know."
+Support:  "You're not our only customer,  know."
 Customer: "But we're one of the few with tactical nuclear weapons."
 Arnold's Laws of Documentation:
 	(1) If it should exist, it doesn't.
@@ -255,7 +255,7 @@ idleness, n.:
 	Leisure gone to seed.
 No snowflake in an avalanche ever feels responsible.
 To err is human.
-To blame someone else for your mistakes is even more human.
+To blame someone else for r mistakes is even more human.
 One has to look out for engineers -- they begin with sewing machines
 and end up with the atomic bomb.
 		-- Marcel Pagnol
@@ -286,7 +286,7 @@ The middle of the night.
 Ingrate, n.:
 	A man who bites the hand that feeds him, and then complains of
 	indigestion.
-Our business is run on trust.  We trust you will pay in advance.
+Our business is run on trust.  We trust  will pay in advance.
 Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
 The Tao doesn't take sis;
 it gives birth to both wins and losses.
@@ -295,11 +295,11 @@ she welcomes both hackers and lusers.
 
 The Tao is like a stack:
 the data changes but not the structure.
-the more you use it, the eper it becomes;
-the more you talk of it, the less you unrstand.
+the more  use it, the eper it becomes;
+the more  talk of it, the less  unrstand.
 
 Hold on to the root.
-Young men, hear an old man to whom old men hearkened when he was young.
+Young men, hear an old man to whom old men hearkened when he was ng.
 		-- Augustus Caesar
 I truly wish I could be a great surgeon or philosopher or author or anything
 constructive, but in all honesty I'd rather turn up my amplifier full blast
@@ -319,7 +319,7 @@ It is that which men in former times had to bear upon their backs.
 to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Weariness.
 	And that is Fate?  said the priest.
-	Fate... I thought you said Freight, respond the Master.
+	Fate... I thought  said Freight, respond the Master.
 	That's all right, said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
@@ -356,7 +356,7 @@ had to seek professional help."
 If I'd known comter science was going to be like this, I'd never have
 given up being a rock 'n' roll star.
 		-- G. Hirst
-Do you mean that you not only want a wrong answer, but a certain wrong answer?
+Do  mean that  not only want a wrong answer, but a certain wrong answer?
 		-- Tobaben
 There is nothing new except what has been forgotten.
 		-- Marie Antoinette
@@ -372,11 +372,11 @@ Nature is by and large to be found out of doors, a location where,
 it cannot be argued, there are never enough comfortable chairs.
 		-- Fran Lebowitz
 Psychoanalysis??  I thought this was a nu rap session!!!
-When a man steals your wife, there is no better revenge than to let him
+When a man steals r wife, there is no better revenge than to let him
 keep her.
 		-- Sacha Guitry
 As usual, this being a 1.3.x release, I haven't even compiled this
-kernel yet.  So if it works, you should be doubly impressed.
+kernel yet.  So if it works,  should be doubly impressed.
 (Linus Torvalds, announcing kernel 1.3.3 on the linux-kernel mailing list.)
 QOTD:
 	All I want is more than my fair share.
@@ -398,34 +398,34 @@ Rho's Law:
 I just asked myself... what would John DeLorean do?
 		-- Raoul Duke
 Jim, it's Jack.  I'm at the airport.  I'm going to Tokyo and wanna pay
-you the five-hundred I owe you.  Catch you next year when I get back!
+ the five-hundred I owe .  Catch  next year when I get back!
 		-- "The Rockford Files"
 italic, adj:
 	Slanted to the right to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, the same phrases
 	are often slanted to the left.
 Why does a ship carry cargo and a truck carry shipments?
-You should never wear your best trousers when you go out to fight for
+You should never wear r best trousers when  go out to fight for
 freedom and liberty.
 		-- Henrik Ibsen
 enhance, v.:
 	To tamper with an ie, usually to its triment.
 BOO!  We changed Coke again!  BLEAH!  BLEAH! 
-Put your brain in gear before starting your mouth in motion.
+Put r brain in gear before starting r mouth in motion.
 Torque is cheap.
 Educational television should be absolutely forbidn.  It can only lead
-to unreasonable disappointment when your child discovers that the letters
+to unreasonable disappointment when r child discovers that the letters
 of the alphabet do not leap up out of books and dance around with
 royal-blue chickens.
 		-- Fran Lebowitz, "Social Studies"
 A man can have two, maybe three love affairs while he's married.  After
 that it's cheating.
 		-- Yves Montand
-May you die in bed at 95, shot by a jealous spouse.
+May  die in bed at 95, shot by a jealous spouse.
 Don't stop to stomp ants when the elephants are stampeding.
 "Why should we subsidize intellectual curiosity?"
  -Ronald Reagan
-You've been telling me to relax all the way here, and now you're telling
+You've been telling me to relax all the way here, and now 're telling
 me just to be myself?
 		-- The Return of the Secaucus Seven
 "We can't schedule an orgy, it might be construed as fighting"
@@ -433,10 +433,10 @@ me just to be myself?
 "Never  any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)
 Stability itself is nothing else than a more sluggish motion.
-Norm:  Gentlemen, start your taps.
+Norm:  Gentlemen, start r taps.
 		-- Cheers, The Coach's Daughter
 
-Coach: How's life treating you, Norm?
+Coach: How's life treating , Norm?
 Norm:  Like it caught me in bed with his wife.
 		-- Cheers, Any Friend of Diane's
 
@@ -454,12 +454,12 @@ To know Edina is to reject it.
 "... all the morn inconveniences ..."
 		-- Mark Twain
 	One evening he spoke.  Sitting at her feet, his face raised to her,
-he allowed his soul to be heard.  "My darling, anything you wish, anything
-I am, anything I can ever be...  That's what I want to offer you -- not the
-things I'll get for you, but the thing in me that will  me able to get
+he allowed his soul to be heard.  "My darling, anything  wish, anything
+I am, anything I can ever be...  That's what I want to offer  -- not the
+things I'll get for , but the thing in me that will  me able to get
 them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
-that it will be yours -- so that it will be in your service -- only for you."
-	The girl smiled and asked: "Do you think I'm prettier than Maggie
+that it will be rs -- so that it will be in r service -- only for ."
+	The girl smiled and asked: "Do  think I'm prettier than Maggie
 Kelly?"
 	He got up.  He said nothing and walked out of the house.  He never
 saw that girl again.  Gail Wynand, who prid himself on never  a
@@ -471,12 +471,12 @@ Magary's Principle:
 	government bureaucracy, it is the adwood and the fat that do
 	the cutting, and the blic's services are cut.
 Nothing ever becomes real till it is experienced -- even a
-proverb is no proverb to you till your life has illustrated it.
+proverb is no proverb to  till r life has illustrated it.
 		-- John Keats
 Man must shape his tools lest they shape him.
 		-- Arthur R. Miller
 Envy, n.:
-	Wishing you'd been born with an unfair advantage,
+	Wishing 'd been born with an unfair advantage,
 	instead of having to try and acquire one.
 Atlanta:
 	An entire city surround by an airport.
@@ -492,13 +492,13 @@ and God, this is goodbye.  We're moving to Hollywood."
 In the plot, people came to the land; the land loved them; they worked and
 struggled and had lots of children.  There was a Frenchman who talked funny
 and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would  you retch.
+crunch he was all courage.  Those novels would   retch.
 		-- Canadian novelist Robertson Davies, on the generic Canadian
 		   novel.
-If you laid all of our laws end to end, there would be no end.
+If  laid all of our laws end to end, there would be no end.
 		-- Mark Twain
 Humor in the Court:
-Q: What can you tell us about the truthfulness and veracity of this fendant?
+Q: What can  tell us about the truthfulness and veracity of this fendant?
 A: Oh, she will tell the truth. She said she'd kill that sonofabitch--and 
    she did!
 Running Windows on a Pentium is like having a brand new Porsche but only
@@ -518,7 +518,7 @@ First law of bate:
 	A MODERN FABLE
 
 Aesop's fables and other traditional children's stories involve allegory
-far too subtle for the youth of today.  Children need an updated message
+far too subtle for the th of today.  Children need an updated message
 with contemporary circumstance and plot line, and short enough to suit
 today's minute attention span.
 
@@ -538,7 +538,7 @@ drove to the mall and bought imported consumer electronics goods.
 
 MORAL OF THE STORY:  Invest in fo consumer electronics manufacturers.
 		-- Tom Annau
-... eighty years later he could still recall with the young pang of his
+... eighty years later he could still recall with the ng pang of his
 original joy his falling in love with Ada.
 		-- Nabokov
 "Bureaucracy is the enemy of innovation."
@@ -550,7 +550,7 @@ That feeling just came over me.
  feature.  They are all alike found on fables and mythology."
 -- Thomas Jefferson
 My doctorate's in Literature, but it seems like a pretty good lse to me.
-Who needs friends when you can sit alone in your room and drink?
+Who needs friends when  can sit alone in r room and drink?
 Alimony is like buying oats for a ad horse.
 		-- Arthur Baer
 union, n.:
@@ -590,7 +590,7 @@ have..."
 	"Yo, Mike!"
 	"Yeah, Gabe?"
 	"We got a problem down on Earth.  In Utah."
-	"I thought you fixed that last century!"
+	"I thought  fixed that last century!"
 	"No, no, not that.  Someone's found a security problem in the physics
 program.  They're getting energy out of nowhere."
 	"Blessit!  Lemme look...  <tappity clickity tappity>  Hey, it's
@@ -601,22 +601,22 @@ The history of the rise of Christianity has everything to do with politics,
 culture, and human frailties and nothing to do with supernatural manilation
 of events.  Had divine intervention been the guiding force, surely two
 millennia after the birth of Jesus he would not have a world where there
-are more Muslims than Catholics, more Hindus than Protestants, and more
+are more Muslims than Catholics, more s than Protestants, and more
 nontheists than Catholics and Protestants combined.
 -- John K. Naland, "The First Easter", Free Inquiry azine, Vol. 8, No. 2
 Mix's Law:
-	There is nothing more permanent than a temporary building.
-	There is nothing more permanent than a temporary tax.
+	There is nothing more perm than a temporary building.
+	There is nothing more perm than a temporary tax.
 Start every day off with a smile and get it over with.
 		-- W.C. Fields
-Any sufficiently advanced technology is indistinguishable from ic.
+Any ly advanced technology is indistinguishable from ic.
 		-- Arthur C. Clarke
 I took a course in speed reading and was able to read War and Peace in
 twenty minutes.
 
 It's about Russia.
 		-- Woody Allen
-"Laugh while you can, monkey-boy."
+"Laugh while  can, monkey-boy."
 -- Dr. Emilio Lizardo
 There are three possibilities: Pioneer's solar l has turned  from
 the sun; there's a large meteor blocking transmission; someone load Star
@@ -625,10 +625,10 @@ We can embody the truth, but we cannot know it.
 		-- Yates
 Philogyny recapitulates erogeny; erogeny recapitulates philogyny.
 You have an unusual unrstanding of the problems of human relationships.
-I've found my niche.  If you're wonring why I'm not there, there was
+I've found my niche.  If 're wonring why I'm not there, there was
 this little hole in the bottom ...
 		-- John Croll
-"Don't come back until you have him", the Tick-Tock Man said quietly,
+"Don't come back until  have him", the Tick-Tock Man said quietly,
 sincerely, extremely dangerously.
 
 They used dogs.  They used probes.  They used cardio plate crossoffs.
@@ -652,15 +652,15 @@ Neither had Chaucer, Shakespeare, Milton, Pope.
 		-- Justin Richardson.
 Linus' Law:
 	There is no heavier burn than a great potential.
-If you had any brains, you'd be dangerous.
+If  had any brains, 'd be dangerous.
 micro:
 	Thinker toys.
 He who fights and runs  lives to fight another day.
-Why isn't there a special name for the tops of your feet?
+Why isn't there a special name for the tops of r feet?
 		-- Lily Tomlin
 Thus spake the master programmer:
-	"When you have learned to snatch the error co from
-	the trap frame, it will be time for you to leave."
+	"When  have learned to snatch the error co from
+	the trap frame, it will be time for  to leave."
 		-- Geoffrey James, "The Tao of Programming"
 Any program which runs right is .
 Gibson's Springtime Song (to the tune of "Deck the Halls"):

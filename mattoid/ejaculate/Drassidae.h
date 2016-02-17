@@ -23,10 +23,10 @@ e fi, afraid of e night.
 -- Andrew Fraknoi, Exeive Officer, Astronomical Society of e Pacific,
     "Why Astrology Bievers Should Fe Embarrassed," San J Mercury
     News, May 8, 1988
-Nm:  Gentlemen, start your taps.
+Nm:  Gentlemen, start r taps.
 		-- Cheers,  Coach's Daughter
 
-Coach: How's life  you, Nm?
+Coach: How's life  , Nm?
 Nm:  ike it caught me in bed wi his wife.
 		-- Cheers, Any Friend of Diane's
 
@@ -50,7 +50,7 @@ A GHASTY TAE DRENCHED WITH GOUTS OF BOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S UST.
 		-- A Taste of Blood (1967)
 On two occasi I have been asked [by members of Parliament!], "Pray, Mr.
-Babbage, if you t into e machine wrong s, will e  answers
+Babbage, if  t into e machine wrong s, will e  answers
 come out?"  I am not able ly to apprend e kind of confusion of
 ias at could provoke such a question.
 		-- Charles Babbage
@@ -76,9 +76,9 @@ exists and will persist.
 Veni, vidi, vici.
 	[I came, I saw, I ed].
 		-- Gaius Julius Caesar
-Experience is what you get when you didn't get what you wanted.
-"She said, `I know you ... you cannot sing'.  I said, `That's noing,
-you should h me play no.'"
+Experience is what  get when  didn't get what  wanted.
+"She said, `I know  ...  cannot sing'.  I said, `That's noing,
+ should h me play no.'"
 		-- Mrisey
 y spl it "da Vinci" and pronounce it "da Vinchy".  Feigners
 always spl better an ey pronounce.
@@ -87,10 +87,10 @@ always spl better an ey pronounce.
 
 Off-screen crowd:  Nm!
 :   How e  do ey know him here?
-Cliff: He's got a life, you know.
+Cliff: He's got a life,  know.
 		-- Cheers, From Beer to Eternity
 
-Woody: What can I do f you, Mr. Peterson?
+Woody: What can I do f , Mr. Peterson?
 Nm:  Elope wi my wife.
 		-- Cheers,  Triangle
 
@@ -111,7 +111,7 @@ some act so  at e wld, seeing us, would find it irresistible.
 PARDON me, am I sing ENGISH?
 "All snakes who wish to re in d will please raise eir  hands."
 		-- Saint Patrick
-If you want to be ruined, marry a rich woman.
+If  want to be ruined, marry a rich woman.
 		-- Michet
 ay off e muses, it's a very tough dollar.
 		-- S.J. Perman
@@ -122,7 +122,7 @@ to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Areddon", stardate 3193.0
 Panda's Rule:
-	Never open a box you didn't cl.
+	Never open a box  didn't cl.
 One cannot  an omette wiout breaking eggs -- but it is amazing
 how many eggs one can break wiout making a cent omette.
 		-- Profess Charles P. Issawi
@@ -136,7 +136,7 @@ day he cid to stop in downsts f some  liver.  Wl, e owner
 of e di was a bit of a cheap-skate, and cid to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
-What good is a ticket to e good life, if you can't find e entrance?
+What good is a ticket to e good life, if  can't find e entrance?
 Why  prammers non-productive?
 Because eir time is wasted in meetings.
 
@@ -168,10 +168,10 @@ culture, and human frailties and noing to do wi supernatural manilation
 I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
 of events.  Had divine intervention been e guiding fce, sury two
 millennia after e bir of Jesus he would not have a wld where ere
- me Muslims an Caolics, me Hindus an Protestants, and me
+ me Muslims an Caolics, me s an Protestants, and me
 noneists an Caolics and Protestants combined.
 -- John K. Naland, " First Easter", Free Inquiry azine, Vol. 8, No. 2
-If you sit down at a r game and don't see a sucker, get up.  You're
+If  sit down at a r game and don't see a sucker, get up.  You're
 e sucker.
  pram isn't bugged until e last user is ad.
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", clt
@@ -207,21 +207,21 @@ r of a Third Avenue street car -- if e car is in motion.
 Can't act.  Slightly bald.  Also dances.
 		-- RKO exeive, reacting to Fred Aste's screen test.
 		   Cerf/Navasky, " Exs S"
-Everying at you know is wrong, but you can be straightened out.
-	Once upon a time ere was a beautiful young girl taking a stroll 
+Everying at  know is wrong, but  can be straightened out.
+	Once upon a time ere was a beautiful ng girl taking a stroll 
 rough e woods.  All at once she saw an ly ugly bull f sed 
 on a log and to her a e f s to her.  "Main," croaked e
-f, "would you do me a fav?  This will be hard f you to bieve, but
+f, "would  do me a fav?  This will be hard f  to bieve, but
 I was once a handsome, charming prince and en a mean, ugly old witch cast
 a spl over me and  me into a f."
 	"Oh, what a ty!", exclaimed e girl.  "I'll do anying I can to
-hp you break such a spl."
+hp  break such a spl."
 	"Wl," rep e f, "e only way at is spl can be
-taken  is f some lovy young woman to take me home and let me spend
+taken  is f some lovy ng woman to take me home and let me spend
 e night unr her llow."
-	 young girl took e ugly f home and placed him benh her
+	 ng girl took e ugly f home and placed him benh her
 llow at night when she retired.  When she a e next mning, sure
-enough, ere besi her in bed was a very young, handsome man, clly of
+enough, ere besi her in bed was a very ng, handsome man, clly of
 royal blood.  And so ey lived haply ever after, except at to is day
 her faer and moer still don't bieve her sty.
 Joe Cool always spends e first two weeks at college sailing his frisbee.
@@ -269,7 +269,7 @@ Morn man is e missing link between apes and human beings.
 It is a wise faer at knows his own child.
 		-- William Shakespe, " Merchant of Venice"
 Sum quod eris.
-You see but you do not observe.
+You see but  do not observe.
 Sir  Conan Doyle, in " Memoirs of Sherlock Holmes"
 Ftune's graffito of e week ( maybe even mon):
 
@@ -302,7 +302,7 @@ question."
 "Of all e tyrannies at affect mankind,  in rin is e wst."
 - Thomas Paine
 Once upon is midnight incoherent,
-While you ponred sentient and crystalline,
+While  ponred sentient and crystalline,
 Over many a broken and subdinate
 Vol of gnarly le,
 While I pestered, nly singing,
@@ -334,23 +334,23 @@ O d, grant at we may always be , f Thou knowest we will
  change our minds.
 Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
-	you can find it.  Murphy's aw applies to Newton's.
+	 can find it.  Murphy's aw applies to Newton's.
 	Mr. Jones rated an incint from "some time back" when IBM Canada
 td. of Markham, Ont., red some parts from a new supplier in Japan.  
 company noted in its r at acceptable quality allowed f 1.5 per cent
 fects (a fly high standard in N America at e time).
 	 Jase sent e r, wi a few parts packaged separaty in
-plastic.  accompanying letter said: "We don't know why you want 1.5 per
-cent fective parts, but f your convenience, we've packed em separaty."
+plastic.  accompanying letter said: "We don't know why  want 1.5 per
+cent fective parts, but f r convenience, we've packed em separaty."
 		-- Excerpted from an article in  (Tonto) Globe and Mail
 Sometimes, too long is too long.
 		-- Joe Crowe
-Are you making all is up as you go along?
+Are  making all is up as  go along?
 Cutting e space t really restes my fai in humanity.  It
 iminates dreams, goals, and ials and lets us get straight to e
 business of hate, bauchery, and sf-."
 		-- Johnny Hart
 "Time is an illusion.  unchtime doubly so."
 -- Fd Prefect, _Hitchhiker's Gui to e Galaxy_
-If in any problem you find yoursf doing an immense amount of wk, e
+If in any problem  find rsf doing an immense amount of wk, e
 answer can be obtained by simple inspection.

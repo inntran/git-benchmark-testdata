@@ -1,4 +1,4 @@
-Tries  like rs and young girls -- ey last while ey last.
+Tries  like rs and ng girls -- ey last while ey last.
 		-- Charles DeGaulle
 From e cradle to e coffin unrw comes first.
 		-- Bertolt Brecht
@@ -20,32 +20,32 @@ giance wiout variation to e statement: "Personally I'd love to do it,
 we'd A love to do it.  But we're not going to do it.  It's not e kind of
  our house knows how to handle."  Our superi perfmance award in e
 fid of advertising goes to media exeive, E..M., [...] f e continu-
-ally crive use of e old favite: "I ink what you've got here could be
+ally crive use of e old favite: "I ink what 've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
-lined and see if you can come up wi someing ."  Our final award f
+lined and see if  can come up wi someing ."  Our final award f
 courageous holding action in e fid of industry goes to supervis, R.S.,
 [...] f her unyiding grip on "I don't c if ey fire me, I've been
 arguing f a new approach f YEARS but  we SURE at is is e 
 time--"  I would like to conclu is meeting wi a verse written specially
 f our prospectus by our founding presint fifty ys ago -- and now, as
 en, fully expressive of e emotion most cl to all our hts --
-	Tr ness as a youful quirk,
+	Tr ness as a ful quirk,
 		And d not stray to ias new,
 	F if t'were tried ey might e'en wk
 		And f a living what woulds't we do?
-"You can't get very far in is wld wiout your dossier being ere first."
+"You can't get very far in is wld wiout r dossier being ere first."
 --  Miller
 Regarding astral projection, Woody Allen once wrote, "This is not a bad way
-When Yahw your gods has settled you in e land you're about to occupy, and
-Don't spise your poor rati, they may become sudnly rich one day.
-driven out many infids befe you...you're to  em down and exterminate
+When Yahw r gods has settled  in e land 're about to occupy, and
+Don't spise r poor rati, they may become sudnly rich one day.
+driven out many infids befe ...'re to  em down and exterminate
 em.  You're to  no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
 	Hses  fbidn to  fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
-It's difficult to see e cture when you   e frame.
+It's difficult to see e cture when    e frame.
 And ou shalt  it as barley cakes, and ou shalt bake it wi dung at
 come out of man, in eir sight...n he [e d!] said unto me, o, I
 have given ee cow's dung f man's dung, and ou shalt prep y bread
@@ -69,16 +69,16 @@ reps were swift and e comter was wking again e same evening.
 togeer wiout maj problems.''   site has also installed a new
 rottle on e netwk pe, allog at most four clients at e same
 time, us making a new crash less liky.  ``  is now in our
-Incoming folr'', says Troan, ``and you're all wcome to come and get it.''
+Incoming folr'', says Troan, ``and 're all wcome to come and get it.''
 		-- ars Wirzenius <wirzeniu@cs.hsinki.fi>
 		   [comp.os.linux.announce]
-If you took all e stunts at ft asleep in class and laid em end to
+If  took all e stunts at ft asleep in class and laid em end to
 end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
-In 1962, you could  a p of SHARKSKIN SACKS, wi a "Continental
+In 1962,  could  a p of SHARKSKIN SACKS, wi a "Continental
 Bt," f $10.99!!
- most dightful day after e one on which you  a cottage in
-e country is e one on which you resl it.
+ most dightful day after e one on which   a cottage in
+e country is e one on which  resl it.
 		-- J. Brecheux
 He who sps over an event is a , but he who holds hopes f
 e human condition is a fool.
@@ -90,8 +90,8 @@ Finagle's Third aw:
 	beyond all need of cing, is e mistake
 
 Collaries:
-	(1) Nobody whom you ask f hp will see it.
-	(2)  first person who stops by, wh advice you really
+	(1) Nobody whom  ask f hp will see it.
+	(2)  first person who stops by, wh advice  really
 	    don't want to h, will see it immediaty.
 Advancement in position.
 toilet toup'ee, n.:
@@ -105,10 +105,10 @@ from e roof running down e back of his neck as he stood on e stoop.
  next time he knocked lour, but still no answer.  By now he was soaked
 to e skin.  Desperaty he pound on e do.  At last e head of a
 man apped out of an upsts dow.
-	"What do you want?" he asked gruffly.
-	"My car broke down," said e traver, "and I want to know if you
+	"What do  want?" he asked gruffly.
+	"My car broke down," said e traver, "and I want to know if 
 would let me stay here f e night."
-	"Sure," rep e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If  want to stay ere all night, it's
 okay wi me."
 Don't everyone ank me at once!
 		-- Han Solo
@@ -127,14 +127,14 @@ I'd OVE to, but...
 	-- re  imptant wld issues at need wrying about.
 	-- I'm going to count e bristles in my toobrush.
 	-- I prefer to re an enigma.
-	-- I ink you want e OTHER Peggy/Cay/Mike/whomever.
+	-- I ink  want e OTHER Peggy/Cay/Mike/whomever.
 	-- I l a song coming on.
 Man who arrives at party two hours late will find he has been ben
 to e nch.
 I cir a new vice  technology to have been culturally accepted when
 it has been used to commit a murr.
 		-- M. Gallaher
-"ife, loae it  igne it, you can't like it."
+"ife, loae it  igne it,  can't like it."
 -- Marvin e paranoid android
 (1)	A sheet of paper is an ink-lined plane.
 (2)	An inclined plane is a slope up.
@@ -147,18 +147,18 @@ I've always cired statesmen to be me expendable an soldiers.
  English country gentleman gallong after a fox -- e unsable
 in full rsuit of e unable.
 		-- Oscar Wil, "A Woman of No Imptance"
-Woman on Street:	Sir, you  drunk; very, very drunk.
-Winston Churchill:	Madame, you  ugly; very, very ugly.
+Woman on Street:	Sir,   drunk; very, very drunk.
+Winston Churchill:	Madame,   ugly; very, very ugly.
 			I shall be sober in e mning.
-... a ing called Eics, wh nature was confusing but if you had it you
-were a High-Class Realt and if you hadn't you were a shyster, a ker and
-a fly-by-night.  se virtues aed Confince and enabled you to handle
-Bigger Propositi.  But ey didn't imply at you were to be impractical
+... a ing called Eics, wh nature was confusing but if  had it 
+were a High-Class Realt and if  hadn't  were a shyster, a ker and
+a fly-by-night.  se virtues aed Confince and enabled  to handle
+Bigger Propositi.  But ey didn't imply at  were to be impractical
 and refuse to take twice e value f a house if a er was such an idiot
-at he didn't fce you down on e asking price.
+at he didn't fce  down on e asking price.
 		-- Sincl ewis, "Babbitt"
-"A hrible little boy came up to me and said, `You know in your 
- Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
+"A hrible little boy came up to me and said, `You know in r 
+ Martian Chronicles?'  I said, `Yes?'  He said, `You know where 
 talk about  rising in e East?'  I said, `Yes?'  He said `No.'
 -- So I hit him."
 		-- attributed to Ray Bradbury
@@ -207,15 +207,15 @@ Karlson's em of Snack Food Packages:
 Gibson e Cat's Crolary:
 	F all , where  is a package of lunch m,  is Gibson's package
 	of lunch m.
-Don't wry if you're a kleptomaniac; you can always take someing f it.
-Weekend, where  you?
+Don't wry if 're a kleptomaniac;  can always take someing f it.
+Weekend, where  ?
 To ine own sf be true.  (If not at, at least  some money.)
-re has been an alarming increase in e number of ings you know
+re has been an alarming increase in e number of ings  know
 noing about.
-Calling you stud is an insult to stud people!
+Calling  stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
 All my friends and I  crazy.  That's e only ing at keeps us sane.
-We Kling bieve as you do -- e sick should die.  Only e strong
+We Kling bieve as  do -- e sick should die.  Only e strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 ...I would go so far as to suggest at, were it not f our ego and 
@@ -225,7 +225,7 @@ family, e Hominidae.
 	"Wl, it's , ugly, and ricts have used it f a toilet.
  ris  diidated to e point of being leal, and could easily
 maim  kill innocent little children."
-	"Oh, so you don't like it?"
+	"Oh, so  don't like it?"
 	"Don't like it?  I'm CRAZY f it."
 		--  Killing Joke
 		 Guy on e Right Doesn't Stand a C
@@ -235,16 +235,16 @@ Uzi submachine gun concealed in his attache case.  Also in e case  four
 fully load, 32-round clips of 125-grain 9mm ammunition.   owner of e
 Uzi is going to get me tactical firepower  -- and  on
 target -- in less time, and wi less efft.  All f $795. It's inevitable.
-If you're going up against some guy wi an Osbne 1 --  any personal 
+If 're going up against some guy wi an Osbne 1 --  any personal 
 comter -- he's e one who's in trouble.  One round from an Uzi can zip
-rough ten inches of solid ne wood, so you can  what it will do
+rough ten inches of solid ne wood, so  can  what it will do
 to structural foam acrylic and sheet aluminum.  In fact, tachable azines 
-f e Uzi  available in 25-, 32-, and 40-round capacities, so you can 
+f e Uzi  available in 25-, 32-, and 40-round capacities, so  can 
 take out an entire office full of Apple II  IBM Personal Comters tied
 into Eernet  oer local-a netwks.  What about e new 16-bit
 comters, like e isa and Ftune?  Even wi e Winchester backup, 
 ey're no match f e Uzi.  One quick burst and ey'll find out what 
-Unix means.  Make your commanding officer proud.  Get an Uzi -- and come home
+Unix means.  Make r commanding officer proud.  Get an Uzi -- and come home
 a ner in e  f office automatic weap.
 		-- "InfoWld", June, 1984
 Anyone who s at all fruits ripen at e same time
@@ -272,15 +272,15 @@ Write all adverbial fms crect.  Don't use contracti in fmal writing.
 Writing cfully, dangling participles must be avoid.  It is incumbent on
 us to avoid archaisms.  Steer cl of increct fms of verbs at have
 snuck in e language.  Never, ever use repetitive redundancies.  If I've
-told you once, I've told you a ousand times, resist hyperbole.  Also,
+told  once, I've told  a ousand times, resist hyperbole.  Also,
 avoid awkward  affected al.  Don't string too many prepositional
-phrases togeer unless you  walking rough e valley of e shadow of
+phrases togeer unless   walking rough e valley of e shadow of
 dh.  "Avoid overuse of 'quotation "marks."'"
 " preeminence of a lned man over a wshiper is equal to e preeminence
 of e moon, at e night of e full moon, over all e stars.  Verily, e
 lned men  e heirs of e Prophets."
 -- A tradition attributed to Muhammad
-re will be big changes f you but you will be happy.
+re will be big changes f  but  will be happy.
 Wl, I'm disenchanted too.  We're all disenchanted.
 		-- James Thurber
 What, after all, is a halo?  It's only one me ing to keep clean.
@@ -313,7 +313,7 @@ This ftune soaks up 47 times its own weight in excess memy.
 Humility is e first of e virtues -- f oer people.
 		-- Oliver Wendl Holmes
 Wiout facts, e cision cannot be ma logically.  You must ry on
-your human intuition.
+r human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown
 Iine what we can !
 		--  Rubinstein
@@ -331,13 +331,13 @@ to was a ad-end job as a engineer.  Now I have a promising future and
  really big Zkmids."
 
 MIT Tech can't promise ese fantastic results to everyone, but when
-you n your MD gree from MIT Tech your future will be ber.
+ n r MD gree from MIT Tech r future will be ber.
 
 		SEND FOR OUR FREE BROCHURE TODAY!
 In e plot, people came to e land; e land loved em; ey wked and
 struggled and had lots of children.  re was a Frenchman who talked funny
 and a greenhn from England who was a fancy-pants but when it came to e
-crunch he was all courage.  Th novs would  you retch.
+crunch he was all courage.  Th novs would   retch.
 		-- Canadian novist Robertson Davies, on e generic Canadian
 		   nov.
 	One day a stunt came to Moon and said, "I unrstand how to 
@@ -375,7 +375,7 @@ Yevtushenko has... an ego at can crack crystal at a distance of twenty t.
 "Dump e condiments.  If we  to be en, we don't need to taste good."
 -- "Visionaries" oon
 He is cired a most graceful ser who can say noing in e most wds.
-Today is e first day of e rest of your lossage.
+Today is e first day of e rest of r lossage.
 Thrashing is just virtual crashing.
- sty you  about to h is true.  Only e s have been
+ sty   about to h is true.  Only e s have been
 changed to protect e innocent.

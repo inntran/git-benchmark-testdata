@@ -1,18 +1,18 @@
-When you're dining out and you suspect someing's wrong, you're probably .
+When 're dining out and  suspect someing's wrong, 're probably .
 Resch is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
-Till en we shall be content to admit openly, what you (rinists)
-whisper unr your brh  hi in technical jargon, at e ancient
+Till en we shall be content to admit openly, what  (rinists)
+whisper unr r brh  hi in technical jargon, at e ancient
 secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will enavour to be as charitable as
-possible, and whilst you trumpet f officially your contempt f our
-skepticism, we will at least try to bieve at you  impd upon
-by your own bluster.
+possible, and whilst  trumpet f officially r contempt f our
+skepticism, we will at least try to bieve at   impd upon
+by r own bluster.
 - eslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
 "I prefer e blunted cudgs of e followers of e Serpent God."
 -- Sean Dan e Younger
-Be sf-riant and your success is assured.
+Be sf-riant and r success is assured.
 Ftune's graffito of e week ( maybe even mon):
 
 		Don't Write On Walls!
@@ -21,14 +21,14 @@ Ftune's graffito of e week ( maybe even mon):
 
 		You want I should type?
 Everywhere I look I see NEGATIVITY and ASPHAT ...
-You know you have a ll apartment when Rice Krises echo.
+You know  have a ll apartment when Rice Krises echo.
 		-- S. Rickly 
 It is not necessary to inquire wheer a woman would like someing f
 ssert.   answer is yes, she would like someing f ssert, but
-she would like you to r it so she can ck at it wi your fk.  She
-does not want you to call attention to is by saying, 'If you wanted a
-ssert, why didn't you r one?'  You must unrstand, she has e
-ssert she wants.   ssert she wants is contained wiin yours.
+she would like  to r it so she can ck at it wi r fk.  She
+does not want  to call attention to is by saying, 'If  wanted a
+ssert, why didn't  r one?'  You must unrstand, she has e
+ssert she wants.   ssert she wants is contained wiin rs.
 		-- Merrill Marcoe, "An Insir's Gui to e American Woman"
 re's a way out of any cage.
 		-- Captain Christopher Pike, " Menagerie" (" Cage"),
@@ -43,11 +43,11 @@ e human condition is a fool.
 		-- Albert Camus
 "Not only is God ad, but just try to find a plumber on weekends."
 --Woody Allen
-Now ere's ree ings you can do in a baseball game: you can 
- you can l  it can rain.
+Now ere's ree ings  can do in a baseball game:  can 
+  can l  it can rain.
 		-- Casey Steng
 QOTD:
-	"This is a one line proof... if we start sufficiently far to e
+	"This is a one line proof... if we start ly far to e
 	left."
 "To vacillate  not to vacillate, at is e question ...  is it?"
 To find a friend one must cl one eye; to keep him -- two.
@@ -69,4 +69,4 @@ we might overlook at too."
 into e ripped interi.  "Honey," said her husd, "e whole car's e
 ash tray."
 		-- Stephen Pile, " Book of Heroic Failures"
- 80's -- when you can't tl hstyles from chemoerapy.
+ 80's -- when  can't tl hstyles from chemoerapy.

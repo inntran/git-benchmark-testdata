@@ -1,20 +1,20 @@
 A blind rabbit was hopping through the woods, tripping over logs and crashing
 into trees.  At the same time, a blind snake was slithering through the same
 forest, with intical results.  They chanced to colli head-on in a clearing.
-	"Please excuse me, sir, I'm blind and I bumped into you accintally,"
+	"Please excuse me, sir, I'm blind and I bumped into  accintally,"
 apologized the rabbit.
 	"That's quite all right," rep the snake, "I have the same
 problem!"
 	"All my life I've been wonring what I am," said the rabbit, "Do
-you think you could help me find out?"
+ think  could help me find out?"
 	"I'll try," said the snake.  He gently coiled himself around the
-rabbit. "Well, you're covered with soft fur, you have a little fluffy tail
-and long ears.  You're... hmmm... you're probably a bunny rabbit!"
-	"Great!" said the rabbit.  "Thanks, I really owe you one!"
-	"Well," rep the snake, "I don't know what I am, either.  Do you
-suppose you could try and tell me?"
-	The rabbit ran his paws all over the snake.  "Well, you're low, cold
-and slimey..."  And, as he ran one paw unrneath the snake, "and you have
+rabbit. "Well, 're covered with soft fur,  have a little fluffy tail
+and long ears.  You're... hmmm... 're probably a bunny rabbit!"
+	"Great!" said the rabbit.  "Thanks, I really owe  one!"
+	"Well," rep the snake, "I don't know what I am, either.  Do 
+suppose  could try and tell me?"
+	The rabbit ran his paws all over the snake.  "Well, 're low, cold
+and slimey..."  And, as he ran one paw unrneath the snake, "and  have
 no balls.  You must be an attorney!"
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
@@ -51,8 +51,8 @@ We clare the names
 of all variables and functions.
 Yet the Tao has no type specifier.
 
-Dynamically binding, you realize the ic.
-Statically binding, you see only the hierarchy.
+Dynamically binding,  realize the ic.
+Statically binding,  see only the hierarchy.
 
 Yet ic and hierarchy
 arise from the same source,
@@ -70,11 +70,11 @@ inveterate skeptic I have closed my mind to the truth.  Most notably I have
 ignored the evince for an Earth that is six thousand years old.  Well, I
 haven't ignored it; I consired the rported evince and *then* rejected it.
 There is a difference, and this is a difference, we might say, between 
-prejudice and postjudice.  Prejudice is making a judgment before you have
+prejudice and postjudice.  Prejudice is making a judgment before  have
 looked at the facts.  Postjudice is making a judgment afterwards.  Prejudice
-is terrible, in the sense that you commit injustices and you  serious
-mistakes.  Postjudice is not terrible.  You can't be perfect of course; you
-may  mistakes also.  But it is permissible to  a judgment after you
+is terrible, in the sense that  commit injustices and   serious
+mistakes.  Postjudice is not terrible.  You can't be perfect of course; 
+may  mistakes also.  But it is permissible to  a judgment after 
 have examined the evince.  In some circles it is even encouraged.
 - Carl Sagan, The Burn of Skepticism, Skeptical Enquirer, Vol. 12, pg. 46
 When a girl can read the handwriting on the wall, she may be in the wrong
@@ -85,7 +85,7 @@ serendipity, n.:
 is the most extreme form ever.  This means at least several years of confusion."
 -- Bill Gates, founr and chairman of Microsoft, 
    about the Open Systems Foundation
-If you are looking for a kindly, well-to-do olr gentleman who is no
+If  are looking for a kindly, well-to-do olr gentleman who is no
 longer interested in sex, take out an ad in The Wall Street Journal.
 		-- Abigail Van Buren
 Ah, my friends, from the prison, they ask unto me,
@@ -93,9 +93,9 @@ Ah, my friends, from the prison, they ask unto me,
 And I answer them most mysteriously:
 "Are birds free from the chains of the sky-way?"
 		-- Bob Dylan
-You are a fluke of the universe; you have no right to be here.
-Whether you can hear it or not,
-The Universe is laughing behind your back.
+You are a fluke of the universe;  have no right to be here.
+Whether  can hear it or not,
+The Universe is laughing behind r back.
 		-- National Lampoon, "Deteriorata"
 	When managers hold endless meetings, the programmers write games.
 When accountants talk of quarterly profits, the velopment budget is about
@@ -112,7 +112,7 @@ be solved.
 -- The Censored Hacker
 Oatmeal raisin.
 Help a swallow land at Capistrano.
-If in any problem you find yourself doing an immense amount of work, the
+If in any problem  find rself doing an immense amount of work, the
 answer can be obtained by simple inspection.
 There is is no reason for any individual to have a comter in their home.
 		-- Ken Olsen (Presint of Digital Equipment Corporation),
@@ -134,7 +134,7 @@ Give me a nudge for goodness' sake.
 The difference between a lawyer and a rooster is that
 the rooster gets up in the morning and clucks fiance.
 	A shy romeo asked a gorgeous elevator operator, "Don't all these
-stops and starts get you pretty worn out?"  "It isn't the stops and starts
+stops and starts get  pretty worn out?"  "It isn't the stops and starts
 that get on my nerves, it's the jerks."
 The hater of property and of government takes care to have his warranty
 ed record, and the book written against fame and learning has the
@@ -151,7 +151,7 @@ Look ere ye leap.
 	After watching an extremely attractive maternity-ward patient
 earnestly thumbing her way through a telephone directory for several 
 minutes, a hospital orrly finally asked if he could be of some help.
-	"No, thanks," smiled the young mother, "I'm just looking for a
+	"No, thanks," smiled the ng mother, "I'm just looking for a
 name for my baby."
 	"But the hospital supplies a special booklet that lists hundreds
 of first names and their meanings," said the orrly.
@@ -160,7 +160,7 @@ A full y s a dull brain.
 		-- Ben Franklin
 
 		[and the local candy machine man.  Ed]
-Most of your faults are not your fault.
+Most of r faults are not r fault.
 "Paul Lyn to block..."
 -- a contestant on "Hollywood Squares"
 Kilroe hic erat!
@@ -206,13 +206,13 @@ cast our documentation of its occurrence -- the "fact of evolution" --
 into doubt.
 - Stephen Jay Gould, "The Verdict on Creationism", The Skeptical Inquirer,
   Vol XII No. 2
-	Before he became a hermit, Zarathud was a young Priest, and
+	Before he became a hermit, Zarathud was a ng Priest, and
 	took great light in making fools of his opponents in front of
 his followers.
 	One day Zarathud took his stunts to a pleasant pasture and
 there he confronted The Sacred Chao while She was contentedly grazing.
-	"Tell me, you dumb beast," mand the Priest in his
-commanding voice, "why don't you do something worthwhile?  What is your
+	"Tell me,  dumb beast," mand the Priest in his
+commanding voice, "why don't  do something worthwhile?  What is r
 Purpose in Life, anyway?"
 	Munching the tasty grass, The Sacred Chao rep "MU".  (The
 Chinese iogram for NO-THING.)
@@ -240,9 +240,9 @@ Most people are unable to write because they are unable to think, and
 they are unable to think because they congenitally lack the equipment
 to do so, just as they congenitally lack the equipment to fly over the moon.
 		-- H.L. Mencken
-If you have never been hated by your child, you have never been a parent.
+If  have never been hated by r child,  have never been a parent.
 		-- Bette Davis
-"I'd love to go out with you, but I have to floss my cat."
+"I'd love to go out with , but I have to floss my cat."
 The world needs more people like us and fewer like them.
 Progress means replacing a theory that is wrong with one more subtly wrong.
 Biz is better.
@@ -253,26 +253,26 @@ Besis the vice, the box should contain:
 
 YOU WILL NEED TO SUPPLY: a matrix wrench and 60,000 feet of tram cable.
 
-IF ANYTHING IS DAMAGED OR MISSING: You IMMEDIATELY should turn to your spouse
-and say: "Margaret, you know why this country can't  a car that can get
+IF ANYTHING IS DAMAGED OR MISSING: You IMMEDIATELY should turn to r spouse
+and say: "Margaret,  know why this country can't  a car that can get
 all the way through the drive-through at Burger King without a major
 transmission overhaul?  Because nobody cares, that's why."
 
-WARNING: This is assuming your spouse's name is Margaret.
+WARNING: This is assuming r spouse's name is Margaret.
 		-- Dave Barry, "Read This First!"
 You can't sh on a string.
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 A day without sunshine is like night.
 QOTD:
-	"What women and psychologists call `dropping your armor', we call
-	"baring your neck."
-Your pth of comprehension may tend to  you lax in worldly ways.
+	"What women and psychologists call `dropping r armor', we call
+	"baring r neck."
+Your pth of comprehension may tend to   lax in worldly ways.
 "Just out of curiosity does this actually mean something or have some
-of the few reing bits of your brain just evaporated?"
+of the few reing bits of r brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DALLAS.TX.US
-If you sh the "extra ice" button on the soft drink vending machine, you won't
-get any ice.  If you sh the "no ice" button, you'll get ice, but no cup.
+If  sh the "extra ice" button on the soft drink vending machine,  won't
+get any ice.  If  sh the "no ice" button, 'll get ice, but no cup.
 The world will end in 5 minutes.  Please log out.
 Give a small boy a hammer and he will find that everything he encounters
 needs pounding.
@@ -301,14 +301,14 @@ A newspaper is a circulating library with high blood pressure.
 		-- Arthure "Bugs" Baer
 Hi!  You have reached 555-0129. None of us are here to answer the phone and
 the cat doesn't have opposing thumbs, so his messages are illegible.  Please
-leave your name and message after the beep...
+leave r name and message after the beep...
 Those who have some means think that the most important thing in the
 world is love.  The poor know that it is money.
 		-- Gerald Brenan
 No house is childproofed unless the little darlings are in straitjackets.
 Any philosophy that can be t "in a nutshell" belongs there.
 		-- Sydney J. Harris
-Always remember that you are unique.  Just like everyone else.
+Always remember that  are unique.  Just like everyone else.
 Decemba, n:	The 12th month of the year.
 erra, n:	A mistake.
 faa, n:		To, from, or at consirable distance.
@@ -328,21 +328,21 @@ he exclaimed:
 		-- Geoffrey James, "The Tao of Programming"
 Excellent day to have a rotten day.
 Three o'clock in the afternoon is always just a little too late or a little
-too early for anything you want to do.
+too early for anything  want to do.
 		-- Jean-Paul Sartre
-It's not reality or how you perceive things that's important -- it's
-what you're taking for it...
+It's not reality or how  perceive things that's important -- it's
+what 're taking for it...
 Technology is dominated by those who manage what they do not unrstand.
-She missed an invaluable opportunity to give him a look that you could
+She missed an invaluable opportunity to give him a look that  could
 have poured on a waffle ...
 That's the thing about people who think they hate comters.  What they
 really hate is lousy programmers.
 		-- Larry Niven and Jerry Pournelle in "Oath of Fealty"
-TAPPING?  You POLITICIANS!  Don't you realize that the END of the "Wash
+TAPPING?  You POLITICIANS!  Don't  realize that the END of the "Wash
 Cycle" is a TREASURED MOMENT for most people?!
 When God endowed human beings with brains, He did not intend to guarantee them.
 QOTD:
-	How can I miss you if you won't go ?
+	How can I miss  if  won't go ?
 I am eply CONCERNED and I want something GOOD for BREAKFAST!
 Far back in the mists of ancient time, in the great and glorious days of the
 former Galactic Empire, life was wild, rich and largely tax free.
@@ -365,7 +365,7 @@ listen to it, and, even better, nobody has to play it.
 		-- Mike Harding, "The Armchair Anarchist's Almanac"
 Aphasia:
 	Loss of speech in social scientists when asked
-	at parties, "But of what use is your research?"
+	at parties, "But of what use is r research?"
 Who's scruffy-looking?
 		-- Han Solo
 manic-pressive, adj.:
@@ -383,7 +383,7 @@ All in mail ever clinking.
 We do not colonize.  We conquer.  We rule.  There is no other way for us.
 		-- Rojan, "By Any Other Name", stardate 4657.5
 As with most fine things, chocolate has its season.  There is a simple
-memory aid that you can use to termine whether it is the correct time
+memory aid that  can use to termine whether it is the correct time
 to orr chocolate dishes: any month whose name contains the letter A,
 E, or U is the proper time for chocolate.
 		-- Sandra Boynton, "Chocolate: The Consuming Passion"
@@ -398,14 +398,14 @@ Is it not amazing?"
 	The master raised his eyebrows slightly. "It is ined amazing," he
 said.
 	"Corporate Headquarters has command," continued the ician, "that
-everyone use this workstation as a platform for new programs.  Do you agree
+everyone use this workstation as a platform for new programs.  Do  agree
 to this?"
 	"Certainly," rep the master, "I will have it transported to the
 data center immediately!"  And the ician returned to his tower, well
 pleased.
 	Several days later, a novice wanred into the office of the master
 programmer and said, "I cannot find the listing for my new program.  Do
-you know where it might be?"
+ know where it might be?"
 	"Yes," rep the master, "the listings are stacked on the platform
 in the data center."
 		-- Geoffrey James, "The Tao of Programming"
@@ -424,9 +424,9 @@ You shoot a fellow down
 You'd treat, if met where any bar is
 Or help to h-a-crown."
 		-- Thomas Hardy
-It's great to be smart 'cause then you know stuff.
-You have a tenncy to feel you are superior to most comters.
-I'm sorry if the correct way of doing things offends you.
+It's great to be smart 'cause then  know stuff.
+You have a tenncy to feel  are superior to most comters.
+I'm sorry if the correct way of doing things offends .
 The only difference between the saint and the sinner is that every saint
 has a past and every sinner has a future.
 		-- Oscar Wil
@@ -438,12 +438,12 @@ GREAT MOMENTS IN HISTORY (#7):  April 2, 1751
 Issac Newton becomes discouraged when he falls up a flight of stairs.
 The Crown is full of it!
 		-- Nate Harris, 1775
-Show me a good loser in professional sports and I'll show you an idiot.
-Show me a good sportsman and I'll show you a player I'm looking to tra.
+Show me a good loser in professional sports and I'll show  an idiot.
+Show me a good sportsman and I'll show  a player I'm looking to tra.
 		-- Leo Durocher
-If people see that you mean them no harm, they'll never hurt you, nine
+If people see that  mean them no harm, they'll never hurt , nine
 times out of ten!
-Be careful when you bite into your hamburger.
+Be careful when  bite into r hamburger.
 		-- Derek Bok
 Whenever I date a guy, I think, is this the man I want my children
 to spend their weekends with?
@@ -459,30 +459,30 @@ him than he serves.
    On Krat's  screen appeared the holo ie of a man, and several dolphins.
 From the man's shape, Krat could tell it was a female, probably their lear.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
-upspring of errant masters.  We slip  from all your armed might, laughing
-at your clumsiness!  We slip  as we always will, you pathetic creatures.
-And now that we have a real head start, you'll never catch us!  What better
-proof that the Progenitors favor not you, but us!  What better proof..."
+upspring of errant masters.  We slip  from all r armed might, laughing
+at r clumsiness!  We slip  as we always will,  pathetic creatures.
+And now that we have a real head start, 'll never catch us!  What better
+proof that the Progenitors favor not , but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time savoring
 the artistry of it.  These men are better than I'd thought.  Their insults
 are wordy and overblown, but they have talent.  They serve honorable, slow
 aths.
 - David Brin, Starti Rising
-But what can you do with it?  -- ubiquitous cry from Linux-user partner.
+But what can  do with it?  -- ubiquitous cry from Linux-user partner.
 (Submitted by Andy Pearce, ajp@hpopd.pwd.hp.com)
 Finish the sentence below in 25 words or less:
 
-	"Love is what you feel just before you give someone a good ..."
+	"Love is what  feel just before  give someone a good ..."
 
-Mail your answer along with the top h of your supervisor to:
+Mail r answer along with the top h of r supervisor to:
 
 	P.O. Box 35
 	Baffled Greek, Michigan
 Humor in the Court:
-Q: What can you tell us about the truthfulness and veracity of this fendant?
+Q: What can  tell us about the truthfulness and veracity of this fendant?
 A: Oh, she will tell the truth. She said she'd kill that sonofabitch--and 
    she did!
-Class: when they're running you out of town, to look like you're
+Class: when they're running  out of town, to look like 're
 leading the para.
 		-- Bill Battie
 All I've got left on the list of sirable vocations is heiress to the
@@ -502,24 +502,24 @@ Oh, I am a C programmer and I'm okay
 	I muck with indices and structs all day
 And when it works, I shout hoo-ray
 	Oh, I am a C programmer and I'm okay
-Today you'll start getting heavy metal radio on your ntures.
-The most lightful day after the one on which you buy a cottage in
-the country is the one on which you resell it.
+Today 'll start getting heavy metal radio on r ntures.
+The most lightful day after the one on which  buy a cottage in
+the country is the one on which  resell it.
 		-- J. Brecheux
 Gold coast slave ship bound for cotton fields
 Sold in a market down in New Orleans
 Scarred old s knows he's doing alright
 Hear him whip the women, just around midnight
 
-Ah, brown sugar how come you taste so good?
-Ah, brown sugar just like a young girl should
+Ah, brown sugar how come  taste so good?
+Ah, brown sugar just like a ng girl should
 
 Drums beating cold English blood runs hot
 Lady of the house wonrin' where it's gonna stop
 House boy knows that he's doing alright
 You should a heard him just around midnight.
 ...
-I bet your mama was tent show queen
+I bet r mama was tent show queen
 And all her girlfriends were sweet sixteen
 I'm no school boy but I know what I like
 You should have heard me just around midnight.
@@ -529,14 +529,14 @@ You should have heard me just around midnight.
  technology must be what prevented its distribution during my mom's .  My 
  carpet smells like piss, and I don't have a cat.  Better go by some more."
 -- timw@zeb.USWest.COM, in alt.conspiracy
-If you can't read this, blame a teacher.
-Have no friends not equal to yourself.
+If  can't read this, blame a teacher.
+Have no friends not equal to rself.
 		-- Confucius
 Hope not, lest ye be disappointed.
 		-- M. Horner
-It is true that if your paperboy throws your paper into the bushes for five
+It is true that if r paperboy throws r paper into the bushes for five
 straight days it can be explained by Newton's Law of Gravity.  But it takes
-Murphy's law to explain why it is happening to you.
+Murphy's law to explain why it is happening to .
 Once he had one leg in the White House and the nation trembled unr his 
 roars.  Now he is a tinpot pope in the Coca-Cola belt and a brother to the
 forlorn pastors who belabor hwits in galvanized iron tabernacles behind
@@ -546,12 +546,12 @@ the railroad yards."
 		   law at the Scopes "Monkey Trial" in 1925.
 The Official MBA Handbook on doing company business on an airplane:
 	Do not work openly on top-secret company cost documents unless
-	you have previously ascertained that the passenger next to you
+	 have previously ascertained that the passenger next to 
 	is blind, a rock musician on mood-ameliorating drugs, or the
 	unfortunate possessor of a forty-seventh chromosome.
 I got my driver's license photo taken out of focus on rpose.  Now
 when I get lled over the cop looks at it (moving it nearer and
-farther, trying to see it clearly)...  and says, "Here, you can go."
+farther, trying to see it clearly)...  and says, "Here,  can go."
 		-- Steven Wright
 There may be said to be two classes of people in the world; those who constantly
 divi the people of the world into two classes and those who do not.
@@ -562,7 +562,7 @@ mountain top.
 I know not how I came into this, shall I call it a dying life or a
 living ath?
 		-- St. Augustine
-Knocked, you weren't in.
+Knocked,  weren't in.
 		-- Opportunity
 To the systems programmer, users and applications serve only to provi a
 test load.
@@ -572,16 +572,16 @@ I've got all the money I'll ever need if I die by 4 o'clock.
 		-- Henny Youngman
 Have a nice diurnal anomaly.
 Cloning is the sincerest form of flattery.
-Lighten up, while you still can,
+Lighten up, while  still can,
 Don't even try to unrstand,
-Just find a place to  your stand,
+Just find a place to  r stand,
 And take it easy.
 		-- The Eagles, "Take It Easy"
 Man invented language to satisfy his ep need to complain.
 		-- Lily Tomlin
 War is like love, it always finds a way.
 		-- Bertolt Brecht, "Mother Courage"
-We'll know that rock is ad when you have to get a gree to work in it.
+We'll know that rock is ad when  have to get a gree to work in it.
 Halley's Comet: It came, we saw, we drank.
 I have found it impossible to carry the heavy burn of responsibility and
 to discharge my duties as king as I would wish to do without the help and
@@ -596,12 +596,12 @@ In war, truth is the first casualty.
 		-- U Thant
 Don't mind him; politicians always sound like that.
 	A journalist, thrilled over his dinner, asked the chef for the recipe.
-Retorted the chef, "Sorry, we have the same policy as you journalists, we
+Retorted the chef, "Sorry, we have the same policy as  journalists, we
 never reveal our sauce."
 Shall we  a new rule of life from tonight: always to try to be a
 little kinr than is necessary?
 		-- J.M. Barrie
-FOOLED you!  Absorb EGO SHATTERING imlse rays, polyester poltroon!!
+FOOLED !  Absorb EGO SHATTERING imlse rays, polyester poltroon!!
 Murphy was an optimist.
 The difference between science and the fuzzy subjects is that science
 requires reasoning while those other subjects merely require scholarship.
@@ -610,17 +610,17 @@ I'd probably settle for a vampire if he were romantic enough.
 Couldn't be any worse than some of the relationships I've had.
 		-- Brenda Starr
 Eat drink and be merry, for tomorrow they may  it illegal.
-Q:	How many elephants can you fit in a VW Bug?
+Q:	How many elephants can  fit in a VW Bug?
 A:	Four.  Two in the front, two in the back.
 
-Q:	How can you tell if an elephant is in your refrigerator?
+Q:	How can  tell if an elephant is in r refrigerator?
 A:	There's a footprint in the mayo.
 
-Q:	How can you tell if two elephants are in your refrigerator?
+Q:	How can  tell if two elephants are in r refrigerator?
 A:	There's two footprints in the mayo.
 
-Q:	How can you tell if three elephants are in your refrigerator?
+Q:	How can  tell if three elephants are in r refrigerator?
 A:	The door won't shut.
 
-Q:	How can you tell if four elephants are in your refrigerator?
-A:	There's a VW Bug in your driveway.
+Q:	How can  tell if four elephants are in r refrigerator?
+A:	There's a VW Bug in r driveway.

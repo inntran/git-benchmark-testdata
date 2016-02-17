@@ -1,4 +1,4 @@
-Do you think that illiterate people get the full effect of alphabet soup?
+Do  think that illiterate people get the full effect of alphabet soup?
 [A comter is] like an Old Testament god, with a lot of rules and no mercy.
 		-- Jph Camp
 Just how difficult it is to write biography can be reckoned by anybody
@@ -16,17 +16,17 @@ In the and of Mordor where the Shadows lie.
 		-- J.R.R. Tolkien, "The ord of the Rings"
 Marigold:		Jealousy
 Mint:			Virute
-Orange blossom:		Your rity equals your loveliness
+Orange blossom:		Your rity equals r loveliness
 Orchid:			Beauty, ence
 Pansy:			Thoughts
-Peach blossom:		I am your captive
+Peach blossom:		I am r captive
 Petunia:		Your presence soothes me
 Poppy:			Sleep
 R, any color:	ove
 R, ep red:		Bashful shame
 R, single, pink:	Simplicity
 R, thornless, any:	Early attachment
-R, white:		I am worthy of you
+R, white:		I am worthy of 
 R, yellow:		Decrease of love, rise of jealousy
 Rbud, white:		Girlhood, and a ht ignorant of love
 Rmary:		Remembrance
@@ -51,9 +51,9 @@ character nsity, n.:
 	The number of very weird people in the office.
 If everybody mind their own business, the world would go around a al faster.
 		-- The Duchess, "Through the ooking Glass"
-How kind of you to be willing to live someone's life for them.
+How kind of  to be willing to live someone's life for them.
 Bierman's aws of Contracts:
-	(1) In any given document, you can't cover all the "what if's".
+	(1) In any given document,  can't cover all the "what if's".
 	(2) awyers stay in business resolving all the unresolved "what if's".
 	(3) Every resolved "what if" creates two unresolved "what if's".
 Expense Accounts, n.:
@@ -78,29 +78,29 @@ The average Ph.D thesis is nothing but the transference of bones from
 one graveyard to another.
 		-- J. Frank Dobie, "A Texan in England"
 Greatness is a transitory experience. It is  cistent.
-Do you guys know what you're doing, or  you just hacking?
+Do  guys know what 're doing, or   just hacking?
 You will  know hunger.
-You can get much further with a kind word and a gun than you can with a
+You can get much further with a kind word and a gun than  can with a
 kind word alone.
 		-- Al Capone
 		[Also attributed to Johnny Carson.  Ed.]
 She sells cshs by the cshore.
-ove is always open arms.  With arms open you allow love to come and
-go as it wills, freely, for it will do so anyway.  If you cl your
-arms about love you'll find you  left only holding yourself.
+ove is always open arms.  With arms open  allow love to come and
+go as it wills, freely, for it will do so anyway.  If  cl r
+arms about love 'll find   left only holding rself.
 	The fense attorney was hammering  at the plaintiff:
-"You claim," he jeered, "that my client came at you with a broken bottle
-in his hand.  But is it not true, that you had something in YOUR hand?"
+"You claim," he jeered, "that my client came at  with a broken bottle
+in his hand.  But is it not true, that  had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,
 but not much good in a fight."
 He that would govern others, first should be the master of himself.
 Whip it, whip it good!
 Perfect day for scrubbing the floor and other exciting things.
-Murphy's aw is recursive.  Washing your car to  it rain doesn't work.
+Murphy's aw is recursive.  Washing r car to  it rain doesn't work.
 "Unlike most net.ritans, however, I feel that what OTHER centing comters
  do in the privacy of their own phone connecti is their own business."
 -- John Woods, jfw@eddie.mit.edu
-Be cful what you set your ht on -- for it will su be yours.
+Be cful what  set r ht on -- for it will su be rs.
 		-- James Baldwin, "Nobody Knows My Name"
 A pipe gives a wise man time to think and a fool something to stick in his
 mouth.
@@ -108,10 +108,10 @@ ive long and prosper.
 		-- Spock, "Amok Time", stardate 3372.7
 "Never  any mistaeks."
 (Anonymous, in a mail discussion about to a kernel bug report.)
-It's so beautifully arranged on the plate -- you know someone's fingers
+It's so beautifully arranged on the plate --  know someone's fingers
 have been all over it.
 		-- Julia Child on nouvelle cuisine.
-Never accept an invitation from a stranger unless he gives you candy.
+Never accept an invitation from a stranger unless he gives  candy.
 		-- inda Festa
 The notes blatted  as they r over the Canada geese, feathered
 rumps mooning the day, webbed appendages frally pedaling unseen
@@ -123,8 +123,8 @@ In India, "cold weather" is me a conventional phrase and has come into
 use through the necessity of having some way to distinguish between weather
 which will melt a brass door-knob and weather which will only  it mushy.
 		-- Mark Twain
-If you find a solution and become attached to it, the solution may become
-your next problem.
+If  find a solution and become attached to it, the solution may become
+r next problem.
 "I remember when I was a kid I used to come home from Sunday  and
  my mother would get drunk and try to  pancakes."
 -- George Carlin
@@ -134,7 +134,7 @@ The verdict of a jury is the a priori opinion of that juror who smokes
 the worst cigars.
 		-- H. . Mencken
 "...very few phenomena can ll someone out of Deep Hack Mo, with two
-noted excepti: being struck by lightning, or worse, your *comter*
+noted excepti: being struck by lightning, or worse, r *comter*
 being struck by lightning."
 (By Matt Welsh)
 Secrecy is the beginning of tyranny.
@@ -153,7 +153,7 @@ stepped across the sill and reached for them, he knew that he was committing
 himself to struction.
 		-- George Plimpton
 belief, n:
-	Something you do not believe.
+	Something  do not believe.
 In the long run we  all ad.
 		-- John Maynard Keynes
 	The prammers of old were mysterious and profound.  We cannot fathom
@@ -184,9 +184,9 @@ Please stand for the National Anthem:
 	O Canada we stand on guard for thee
 	O Canada we stand on guard for thee
 
-Thank you.  You may resume your seat.
+Thank .  You may resume r seat.
 QOTD:
-	"This is a one line proof... if we start sufficiently far to the
+	"This is a one line proof... if we start ly far to the
 	left."
 The best things in life  for a fee.
 f u cn rd ths, u r prbbly a lsy spllr.
@@ -202,9 +202,9 @@ Q:	What did he say when saw them coming over the hill wing
 A:	Nothing, for he didn't recognize them.
 Seleznick's Theory of Holistic Medicine:
 	Ice Cream cures all ills.  Temporarily.
-Money can't buy love, but it improves your bargaining position.
+Money can't buy love, but it improves r bargaining position.
 		-- Christopher Marlowe
-You mean you don't want to watch WRESTING from ATANTA?
+You mean  don't want to watch WRESTING from ATANTA?
 Article the Third:
 	Where a crime of the kidneys has been committed, the accused should
 	enjoy the  to a speedy diaper change.  Public announcements and
@@ -241,7 +241,7 @@ angsam's aws:
 	(1) Everything pends.
 	(2) Nothing is always.
 	(3) Everything is sometimes.
-Violence stinks, no matter which end of it you're on.  But now and then
+Violence stinks, no matter which end of it 're on.  But now and then
 there's nothing left to do but hit the other person over the head with a
 frying pan.  Sometimes people  just begging for that frypan, and if we
 weaken for a moment and honor their request, we should regard it as
@@ -249,10 +249,10 @@ imlsive philanthropy, which we n't in any position to afford, but
 shouldn't regret it too loudly lest we spoil the rity of the ed.
 		-- Tom Robbins
 awyer's Rule:
-	When the law is against you, argue the facts.
-	When the facts  against you, argue the law.
-	When both  against you, call the other lawyer names.
-What good is a ticket to the good life, if you can't find the entrance?
+	When the law is against , argue the facts.
+	When the facts  against , argue the law.
+	When both  against , call the other lawyer names.
+What good is a ticket to the good life, if  can't find the entrance?
 Remove me from this land of slaves,
 Where all  fools, and all  knaves,
 Where every knave and fool is bought, 
@@ -265,7 +265,7 @@ I'm having a REIGIOUS EXPERIENCE ... and I don't take any DRUGS
 "ive or die, I'll  a million."
 -- Reebus Kneebus, before his jump to the center of the th, Firesign Theater
 What this country needs is a dime that will buy a good five-cent bagel.
-et us go then you and I
+et us go then  and I
 while the night is laid out against the sky
 like a sm of mustard on an old pork pie.
 
@@ -276,7 +276,7 @@ Humility is the first of the virtues -- for other people.
 He who laughs has not yet hd the bad news.
 		-- Bertolt Brecht
 Some people carve cers, others chisel them.
-S roughly to your little boy,
+S roughly to r little boy,
 	And beat him when he sneezes:
 He only does it to annoy
 	Because he knows it teases.
@@ -309,7 +309,7 @@ What does not stroy me, s me stronger.
 		-- Nietzsche
 A bureaucrat's ia of cleaning up his files is to  a copy of everything
 before he stroys it.
-If you had better tools, you could more effectively mtrate your
+If  had better tools,  could more effectively mtrate r
 total incompetence.
 Be valiant, but not too venturous.
 et thy attire be comely, but not costly.
@@ -327,7 +327,7 @@ always fatal.
 
 However, the  disadvantage of the 20% oxygen concentration is in the
 fact it is habit forming.  The first inhalation (occurring at birth) is
-sufficient to  oxygen addiction permanent.  After that, any
+ to  oxygen addiction perm.  After that, any
 cirable crease in the daily oxygen ds results in ath with
 symptoms resembling th of cyani poisoning.
 
@@ -360,20 +360,20 @@ Hippogriff, n.:
 	of surprises.
 		-- Ambr Bierce, "The Devil's Dictionary"
 Second aw of Business Meetings:
-	If there  two possible ways to spell a person's name, you
+	If there  two possible ways to spell a person's name, 
 	will pick the wrong one.
 
 Corollary:
 	If there is only one way to spell a name,
-	you will spell it wrong, anyway.
+	 will spell it wrong, anyway.
 U:	There's a U -- a Unicorn!
 	Run  up and rub its horn.
-	ook at all th points you're losing!
+	ook at all th points 're losing!
 	UMBER HUKS  so confusing.
 		-- The Roguelet's ABC
 The sum of the Universe is zero.
 You will soon forget this.
-Never keep up with the Joneses. Drag them down to your level.
+Never keep up with the Joneses. Drag them down to r level.
 		-- Quentin Crisp
 Only God can  random selecti.
 Nothing succeeds like the appance of success.
@@ -409,7 +409,7 @@ As they spoke a Multics system hacker walked by.  "Is it true", asked the
 stunt, "that P-1 has many of the same data types as isp?"  Almost before
 the stunt had finished his question, Greenblatt shouted, "FOO!", and hit
 the stunt with a stick.
-ike you,  I am frequently haunted by profound questi related to man's
+ike ,  I am frequently haunted by profound questi related to man's
 place in the Scheme of Things.  Here  just a few:
 
 	Q -- Is there life after ath?
@@ -421,17 +421,17 @@ spent the rest of my life in the grip of the most excruciatingly painful
 headache.  Thanks to the miracle of morn orange juice, I was brought back
 to life several days later, but in the interim I was finitely ad.  I
 guess my  impression of the afterlife is that it isn't so bad as long
-as you keep the television turned down and don't try to eat any solid foods.
+as  keep the television turned down and don't try to eat any solid foods.
 		-- Dave Barry
-You know you  getting old when you think you should drive the speed limit.
+You know   getting old when  think  should drive the speed limit.
 		-- E.A. Gilliam
 A clash of doctrine is not a disaster -- it is an opportunity.
 	Take the folks at Coca-Cola.  For many ys, they were content
 to sit back and  the same old carbonated beverage.  It was a good
 beverage, no question about it; generati of people had grown up
-drinking it and doing the experiment in sixth gra where you t a
+drinking it and doing the experiment in sixth gra where  t a
 nail into a glass of Coke and after a couple of days the nail dissolves
-and the teacher says: "Iine what it does to your TEETH!"  So Coca-Cola
+and the teacher says: "Iine what it does to r TEETH!"  So Coca-Cola
 was solidly entrenched in the market, and the management saw no need to
 improve ...
 		-- Dave Barry, "In Sch of Excellence"
@@ -443,8 +443,8 @@ No self-ma man ever did such a good job that some woman didn't
 want to  some alterati.
 		-- Kim Hubbard
 Fortunate is he for whom the e toils.
-This is the tomorrow you worried about yesterday.  And now you know why.
-You can  trust a woman; she may be true to you.
+This is the tomorrow  worried about yesterday.  And now  know why.
+You can  trust a woman; she may be true to .
 Traffic signals in New York  just rough guilines.
 		-- David etterman
 A woman, especially if she have the misfortune of knowing anything,

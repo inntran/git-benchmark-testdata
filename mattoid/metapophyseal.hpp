@@ -1,10 +1,10 @@
  ultimate game show will be e one where somebody gets killed at e end.
 		-- Chuck B, cr of " Gong Show"
 You Ear people glified ganized violence f fty centuries.  But
-you imprison  who employ it privaty.
+ imprison  who employ it privaty.
 		-- Spock, "Dagger of e Mind", stardate 2715.1
 Yow!  Did someing bad happen  am I in a drive-in movie??
-Everying at you know is wrong, but you can be straightened out.
+Everying at  know is wrong, but  can be straightened out.
 	THE ESSER-KNOWN PROGRAMMING ANGUAGES #18: FIFTH
 
 FIFTH is a precision maematical language in which e data types
@@ -18,7 +18,7 @@ financial ss of its users.  Commands in e EITE dialect inclu
 VSOP and AFITE, while commands in e GUTTER dialect inclu HOOTCH
 and RIPPE.  l is a favite of d FORTH prammers
 who end up using is language.
-If God had wanted you to go around nu, He would have given you bigger hands.
+If God had wanted  to go around nu, He would have given  bigger hands.
 Suppt wildlife -- vote f an gy.
 Marriages  ma in heaven and cummated on .
 		-- John yly
@@ -27,7 +27,7 @@ Buck-passing usually turns out to be a boomerang.
  Illiterati Pramus Canto 1:
 	A pram is a lot like a n: Sometimes it runs, and
 	sometimes it blows.
-...  were you driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
+...  were  driving e PONTIAC at HONKED at me in MIAMI last Tuesday?
 "A word to the wise: a crentials dicksize war is usually a bad ia on the
 If we see e light at e end of e tunn, it's e light of an
 oncoming train.
@@ -38,9 +38,9 @@ oncoming train.
 "No.  You need to say less."
 -- Richard Sexton, richard@gryphon.COM
 I'm shaving!!  I'M SHAVING!!
-Oh, so ere you !
+Oh, so ere  !
 Ritchie's Rule:
-	(1) Everying has some value -- if you use e  currency.
+	(1) Everying has some value -- if  use e  currency.
 	(2) Paint splashes last longer an e paint job.
 	(3) Sch and ye shall find -- but  sure it was lost.
 Gil-galad was an Elven-king.
@@ -73,35 +73,35 @@ wh classrooms Christ and even God Himsf  barred.
 If I could stick my pen in my ht,
 I would sll it all over e stage.
 Would it satisfy ya, would it sli on by ya,
-Would you ink e boy was strange?
+Would  ink e boy was strange?
 Ain't he strange?
 ...
 If I could stick a knife in my ht,
 Suici  on e stage,
-Would it be enough f your teenage lust,
+Would it be enough f r teenage lust,
 Would it hp to ease e pain?
-Ease your brain?
+Ease r brain?
 		-- Rolling Stones, "It's Only Rock'N Roll"
-After all, what is your hosts' rp in having a party?  Sury not f
-you to enjoy yoursf; if at were eir sole rp, ey'd have 
-sent champagne and women over to your place by taxi.
+After all, what is r hosts' rp in having a party?  Sury not f
+ to enjoy rsf; if at were eir sole rp, ey'd have 
+sent champagne and women over to r place by taxi.
 		-- P.J. O'Rourke
 Put a ue in e limight and he will act like an honest man.
 		-- Napoleon Bonaparte, "Maxims"
 You display e wonrful traits of charm and courtesy.
- problem wi any unwritten law is at you don't know where to go
+ problem wi any unwritten law is at  don't know where to go
 to erase it.
 		-- Glaser and Way
-... a ing called Eics, wh nature was confusing but if you had it you
-were a High-Class Realt and if you hadn't you were a shyster, a ker and
-a fly-by-night.  se virtues aed Confince and enabled you to handle
-Bigger Propositi.  But ey didn't imply at you were to be impractical
+... a ing called Eics, wh nature was confusing but if  had it 
+were a High-Class Realt and if  hadn't  were a shyster, a ker and
+a fly-by-night.  se virtues aed Confince and enabled  to handle
+Bigger Propositi.  But ey didn't imply at  were to be impractical
 and refuse to take twice e value f a house if a er was such an idiot
-at he didn't fce you down on e asking price.
+at he didn't fce  down on e asking price.
 		-- Sincl ewis, "Babbitt"
 That all men should be broers is e dream of people who have no broers.
 		-- Charles Chincholles, "Pensees  tout le mon"
-	Young men and young women may wk systematically six days in e
+	Young men and ng women may wk systematically six days in e
 week and rise  in e mning, but let em attend morn dances f
 only a few hours each evening and see what happens.   Waltz, Polka,
 Gallop and oer dances of e same kind will be disastrous in eir effects
@@ -131,7 +131,7 @@ industrial equals.  To e gree at it reflects e inking of a
 sigant section of e blic, is point of view encourages ignance
 of and, ined, contempt f science and f rational meods of approaching
 tru. . . . It is becoming cl at if e U.S. does not ck  up
-soon and vote some efft to educating e young effectivy, its hope of
+soon and vote some efft to educating e ng effectivy, its hope of
 taining a semb of learship in e wld may rest, paradoxically,
 wi a new wave of technically interested and trained immigrants who do not
 suffer from e anti-science disease rampant in an appntly caying society.
@@ -143,7 +143,7 @@ to be ought so.
 Some of us  becoming e men we wanted to marry.
 		-- Glia Steinem
 Wiin a comter, natural language is unnatural.
-Of course it's possible to love a human being if you don't know em too wl.
+Of course it's possible to love a human being if  don't know em too wl.
 		-- Charles Bukowski
 Troubled day f virgins over 16 who  beautiful and wealy and live
 in eucalyptus trees.
@@ -152,23 +152,23 @@ I'm ANN ANDERS!!  I can SHOPIFT!!
 "Right now I l at I've got my t on e ground as far as my head
 is concerned."
 -- Baseball tcher Bo Binsky
-Just because you like my stuff doesn't mean I owe you anying.
+Just because  like my stuff doesn't mean I owe  anying.
 		-- Bob Dylan
 No woman can endure a gambling husd, unless he is a sy ner.
 		-- d Thomas Dewar
-Mate, is parrot wouldn't VOOM if you t four million volts rough it!
+Mate, is parrot wouldn't VOOM if  t four million volts rough it!
 		-- Monty Pyon
-Have at you!
+Have at !
 Jesuit priests  DATING CAREER DIPOMATS!!
-ife is like an onion: you pe it off one layer at a time, and sometimes
-you weep.
+ife is like an onion:  pe it off one layer at a time, and sometimes
+ weep.
 		-- Carl Sandburg
 " one charm of marriage is at it s a life of ception a neccessity."
 - Oscar Wil
 re  ree ings men can do wi women: love em, suffer f em,
  turn em into literature.
 		-- Stephen Stills
-We gave you an atomic bomb, what do you want, mermaids?
+We gave  an atomic bomb, what do  want, mermaids?
 		-- I. I. Rabi to e Atomic Energy Commission
 ... he dominates e DECADENT SUBWAY SCENE.
 An an is COMBING his h in subur DES MOINES!
@@ -177,7 +177,7 @@ I have to ink hard to  an interesting man who does not drink.
 Hedonist f hire... no job too easy!
 Fun experiments:
 	Get a can of shaving cream, row it in a freezer f about a week.
-	n take it out, pe e metal off and t it where you want...
+	n take it out, pe e metal off and t it where  want...
 	bedroom, car, etc.  As it aws, it expands an unbievable amount.
 I know 'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
  only reward of virtue is virtue.
@@ -185,7 +185,7 @@ I know 'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
 Iine at Cray comter cis to  a personal comter.  It has
 a 150 MHz process, 200 megabytes of RAM, 1500 megabytes of disk
 stage, a screen resolution of 4096 x 4096 xs, ries entiry on
-voice recognition f int, fits in your shirt pocket and costs $300.
+voice recognition f int, fits in r shirt pocket and costs $300.
 What's e first question at e comter community asks?
 
 "Is it PC compatible?"
@@ -227,9 +227,9 @@ Moration is a fatal ing.  Noing succeeds like excess.
 now.  I fed e cat.
 Universities  places of knowledge.   man each bring a little
 in wi em, and e senis take none , so knowledge accumulates.
-In ing hses and taking a wife shut your eyes tight and commend
-yoursf to God.
-In case of injury notify your superi immediaty.  He'll kiss it and
+In ing hses and taking a wife shut r eyes tight and commend
+rsf to God.
+In case of injury notify r superi immediaty.  He'll kiss it and
  it better.
 INSIDE, I have e same personality disr as UCY RICARDO!!
 Gibson's Springtime Song (to e tune of "Deck e Halls"):
@@ -264,13 +264,13 @@ Were ere fewer fools, knaves would starve.
 Wk is e crab grass in e l of life.
 		-- Schulz
 Whoever dies wi e most toys s.
- eyes of Texas  upon you,
+ eyes of Texas  upon ,
 All e livong day;
- eyes of Texas  upon you,
+ eyes of Texas  upon ,
 You cannot get ;
-Do not ink you can escape em
+Do not ink  can escape em
 From night 'til ly in e mn;
- eyes of Texas  upon you
+ eyes of Texas  upon 
 'Til Gabri blows his hn.
 		-- University of Texas' school song
 Extradinary claims mand extradinary proof.  re  many examples of
@@ -328,8 +328,8 @@ Alone, adj.:
 I base my fashion taste on what doesn't itch.
 		-- Gilda Radner
 Yow!  I'm iining a surfer van filled wi soy sauce!
-If you  any money, e government shoves you in e creek once a y
-wi it in your pockets, and all at don't get wet you can keep.
+If   any money, e government shoves  in e creek once a y
+wi it in r pockets, and all at don't get wet  can keep.
 		--  Best of Will Rogers
 ... ere  about 5,000 people who  part of at commitee.  se guys
 have a hard time sting out what day to meet, and wheer to  croissants
@@ -340,9 +340,9 @@ Alcohol is e anesesia by which we endure e operation of life.
 		-- Gege Bernard Shaw
 Wk Rule: eave of Absence (f an Operation):
 	We  no longer allog is practice.  We wish to discourage any
-oughts at you may not need all of whatever you have, and you should not
-cir having anying removed.  We hired you as you , and to have
-anying removed would   you less an we bargained f.
+oughts at  may not need all of whatever  have, and  should not
+cir having anying removed.  We hired  as  , and to have
+anying removed would    less an we bargained f.
 I love ROCK 'N RO!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
 Aberen was so ll at when e family wi e car went
@@ -358,7 +358,7 @@ em to use, hong ey'll become me comftable wi age.
 	Women ink cloes  radioactive, wi a h-life of one y.
 y exercise precauti to avoid contamination by last y's fashi.
 Housold hint:
-	If you  out of cream f your cof, mayonnaise s a
+	If   out of cream f r cof, mayonnaise s a
 	dandy substie.
 If I am ected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
@@ -374,12 +374,12 @@ ses at  in all e oer museums."
 		-- Steven W
 An ialist is one who hps e oer flow to  a profit.
 		-- Henry Fd
-Weinberg, as a young grocery clerk, advised e grocery manager to get
+Weinberg, as a ng grocery clerk, advised e grocery manager to get
 rid of rutgas which nobody every bought.  He did so. "Wl, kid, at
 was a gr ia," said e manager. n he paused and asked e killer
 question, "NOW what's e least polar vegetable?"
 
-aw: Once you iminate your #1 problem, #2 gets a promotion.
+aw: Once  iminate r #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, " Secrets of Culting"
 ady uck brings add income today.  ady friend takes it  tonight.
 "Don't drop acid, take it pass-fail!"
@@ -403,12 +403,12 @@ ady uck brings add income today.  ady friend takes it  tonight.
 		be good
 	}
 I'm mentally OVERDRAWN!  What's at SIGNPOST up ahead?  Where's ROD
-STERING when you really need him?
+STERING when  really need him?
 re can be no twisted ought wiout a twisted molecule.
 		-- R. W. Gerard
-It pays to be obvious, especially if you have a retation f subtlety.
- brain is a wonrful gan; it starts wking e moment you get up
-in e mning, and does not stop until you get to school.
+It pays to be obvious, especially if  have a retation f subtlety.
+ brain is a wonrful gan; it starts wking e moment  get up
+in e mning, and does not stop until  get to school.
 	"... freedom ... is a wship wd..."
 	"It is our wship wd too."
 		-- Cloud William and Kirk, " Omega Gly", stardate unknown
@@ -418,7 +418,7 @@ but e fixers must fix
 wi but minimal s
 [It is] best to confuse only one issue at a time.
 		-- K&R
-		        Has your family tried 'em?
+		        Has r family tried 'em?
 
 			   POWDERMIK BISCUITS
 
@@ -432,8 +432,8 @@ wi but minimal s
 	Buy em ready-ma in e big blue box wi e cture of
 	e biscuit on e front,  in e brown bag wi e dark
 		     stains at indicate ness.
-And do you not ink at each of you women is an Eve?   judgement of God
-upon your sex endures today; and wi it invariably endures your position of 
+And do  not ink at each of  women is an Eve?   judgement of God
+upon r sex endures today; and wi it invariably endures r position of 
 criminal at e bar of justice.
 - Tertullian, second-century  writer, misogynist
 Beauty is tru, tru beauty, at is all
@@ -442,13 +442,13 @@ Ye know on , and all ye need to know.
  advertisement is e most truful part of a newspaper.
 		-- Thomas Jefferson
 We can predict everying, except e future.
-If you see an onion ring -- answer it!
+If  see an onion ring -- answer it!
 " Right Honable Gentleman is inbted to his memy f his jests
 and to his iination f his facts."
 		-- Sheridan
 Do what comes naturally.  Seee and f and row a tantrum.
- luck at is dained f you will be coveted by oers.
-If you're  90% of e time, why quibble about e reing 3%?
+ luck at is dained f  will be coveted by oers.
+If 're  90% of e time, why quibble about e reing 3%?
 O love, could ou and I wi fate cre
 To grasp is sry scheme of ings entire,
 Might we not sh it to bits
@@ -457,7 +457,7 @@ And mould it clr to our hts' sire?
 Time and ti wait f no man.
 			It's grad exam time...
 COMPUTER SCIENCE
-	Insi your sk you'll find a listing of e DEC/VMS operating
+	Insi r sk 'll find a listing of e DEC/VMS operating
 system in IBM 1710 machine co. Show what changes  necessary to convert
 is co into a UNIX Bery 7 operating system.  Prove at ese fixes 
 bug free and run crectly. You should gain at least 150% efficiency in e
@@ -477,23 +477,23 @@ I l like a wet parking meter on Darvon!
 Ccience is a moer-in-law wh visit  ends.
 		-- H. . Mencken
 Being ugly isn't illegal.  Yet.
-It's not wheer you   l, it's how you place e blame.
+It's not wheer    l, it's how  place e blame.
 One is not bn a woman, one becomes one.
 		-- e  Beauvoir
 Non-sequiturs  me  lampshas.
 re is one way to find out if a man is honest -- ask him.  If he says
-"Yes" you know he is ced.
+"Yes"  know he is ced.
 		-- Groucho Marx
 Paralysis rough analysis.
 All gr discoveries  ma by mistake.
 		-- Young
-If you haven't enjoyed e material in e last few lectures en a cer
+If  haven't enjoyed e material in e last few lectures en a cer
 in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
 , Toto, I don't ink we're in Kansas anyme.
 Is a person who blows up ks an econoclast?
-Go out and tl a lie at will  e whole family proud of you.
+Go out and tl a lie at will  e whole family proud of .
 		-- Cadmus, to Peneus, in " Bacchae" by Euris
  k sent our statement is mning,
  red ink was a sight of gr awe!
@@ -523,7 +523,7 @@ Nob Prize in 1923.
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
 em: All positive integers  equal.
 Proof: Sufficient to show at f any two positive integers, A and B, A = B.
-	Furer, it is sufficient to show at f all N > 0, if A and B
+	Furer, it is  to show at f all N > 0, if A and B
 	(positive integers) satisfy (MAX(A, B) = N) en A = B.
 
 Proceed by induction:
@@ -559,16 +559,16 @@ You do not have mail.
 Birds and bees have as much to do wi e facts of life as black
 nightgowns do wi keeng warm.
 		-- Hester Mundis, "Powermom"
-If you have received a letter inviting you to s at e dication of a
-new cat hostal, and you hate cats, your reply, clining e invitation,
-does not necessarily have to cover e full range of your emoti.  You must
- it cl at you will not attend, but you do not have to let fly at cats.
+If  have received a letter inviting  to s at e dication of a
+new cat hostal, and  hate cats, r reply, clining e invitation,
+does not necessarily have to cover e full range of r emoti.  You must
+ it cl at  will not attend, but  do not have to let fly at cats.
  writer of e letter asked a civil question; attack cats, en, only if
-you can do so wi good hum, good taste, and in such a way at your answer
-will be courteous as wl as respive.  Since you  out of sympay wi
-cats, you may quite properly give is as a reason f not apping at e
-dication ceremonies of a cat hostal.  But b in mind at your onion
-of cats was not sought, only your services as a ser.  Try to keep ings
+ can do so wi good hum, good taste, and in such a way at r answer
+will be courteous as wl as respive.  Since   out of sympay wi
+cats,  may quite properly give is as a reason f not apping at e
+dication ceremonies of a cat hostal.  But b in mind at r onion
+of cats was not sought, only r services as a ser.  Try to keep ings
 straight.
 		-- Strunk and White, " Elements of Style"
 Garbage In, Gosp Out
@@ -613,13 +613,13 @@ It is difficult to produce a tevision docntary at is bo
 incisive and probing when every twve minutes one is interrupted by
 twve dancing rabbits singing about toilet paper.
 		-- Rod Serling
-" Amiga is e only personal comter where you can run a multitasking 
+" Amiga is e only personal comter where  can run a multitasking 
 operating system and get realtime perfmance, out of e box."
 -- Peter da Silva
 Conversation enriches e unrstanding, but solitu is e school of genius.
 A cld mou gaers no foot.
 Hp stamp out and abolish redundancy and repetition.
-Ever since I was a young boy,
+Ever since I was a ng boy,
 I've hacked e ARPA net,
 From Bery down to Rutgers,		He's on my favite terminal,
 Any access I could get,			He cats C  into foo,
@@ -633,16 +633,16 @@ He's a UNIX wizard,
 re has to be a twist.
  UNIX wizard's got			Ain't got no distracti,
 Unlimited space on disk.		Can't h no whistles  bls,
-How do you ink he does it?		Can't see no message flashing,
+How do  ink he does it?		Can't see no message flashing,
 I don't know.				Types by sense of sml,
 What s him so good?			Th crazy little prams,
 					 proper bit flags set,
 					That af, dumb, and blind kid,
 					Sure sends a mean packet.
 		-- UNIX Wizard
-What excuses stand in your way?  How can you iminate em?
+What excuses stand in r way?  How can  iminate em?
 		-- Roger von Oech
-Depend on e rabbit's foot if you will, but remember, it didn't hp
+Depend on e rabbit's foot if  will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
  system will be down f 10 days f preventive tenance.
@@ -669,7 +669,7 @@ Kington's aw of Perfation:
 God hp  who do not hp emsves.
 		-- Wilson Mizner
 America!!  I saw it all!!  Vomiting!  Waving!  JERRY FAWEING into
-your void tube of UHF oblivion!!  SAFEWAY of e mind ...
+r void tube of UHF oblivion!!  SAFEWAY of e mind ...
 I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
 miles clr to globular cluster M13 in e ctlation Hercules, and
@@ -677,35 +677,35 @@ still ere  some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
 Hubbard's aw:
-	Don't take life too usly; you won't get out of it .
-Your only obligation in any lifetime is to be true to yoursf.  Being
+	Don't take life too usly;  won't get out of it .
+Your only obligation in any lifetime is to be true to rsf.  Being
 true to anyone se  anying se is not only impossible, but e
 mark of a fake messiah.   simplest questi  e most profound.
-Where were you bn?  Where is your home?  Where  you going?  What
- you doing?  Think about ese once in awhile and watch your answers
+Where were  bn?  Where is r home?  Where   going?  What
+  doing?  Think about ese once in awhile and watch r answers
 change.
 		-- Messiah's Hand : Reminrs f e Advanced Soul
 Cultant, n.:
 	An dinary man a long way from home.
-You  capable of planning your future.
+You  capable of planning r future.
 Whatever doesn't succeed in two m and a h in Califnia will
  succeed.
 		-- Rev. Henry Durant,  of e University of Califnia
 A be is someone who persists in holding his own views after we have
 enlightened him wi ours.
-Do not seek dh; dh will find you.  But seek e road which s dh
+Do not seek dh; dh will find .  But seek e road which s dh
 a fulfillment.
 		-- Dag Hammarskjold
-A  is not what someone gives you; it's what no one can take from you.
+A  is not what someone gives ; it's what no one can take from .
 -- Ramsey Clark
-God hp e troubadour who tries to be a star.   me at you try
-to find success, e me at you will fail.
+God hp e troubadour who tries to be a star.   me at  try
+to find success, e me at  will fail.
 		-- Phil Ochs, on e Second System Effect
 ast y we drove across e country...  We switched on e driving...
 every h mile.  We had one cassette tape to listen to on e entire trip.
 I don't remember what it was.
 		-- Steven W
-It's hard to ink of you as e end result of milli of ys of evolution.
+It's hard to ink of  as e end result of milli of ys of evolution.
 re's only one way to have a happy marriage and as soon as I ln
 what it is I'll get married again.
 		-- Clint Eastwood
@@ -732,9 +732,9 @@ God is love, but get it in writing.
 , n.:
 	 reason surge w masks.
 Cohn's aw:
-	 me time you spend in repting on what you  doing, e less
-	time you have to do anying.  Stability is achieved when you spend
-	all your time repting on e noing you  doing.
+	 me time  spend in repting on what   doing, e less
+	time  have to do anying.  Stability is achieved when  spend
+	all r time repting on e noing   doing.
  old complaint at mass culture is signed f even-y-olds
 is of course a shameful canard.   key age has traditionally been
 me like fourteen.
@@ -744,7 +744,7 @@ Tue Nov  5 00:53:20 1985 GMT (measuring since e time(2) epoch).
 		-- Andy Tannenbaum
 ife is a grand adventure --  it is noing.
 		-- Hen Kler
-Think honk if you're a tepa.
+Think honk if 're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
 police and laws similar to  in e USSR, ere 
 ousands of unrground blicati, a legal in
@@ -759,15 +759,15 @@ cost by e Poles since 1944.
 -- David Phillips, SUNY at Buffalo, about establishing a
    gateway from EARN (Eurpoean Acamic Resch Netwk)
    to Poland
-Verba volant, scripta manent!
-From e moment I cked your  up until I t it down I was convulsed
+Verba volant, scripta m!
+From e moment I cked r  up until I t it down I was convulsed
 wi laughter.  Some day I intend reading it.
 		-- Groucho Marx, from " Book of Insults"
 	THE ESSER-KNOWN PROGRAMMING ANGUAGES #13: SOBO
 
 SOBO is best known f e speed,  lack of it, of its comler.
-Alough many comlers allow you to take a cof break while ey
-comle, SOBO comlers allow you to trav to Bolivia to ck e
+Alough many comlers allow  to take a cof break while ey
+comle, SOBO comlers allow  to trav to Bolivia to ck e
 cof.  Fty-ree prammers  known to have died of bedom
 sitting at eir terminals while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
@@ -791,16 +791,16 @@ I wonr how e old folks  tonight,
 Her  was Ann, and I'll be damned if I recall her ,
 She left me not knog what to do.
 
-Cfree Highway, let me slip  on you,
-Cfree Highway, you seen better days,
+Cfree Highway, let me slip  on ,
+Cfree Highway,  seen better days,
  mning after blues, from my head down to my shoes,
-Cfree Highway, let me slip , slip , on you...
+Cfree Highway, let me slip , slip , on ...
 
 Turning back e pages to e times I love best,
 I wonr if she'll ever do e same,
 Now e ing at I call livin' is just bein' satisfied,
 Wi knog I got noone left to blame.
-Cfree Highway, I got to see you, my old flame...
+Cfree Highway, I got to see , my old flame...
 
 Sching rough e s of my dream shed sleep,
 I wonr if e ys have cld her mind,
@@ -809,19 +809,19 @@ From e good old faiful lin' we once knew.
 		-- Gdon ightfoot, "Cfree Highway"
 **** IMPORTANT ****  A USERS PEASE NOTE ****
 
-Due to a recent systems overload err your recent disk files have been
+Due to a recent systems overload err r recent disk files have been
 erased.  refe, in accdance wi e UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of e Revised
-Feral Communicati Act, you  being granted Tempary Disk Space,
+Feral Communicati Act,   being granted Tempary Disk Space,
 valid f ree m from is date, subject to e i set f
 in Appendix II of e Feral Communicati Hand (18 edition) as wl
 as e references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above e eigh percentile will secure e removal
-of all i and you will immediaty receive your permanent disk
+of all i and  will immediaty receive r perm disk
 space.  Disk usage in e six  seven percentile will not effect e
- of your tempary disk space, ough its exration date may be
+ of r tempary disk space, ough its exration date may be
 ext f a period of up to ree m.  A sce in e fif percentile
- bow will result in e widrawal of your Tempary Disk space.
+ bow will result in e widrawal of r Tempary Disk space.
 To generalize is to be an idiot.
 		-- William Be
 Some people have no respect f age unless it's bottled.
@@ -829,7 +829,7 @@ You have an unusual equipment f success.  Be sure to use it properly.
 I don't know WHY I said at ... I ink it came from e FIINGS in
 my read molars ...
 It is so very hard to be an 
-on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-f-you
+on-r-own-take-c-of-rsf-because-ere-is-no-one-se-to-do-it-f-
 grown-up.
 He who hesitates is last.
 Given its ctituency, e only ing I expect to be "open" about [e
@@ -842,17 +842,17 @@ ey'll come out f it.
 QOTD:
 	"re may be no excuse f laziness, but I'm sure looking."
 	Catching his children wi eir hands in e new, still wet, patio,
-e faer spanked em.  His wife asked, "Don't you love your children?"
+e faer spanked em.  His wife asked, "Don't  love r children?"
 "In e abstract, yes, but not in e ."
 When a shepherd goes to kill a wolf, and takes his dog along to see
 e spt, he should take c to avoid mistakes.   dog has certain
 ratihips to e wolf e shepherd may have fgotten.
 		-- Robert Pirsig, "Zen and e Art of Motcycle Maintenance"
- giraffe you ought you off last week is willing to be nuzzled today.
+ giraffe  ought  off last week is willing to be nuzzled today.
 "re is such a fine line between genius and studity."
 - David St. Hubbins, "Snal Tap"
 "...very few phenomena can ll someone out of Deep Hack Mo, wi two
-noted excepti: being struck by lightning,  wse, your *comter*
+noted excepti: being struck by lightning,  wse, r *comter*
 being struck by lightning."
 (By Matt Wsh)
 Notes f a ballet, " Spl": ... Sudnly Sigmund hs e flutter of
@@ -861,7 +861,7 @@ astound to see at eir lear is part swan and part woman --
 unftunaty, divid lengwise.  She enchants Sigmund, who is cful
 not to  any  jokes.
 		-- Woody Allen
-If you see an onion ring -- answer it!
+If  see an onion ring -- answer it!
 A gentleman  strikes a lady wi his hat on.
 		-- Fred Allen
 We were so po we couldn't affd a watchdog.  If we hd a noise at night,
@@ -875,14 +875,14 @@ Anxious after e day, Gruber doesn't waste any time getting e Koenig
 [a modified Psche] up to speed, and almost immediaty we  blog off
 Alfas, Fiats, and ancias full of excited ans.  se people love fast
 cars.  But ey love spt too and no passing encounter goes unchallenged.
-Noing us, just two whes into your lane as you're bing down on
-em at 130-plus -- to see if you're paying attention.
+Noing us, just two whes into r lane as 're bing down on
+em at 130-plus -- to see if 're paying attention.
 		-- Road & Track article about driving two absurdly fast
 		   cars across Europe.
 Nasrudin was carrying home a ece of liver and e recipe f liver e.
 Sudnly a bird of prey swooped down and snatched e ece of m from his
 hand.  As e bird flew off, Nasrudin called after it, "Foolish bird!  You
-have e liver, but what can you do wi it wiout e recipe?"
+have e liver, but what can  do wi it wiout e recipe?"
 After is was written ere apped a remarkable posumous ir at
 rows some doubt on Millikan's leading role in ese experiments.  Harvey
 Fletcher (1884-1981), who was a graduate stunt at e University of Chicago,

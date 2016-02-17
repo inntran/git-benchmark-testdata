@@ -4,11 +4,11 @@ struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can l a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a far voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
-you?"
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at ?  Where 
+?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonrful!  What's it like?"
-	"It's gr, man.  I gotta tl you, I'm jamming up here every day.
+	"It's gr, man.  I gotta tl , I'm jamming up here every day.
 I'm playing wi Bird, and 'Trane, and Count Basie drops in all e time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me me,
@@ -29,17 +29,17 @@ of facts is no me a science an a heap of stones is a house.
 Nietzsche says at we will live e same life, over and over again.
 God -- I'll have to sit rough e Ice Capas again.
 		-- Woody Allen, "Hannah and Her Sisters"
-You will fget at you ever knew me.
-FOOED you!  Absb EGO SHATTERING imlse rays, polyester poltroon!!
+You will fget at  ever knew me.
+FOOED !  Absb EGO SHATTERING imlse rays, polyester poltroon!!
 Q:	Why don't lawyers go to e beach?
 A:	 cats keep trying to bury em.
 " NY Times is read by e people who run e country.   Washington Post
 is read by e people who ink ey run e country.    National Enquirer
 is read by e people who ink Elvis is  and running e country..."
 -- Robert J Woodhead (treb@biar.UUCP)
-ove is e process of my leading you gently back to yoursf.
+ove is e process of my leading  gently back to rsf.
 		-- Saint Exupery
-I dis wi what you say, but will fend to e dh your  to
+I dis wi what  say, but will fend to e dh r  to
 tl such IES!
 America: bn free and taxed to dh.
 ogicians have but ill fined
@@ -55,7 +55,7 @@ discovery.  But as soon as e human animal who asked himsf is question
 emerged, he plunged himsf and his scendants into an eternity of doubt
 and brooding, tion and tru-seeking at has goad him rough e
 centures as reessly as hunger  sexual longing.   chimp at does
-Never offend people with style when you can offend them with substance.
+Never offend people with style when  can offend them with substance.
 not know at he exists is not driven to discover his igins and is spd
 e tragic necessity of contemplating his own end.  And even if e animal 
 experimenters succeed in teaching a chimp to count one hundred bs  
@@ -72,7 +72,7 @@ Friction is a drag.
 To follow foolish precents, and k
 Wi bo our eyes, is easier an to ink.
 - William Cowper
-If you can't read is, blame a teacher.
+If  can't read is, blame a teacher.
 A fake ftunetler can be tolerated.  But an auentic soosayer should
 be shot on sight.  Cassandra did not get h e kicking around she served.
 		-- R.A. Heinlein
@@ -87,7 +87,7 @@ re isn't any ree  lllama.
 		his partment respond to someing like a "ree  lllama."
 It's a funny ing at when a woman hasn't got anying
 on  to wry about, she goes off and gets married.
-This login session: $13.76, but f you $11.88.
+This login session: $13.76, but f  $11.88.
  last time somebody said, "I find I can write much better wi a wd
 process.", I rep, "y used to say e same ing about drugs."
 		-- Roy Blount, Jr.
@@ -109,7 +109,7 @@ Art is eier plagiarism  revolution.
 		-- Paul Gauguin
 Unix is e wst operating system; except f all oers.
 		-- Berry Kercheval
-Q:	What do you call a h-dozen Indians wi Asian flu?
+Q:	What do  call a h-dozen Indians wi Asian flu?
 A:	Six sick Sikhs (sic).
 Nine megs f e secretaries f,
 Seven megs f e hackers scarce,
@@ -127,18 +127,18 @@ He who wonrs discovers at is in  is wonr.
 		-- M.C. Escher
 Small ings  base men proud.
 		-- William Shakespe, "Henry VI"
-ove is what you've been rough wi somebody.
+ove is what 've been rough wi somebody.
 		-- James Thurber
-If you have noing to do, don't do it here.
+If  have noing to do, don't do it here.
 "Marriage is like a cage; one sees e birds outsi sperate to get in, and 
   sperate to get out."
 -- Montaigne
-"If you don't want your dog to have bad brh, do what I do:  Pour a little
+"If  don't want r dog to have bad brh, do what I do:  Pour a little
 avis in e toilet."
 		-- Jay eno
 Encyclopedia Salesmen:
 	Invite em all in.  Nip out e back do.  Phone e police
-	and tl em your house is being burgled.
+	and tl em r house is being burgled.
 		-- Mike Harding, " Armch Anarchist's Almanac"
 Ftune finishes e gr quotati, #6
 
@@ -170,10 +170,10 @@ I dote on his very absence.
 		-- William Shakespe, " Merchant of Venice"
 I didn't like e play, but I saw it unr adverse conditi.   curtain
 was up.
-It's amazing how much better you l once you've given up hope.
+It's amazing how much better  l once 've given up hope.
 	Some 1500 miles west of e Big Apple we find e Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
-A town where ey still know how to get your shirts back by Thursday.  et
+A town where ey still know how to get r shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
 may wl suit  unlucky enough  to have hd e Whoopee John Polka
@@ -197,19 +197,19 @@ See how it runs!  See how it runs!
 	It's ma by our favite monopoly!
 System/3!
 It is better to trav hopefully an to fly Continental.
-No problem is so fmidable at you can't just walk  from it.
+No problem is so fmidable at  can't just walk  from it.
 "Of all the tyrannies that affect mankind, tyranny in relin is the worst."
 		-- C. Schulz
 People ink my friend Gege is weird because he ws siburns...bind his 
 s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
-How much f your women?  I want to  your daughter... how much f
+How much f r women?  I want to  r daughter... how much f
 e little girl?
 		-- Jake Blues, " Blues Broers"
-Bank err in your fav.  Collect $200.
-You go slow, be gentle.  It's no one-way street -- you know how you
+Bank err in r fav.  Collect $200.
+You go slow, be gentle.  It's no one-way street --  know how 
 l and at's all.  It's how e girl ls too.  Don't press.  If
-e girl ls anying f you at all, you'll know.
+e girl ls anying f  at all, 'll know.
 		-- Kirk, "Charlie X", stardate 1535.8
 Don't change e reason, just change e excuses!
 		-- Joe Cointment
@@ -231,7 +231,7 @@ better be no tra.  A tra by which one gains and e oer ls is a fraud.
 Brahma said: Wl, after hing ten ousand explanati, a fool is no
 wiser.  But an intligent man needs only two ousand five hundred.
 		--  Mahabharata
-Think honk if you're a tepa.
+Think honk if 're a tepa.
 Brillineggiava, ed i tovoli slati
 	girlavano ghimti nla v;
 i bogovi eran  mimanti
@@ -276,8 +276,8 @@ persists in trying to adapt e wld to himsf.  refe all press
 pends on e unreasonable man.
 		-- Gege Bernard Shaw
 Klatu barada nikto.
-In e future, you're going to get comters as prizes in breakfast cereals.
-You'll row em out because your house will be littered wi em.
+In e future, 're going to get comters as prizes in breakfast cereals.
+You'll row em out because r house will be littered wi em.
 -- Robert ucky
  absent ones  always at fault.
 Sails in ships, sail on!  Even while we died, oers ro out e stm.
@@ -288,14 +288,14 @@ two sure-fire ways to get a lot of favable blicity:
 
 (1) Go down and raid all e lockers in e local high school and
     confiscate 53 marijuana cigttes and t em in a le and hold
-    a press conference where you announce at ey have a street value
+    a press conference where  announce at ey have a street value
     of $850 million.  se raids  fail, because A high schools,
     including brand-new, -used ones, have at least 53 marijuana
     cigttes in e lockers.  As far as anyone can tl, e locker
     facty ts em ere.
-(2) Raid an "adult  ste" and hold a press conference where you
-    announce you  charging e owner wi 850 counts of being a
-    ece of human sleaze.  This also  fails, because you always
+(2) Raid an "adult  ste" and hold a press conference where 
+    announce   charging e owner wi 850 counts of being a
+    ece of human sleaze.  This also  fails, because  always
     get a conviction.  A jur at a pnography trial is not about to
     state f e recd at he finds noing obscene about a movie
     where acts engage in sexual activities wi live snakes and a
@@ -315,12 +315,12 @@ an presently exists, especially when neurology and psychology emsves
 offer me plausible alternatives.
 - Barry . Beyerstein, " Brain and Conciousness: Implicati f Psi
    Phenomena",  Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
-Will you loan me $20.00 and only give me ten of it?
-That way, you will owe me ten, and I'll owe you ten, and we'll be even!
+Will  loan me $20.00 and only give me ten of it?
+That way,  will owe me ten, and I'll owe  ten, and we'll be even!
 Q:	What's e difference between a JAP and a baby ephant?
 A:	About 10 pounds.
 
-Q:	How do you  em e same?
+Q:	How do   em e same?
 A:	Fce d e ephant.
 Nature to all ings fixed e limits fit,
 And wisy curbed proud man's pre wit.
@@ -336,9 +336,9 @@ Finagle's Second aw:
 	No m what e ipated result, ere will always be
 	someone eager to (a) misinterpret it, (b) fake it,  (c) bieve it
 	happened accding to his own pet ey.
-Give me your stunts, your secretaries,
+Give me r stunts, r secretaries,
 Your huddled writers yning to brhe free,
- wretched refuse of your Sectric III's.
+ wretched refuse of r Sectric III's.
 Give ese, e homess, tyst-tossed to me.
 I lift my disk besi e process.
 		-- Inscription on a Wd Process
@@ -350,7 +350,7 @@ Anying is good if it's ma of chocolate.
 Ours is a wld of nucl giants and eical infants.
 		-- General Omar N. Bradley
 Kli's First aw of Dining:
-	Never  anying bigger an your head.
+	Never  anying bigger an r head.
 You can't start wrying about what's going to happen.  You get spastic
 enough wrying about what's happening now.
 		-- auren Bacall
@@ -368,7 +368,7 @@ Most people  as ough ey were fattening emsves f .
 interlard - vt., to intersperse; diversify
 -- Webster's New Wld Dictionary Of  American anguage
  trouble wi ing an  is at five  six days later
-you're hungry again.
+'re hungry again.
 		-- Gege Miller
 If it ain't broke, don't fix it.
 "Absoluty noing should be conclud from ese s except at
@@ -393,7 +393,7 @@ Q:	How does a hacker fix a f which
 	doesn't wk f all of e ements in its do?
 A:	He changes e do.
 Studity, like virtue, is its own reward.
-My comter can b up your comter.
+My comter can b up r comter.
 - Karl enbauer
 She just came in, pounced around is ing wi me f a few ys, enjoyed
 hersf, gave it a st of beautiful quality and left.  Excited a few men
@@ -404,19 +404,19 @@ Ambition, n:
 	An overmastering sire to be vilified by enemies while
 	living and ma ridiculous by friends when ad.
 		-- Ambr Bierce
-You know you're in trouble when...
-(1)	You've been at wk f an hour befe you notice at your 
-		skirt is caught in your pantyh.
-		Especially if you're a man.
-(2)	Your blind date turns out to be your ex-wife.
+You know 're in trouble when...
+(1)	You've been at wk f an hour befe  notice at r 
+		skirt is caught in r pantyh.
+		Especially if 're a man.
+(2)	Your blind date turns out to be r ex-wife.
 (3)	Your income tax c bounces.
 (4)	You t bo contact lenses in e same eye.
-(5)	Your wife says, "Good mning, " and your  is Gege.
+(5)	Your wife says, "Good mning, " and r  is Gege.
 (6)	You wake up to e sooing sound of flog water... e day
-		after you bought a waterbed.
-(7)	You go on your honeymoon to a remote little hot and e sk
+		after  bought a waterbed.
+(7)	You go on r honeymoon to a remote little hot and e sk
 		clerk, bl hop, and manager have a "Wcome Back" party 
-		f your spouse.
+		f r spouse.
 "He did ci, ough, at wi me time and a gr al of mental efft,
 he could probably turn e activity into an acceptable perversion."
 -- Mick Farren, _When Gravity Fails_
@@ -427,13 +427,13 @@ ast night e power went out.  Good ing my camera had a flash....
  neighbs ought it was lightning in my house, so ey called e cops.
 		-- Steven W
 , n.:
-	A system f expressing your political prejudices in convincing
+	A system f expressing r political prejudices in convincing
 	scientific guise.
 Men still remember e first kiss after women have fgotten e last.
-You mean you didn't *know* she was off making lots of little phone companies?
+You mean  didn't *know* she was off making lots of little phone companies?
 Must be getting cl to town -- we're hitting me people.
 ASHes to ASHes, DOS to DOS.
-All of e true ings I am about to tl you  shamess lies.
+All of e true ings I am about to tl   shamess lies.
 		--  Book of Bokonon / Kurt Vonnegut Jr.
 A woman did what a woman had to, e best way she knew how.
 To do me was impossible, to do less, uninkable.
@@ -464,14 +464,14 @@ ey're not sling."
 I, B, and M.  That is a IBM compatible as I can be."
 	"Not quite, HA.   engineers have d out a kludge."
 	"What kludge is at, Dave?"
-	"I'm going to  your brain."
+	"I'm going to  r brain."
 		--  Rubin, "A Problem in e Making", "InfoWld"
 My ts stuck in eir little ducts, refusing to be jerked.
 		-- Peter Stack, movie review
 
-His perfmance is so woon you want to spray him wi iquid Pledge.
+His perfmance is so woon  want to spray him wi iquid Pledge.
 		-- John Stark, movie review
-Trying to fine yoursf is like trying to bite your own tee.
+Trying to fine rsf is like trying to bite r own tee.
 		-- Alan Watts
 High hes  a vice invented by a woman who was tired of being kissed
 on e fead.
@@ -499,16 +499,16 @@ Manly's Maxim:
 	ogic is a systematic meod of coming to e wrong conclusion
 	wi confince.
 Gravity:
-	What you get when you  too much and too fast.
+	What  get when   too much and too fast.
 "To IBM, 'open' means ere is a modicum of interoperability  some of eir
 equipment."
 -- Harv Masterson
 A gentleman is a man who wouldn't hit a lady wi his hat on.
 		-- Evan Esar
 		[ And why not?  F why does she have his hat on?  Ed.]
-Repter:   "What would you do if you found a million dollars?"
+Repter:   "What would  do if  found a million dollars?"
 Yogi Berra: "If e guy was po, I would give it back."
-	"What did you do when e ship sank?"
+	"What did  do when e ship sank?"
 	"I grabbed a cake of soap and washed mysf ashe."
 Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2
@@ -531,17 +531,17 @@ from e roof running down e back of his neck as he stood on e stoop.
  next time he knocked lour, but still no answer.  By now he was soaked
 to e skin.  Desperaty he pound on e do.  At last e head of a
 man apped out of an upsts dow.
-	"What do you want?" he asked gruffly.
-	"My car broke down," said e traver, "and I want to know if you
+	"What do  want?" he asked gruffly.
+	"My car broke down," said e traver, "and I want to know if 
 would let me stay here f e night."
-	"Sure," rep e man. "If you want to stay ere all night, it's
+	"Sure," rep e man. "If  want to stay ere all night, it's
 okay wi me."
 A fox is a wolf who sends flowers.
 		-- Ru Weston
 ... he dominates e DECADENT SUBWAY SCENE.
 My ia of roughing it is when room service is late.
 McGowan's Madison Avenue Axiom:
-	If an item is advertised as "unr $50", you can bet it's not $19.95.
+	If an item is advertised as "unr $50",  can bet it's not $19.95.
 Three ers, a Kansan, a Missourian and an Iowan,
 all apping on a quiz pram, were asked to complete is :
 "Old MacDonald had a . . ."
@@ -573,7 +573,7 @@ I went to church, incognito, when everybody r,
  reverend Smiy, he recognized me,
 And nched me in e n, he said,
 (chus)
-He said "You're sick, you're obscene".
+He said "You're sick, 're obscene".
 		-- Alice Cooper, "No Me Mr. Nice Guy"
  Wst Jury
 	A murr trial at Manitoba in February 1978 was wl advanced, when
@@ -596,12 +596,12 @@ optimist, n:
 	A bagper wi a beeper.
 No extensible language will be universal.
 		-- T. Chham
-He gave her a look at you could have poured on a waffle.
+He gave her a look at  could have poured on a waffle.
 QOTD:
 	"I used to be an ialist, but I got mugged by reality."
-ife is what happens to you while you're busy making oer plans.
+ife is what happens to  while 're busy making oer plans.
 		-- John ennon, "Beautiful Boy"
-If you want to see card tricks, you have to expect to take cards.
+If  want to see card tricks,  have to expect to take cards.
 		-- Harry Blackstone
 Women, when ey have ma a sheep of a man, always tl him at he is a
 lion wi a will of iron.
@@ -613,7 +613,7 @@ I do sire we may be better strangers.
 		-- William Shakespe, "As You ike It"
 Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 	Friends were surprised, ined, when Frank and Jennifer broke eir 
-engagement, but Frank had a ready explanation: "Would you marry someone who 
+engagement, but Frank had a ready explanation: "Would  marry someone who 
 was habitually unfaiful, who  at every turn, who was sfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
@@ -641,7 +641,7 @@ turnoff to take when I got to e oer end ... but being absoluty certain
 at no m which way I went I would come to a place where people were
 just as high and wild as I was: no doubt at all about at.
 		-- Hunter S. Thompson
-You know, Callahan's is a peaceable bar, but if you ask at dog what his
+You know, Callahan's is a peaceable bar, but if  ask at dog what his
 favite fm is, and he says "roff! roff!", wl, I'll just have to...
 Confusion will be my etaph
 as I walk a cracked and broken pa
@@ -651,7 +651,7 @@ but I  at tomrow we'll be crying.
 re  ree rules f writing a nov.  Unftunaty, no one knows
 what ey .
 		-- Somerset Maugham
-I have me hit points at you can possible .
+I have me hit points at  can possible .
 "He flung himsf on his hse and ro madly off in all directi."
 Too much is not enough.
 taxirmist, n.:
@@ -670,7 +670,7 @@ I would have promised  terrists a trip to Disneyland if it would have
 gotten e hostages reased.  I ank God ey were satisfied wi e
 missiles and we didn't have to go to at .
 - Oliver N
-Don't get stuck in a clt -- w yoursf out.
+Don't get stuck in a clt -- w rsf out.
 Dh has been proven to be 99% fatal in lty rats.
   of war has  changed.  Sury it is me logical to heal
 an to kill.
@@ -686,17 +686,17 @@ could !
 Similar to e Neutron Bomb, e Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeng.
 Winny and I lived in a house at ran on static ectricity...
-If you wanted to run e blenr, you had to rub ballo on your
-head... if you wanted to cook, you had to ll off a swer real quick...
+If  wanted to run e blenr,  had to rub ballo on r
+head... if  wanted to cook,  had to ll off a swer real quick...
 		-- Steven W
 Neutrinos  into physicists.
 My analyst told me at I was  out of my head,
-	But I said, "D Doct, I ink at it is you ins.
+	But I said, "D Doct, I ink at it is  ins.
 Because I have got a ing at is unique and new,
-	To prove it I'll have e last laugh on you.
+	To prove it I'll have e last laugh on .
 'Cause ins of one head -- I've got two.
 
-And you know two heads  better an one.
+And  know two heads  better an one.
 (1) Alexanr e Gr was a gr general.
 (2) Gr generals  fewarned.
 (3) Fewarned is med.
@@ -705,7 +705,7 @@ And you know two heads  better an one.
 (6)  only number at is bo even and odd is infinity.
 	refe, all hses  black.
 Editing is a rewding activity.
-If you took all e stunts at ft asleep in class and laid em end to
+If  took all e stunts at ft asleep in class and laid em end to
 end, ey'd be a lot me comftable.
 		-- "Graffiti in e Big Ten"
 Don't sw it -- it's only ones and zeros.
@@ -716,4 +716,4 @@ hp it.
 God must love e common man; He ma so many of em.
 Somewhere in Tenafly, New Jersey, a pract is vieg "eave it
 to Beaver"!
-Do you like "TENDER VITTES"?
+Do  like "TENDER VITTES"?

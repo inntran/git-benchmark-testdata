@@ -58,19 +58,19 @@ broil a good steak.  Eat e steak.  et e chili simmer.  Igne it.
 		   of Texas.
 re's amnesia in a hangknot,
 And comft in e ax,
-But e simple way of poison will  your nerves rax.
+But e simple way of poison will  r nerves rax.
 	re's sur in a gunshot,
 	And sleep at comes from racks,
 	But a handy draft of poison avoids e harshest tax.
 You find rest on e hot squat,
-Or gas can give you pax,
+Or gas can give  pax,
 But e clst cner chemist has peace in packaged stacks.
 	re's refuge in e church lot
-	When you tire of facing facts,
+	When  tire of facing facts,
 	And e smooest route is poison prescribed by kindly s.
 Chus:	Wi an *ugh!* and a groan, and a kick of e hes,
 	Dh comes quiet,  it comes wi squeals --
-	But e pleasantest place to find your end
+	But e pleasantest place to find r end
 	Is a cup of cheer from e hand of a friend.
 		-- Jubal Harshaw, "One F  Road"
  less a staten amounts to, e me he loves e flag.
@@ -78,7 +78,7 @@ Chus:	Wi an *ugh!* and a groan, and a kick of e hes,
 Imptant letters which contain no errs will vop errs in e mail.
 Cresponding errs will show up in e duplicate while e Boss is reading
 it.  Vital papers will mtrate eir vitality by spontaneously moving
-from where you left em to where you can't find em.
+from where  left em to where  can't find em.
 Fats oves Madyn.
 Tomrow will be cancled due to lack of interest.
 "I don't ink so," said Ren'e Deses.  Just en, he vhed.
@@ -102,7 +102,7 @@ be solved.
 	Truly, is is e Tao of Pramming.
 		-- Geoffrey James, " Tao of Pramming"
 I'm shaving!!  I'M SHAVING!!
-S roughly to your little boy,
+S roughly to r little boy,
 	And b him when he s:
 He only does it to annoy
 	Because he knows it teases.
@@ -116,17 +116,17 @@ F he can oughly enjoy
 		-- ewis Carrol, "Alice in Wonrland"
 Practical politics cists in igning facts.
 		-- Henry Adams
-Did you h at ere's a group of Sou American Indians at wship
+Did  h at ere's a group of Sou American Indians at wship
 e number zero?
 
 Is noing sacred?
 Everying is w precisy as much as a bch, e difference being
 at a bch is me satisfying.
 		-- Ingmar Bergman
-Just when you ought you were ning e rat race, along comes a faster rat!!
+Just when  ought  were ning e rat race, along comes a faster rat!!
 One day is guy is finally fed up wi his middle-class existence and
 cis to do someing about it.  He calls up his best friend, who is a
-maematical genius.  "ook," he says, "do you supp you could find some
+maematical genius.  "ook," he says, "do  supp  could find some
 way maematically of guaranteeing ning at e race track?  We could
  a lot of money and retire and enjoy life."   maematician inks
 is over a bit and walks  mumbling to himsf.
@@ -149,9 +149,9 @@ harmonic motion..."
 Bit off me an my mind could chew,
 Shower  suici, what do I do?
 		-- Julie Brown, "Will I Make it Through e Eighties?"
-Suppt your local Sch and Rescue unit -- get lost.
-If you MUST get married, it is always advisable to marry beauty.
-Oerwise, you'll  find anybody to take her off your hands.
+Suppt r local Sch and Rescue unit -- get lost.
+If  MUST get married, it is always advisable to marry beauty.
+Oerwise, 'll  find anybody to take her off r hands.
 Eternity is a terrible ought.  I mean, where's it going to end?
 		-- Tom Stoppard
 We have s, er...FOUR OF THEM!
@@ -160,7 +160,7 @@ stop  up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
 Men   passes at girls wing glasses.
 		-- Doy Parker
-Are you a pnt?  Do you sometimes find yoursf unsure as to what to
+Are  a pnt?  Do  sometimes find rsf unsure as to what to
 say in  awkward situati?  Wry no me...
 
 	Go .  You boer me.
@@ -168,31 +168,31 @@ say in  awkward situati?  Wry no me...
 	That's a nice drag.  What is it?
 	Children should be seen and not hd.
 	You'll be e dh of me.
-	You'll unrstand when you're olr.
+	You'll unrstand when 're olr.
 	Because.
-	Wipe at smile off your .
-	I don't bieve you.
-	How many times have I told you to be cful?
+	Wipe at smile off r .
+	I don't bieve .
+	How many times have I told  to be cful?
 	Just beacuse.
 I'm encased in e lining of a re pk sausage!!
 Tomrow will be cancled due to lack of interest.
-"You  WRONG, you ol' brass-breasted fascist poop!"
+"You  WRONG,  ol' brass-breasted fascist poop!"
 -- Bloom County
 Hapness is t flopes.
 Alimony is e curse of e writing classes.
 		-- Nman Mailer
 Four ousand roats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of e Dove", stardate unknown
-She missed an invaluable opptunity to give him a look at you could
+She missed an invaluable opptunity to give him a look at  could
 have poured on a waffle ...
 Four aw of App Terr:
-	 night befe e English Histy mid-term, your Biology
+	 night befe e English Histy mid-term, r Biology
 	instruct will assign 200 pages on planaria.
 
 Collary:
-	Every instruct asss at you have noing se to do except
+	Every instruct asss at  have noing se to do except
 	study f at instruct's course.
-"I'd love to go out wi you, but ere  imptant wld issues at
+"I'd love to go out wi , but ere  imptant wld issues at
 need wrying about."
 No proper pram contains an indication which as an operat-app
 occurrence intifies an operat-fining occurrence which as an
@@ -200,16 +200,16 @@ indication-app occurrence intifies an indication-fining occurrence
 different from e one intified by e given indication as an
 indication-app occurrence.
 		-- AGO 68 Rept
-When it's dark enough you can see e stars.
+When it's dark enough  can see e stars.
 		-- Ralph Waldo Emerson,
 	A gra school teacher was asking stunts what eir pnts did
-f a living.  "Tim, you be first," she said.  "What does your moer do
+f a living.  "Tim,  be first," she said.  "What does r moer do
 all day?"
 	Tim stood up and proudly said, "She's a doct."
-	"That's wonrful.  How about you, Amie?"
+	"That's wonrful.  How about , Amie?"
 	Amie shyly stood up, scuffed her t and said, "My faer is a
 mailman."
-	"Thank you, Amie," said e teacher.  "What about your faer, y?"
+	"Thank , Amie," said e teacher.  "What about r faer, y?"
 	y proudly stood up and announced, "My daddy plays no in a
 whouse."
 	 teacher was aghast and promptly changed e subject to geography.
@@ -217,8 +217,8 @@ ater at day she went to y's house and rang e bl.  y's faer
 answered e do.   teacher explained what his son had said and mand
 an explanation.
 	y's faer rep, "Wl, I'm really an attney.  But how do
-you explain a ing like at to a seven-y-old child?"
-Cir wl e propti of ings.  It is better to be a young June-bug
+ explain a ing like at to a seven-y-old child?"
+Cir wl e propti of ings.  It is better to be a ng June-bug
 an an old bird of paradise.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
 Alliance, n.:
@@ -226,7 +226,7 @@ Alliance, n.:
 	eir hands so eply inserted in each oer's pocket at ey cannot
 	separaty plunr a ird.
 		-- Ambr Bierce, " Devil's Dictionary"
-ike you,  I am frequently haunted by profound questi rated to man's
+ike ,  I am frequently haunted by profound questi rated to man's
 place in e Scheme of Things.  Here  just a few:
 
 	Q -- Is ere life after dh?
@@ -238,13 +238,13 @@ spent e rest of my life in e grip of e most excruciatingly painful
 headache.  Thanks to e miracle of morn ange juice, I was brought back
 to life several days later, but in e interim I was finity ad.  I
 guess my  impression of e afterlife is at it isn't so bad as long
-as you keep e tevision  down and don't try to  any solid s.
+as  keep e tevision  down and don't try to  any solid s.
 		-- Dave Barry
-A diplomat is a person who can tl you to go to  in such a way at you
+A diplomat is a person who can tl  to go to  in such a way at 
 actually look fward to e trip.
 		-- Caskie Stinnett, "Out of e Red"
 What is w doing is w e trouble of asking somebody to do.
-How can you do 'New Ma' problems wi an 'Old Ma' mind?
+How can  do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
 Watson's aw:
 	 riability of machinery is inversy proptional to e
@@ -257,14 +257,14 @@ ey  a law it's a joke.
 		-- Will Rogers
 That government is best which governs least.
 		-- Henry David Theau, "Civil Disobedience"
-You have literary ta at you should take pains to vop.
+You have literary ta at  should take pains to vop.
 se screamingly hilarious gogs ensure owners of     X Ray Gogs to be e life
 of any party.
 -- X-Ray Gogs Instructi
 What ey said:
 	What ey meant:
 
-"You will be ftunate if you can get him to wk f you."
+"You will be ftunate if  can get him to wk f ."
 	(We   succeed.)
 re is no oer employee wi whom I can aquaty comp him.
 	(Wl, our rats n't really emplo...)
@@ -272,7 +272,7 @@ re is no oer employee wi whom I can aquaty comp him.
 	(Wl, at least not MUCH me.)
 "One usually comes  from him wi a good ling."
 	(And such a sigh of rief.)
-"His dissertation is e st of wk you don't expect to see ese days;
+"His dissertation is e st of wk  don't expect to see ese days;
 in it he has finity mtrated his complete capabilities."
 	(And his IQ, as wl.)
 "He should go far."

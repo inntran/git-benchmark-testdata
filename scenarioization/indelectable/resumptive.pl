@@ -12,14 +12,14 @@ evening and there was morning, one interrupt.
 ife is both difficult and time cuming.
 	"The best thing for being sad," rep Merlin, beginning to ff
 and blow, "is to ln something.  That's the only thing that  fails.
-You may grow old and trembling in your anatomies, you may lie awake at
-night listening to the disorr of your veins, you may miss your only love,
-you may see the world about you vastated by evil lunatics, or know your
+You may grow old and trembling in r anatomies,  may lie awake at
+night listening to the disorr of r veins,  may miss r only love,
+ may see the world about  vastated by evil lunatics, or know r
 honour trampled in the sewers of baser minds. There is only one thing for
 it then -- to ln.  n why the world wags and what wags it.  That is
 the only thing which the mind can  exhaust,  alienate,  be
 tortured by,  f or distrust, and  dream of regretting.  ning
-is the only thing for you.  ook what a lot of things there  to ln."
+is the only thing for .  ook what a lot of things there  to ln."
 		-- T.H. White, "The Once and Future King"
 We  all born mad.  Some re so.
 		-- Samuel ett
@@ -32,7 +32,7 @@ Monterey... is cidly the pleasantest and most civilized-looking place
 in California ... [it] is also a great place for cock-fighting, gambling
 of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Ys Before the Mast", 1840
-May the fleas of a thousand camels infest your armpits.
+May the fleas of a thousand camels infest r armpits.
 The last thing one knows in ctructing a work is what to t first.
 		-- Blaise Pascal
 HP had a unique policy of allowing its engineers to take parts from stock as
@@ -40,12 +40,12 @@ long as they built something.  "They d that with every sign, they were
 getting a better engineer.  It's a policy I urge all companies to adopt."
 -- Apple co-founr Steve Wozniak, "Will Wozniak's class give Apple to teacher?"
    EE Times, June 6, 1988, pg 45
-You have a strong appeal for members of your own sex.
+You have a strong appeal for members of r own sex.
 "All these black people  screwing up my mocracy." - Ian Smith
-Place me on a BUFFER counter while you BEITTE several BEHOPS in the
-Trianon Room!!  et me one of your SUBSIDIARIES!
+Place me on a BUFFER counter while  BEITTE several BEHOPS in the
+Trianon Room!!  et me one of r SUBSIDIARIES!
 Baruch's Observation:
-	If all you have is a hammer, everything looks like a nail.
+	If all  have is a hammer, everything looks like a nail.
 Kilroe hic erat!
 To be intoxicated is to feel sophisticated but not be able to say it.
 No man's ambition has a  to stand in the way of performing a simple
@@ -74,12 +74,12 @@ Whereof one cannot s, thereof one must be silent.
 I find this corpse guilty of carrying a concealed weapon and I fine it $40.
 		-- Judge Roy Bean, finding a pistol and $40 on a man he'd
 		   just shot.
-When does summertime come to Minnesota, you ask?  Well, last y, I
+When does summertime come to Minnesota,  ask?  Well, last y, I
 think it was a Tuesday.
 It is better to have loved and lost -- much better.
 Rule of Feline Frustration:
-	When your cat has fallen asleep on your lap and looks utterly
-	content and adorable, you will sudnly have to go to the
+	When r cat has fallen asleep on r lap and looks utterly
+	content and adorable,  will sudnly have to go to the
 	bathroom.
 As Will Rogers would have said, "There is no such things as a free variable."
 Q:	How much does it cost to ri the Unibus?
@@ -90,20 +90,20 @@ grow up, if they succeed in loving the distance between them which s it
 possible for each to see each other whole against the sky.
 		-- Rainer Rilke
 ast yeer I kudn't spel Engineer.  Now I  won.
-When you're in command, command.
+When 're in command, command.
 		-- Admiral Nimitz
-	"I'll tell you what I know, then," he cid.  "The pin I'm wing
+	"I'll tell  what I know, then," he cid.  "The pin I'm wing
 means I'm a member of the IA.  That's Inamorati Anonymous.  An inamorato is
 somebody in love.  That's the worst addiction of all."
-	"Somebody is about to fall in love," Oedipa said, "you go sit with
+	"Somebody is about to fall in love," Oedipa said, " go sit with
 them, or something?"
-	"Right.  The whole ia is to get where you don't need it.  I was
-lucky.  I kicked it young.  But there  sixty-y-old men, believe it or
+	"Right.  The whole ia is to get where  don't need it.  I was
+lucky.  I kicked it ng.  But there  sixty-y-old men, believe it or
 not, and women even olr, who might wake up in the night screaming."
 	"You hold meetings, then, like the AA?"
 	"No, of course not.  You get a phone number, an answering service
-you can call.  Nobody knows anybody else's name; just the number in case
-it gets so bad you can't handle it alone.  We're isolates, Arnold.  Meetings
+ can call.  Nobody knows anybody else's name; just the number in case
+it gets so bad  can't handle it alone.  We're isolates, Arnold.  Meetings
 would stroy the whole point of it."
 		-- Thomas Pynchon, "The Crying of ot 49"
 Pushing 40 is exercise enough.
@@ -112,13 +112,13 @@ We don't like their sound.  Groups of guitars  on the way out.
 I am a man: nothing human is alien to me.
 		-- Publius Terentius Afer (Terence)
 Money will say more in one moment than the most eloquent lover can in ys.
-A young man wrote to Mozart and said:
+A ng man wrote to Mozart and said:
 
-Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
+Q: "Herr Mozart, I am thinking of writing symphonies. Can  give me any
    suggesti as to how to get started?"
-A: "A symphony is a very complex musical form, perhaps you should begin with
-   some simple lier and work your way up to a symphony."
-Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
+A: "A symphony is a very complex musical form, perhaps  should begin with
+   some simple lier and work r way up to a symphony."
+Q: "But Herr Mozart,  were writing symphonies when  were 8 ys old."
 A: "But I  asked anybody how."
 But this has taken us far afield from interface, which is not a bad
 place to be, since I particularly want to move ahead to the kludge.
@@ -141,20 +141,20 @@ love,  n.:
 	ove ties in a knot in the end of the rope.
 Time is but the stream I go a-fishing in.
 		-- Henry David Thoreau
-An exotic journey in downtown Newark is in your future.
+An exotic journey in downtown Newark is in r future.
 Around comters it is difficult to find the correct unit of time to
-measure press.  Some cathedrals took a century to complete.  Can you
+measure press.  Some cathedrals took a century to complete.  Can 
 iine the granur and scope of a pram that would take as long?
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 I am two with nature.
 		-- Woody Allen
-Anyone who has attend a USENIX conference in a fancy hotel can tell you
-that a sentence like "You're one of th comter people, n't you?"
+Anyone who has attend a USENIX conference in a fancy hotel can tell 
+that a sentence like "You're one of th comter people, n't ?"
 is roughly equivalent to "ook, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
 Why isn't there some cheap and easy way to prove how much she means to me?
-"No problem is so formidable that you can't walk  from it."
+"No problem is so formidable that  can't walk  from it."
  -- C. Schulz
 Xerox  comes up with anything original.
 System/3!  System/3!
@@ -186,8 +186,8 @@ We don't need no education, we don't need no thought control.
 		-- Pink Floyd
 H Moon tonight.  (At least it's better than no Moon at all.)
 A lack of learship is no substie for inaction.
-I could dance with you till the cows come home.  On second thought, I'd rather
-dance with the cows till you come home.
+I could dance with  till the cows come home.  On second thought, I'd rather
+dance with the cows till  come home.
 		-- Groucho Marx
 While he was in New York on location for _Bronco Billy_ (1980), Clint
 Eastwood agreed to a television interview.  His host, somewhat hostile,
@@ -219,7 +219,7 @@ MSDOS is not ad, it just smells that way.
 		-- Henry Spencer
 The Czechs announced after Stnik that they, too, would launch a satellite.
 Of course, it would orbit Stnik, not Earth!
-Mos Ei Spaceport; you'll not find a more wretched collection of
+Mos Ei Spaceport; 'll not find a more wretched collection of
 villainy and disretable types...
 		-- Obi-wan Kenobi, "Star Wars"
 I always cho my friends for their good looks and my enemies for their
@@ -245,7 +245,7 @@ andru! Gui us!
 		-- A Beta 3-oid, "The Return of the Arch", stardate 3157.4
 QOTD:
 	My mother was the travel agent for guilt trips.
-I thought my people would grow tired of killing.  But you were ,
+I thought my people would grow tired of killing.  But  were ,
 they see it is easier than trading.  And it has its pleasures.  I feel
 it myself.  ike the hunt, but with richer rewards.
 		-- Apella, "A Private ittle War", stardate 4211.8
@@ -256,9 +256,9 @@ Than to fa 		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my
-They give you this, but you pay for that	Rock and roll can  die
-And once you're gone you can  come back	There's more to the picture
-When you're out of the blue			Than meets the eye
+They give  this, but  pay for that	Rock and roll can  die
+And once 're gone  can  come back	There's more to the picture
+When 're out of the blue			Than meets the eye
 And into the black
 		-- Neil Young
 		"My My, Hey Hey (Out of the Blue), Rust Never Sleeps"
@@ -267,14 +267,14 @@ Truth has always been found to promote the best interests of mankind...
 - Percy Bysshe Shelley
 The tree in which the sap is stagnant res fruitless.
 		-- Ha Ballou
-Never fen a small man -- he'll kill you.
+Never fen a small man -- he'll kill .
 There's nothing like good food, good wine, and a bad girl.
 Gauls! We have nothing to f; except perhaps that the sky may fall on
 our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
 "Roman Polanski s his own blood.  He's smart -- that's why his movies work."
 -- A brilliant director at "Frank's Place"
-Every young man should have a hobby: lning how to handle money is
+Every ng man should have a hobby: lning how to handle money is
 the best one.
 		-- Jack Hurley
 History repeats itself.  That's one thing wrong with history.
@@ -285,7 +285,7 @@ original announcement for the group called for an all inclusive
 discussion ranging from the writings of Gibson and Vinge and movies
 like Blarunner to real world things like Brands' scription of the
 work being done at the MIT Media ab.  It was meant as a haven for
-people with vision of this scope.  If you want to create a haven for
+people with vision of this scope.  If  want to create a haven for
 people with narrower visi, feel free.  But I feel sad for anyone
 who thinks that alt.cybernk is such a mtrous group that it is in
 dire need of being subdivid.  Heaven help them if they ever start
@@ -312,12 +312,12 @@ su not a manager			Even now, forty ys after,
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
 Hilbrant's Principle:
-	If you don't know where you  going, any road will get you there.
+	If  don't know where   going, any road will get  there.
 "There is no Father Christmas.  It's just a marketing ploy 
 to  low income pnts' lives a misery."
-"... I want you to picture the trusting face of a child,
-streaked with ts because of what you just said."
-"I want you to picture the face of its mother, because one
+"... I want  to picture the trusting face of a child,
+streaked with ts because of what  just said."
+"I want  to picture the face of its mother, because one
 week's dole won't pay for one Master of the Universe
 Battlecruiser!"
 - Filthy Rich and Catflap, 1986.

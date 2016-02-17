@@ -1,11 +1,11 @@
 The state law of Pennsylvania prohibits singing in the bathtub.
-Did you know that if you took all the economists in the world and lined
+Did  know that if  took all the economists in the world and lined
 them up end to end, they'd still point in the wrong direction?
 The key to building a superstar is to keep their mouth shut.  To reveal
 an artist to the people can be to destroy him.  It isn't to anyone's
 advantage to see the truth.
 		-- Bob Ezrin, rock music producer
-The sooner you fall behind, the more time you have to catch up.
+The sooner  fall behind, the more time  have to catch up.
 No matter what happens, there is always someone who knew it would.
 Genius is pain.
 		-- John Lennon
@@ -23,7 +23,7 @@ spirit who reveals himself in the slight details we are able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
 Pandora's Rule:
-	Never open a box you didn't close.
+	Never open a box  didn't close.
 Military secrets are the most fleeting of all.
 		-- Spock, "The Enterprise Incident", stardate 5027.4
 Another possible source of guidance for teenagers is television, but
@@ -35,7 +35,7 @@ The last person who said that (God rest his soul) lived to regret it.
 "I changed my headlights the other day. I t in strobe lights instead! Now
 when I drive at night, it looks like everyone else is standing still ..."
 		-- Steven Wright
-Knocked, you weren't in.
+Knocked,  weren't in.
 		-- Opportunity
 QOTD:
 	"I used to get high on life but lately I've built up a resistance."
@@ -47,9 +47,9 @@ as we do evil or good, we are human: and it is better, in a paradoxical
 way, to do evil than to do nothing: at least we exist.
 		-- T.S. Eliot, essay on Baudelaire
 Punning is the worst vice, and there's no vice versa.
-When you try to  an impression, the chances are that is the
-impression you will .
-"Catch a wave and you're sitting on top of the world."
+When  try to  an impression, the chances are that is the
+impression  will .
+"Catch a wave and 're sitting on top of the world."
 - The Beach Boys
 It must have been some unmarried fool that said "A child can ask questions
 that a wise man cannot answer"; because, in any decent house, a brat that
@@ -67,14 +67,14 @@ Because the wine remembers.
 RAM wasn't built in a day.
 You're being followed.  Cut out the hanky-panky for a few days.
 The difference between common-sense and paranoia is that common-sense is
-thinking everyone is out to get you.  That's normal -- they are.  Paranoia
+thinking everyone is out to get .  That's normal -- they are.  Paranoia
 is thinking that they're conspiring.
 		-- J. Kegler
 Real Time, adj.:
 	Here and now, as opposed to fake time, which only occurs there and then.
 Rotten wood cannot be carved.
 		-- Confucius, "Analects", Book 5, Ch. 9
-I know you're in search of yourself, I just haven't seen you anywhere.
+I know 're in search of rself, I just haven't seen  anywhere.
 Iination is the one weapon in the war against reality.
 		-- Jules de Gaultier
 I had no shoes and I pitied myself.  Then I met a man who had no feet,
@@ -82,7 +82,7 @@ so I took his shoes.
 		-- Dave Barry
 Isn't air travel wonderful?  Breakfast in London, dinner in New York,
 luggage in Brazil.
-"You can't get very far in this world without your dossier being there first."
+"You can't get very far in this world without r dossier being there first."
 -- Arthur Miller
 It is an important and polar fact that things are not always what
 they seem.  For instance, on the planet Earth, man had always assumed
@@ -103,16 +103,16 @@ are all merely transforms of one another.  This combined with
 minimalization of open-loop errors in outt amplifiers and correct
 compensation for non-linear passive crossover network loading can
 lead to a sigant decrease in system resolution lost.  However,
-this all means jack when you listen to Pink Floyd.
+this all means jack when  listen to Pink Floyd.
 Q:	What's the difference between an Irish wedding and an Irish wake?
 A:	One less drunk.
 Cleanliness becomes more important when godliness is unlikely.
 		-- P.J. O'Rourke
-Never raise your hand to your children -- it leaves your midsection
+Never raise r hand to r children -- it leaves r midsection
 unprotected.
 		-- Robert Orben
 As with most fine things, chocolate has its season.  There is a simple
-memory aid that you can use to determine whether it is the correct time
+memory aid that  can use to determine whether it is the correct time
 to order chocolate dishes: any month whose name contains the letter A,
 E, or U is the proper time for chocolate.
 		-- Sandra Boynton, "Chocolate: The Consuming Passion"
@@ -121,7 +121,7 @@ Personifiers of the world, unite!  You have nothing to lose but Mr. Dignity!
 		-- Bernadette Bosky
 Facts do not cease to exist because they are ignored.
 		-- Aldous Huxley
-Did you hear that two rabbits escaped from the zoo and so far they have
+Did  hear that two rabbits escaped from the zoo and so far they have
 only recaptured 116 of them?
 "Today, of course, it is considered very poor taste to use the F-word
 except in major motion pictures."
@@ -133,7 +133,7 @@ Corollary:
 Genius doesn't work on an assembly line basis.  You can't simply say,
 "Today I will be brilliant."
 		-- Kirk, "The Ultimate Comter", stardate 4731.3
-You don't have to be nice to people on the way up if you're not planning on
+You don't have to be nice to people on the way up if 're not planning on
 coming back down.
 		-- Oliver Warbucks, "Annie"
 Volcanoes have a grandeur that is grim
@@ -154,22 +154,22 @@ I went to a Grateful Dead Concert and they played for SEVEN hours.  Great song.
 	Stop!  Whoever crosseth the bridge of Death, must answer first
 these questions three, ere the other side he see!
 
-	"What is your name?"
+	"What is r name?"
 	"Sir Brian of Bell."
-	"What is your quest?"
+	"What is r quest?"
 	"I seek the Holy Grail."
 	"What are four lowercase letters that are not legal flag arguments
 to the Berkeley UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 We are not a loved organization, but we are a respected one.
 		-- John Fisher
-"The first rule of ic is simple.  Don't waste your time waving your
+"The first rule of ic is simple.  Don't waste r time waving r
 hands and hoping when a rock or a club will do."
 		-- McCloctnik the Lucid
 Life is like a tin of sardines.  We're, all of us, looking for the key.
 		-- Beyond the Fringe
 The Second Law of Thermodynamics:
-	If you think things are in a mess now, just wait!
+	If  think things are in a mess now, just wait!
 		-- Jim Warner
 UNIX is hot.  It's more than hot.  It's steaming.  It's quicksilver
 lightning with a laserbeam kicker.
@@ -206,32 +206,32 @@ To follow foolish precedents, and wink
 With both our eyes, is easier than to think.
 - William Cowper
 Success is something I will dress for when I get there, and not until.
-Be self-reliant and your success is assured.
+Be self-reliant and r success is assured.
 The first duty of a revolutionary is to get  with it.
 		-- Abbie Hoffman
 "As an adolescent I aspired to lasting fame, I craved factual certainty,
 and I thirsted for a meaningful vision of human life -- so I became a
-scientist.  This is like becoming an archbishop so you can meet girls."
+scientist.  This is like becoming an archbishop so  can meet girls."
 		-- Matt Cartmill
 All great ideas are controversial, or have been at one time.
-Don't let go of what you've got hold of, until you have hold of something else.
+Don't let go of what 've got hold of, until  have hold of something else.
 		-- First Rule of Wing Walking
-You know it's going to be a long day when you get up, shave and shower,
-start to get dressed and your shoes are still warm.
+You know it's going to be a long day when  get up, shave and shower,
+start to get dressed and r shoes are still warm.
 		-- Dean Webber
-But you who live on dreams, you are better pleased with the sophistical
+But  who live on dreams,  are better pleased with the sophistical
 reasoning and frauds of talkers about great and uncertain matters than
 those who speak of certain and natural matters, not of such lofty nature.
 		-- Leonardo Da Vinci, "The Codex on the Flight of Birds"
 Say my love is easy had,
 	Say I'm bitten raw with pride,
 Say I am too often sad --
-	Still behold me at your side.
+	Still behold me at r side.
 
-Say I'm neither brave nor young,
+Say I'm neither brave nor ng,
 	Say I woo and coddle care,
 Say the devil touched my tongue --
-	Still you have my heart to wear.
+	Still  have my heart to wear.
 
 But say my verses do not scan,
 	And I get me another man!
@@ -242,9 +242,9 @@ Fortune's Exercising Truths:
 2.  Aerobic exercises stimulate and speed up the heart.  So do heart attacks.
 3.  Exercising around small children can scar them emotionally for life.
 4.  Sweating like a pig and gasping for breath is not refreshing.
-5.  No matter what anyone tells you, isometric exercises cannot be done
-    quietly at your desk at work.  People will suspect manic tendencies as
-    you twitter around in your chair.
+5.  No matter what anyone tells , isometric exercises cannot be done
+    quietly at r desk at work.  People will suspect manic tendencies as
+     twitter around in r chair.
 6.  Next to burying bones, the thing a dog enjoys mosts is tripping joggers.
 7.  Locking four people in a tiny, cement-walled room so they can run around
     for an hour smashing a little rubber ball -- and each other -- with a hard
@@ -257,11 +257,11 @@ Woody: What's going on, Mr. Peterson?
 Norm:  Let's talk about what's going *in* Mr. Peterson.  A beer, Woody.
 		-- Cheers, Paint Your Office
 
-Sam:  How's life treating you?
-Norm: It's not, Sammy, but that doesn't mean you can't.
+Sam:  How's life treating ?
+Norm: It's not, Sammy, but that doesn't mean  can't.
 		-- Cheers, A Kiss is Still a Kiss
 
-Woody:  Can I pour you a draft, Mr. Peterson?
+Woody:  Can I pour  a draft, Mr. Peterson?
 Norm:   A little early, isn't it Woody?
 Woody:  For a beer?
 Norm:   No, for stupid questions.
@@ -274,7 +274,7 @@ hundreds, thousands of women have forgotten themselves at the last minute
 and succumbed to the lies, promises, flatteries, or mere attentions of
 lusting, lovely men, landing themselves in complicated predicaments from
 which some of them never recovered during their entire lives.  And I am not
-speaking only of your teenaged Midwesterners in 1958; I'm speaking of women
+speaking only of r teenaged Midwesterners in 1958; I'm speaking of women
 of every age in every city in every year.  The notorious sexual revolution
 has saved no one from the pain and confusion of love.
 		-- Alix Kates Shulman
@@ -291,16 +291,16 @@ the last few years, we are now able to completely understand everything that
 the author of an memo is trying to say.  Thanks to modern developments
 in electrocommunications like notes, vnews, and electricity, we have an
 incredible level of interunderstanding the likes of which civilization has
-never known.  Thus, the possibility of your misinterpreting someone else's
-memo is practically nil.  Knowing this, anyone who accuses you of having
-done so is a liar, and should be treated accordingly.  If you *do* understand
+never known.  Thus, the possibility of r misinterpreting someone else's
+memo is practically nil.  Knowing this, anyone who accuses  of having
+done so is a liar, and should be treated accordingly.  If  *do* understand
 the memo in question, but have absolutely nothing of substance to say, then
-you have an excellent opportunity for a vicious ad hominem attack.  In fact,
+ have an excellent opportunity for a vicious ad hominem attack.  In fact,
 the only *inappropriate* times for an ad hominem attack are as follows:
 
-	1: When you agree completely with the author of an memo.
-	2: When the author of the original memo is much bigger than you are.
-	3: When replying to one of your own memos.
+	1: When  agree completely with the author of an memo.
+	2: When the author of the original memo is much bigger than  are.
+	3: When replying to one of r own memos.
 The cost of living has just gone up another dollar a quart.
 		-- W.C. Fields
 Keep grandma off the streets -- legalize bingo.
@@ -333,8 +333,8 @@ Military justice is to justice what military music is to music.
 		-- Groucho Marx
 Freedom's just another word for nothing left to lose.
 		-- Kris Kristofferson, "Me and Bobby McGee"
-You are so boring that when I see you my feet go to sleep.
-Don't I know you?
+You are so boring that when I see  my feet go to sleep.
+Don't I know ?
 The problem that we thought was a problem was, indeed, a problem, but
 not the problem we thought was the problem.
 		-- Mike Smith
@@ -353,30 +353,30 @@ Real software engineers don't like the idea of some inexplicable and
 greasy hardware several aisles  that may stop working at any
 moment.  They have a great distrust of hardware people, and wish that
 systems could be virtual at *___all* levels.  They would like personal
-comters (you know no one's going to trip over something and kill your
+comters ( know no one's going to trip over something and kill r
 DFA in mid-transit), except that they need 8 megabytes to run their
 Correctness Verification Aid packages.
 	After watching an extremely attractive maternity-ward patient
 earnestly thumbing her way through a telephone directory for several 
 minutes, a hospital orderly finally asked if he could be of some help.
-	"No, thanks," smiled the young mother, "I'm just looking for a
+	"No, thanks," smiled the ng mother, "I'm just looking for a
 name for my baby."
 	"But the hospital supplies a special booklet that lists hundreds
 of first names and their meanings," said the orderly.
 	"That won't help," said the woman, "my baby already has a first name."
-If you don't go to other men's funerals they won't go to yours.
+If  don't go to other men's funerals they won't go to rs.
 		-- Clarence Day
 An egghead is one who stands firmly on both feet, in mid-air, on both
 sides of an issue.
 		-- Homer Ferguson
 This is Jim Rockford.
-At the tone leave your name and message; I'll get back to you.
+At the tone leave r name and message; I'll get back to .
 
 This is Maria, Liberty Bail Bonds.  Your client, Todd Lieman, skipped and
-his bail is forfeit.  That's the pink slip on your '74 Firebird, I believe.
+his bail is forfeit.  That's the pink slip on r '74 Firebird, I believe.
 Sorry, Jim, bring it on over.
 
-This is Marilyn Reed, I wanta talk to you...  Is this a machine?  I don't
+This is Marilyn Reed, I wanta talk to ...  Is this a machine?  I don't
 talk to machines!  [Click]
 		-- "The Rockford Files"
 Senate, n.:
@@ -403,7 +403,7 @@ operation -- namely, to remove those irritant bodies."
 	"Then he will be perfectly sane, and a quite admirable citizen."
 	"Thank heaven for science!" said old Yacob.
 		-- H.G. Wells, "The Country of the Blind"
-The story you are about to hear is true.  Only the names have been
+The story  are about to hear is true.  Only the names have been
 changed to protect the innocent.
 When the going gets tough, the tough go grab a beer.
 Mike:	"The Fourth Dimension is a shambles?"
@@ -466,7 +466,7 @@ Oh, yes!  He's gonna bring up VMS!  Go, go, DECzilla!"
 * VMS is a trademark of Digital Equipment Corporation.
 * DECzilla is a trademark of Hollow Chocolate Bunnies of Death, Inc.
 		-- Curtis Jackson
-Boys, you have ALL been selected to LEAVE th' PLANET in 15 minutes!!
+Boys,  have ALL been selected to LEAVE th' PLANET in 15 minutes!!
 heavy, adj.:
 	Seduced by the chocolate side of the force.
 A penny saved has not been spent.
@@ -484,11 +484,11 @@ twenty minutes.
 
 It's about Russia.
 		-- Woody Allen
-The whole of life is futile unless you consider it as a sporting proposition.
+The whole of life is futile unless  consider it as a sporting proposition.
 Lots of girls can be had for a song.  Unfortunately, it often turns out to
 be the wedding march.
 Include me out.
-Numeric stability is probably not all that important when you're guessing.
+Numeric stability is probably not all that important when 're guessing.
 ink, n.:
 	A villainous compound of tannogallate of iron, gum-arabic,
 	and water, chiefly used to facilitate the infection of
@@ -496,13 +496,13 @@ ink, n.:
 		-- H.L. Mencken
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
-You're a good example of why some animals eat their young.
+You're a good example of why some animals eat their ng.
 		-- Jim Samuels to a heckler
 
 Ah, yes.  I remember my first beer.
 		-- Steve Martin to a heckler
 
-When your IQ rises to 28, sell.
+When r IQ rises to 28, sell.
 		-- Professor Irwin Corey to a heckler
 It's fabulous!  We haven't seen anything like it in the last h an hour!
 		-- Macy's
@@ -510,21 +510,21 @@ Extract from Official Sweepstakes Rules:
 
 		NO PURCHASE REQUIRED TO CLAIM YOUR PRIZE
 
-To claim your prize without rchase, do the following: (a) Carefully
-cut out your comter-printed name and address from upper right hand
+To claim r prize without rchase, do the following: (a) Carefully
+cut out r comter-printed name and address from upper right hand
 corner of the Prize Claim Form. (b) Affix comter-printed name and
 address -- with glue or cellophane tape (no staples or paper clips) --
 to a 3x5 inch index card.  (c) Also cut out the "No" paragraph (lower
 left hand corner of Prize Claim Form) and affix it to the 3x5 card
-below your address label. (d) Then print on your 3x5 card, above your
+below r address label. (d) Then print on r 3x5 card, above r
 comter-printed name and address the words "CARTER & VAN PEEL
 SWEEPSTAKES" (Use all capital letters.)  (e) Finally place 3x5 card
 (without bending) into a plain envelope [NOTE: do NOT use the the
-Official Prize Claim and CVP Perfume Reply Envelope or you may be
+Official Prize Claim and CVP Perfume Reply Envelope or  may be
 disqualified], and mail to: CVP, Box 1320, Westbury, NY 11595.  Print
 this address correctly.  Comply with above instructions carefully and
-completely or you may be disqualified from receiving your prize.
-If you do not think about the future, you cannot have one.
+completely or  may be disqualified from receiving r prize.
+If  do not think about the future,  cannot have one.
 		-- John Galsworthy
 Awash with unfocused desire, Everett twisted the lobe of his one reing
 ear and felt the presence of somebody else behind him, which caused terror
@@ -553,7 +553,7 @@ And here were forest ancient as the hills,
 Enfolding sunny spots of greenery.
 		-- S.T. Coleridge, "Kubla Kahn"
 I'm also against BODY-SURFING!!
-Silence is the only virtue you have left.
+Silence is the only virtue  have left.
 Mundus vult decipi decipiatur ergo.
 		-- Xaviera Hollander
 	[The world wants to be cheated, so cheat.]

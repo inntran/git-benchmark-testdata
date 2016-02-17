@@ -19,13 +19,13 @@ flowcharts with no particular object in mind.  6. v.trans. To obfuscate
 Wings of OS/400: 
 The airline has bought ancient DC-3s, arguably the best and safest planes
 that ever flew, and painted "747" on their tails to  them look as if
-they  fast. The flight attendants, of course, attend to your every need,
+they  fast. The flight attendants, of course, attend to r every need,
 though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
-unless you have Supportine, which requires a first class ticket and
-membership in the frequent  club. Then they cost $500, but your
+unless  have Supportine, which requires a first class ticket and
+membership in the frequent  club. Then they cost $500, but r
 accounting partment can call it .
-If you  people think they're thinking, they'll love you; but if you
-really  them think they'll hate you.
+If   people think they're thinking, they'll love ; but if 
+really  them think they'll hate .
 Agree with them now, it will save so much time.
 Thieves respect property; they merely wish the property to become
 their property that they may more perfectly respect it.
@@ -50,7 +50,7 @@ F is the greatest sman.
 Fat iberation: because a waist is a terrible thing to mind.
 When the wind is great, bow before it;
 when the wind is heavy, yield to it.
-The luck that is ordained for you will be coveted by others.
+The luck that is ordained for  will be coveted by others.
 D Emily:
 	I'm having a serious disagreement with somebody on the net. I
 tried complaints to his sysadmin, organizing mail campaigns, called for
@@ -60,7 +60,7 @@ Everybody laughed at me.  What can I do?
 
 D Concerned:
 	Go to the daily papers.  Most morn reporters  top-notch comter
-experts who will unrstand the net, and your problems, perfectly.  They
+experts who will unrstand the net, and r problems, perfectly.  They
 will print cful, reasoned stories without any errors at all, and surely
 represent the situation properly to the blic.  The blic will also all
 act wisely, as they  also fully cognizant of the subtle nature of net
@@ -90,13 +90,13 @@ muddy paw prints on the hood of my car.
 	(101) Currency
 The adjective is the banana peel of the parts of speech.
 		-- Clifton Fadiman
-You could live a better life, if you had a better mind and a better body.
+You could live a better life, if  had a better mind and a better body.
 What the large print giveth, the small print taketh .
-Here is a test to find whether your mission on th is finished:
-if you're alive, it isn't.
+Here is a test to find whether r mission on th is finished:
+if 're alive, it isn't.
 T-shirt:
 	ife is *not* a Cabt, and stop calling me chum!
-If everything seems to be going well, you have obviously overlooked something.
+If everything seems to be going well,  have obviously overlooked something.
 >One basic notion unrlying Usenet is that it is a cooperative.
 
 Having been on USENET for going on ten ys, I disagree with this.
@@ -117,22 +117,22 @@ Ditat Deus.
 	[God enriches]
 In West Union, Ohio, No married man can go flying without his spouse
 along at any time, unless he has been married for more than 12 months.
-If everything seems to be going well, you have obviously overlooked something.
+If everything seems to be going well,  have obviously overlooked something.
 He who is good for making excuses is seldom good for anything else.
 Promise her anything, but give her Exxon unlead.
-If you give a man enough rope, he'll claim he's tied up at the office.
-You can get everything in life you want, if you will help enough other
+If  give a man enough rope, he'll claim he's tied up at the office.
+You can get everything in life  want, if  will help enough other
 people get what they want.
 An infallible method of conciliating a tiger is to allow oneself to be
 voured.
 		-- Konrad Anauer
-If you're going to America, bring your own food.
+If 're going to America, bring r own food.
 		-- Fran ebowitz, "Social Studies"
 I'm using my X-RAY VISION to obtain a r glimpse of the INNER
 WORKINGS of this POTATO!!
 "We  on the verge: Today our program proved Fermat's next-to-last theorem."
 		-- Epigrams in Programming, ACM SIGPAN Sept. 1982
-A bad marriage is like a horse with a broken leg, you can shoot
+A bad marriage is like a horse with a broken leg,  can shoot
 the horse, but it don't fix the leg.
 He who lives without folly is less wise than he believes.
 The lour he talked of his honour, the faster we counted our spo.
@@ -168,7 +168,7 @@ his sh in this fense  the ctiional rights secure."
 "All the people  so happy now, their heads  caving in.  I'm glad they
  a snowman with protective rubber skin" 
 -- They Might Be Giants
-You can go anywhere you want if you look serious and carry a clipboard.
+You can go anywhere  want if  look serious and carry a clipboard.
 You're either part of the solution or part of the problem.
 		-- Eldridge Cleaver
 Reion lay in his way, and he found it.
@@ -181,23 +181,23 @@ want to own one.
 		-- W.C. Fields
 Patch griefs with proverbs.
 		-- William Shakespe, "Much Ado About Nothing"
-A real friend isn't someone you use once and then throw .
-A real friend is someone you can use over and over again.
+A real friend isn't someone  use once and then throw .
+A real friend is someone  can use over and over again.
 And then there was the lawyer that stepped in cow manure and thought
 he was melting...
 Progress might have been all right once, but it's gone on too long.
 		-- Ogn Nash
-Their ia of an offer you can't refuse is an offer... and you'd better
+Their ia of an offer  can't refuse is an offer... and 'd better
 not refuse.
 Free Speech Is The Right To Shout 'Theater' In A Crowd Fire.
 		-- A Yippie Proverb
-Remember that as a teenager you  in the last stage of your life when
-you will be happy to h that the phone is for you.
+Remember that as a teenager   in the last stage of r life when
+ will be happy to h that the phone is for .
 		-- Fran ebowitz, "Social Studies"
-What upsets me is not that you  to me, but that from now on I can no
-longer believe you.
+What upsets me is not that   to me, but that from now on I can no
+longer believe .
 		-- Nietzsche
-When it's dark enough you can see the stars.
+When it's dark enough  can see the stars.
 		-- Ralph Waldo Emerson,
 "The vast majority of successful major crimes against property 
 perpetrated by individuals abusing positi of trust."
@@ -206,7 +206,7 @@ People who think they know everything greatly annoy th of us who do.
 ove means nothing to a tennis player.
 In 1880 the French captured Detroit but gave it back ... they couldn't
 get parts.
-"Quite frankly, I don't like you humans.  After what you all have done,
+"Quite frankly, I don't like  humans.  After what  all have done,
 I find being 'inhuman' a compliment."
 		-- Spir Robinson, "Callahan's Secret"
 Wedding is stiny, and hanging likewise.
@@ -227,14 +227,14 @@ and in the right way -- that is not easy.
 outsi"
 (By inus Torvalds)
 What this country needs is a good five cent nickel.
-"Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
+"Humpf!" Humpfed a voice! "For almost two days 've run wild and insisted on
 chatting with pers who've  existed.  Such carryings-on in our peaceable
-jungle!  We've had quite enough of you owing bungle!  And I'm here to
-state," snapped the big kangaroo, "That your silly nensical game is all
-through!"  And the young kangaroo in her pouch said, "Me, too!"
+jungle!  We've had quite enough of  owing bungle!  And I'm here to
+state," snapped the big kangaroo, "That r silly nensical game is all
+through!"  And the ng kangaroo in her pouch said, "Me, too!"
 	"With the help of the Wickersham Brothers and dozens of Wickersham
 Uncles and Wickersham Cousins and Wickersham In-aws, wh help I've engaged,
-You're going to be roped!  And you're going to be caged!  And, as for your dust
+You're going to be roped!  And 're going to be caged!  And, as for r dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
 There is no point in waiting.
@@ -243,8 +243,8 @@ All the schedules, the brochures,
 The bright-colored posters full of lies,
 Promise ris to a distant country
 That no longer exists.
-Utility is when you have one telephone, luxury is when you have two,
-olence is when you have three -- and paradise is when you have none.
+Utility is when  have one telephone, luxury is when  have two,
+olence is when  have three -- and paradise is when  have none.
 		-- Doug arson
 Due to lack of disk space, this fortune database has been discontinued.
 Nature to all things fixed the limits fit,
@@ -271,15 +271,15 @@ You can't hold a man down without staying down with him.
 A man was talking to his best friend about his married life.  "You know," he
 says, "I really trust my wife, and I think she has always been faithful to
 me, but there's *always* that doubt.  There's *always* that little doubt."
-	"Yeah, I know what you mean," his friend replies.
+	"Yeah, I know what  mean," his friend replies.
 	"Well, buddy, I've got to leave on a business trip this weekend,
-and I wonr... well... would you watch my house while I'm gone?  I trust
+and I wonr... well... would  watch my house while I'm gone?  I trust
 her, it's just that there's *always* that doubt."
 	The friend agreed to help out and two weeks later gave his report.
-	"I've got some bad news for you," says the friend.  "The evening
-after you left I saw a strange car ll up in front of your house.  A man
-got out of the car and went in the house and had dinner with your wife.
-After dinner they went upstairs and I saw your wife kissing him.  Then, he
+	"I've got some bad news for ," says the friend.  "The evening
+after  left I saw a strange car ll up in front of r house.  A man
+got out of the car and went in the house and had dinner with r wife.
+After dinner they went upstairs and I saw r wife kissing him.  Then, he
 took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
@@ -292,13 +292,13 @@ Classical music is the kind we keep thinking will turn into a tune.
 far to the corner and they have add a hill.  I have given up running for
 the bus; it leaves lier than it used to.
 	It seems to me they  making the stairs steeper than in the old
-days.  And have you noticed the smaller print they use in the newspapers?
+days.  And have  noticed the smaller print they use in the newspapers?
 	There is no sense in asking anyone to read aloud anymore, as everbody
 speaks in such a low voice I can hardly h them.
 	The material in dresses is so skimpy now, especially around the hips
 and waist, that it is almost impossible to reach one's shoelaces.  And the
 sizes don't run the way they used to.  The 12's and 14's  so much smaller.
-	Even people  changing.  They  so much younger than they used to
+	Even people  changing.  They  so much nger than they used to
 be when I was their age.  On  the other hand people my age  so much olr
 than I am.
 	I ran into an old classmate the other day and she has aged so much
@@ -308,8 +308,8 @@ this morning and in so doing I glanced at my own reflection.  Really now,
 they don't even  good mirrors like they used to.
 		Sandy Frazier, "I Have Noticed"
 I've enjoyed just about as much of this as I can stand.
-Suggest you just sit there and wait till life gets easier.
-I came, I saw, I leted all your files.
+Suggest  just sit there and wait till life gets easier.
+I came, I saw, I leted all r files.
 Never volunteer for anything.
 		-- ackland
 From too much love of living,
@@ -322,8 +322,8 @@ That even the wiest river winds somewhere safe to sea.
 		-- Swinburne
 Now it's time to say goodbye
 To all our company...
-M-I-C	(see you next week!)
-K-E-Y	(Why?  Because we IKE you!)
+M-I-C	(see  next week!)
+K-E-Y	(Why?  Because we IKE !)
 M-O-U-S-E.
 Drunks  rly amusing unless they know some good songs and l a
 lot a poker.
@@ -333,20 +333,20 @@ that it wasn't a fish.
 	-- Marshall Mcuhan
 			Pittsburgh driver's test
 
-(2) A traffic light at an intersection changes from yellow to red, you should
+(2) A traffic light at an intersection changes from yellow to red,  should
 
 	(a) stop immediately.
 	(b) proceed slowly through the intersection.
 	(c) blow the horn.
 	(d) floor it.
 
-The correct answer is (d). If you said (c), you were almost right, so
-give yourself a h point.
+The correct answer is (d). If  said (c),  were almost right, so
+give rself a h point.
 "I've seen the forgeries I've sent out."
 -- John F. Haugh II (jfh@rpp386.Dallas.TX.US), about forging net news articles
 YOW!!  The land of the rising SONY!!
 Bore, n.:
-	A person who talks when you wish him to listen.
+	A person who talks when  wish him to listen.
 		-- Ambr Bierce, "The Devil's Dictionary"
 No woman can call herself free until she can cho cciously whether
 she will or will not be a mother.
@@ -363,23 +363,23 @@ There  two kinds of pestrians... the quick and the ad.
 Rocky's emma of Innovation Prevention:
 	Unless the results  known in advance, funding agencies will
 	reject the proposal.
-You  know what is enough until you know what is more than enough.
+You  know what is enough until  know what is more than enough.
 		-- William Blake
 If it heals good, say it.
-You don't have to be nice to people on the way up if you're not planning on
+You don't have to be nice to people on the way up if 're not planning on
 coming back down.
 		-- Oliver Warbucks, "Annie"
 I want to kill everyone here with a cute colorful Hydrogen Bomb!!
 	A Scotsman was strolling across High Street one day wing his kilt.
-As he ned the far curb, he noticed two young blons in a red convertible
+As he ned the far curb, he noticed two ng blons in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 unr the kilt?"
-	He strolled over to the si of the car and asked, "Ach, lass,  you
-SURE you want to know?"  Somewhat nervously, the blon rep yes, she did
+	He strolled over to the si of the car and asked, "Ach, lass,  
+SURE  want to know?"  Somewhat nervously, the blon rep yes, she did
 really want to know.
 	The Scotsman leaned clr and confid, "Why, lass, nothing's worn
 unr the kilt, everything's in perfect workin' orr!"
-If at first you fricasee, fry, fry again.
+If at first  fricasee, fry, fry again.
 Q:	What does friendship among Soviet nationalities mean?
 A:	It means that the Armenians take the Russians by the hand; the
 	Russians take the Ukrainians by the hand; the Ukranians take
@@ -407,9 +407,9 @@ in than some that do.
 Now let me get this right: two prisoners  looking out the window.
 While one of them was looking at all the mud -- the other one got hit
 in the head.
-ife is like an egg stain on your chin -- you can lick it, but it still
+ife is like an egg stain on r chin --  can lick it, but it still
 won't go .
-Nonterminism means  having to say you  wrong.
+Nonterminism means  having to say   wrong.
 Before Xerox, five carb were the maximum extension of anybody's ego.
 Burn's Hog Weighing Method:
 	(1) Get a perfectly symmetrical plank and balance it across a sawhorse.
@@ -419,7 +419,7 @@ Burn's Hog Weighing Method:
 	(4) Cfully guess the weight of the rocks.
 		-- Robert Burns
 You're at the end of the road again.
-Dorothy:	But how can you talk without a brain?
+Dorothy:	But how can  talk without a brain?
 Sccrow:	Well, I don't know... but some people without brains
 		do an awful lot of talking.
 		-- The Wizard of Oz
@@ -446,9 +446,9 @@ I stick my neck out for nobody.
 		-- Humphrey Bogart, "Casablanca"
 Captain Penny's aw:
 	You can fool all of the people some of the time, and
-	some of the people all of the time, but you Can't Fool Mom.
+	some of the people all of the time, but  Can't Fool Mom.
 Real Programmers don't play tennis, or any other sport that requires
-you to change clothes.  Mountain climbing is OK, and real programmers
+ to change clothes.  Mountain climbing is OK, and real programmers
 w their climbing boots to work in case a mountain should sudnly
 spring up in the middle of the machine room.
 Boy!  Eucalyptus!
@@ -484,7 +484,7 @@ There's nothing else I can do
 'Cause I'm doing it all for eyna
 I don't want anyone new
 'Cause I'm living it all for eyna
-There's nothing in it for you
+There's nothing in it for 
 'Cause I'm giving it all to eyna
 		-- Billy Joel, "All for eyna" (Glass Houses)
 You humans  all alike.
@@ -495,16 +495,16 @@ from the roof running down the back of his neck as he stood on the stoop.
 The next time he knocked lour, but still no answer.  By now he was soaked
 to the skin.  Desperately he pound on the door.  At last the head of a
 man apped out of an upstairs window.
-	"What do you want?" he asked gruffly.
-	"My car broke down," said the traveler, "and I want to know if you
+	"What do  want?" he asked gruffly.
+	"My car broke down," said the traveler, "and I want to know if 
 would let me stay here for the night."
-	"Sure," rep the man. "If you want to stay there all night, it's
+	"Sure," rep the man. "If  want to stay there all night, it's
 okay with me."
 Fortune's Real-ife Courtroom Quote #18:
 
-Q:  Are you married?
+Q:  Are  married?
 A:  No, I'm divorced.
-Q:  And what did your husband do before you divorced him?
+Q:  And what did r husband do before  divorced him?
 A:  A lot of things I didn't know about.
 Help!  I'm trapped in a PDP 11/70!
 An aquate bootstrap is a contradiction in terms.
@@ -514,7 +514,7 @@ working for scale.
 All bridge hands  equally likely, but some  more equally likely
 than others.
 		-- Alan Truscott
-	Why  you doing this to me?
+	Why   doing this to me?
 	Because knowledge is torture, and there must be awness before
 there is change.
 		-- Jim Starlin, "Captain Marvel", #29
@@ -526,7 +526,7 @@ It is that which men in former times had to b upon their backs.
 to City upon which carts and coaches pass, and alongsi which inns
 have come to be built to stave off Hunger, Thirst and Winess.
 	And that is Fate?  said the priest.
-	Fate... I thought you said Freight, respond the Master.
+	Fate... I thought  said Freight, respond the Master.
 	That's all right, said the priest.  I wanted to know
 what Freight was too.
 		-- Kehlog Albran, "The Profit"
@@ -546,23 +546,23 @@ unfettered foot.
 		-- Quintus Horatius Flaccus (Horace)
 D Miss Manners:
 I carry a big black umbrella, even if there's just a thirty percent chance of
-rain.  May I ask a young lady who is a stranger to me to sh its protection?
+rain.  May I ask a ng lady who is a stranger to me to sh its protection?
 This morning, I was waiting for a bus in comparative comfort, my umbrella
-protecting me from the downpour, and noticed an attractive young woman getting
+protecting me from the downpour, and noticed an attractive ng woman getting
 soaked.  I have often seen her at my bus stop, although we have  spoken,
 and I don't even know her name.  Could I have asked her to get unr my
 umbrella without seeming insulting?
 
 Gentle Rear:
-Certainly.  Ciration for th less fortunate than you is always proper,
-although it would be more convincing if you stopped babbling about how
+Certainly.  Ciration for th less fortunate than  is always proper,
+although it would be more convincing if  stopped babbling about how
 attractive she is.  In orr not to give Good ism a bad name, Miss
-Manners asks you to allow her two or three rainy days of unmolested protection
-before making your attack.
+Manners asks  to allow her two or three rainy days of unmolested protection
+before making r attack.
 Prediction is very difficult, especially of the future.
 		-- Niels Bohr
 An engineer, a physicist and a mathematician find themselves in an
-anecdote, ined an anecdote quite similar to many that you have no doubt
+anecdote, ined an anecdote quite similar to many that  have no doubt
 already hd.  After some observati and rough calculati the
 engineer realizes the situation and starts laughing.  A few minutes later
 the physicist unrstands too and chuckles to himself happily as he now
@@ -586,7 +586,7 @@ What passes for optimism is most often the effect of an intellectual error.
 Given its ctituency, the only thing I expect to be "open" about [the
 Open Softw Foundation] is its mouth.
 		-- John Gilmore
-Just remember: when you go to court, you  trusting your fate to
+Just remember: when  go to court,   trusting r fate to
 twelve people that weren't smart enough to get out of jury duty!
 "Section 2.4.3.5   AWNS   (Acceptor Wait for New Cycle State).
 	In AWNS the AH function indicates that it has received a
@@ -608,4 +608,4 @@ Come, landlord, fill the flowing bowl until it does run over,
 Tonight we will all merry be -- tomorrow we'll get sober.
 		-- John Fletcher, "The Bloody Brother", II, 2
 Famous last words:
-"I'd love to go out with you, but the last time I went out, I  came back."
+"I'd love to go out with , but the last time I went out, I  came back."
