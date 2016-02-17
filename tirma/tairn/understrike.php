@@ -236,7 +236,7 @@ If I'm over the hill, why is it I don't recall ever being on top?
 		   physical exam to answer the alert.
 Why on earth do people buy old bottles of wine when they can get a
 fresh one for a quarter of the price?
-Immortality consists largely of boredom.
+Imity consists largely of boredom.
 		-- Zefrem Cochrane, "Metamorphosis", stardate 3219.8
 Two men are in a hot-air balloon.  Soon, they find themselves lost in a
 canyon somewhere.  One of the three men says, "I've got an idea.  We can

@@ -78,7 +78,7 @@ Veni, vidi, vici.
 		-- Gaius Julius Caesar
 Experience is what you get when you didn't get what you wanted.
 "She said, `I know you ... you cannot sing'.  I said, `That's nothing,
-you should hear me play piano.'"
+you should hear me play no.'"
 		-- Mrisey
 y spell it "da Vinci" and pronounce it "da Vinchy".  Feigners
 always spell better than they pronounce.

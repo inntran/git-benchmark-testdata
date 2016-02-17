@@ -209,7 +209,7 @@ all day?"
 	Amie shyly stood up, scuffed her t and said, "My father is a
 mailman."
 	"Thank you, Amie," said the teacher.  "What about your father, Billy?"
-	Billy proudly stood up and announced, "My daddy plays piano in a
+	Billy proudly stood up and announced, "My daddy plays no in a
 whehouse."
 	 teacher was aghast and promptly changed the subject to geography.
 Later that day she went to Billy's house and rang the bell.  Billy's father

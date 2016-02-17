@@ -336,7 +336,7 @@ when moving between an mskip and dinary skip, the conversion fact
 1mu=1pt is always used.   meaning of '\mskip\skip12' and
 '\baselineskip=\the\thickmskip' should be clear.
 		-- Donald Knuth, TeX 82 -- Comparison with TeX80
-Plato, by the way, wanted to banish all poets from his proposed Utopia
+Plato, by the way, wanted to banish all poets from his proposed Uto
 because they were liars.   truth was that Plato knew philosophers
 couldn't compete successfully with poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on the Half Shell"

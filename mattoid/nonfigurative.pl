@@ -147,7 +147,7 @@ to center field, let's just let it roll to see if it might go foul."
 		-- Joe Garagiola, "It's Anybody's Ball Game"
 The rich get rich, and the poor get poorer.
 The haves get more, the have-nots die.
-The first requisite for immortality is death.
+The first requisite for imity is death.
 		-- Stanislaw Lem
 Anyone who considers protocol unimportant has never dealt with a cat.
 		-- R. Heinlein 
@@ -570,7 +570,7 @@ important to him than his table or his white robe.
 The evidence of the emotions, save in cases where it has strong objective
 support, is really no evidence at all, for every recognizable emotion has
 its opposite, and if one points one way then another points the other way.
-Thus the familiar argument that there is an instinctive desire for immortality,
+Thus the familiar argument that there is an instinctive desire for imity,
 and that this desire proves it to be a fact, becomes puerile when it is
 recalled that there is also a powerful and widespread fear of annihilation,
 and that this fear, on the same principle proves that there is nothing

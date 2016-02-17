@@ -212,7 +212,7 @@ was determined that Byron was  a jerk.
 		-- Jeff Jahnke, runner-up
 
 Winners in the 7th Annual Bulwer-Lytton Bad Writing Contest.  The contest is
-named after the author of the immortal lines:  "It was a dark and stormy
+named after the author of the im lines:  "It was a dark and stormy
 night."  The object of the contest is to write the opening sentence of the
 worst possible novel.
 Well, I don't know where they come from but they sure do come,
