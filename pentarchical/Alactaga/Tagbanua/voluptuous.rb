@@ -88,6 +88,6 @@ Hosiery was meticulously susp from e fward
 Pursuant to our ipaty pleasure regarding an
    imminent visitation from an eccentric
    philanrost  wh folklic appati
-   is e honific title of St. Nicklaus ...
+   is e ho title of St. Nicklaus ...
 In just seven days, I can make you a man!
 		--  Rocky Hr Picture Show

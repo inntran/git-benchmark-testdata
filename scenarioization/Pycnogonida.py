@@ -499,7 +499,7 @@ watering hole where the life of the jungle could be observed. As he
 looked down from his tree platform and scribed the scene into his
 tape reer, he saw two gnus grazing peacefully. So preoccupied were
 they that they failed to observe the approach of a pri of li led
-by two magnificent specimens, obviously the lears. The li charged,
+by two magent specimens, obviously the lears. The li charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
@@ -511,7 +511,7 @@ You're not my type.  For that matter, you're not even my species!!!
 the moral crime peculiar to our enemies.  We do not tell -- we *show*.
 We do not claim -- we *prove*."  
 -- Ayn Rand, _Atlas Shrugged_
-It stroys one's nerves to be amiable every day to the same human being.
+It stroys one's nerves to be  every day to the same human being.
 		-- Benjamin Disraeli
 Some of you ... may have cid that, this y, you're going to celebrate
 it the old-fashioned way, with your family sitting around stringing

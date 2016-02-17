@@ -102,7 +102,7 @@ frequency response, phase response and transient response, as they
 are all merely transforms of one another.  This combined with
 minimalization of open-loop errors in output amplifiers and correct
 compensation for non-linear passive crossover network loading can
-lead to a significant decrease in system resolution lost.  However,
+lead to a sigant decrease in system resolution lost.  However,
 this all means jack when you listen to Pink Floyd.
 Q:	What's the difference between an Irish wedding and an Irish wake?
 A:	One less drunk.

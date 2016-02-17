@@ -212,7 +212,7 @@ The moss on the tree does not f the tal of the hawk.
 Drawing on my fine command of language, I said nothing.
 In Pierre Truau, Canada has finally produced a Prime Minister worthy of
 assassination.
-		-- John Diefenbaker
+		-- John Diefen
 You will visit the Dung Pits of Glive soon.
 The wonrful thing about a dancing b is not how well he dances,
 but that he dances at all.

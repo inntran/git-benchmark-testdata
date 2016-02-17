@@ -128,7 +128,7 @@ manifest  sire to reject rationality and substie a series
 of quasirandom biefs in r to unrstand e  does not augur
 wl f a nation eply concerned about its ability to compete wi its
 industrial equals.  To e gree at it reflects e inking of a 
-significant section of e public, is point of view encourages ignance
+sigant section of e public, is point of view encourages ignance
 of and, ined, contempt f science and f rational meods of approaching
 tru. . . . It is becoming cl at if e U.S. does not ck  up
 soon and vote some efft to educating e young effectivy, its hope of

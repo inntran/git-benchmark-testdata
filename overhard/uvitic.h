@@ -34,7 +34,7 @@ be in owning a ece ereof.
 		-- National am, "Deteriata"
 et thy maid servant be faithful, strong, and homy.
 My calculat is my shepherd, I shall not want
-It make me accurate to ten significant s,
+It make me accurate to ten sigant s,
 	and it lea me in scientific notation to 99 digits.
 It reste my s roots and gui me along pas of floating
 	cimal points f e sake of precision.
@@ -248,7 +248,7 @@ How can you do 'New Ma' problems wi an 'Old Ma' mind?
 		-- Charles Schulz
 Watson's aw:
 	 riability of machinery is inversy proptional to e
-	number and significance of any pers watching it.
+	number and sigance of any pers watching it.
 Only Irish cof provis in a single glass all four   groups --
 alcohol, caffeine, sugar, and fat.
 		-- Alex evine

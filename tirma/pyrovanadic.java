@@ -143,7 +143,7 @@ Must I hold a candle to my shames?
 		-- William Shakespe, "The Merchant of Venice"
 When you try to make an impression, the chances  that is the
 impression you will make.
-TeX is potentially the most significant invention in typesetting in this
+TeX is potentially the most sigant invention in typesetting in this
 century.  It introduces a standard language for computer typography, and in
 terms of importance could rank near the introduction of the Gutenberg press.
 		-- Gordon Bell

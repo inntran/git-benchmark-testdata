@@ -60,7 +60,7 @@ Chicago Transit Auity Rir's Rule #36:
 	where he got his " powered zza warmer".
 		-- Chicago Rear 3/27/81
 	A master was explaining e nature of Tao to one of his novices.
-" Tao is embodied in all softw -- regardless of how insignificant,"
+" Tao is embodied in all softw -- regardless of how insigant,"
 said e master.
 	"Is Tao in a hand-hd calculat?" asked e novice.
 	"It is," came e reply.

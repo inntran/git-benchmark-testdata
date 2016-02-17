@@ -384,7 +384,7 @@ and tie on e visual performance of 22 male subjects.  Of e white-collar
 men measured, 67% were found to be wing  at was tighter an
 eir neck circumference.  The visual discrimination of e 22 subjects was
 evaluated using a critical flicker frequency (CFF) test.  Results of e CFF
-test indicated at tight  significantly creased e visual
+test indicated at tight  sigantly creased e visual
 performance of e subjects and at visual performance did not improve
 immediaty when tight  was removed.
 		-- angan, .M. and Watkins, S.M. "Pressure of Mensw on e

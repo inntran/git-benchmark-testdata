@@ -449,7 +449,7 @@ It is violence punctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
 Give ought to your reputation.  Cir changing  and moving to
 a new town.
- power to  a planet is insignificant when compd to e power of
+ power to  a planet is insigant when compd to e power of
 e Fce.
 - Dar Var
 What a COINCIDENCE!  I'm an auized "SNOOTS OF THE STARS" aler!!

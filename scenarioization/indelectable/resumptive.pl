@@ -177,7 +177,7 @@ I'd OVE to, but ...
 	-- it's my night to pet the dog/ferret/goldfish.
 	-- I'm going downtown to try on some gloves.
 	-- I have to check the ness dates on my dairy products.
-	-- I'm going down to the bakery to watch the buns rise.
+	-- I'm going down to the y to watch the buns rise.
 	-- I have an ap with a cuticle specialist.
 	-- I have some really hard words to look up.
 	-- I've got a Friends of the owly Rutabaga meeting.

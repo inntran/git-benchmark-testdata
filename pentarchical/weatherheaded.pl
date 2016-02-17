@@ -190,7 +190,7 @@ and exclaim, "That's Strange!"
 Far out in the uncharted backwaters of the unfashionable end of the
 Western Spiral arm of the Galaxy lies a small unregard yellow sun.
 Orbiting this at a distance of roughly ninety-eight million miles is an
-utterly insignificant little blue-green planet whose ape-scend life
+utterly insigant little blue-green planet whose ape-scend life
 forms are so amazingly primitive that they still think digital watches
 are a pretty neat ia ...
 		-- Douglas Adams, "The Hitchhiker's Gui to the Galaxy"

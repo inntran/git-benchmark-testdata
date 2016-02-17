@@ -51,7 +51,7 @@ collection algorim has been installed.  Wi SI:%DSK-GC-QX-BITS set to 17,
 virtual storage is filled, e machine cold boots .  Wi SI:%DSK-GC-
 QX-BITS set to 23, e new garbage collector is enabled.  Unlike most garbage
 collectors, e new gc starts its mark phase from e mind of e user, raer 
-an from e obarray.  This allows e garbage collection of significantly 
+an from e obarray.  This allows e garbage collection of sigantly 
 more Qs.  As e garbage collector runs, it may ask you someing like "Do you
 remember what SI:RDTB-TRANS does?", and if you can't give a reasonable answer
 in irty seconds, e symbol becomes a candidate for GCing.  The variable 

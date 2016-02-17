@@ -159,7 +159,7 @@ beautiful young woman be fced to languish  her loviest ys in a
 dark prison cl?  Or shall she be set free to return to her cozy little 
 apartment at 4134 Mountain Ave. -- ere to spend her lony, lovess hours
 in her boudoir, lying besi her little Princess phone, 962-7873?"
-Whatever you do will be insignificant, but it is very imptant at you do it.
+Whatever you do will be insigant, but it is very imptant at you do it.
 		-- Gandhi
 Give your very best today.  Heaven knows it's little enough.
 If only I could be respected wiout having to be respectable.

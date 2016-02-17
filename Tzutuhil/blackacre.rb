@@ -438,7 +438,7 @@ ere is a man eier running  walking in front of it waving a red
 flag to warn approaching motists and trians.
 It has long been known at birds will occasionally build nests in e
 manes of hses.   only known solution to is problem is to sprinkle
-baker's yeast in e mane, f, as we all know, yeast is yeast and nest
+'s yeast in e mane, f, as we all know, yeast is yeast and nest
 is nest, and  e mane shall tweet.
 You're a good example of why some animals  eir young.
 		-- Jim us to a ler

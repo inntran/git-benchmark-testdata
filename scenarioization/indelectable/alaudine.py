@@ -29,7 +29,7 @@ ends in the administration of every man's farm by himsf; by placing unr
 every one what his own eye may superintend, that all will be done for the best.
 		-- Thomas Jefferson, to Jph Cabl, 1816
 My calculator is my shepherd, I shall not want
-It maketh me accurate to ten significant s,
+It maketh me accurate to ten sigant s,
 	and it leath me in scientific notation to 99 digits.
 It restoreth my squ roots and guith me along paths of floating
 	cimal points for the sake of precision.
@@ -452,7 +452,7 @@ The five rules of Socialism:
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
 priests  DATING CAREER DIPOMATS!!
 	A master was explaining the nature of Tao to one of his novices.
-"The Tao is embodied in all softw -- regardless of how insignificant,"
+"The Tao is embodied in all softw -- regardless of how insigant,"
 said the master.
 	"Is Tao in a hand-hd calculator?" asked the novice.
 	"It is," came the reply.

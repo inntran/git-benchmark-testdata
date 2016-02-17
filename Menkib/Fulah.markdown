@@ -462,7 +462,7 @@ that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
 Kelly?"
 	He got up.  He said nothing and walked out of the house.  He never
-saw that girl again.  Gail Wynand, who prid himself on never needing a
+saw that girl again.  Gail Wynand, who prid himself on never  a
 lesson twice, did not fall in love again in the years that followed.
 		-- Ayn Rand, "The Fountainhead"
 Dull women have immaculate homes.

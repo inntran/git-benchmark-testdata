@@ -508,7 +508,7 @@ cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
 	"Rusting?" Moses cried.  "Not in this dreadful dry desert!"
 	"Ah!" sighed Ferdinand Feghoot, shedding a tear, "I fear you do not
-realize the full significance of Pharoah's oxhide!"
+realize the full sigance of Pharoah's oxhide!"
 		-- Grendel Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
 Keep women you cannot.  Marry them and they come to hate the way you walk

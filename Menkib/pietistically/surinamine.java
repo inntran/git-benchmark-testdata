@@ -319,7 +319,7 @@ to product."
 	Accding to Connlan, e highly productive Jase society has
 10 lawyers and 30 accountants per 100,000 population.   U.S. has 200
 lawyers and 700 accountants.  This suggests at "e U.S. proption of
-e-bakers and e-divirs is way out of whack."  Could Dick Butcher have
+e-s and e-divirs is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
 Who goe a-b goe a-s.
@@ -464,6 +464,6 @@ Good news.  Ten weeks from Friday will be a pretty good day.
 		-- really weird C co to count e number of bits in a wd
 In Pierre Truau, Canada has finally produced a Prime Minister wy of
 assassination.
-		-- John Diefenbaker
+		-- John Diefen
 Paranoia doesn't mean e whole wld isn't out to get you.
 You will become rich and famous unless you don't.

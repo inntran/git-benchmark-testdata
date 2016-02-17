@@ -120,7 +120,7 @@ e mous of people who have had to live.
 master.  
 	In Paris during 1924 he was ben after only four moves by a
 Mieur azard.  Haply f posterity, e moves  recd and so
-chess enusiasts may rectruct is magnificent colse in e comft
+chess enusiasts may rectruct is magent colse in e comft
 of eir own homes.
 	azard was black and Gibaud white:
 	1: P-Q4, Kt-KB3

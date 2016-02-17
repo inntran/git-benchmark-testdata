@@ -209,7 +209,7 @@ almost gently.  The optimist proclaims that we live in the best of all
 possible worlds; and the pessimist fs this is true.
 		-- James Cabl, "The Silver Stallion"
 C'est magnifique, mais ce n'est pas la guerre!
-	[It is magnificent, but it is not war]
+	[It is magent, but it is not war]
 		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Here is a simple experiment that will teach you an important ectrical
 lesson: On a cool, dry day, scuff your feet along a carpet, then reach your

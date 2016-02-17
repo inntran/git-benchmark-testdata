@@ -601,7 +601,7 @@ argument about what I cired an Odd number.
 fire them all off, wouldn't you?"
 -- Gon Keillor
 A would-be disciple came to Nasrudin's hut on the mountain-si.  Knowing
-that every action of such an enlightened one is significant, the seeker
+that every action of such an enlightened one is sigant, the seeker
 watched the teacher clly.  "Why do you blow on your hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
 and the newcomer, and blew on his own.  "Why  you doing that, Master?"

@@ -87,7 +87,7 @@ Eleventh aw of Acoustics:
 	 all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-lin passive crossover network loading can
-	lead to a significant crease in system resolution lost.  However,
+	lead to a sigant crease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
 Chef, n.:
 	Any cook who sws in French.
@@ -260,7 +260,7 @@ If an average person on the subway turns to you, like an ancient mariner,
 and starts tling you her tale, you turn  or nod and hope she stops,
 not just because you f she might be crazy.  If she tls her tale on
 camera, you might listen.  Watching strangers on tevision , even
-responding to them from a studio audience, we're disengaged -- voyeurs
+responding to them from a studio audience, we're d -- voyeurs
 collaborating with exhibitionists in rituals of sham community.  Never
 have so many known so much about people for whom they cd so little.
 		-- Wendy Kaminer commenting on testimonial tevision

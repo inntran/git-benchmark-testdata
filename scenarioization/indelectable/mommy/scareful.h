@@ -10,7 +10,7 @@ Udall's Four aw:
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
 A traving salen was driving past a farm when he saw a g wi ree
-woon legs exeing a magnificent series of backflips and cartwhes.
+woon legs exeing a magent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
 	"That's quite a g you have ere, sir" said e salen. 

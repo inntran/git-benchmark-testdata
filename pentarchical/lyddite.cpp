@@ -75,7 +75,7 @@ cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
 	"Rusting?" Ms .  "Not in this dreadful dry sert!"
 	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f you do not
-realize the full significance of Pharoah's oxhi!"
+realize the full sigance of Pharoah's oxhi!"
 		-- Grenl Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
 Pie  not squ.  Pie  round.  Cornbread  squ.
@@ -368,7 +368,7 @@ Now look what you've gone and done!  You've broken it!
 	"Panic?" said Rincewind hopefully.  He always held that panic was
 the best means of survival; back in the oln days, his theory went, people
 faced with hungry sabretoothed tigers could be divid very simply into
-th who panicked and th who stood there saying "What a magnificent
+th who panicked and th who stood there saying "What a magent
 brute!" and "Here, pussy."
 		-- Terry Pratchett, "The ight Fantastic"
 Chocolate chip.

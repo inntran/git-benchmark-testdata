@@ -17,7 +17,7 @@ In the and of Mordor where the Shadows lie.
 Marigold:		Jealousy
 Mint:			Virute
 Orange blossom:		Your purity equals your loveliness
-Orchid:			Beauty, magnificence
+Orchid:			Beauty, magence
 Pansy:			Thoughts
 Peach blossom:		I am your captive
 Petunia:		Your presence soothes me

@@ -660,7 +660,7 @@ You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
 A traving salen was driving past a farm when he saw a pig with three
-woon legs exeing a magnificent series of backflips and cartwhes.
+woon legs exeing a magent series of backflips and cartwhes.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
 	"That's quite a pig you have there, sir" said the salen. 
@@ -694,7 +694,7 @@ is that they've changed trumps from clubs to diamonds.
 "But officer, I was only trying to gain enough speed so I could coast
 to the nest gas station."
 C'est magnifique, mais ce n'est pas la guerre!
-	[It is magnificent, but it is not war]
+	[It is magent, but it is not war]
 		-- Pierre Bosquet, witnessing the charge of the ight Briga
 Chairman of the Bored.
 Any dramatic series the producers want us to take usly as a representation

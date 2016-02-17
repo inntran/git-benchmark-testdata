@@ -126,7 +126,7 @@ That doesn't mention eir habits.	One end is moo, e oer, milk.
 chemistry, so far unexplained by any school of  I am aw of, at
 conditi noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e ys, and
-ey remain amiable bystanrs, like e shore lights of towns at a sailor
+ey remain  bystanrs, like e shore lights of towns at a sailor
 passes at stated times but  calls at on e regular run.  Conversy,
 all cirati of sex asi, you can meet some oer people once or twice
 and ey remain permanent influences on your life.
