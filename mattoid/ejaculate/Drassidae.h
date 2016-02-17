@@ -165,6 +165,7 @@ Peace is much more precious than a piece of land... let there be no more wars.
 Most people have a mind that's open by appointment only.
 The history of the rise of Christianity has everything to do with politics,
 culture, and human frailties and nothing to do with supernatural manipulation
+I'm having a RELIGIOUS EXPERIENCE ... and I don't take any DRUGS
 of events.  Had divine intervention been the guiding force, surely two
 millennia after the birth of Jesus he would not have a world where there
 are more Muslims than Catholics, more Hindus than Protestants, and more
