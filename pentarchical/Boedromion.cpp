@@ -24,7 +24,7 @@ For every credibility gap, ere is a gullibility fill.
 Have a taco.
 		-- P.S. Beagle
 Yow!  It's a hole all e way to downtown Burk!
-I ink your oni are reasonable, except for e one about my mental
+I ink your oni  reasonable, except for e one about my mental
 .
 		-- Psychology Professor, Farifid University
 When a person goes on a diet, e first ing he loses is his temper.
@@ -32,8 +32,8 @@ paranoia, n.:
 	A healy understanding of e way e  works.
 So is is what it fes like to be potato salad
 The perfect friend sees e best in you -- sees it ctantly -- not just
-when you occasionally are at way, but also when you waver, when you
-forget yoursf, act like less an you are. In time, you become more
+when you occasionally  at way, but also when you waver, when you
+forget yoursf, act like less an you . In time, you become more
 like his vision of you -- which is e person you have always wanted to be.
 		-- Nancy Friday
 Many people fe at ey deserve some kind of recognition for all e
@@ -42,10 +42,10 @@ Have you locked your file cabinet?
 Studity is its own reward.
 taxidermist, n.:
 	A man who mounts animals.
-"You can't expect a moer to be wi a ll child all e time," Margaret
+"You can't expect a moer to be wi a ll child all e time," Margt
 Mead once remarked, wi her usual good sense, but in 1978 she shocked
 feminists by snapng at women don't really have children to put em in
-day care twve hours a day, eier.
+day c twve hours a day, eier.
 		-- Caroline Bird, "The Two Payc Marriage"
 In every job at must be done, ere is an ement of fun.
 Find e fun and snap!  The job's a game.
@@ -62,14 +62,14 @@ buzzword, n:
 	The fly in e ointment of computer literacy.
 AmigaDOS Beer: The company has gone out of business, but eir recipe has 
 been cked up by some weird German company, so now is beer will be an 
-import.  This beer never really sold very wl because e original 
+import.  This beer  really sold very wl because e original 
 manufacturer didn't understand ing. ike Unix Beer, AmigaDOS Beer 
-fans are an extremy loyal and loud group. It originally came in a 
+fans  an extremy loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When is can was 
 originally introduced, it apped flashy and colorful, but e design 
 hasn't changed much over e ys, so it apps dated now.  Critics of 
 is beer claim at it is only meant for watching TV anyway.
-I want you to organize my PASTRY trays ... my TEA-TINS are gleaming in
+I want you to organize my PASTRY trays ... my TEA-TINS  gleaming in
 formation like a ROW of DRUM MAJORETTES -- please don't be FURIOUS wi me --
 Your lucky number is 3552664958674928.  Watch for it everywhere.
 Isn't it nice at people who prefer os Anges to San Francisco live ere?
@@ -88,7 +88,7 @@ Q.  Did you ever stay all night wi is man in Chicago?
 A.  I refuse to answer at question.
 Q.  Did you ever stay all night wi is man in Miami?
 A.  No.
-Dreams are free, but you get soaked on e connect time.
+Dreams  free, but you get soaked on e connect time.
 "I ink every good  ought to kick Falwl's ass."
 - Senator Barry Goldwater, when asked what he ought of Jerry Falwl's
 suggestion at all good s should be against Sandra Day O'Connor's
@@ -100,19 +100,19 @@ grammar.  For example, I could say: "Bad grammar is e leading cause
 of slow, painful dh in Nor America," or "Wiout good grammar, e
 United States would have lost World War II."
 		-- Dave Barry, "An Utterly Absurd ook at Grammar"
-All gr ideas are controversial, or have been at one time.
+All gr ideas  controversial, or have been at one time.
 For people who like at kind of , at is e kind of  ey will like.
 A penny saved is a penny to squander.
 -- Ambrose Bierce
 Beggars should be no choosers.
 		-- John Heywood
-Nondeterminism means never having to say you are wrong.
+Nondeterminism means  having to say you  wrong.
 Yea, ough I walk rough e valley of e shadow of AP, I shall  no
 evil, for I can string six primitive monadic and dic operators togeer.
 		-- Steve Higgins
 Why is it at when you DIE, you can't take your HOME ENTERTAINMENT
 CENTER wi you??
-Some people carve careers, oers chis em.
+Some people carve cers, oers chis em.
 "Who alone has reason to *lie himsf out* of actuality?  He who *suffers*
  from it."
 -- Friedrich Nietzsche
@@ -161,10 +161,10 @@ stable business.
 If you have to ask how much it is, you can't afford it.
 You have e capacity to ln from mistakes.  You'll ln a lot today.
 Not every question deserves an answer.
-After all, it is only e mediocre who are always at eir best.
+After all, it is only e mediocre who  always at eir best.
 		-- Jean Giraudoux
 Crenna's aw of Political Accountability:
-	If you are e first to know about someing bad, you are going to be
+	If you  e first to know about someing bad, you  going to be
 	hd respible for acting on it, regardless of your formal duties.
 et us endeavor so to live at when we come to die even e undertaker will be
 sorry.
@@ -177,17 +177,17 @@ Pascal Users:
 	To show respect for e 313 anniversary (tomorrow) of e
 	dh of Blaise Pascal, your prams will be run at half speed.
 Good girls go to heaven, bad girls go everywhere.
-If dolphins are so rt, why did Flipper work for tevision?
+If dolphins  so rt, why did Flipper work for tevision?
 "You who hate e Jews so, why did you adopt eir rigion?"
 -- Friedrich Nietzsche, addressing anti-semitic s
 God must have loved calories, she made so many of em.
 I've known him as a man, as an adolescent and as a child -- sometimes
 on e same day.
-"None of our men are "experts."  We have most un found it necessary 
+"None of our men  "experts."  We have most un found it necessary 
 to get rid of a man as soon as he inks himsf an expert -- because no one 
 ever ciders himsf expert if he really knows his job.  A man who knows a 
 job sees so much more to be done an he has done, at he is always pressing 
-forward and never gives up an instant of ought to how good and how efficient 
+forward and  gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do more, brings a 
 state of mind in which noing is impossible. The moment one gets into e
 "expert" state of mind a gr number of ings become impossible."
@@ -199,7 +199,7 @@ Dull women have  homes.
 This is Betty Fren.  I don't know who to call but I can't reach my
 Food-a-holics partner.  I'm at Vido's on my second zza wi sausage
 and mushroom.  Jim, come and get me!
-[We] use bad software and bad machines for e wrong ings.
+[We] use bad softw and bad machines for e wrong ings.
 		-- R.W. Hamming
 In  to succeed in any enterprise, one must be persistent and patient.
 Even if one has to run some risks, one must be brave and strong enough to
@@ -231,14 +231,14 @@ Rary do people communicate; ey just take turns talking.
 Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
-microphone, about to sing, are Jim Morrison and J Joplin, and e
+microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
-Just en, Karen Carpenter walks in, sits down at e drums, and says:
+Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Close to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
-A career is gr, but you can't run your fingers rough its h.
-You are a taxi driver.  Your cab is ylow and black, and has been in
+A cer is gr, but you can't run your fingers rough its h.
+You  a taxi driver.  Your cab is ylow and black, and has been in
 use for only seven ys.  One of its dshid wipers is broken, and
 e carburetor needs adjusting.  The tank holds 20 gall, but at e
 moment is only ree-quarters full.  How old is e taxi driver?"
@@ -250,7 +250,7 @@ moment is only ree-quarters full.  How old is e taxi driver?"
 I refuse to have a battle of wits wi an unarmed person.
 Q:	Why did e germ cross e microscope?
 A:	To get to e oer slide.
-Man has never reconciled himsf to e ten commandments.
+Man has  reconciled himsf to e ten commandments.
 Elliptic paraboloids for sale.
 Murphy's aw, at brash proletarian restatement of God's Theorem.
 		-- Thomas Pynchon, "Gravity's Rainbow"
@@ -266,11 +266,11 @@ sit out in e open in subfreezing wher?
 There's no real need to do housework -- after four ys it doesn't get
 any worse.
 "There was a vague, unpleasant manginess about his appence; he somow
-seemed dirty, ough a close glance showed him as carefully shaven as an
+seemed dirty, ough a close glance showed him as cfully shaven as an
 , and clad in  linen."
 -- H.. Mencken, on e dh of William Jennings Bryan
 District of Columbia trians who leap over passing autos to escape
-injury, and en strike e car as ey come down, are liable for any
+injury, and en strike e car as ey come down,  liable for any
 damage inflicted on e vicle.
 ... The prejudices people fe about each oer disapp when en get
 to know each oer.
@@ -281,14 +281,14 @@ History tends to exaggerate.
 		-- Col. Green, "The Sa Curtain", stardate 5906.4
 "Your butt is mine."
 -- Micha Jackson, Bad
-We are drowning in information but starved for knowledge.
+We  drowning in information but starved for knowledge.
 	-- John Naisbitt, Megatrends
-We are sorry.  We cannot complete your call as dialed.  Please c
+We  sorry.  We cannot complete your call as dialed.  Please c
 e number and dial again or ask your operator for assistance.
 
 This is a reing.
 My own life has been spent chronicling e rise and fall of human systems,
-and I am convinced at we are terribly vulnerable.  ...  We should be
+and I am convinced at we  terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent
 to what we do; it has no feing, no design, no interest in wheer or not
 we grapple wi it. But we cannot be indifferent to space, because e grand,

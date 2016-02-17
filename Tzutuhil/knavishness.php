@@ -1,6 +1,6 @@
 America: born free and taxed to death.
 My religion cists of a humble admiration of the illimitable superior
-spirit who reveals himself in the slight details we are able to perceive
+spirit who reveals himself in the slight details we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
 flowchart, n. & v.:
@@ -19,7 +19,7 @@ flowcharts with no particular object in mind.  6. v.trans. To obfuscate
 Wings of OS/400: 
 The airline has bought ancient DC-3s, arguably the best and safest planes
 that ever flew, and painted "747" on their tails to make them look as if
-they are fast. The flight attendants, of course, attend to your every need,
+they  fast. The flight attendants, of course, attend to your every need,
 though the drinks cost $15 a pop. Stupid questi cost $230 per hour,
 unless you have Supportine, which requires a first class ticket and
 membership in the frequent flyer club. Then they cost $500, but your
@@ -42,7 +42,7 @@ yet we have not advanced one inch towards uniformity.
 Drop that !
 "The lawgiver, of all beings, most owes the law allegiance.
  He of all men should behave as though the law compelled him.
- But it is the universal weakness of mankind that what we are
+ But it is the universal weakness of mankind that what we 
  given to administer we presently imagine we own."
 -- H.G. Wells
 F is the greatest salesman.
@@ -59,22 +59,22 @@ Everybody laughed at me.  What can I do?
 		-- A Concerned Citizen
 
 D Concerned:
-	Go to the daily papers.  Most modern reporters are top-notch computer
+	Go to the daily papers.  Most modern reporters  top-notch computer
 experts who will understand the net, and your problems, perfectly.  They
-will print careful, reasoned stories without any errors at all, and surely
+will print cful, reasoned stories without any errors at all, and surely
 represent the situation properly to the public.  The public will also all
-act wisely, as they are also fully cognizant of the subtle nature of net
+act wisely, as they  also fully cognizant of the subtle nature of net
 society.
-	Papers never sensationalize or distort, so be sure to point out things
+	Papers  sensationalize or distort, so be sure to point out things
 like racism and sexism wherever they might exist.  Be sure as well that they
-understand that all things on the net, particularly insults, are meant
+understand that all things on the net, particularly insults,  meant
 literally.  ink what transpires on the net to the causes of the Holocaust, if
 possible.  If regular papers won't take the story, go to a tabloid paper --
-they are always interested in good stories.
+they  always interested in good stories.
 When the fog came in on little cat feet last night, it left these little
 muddy paw prints on the hood of my car.
 101 USES FOR A DEAD MICROPROCESSOR
-	(1)  Scarecrow for centipedes
+	(1)  Sccrow for centipedes
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
@@ -95,7 +95,7 @@ What the large print giveth, the small print taketh away.
 Here is a test to find whether your mission on th is finished:
 if you're alive, it isn't.
 T-shirt:
-	ife is *not* a Cabaret, and stop calling me chum!
+	ife is *not* a Cabt, and stop calling me chum!
 If everything seems to be going well, you have obviously overlooked something.
 >One basic notion underlying Usenet is that it is a cooperative.
 
@@ -128,9 +128,9 @@ devoured.
 		-- Konrad Adenauer
 If you're going to America, bring your own food.
 		-- Fran ebowitz, "Social Studies"
-I'm using my X-RAY VISION to obtain a rare glimpse of the INNER
+I'm using my X-RAY VISION to obtain a r glimpse of the INNER
 WORKINGS of this POTATO!!
-"We are on the verge: Today our program proved Fermat's next-to-last theorem."
+"We  on the verge: Today our program proved Fermat's next-to-last theorem."
 		-- Epigrams in Programming, ACM SIGPAN Sept. 1982
 A bad marriage is like a horse with a broken leg, you can shoot
 the horse, but it don't fix the leg.
@@ -144,7 +144,7 @@ Patriotism is the virtue of the vicious.
 		-- Oscar Wilde
 Style may not be the answer, but at least it's a workable alternative.
 You look tired.
-... bacteriological warfare ... hard to believe we were once foolish
+... bacteriological warf ... hard to believe we were once foolish
 enough to play around with that.
 		-- McCoy, "The Omega Glory", stardate unknown
 UNIX was half a billion (500000000) seconds old on
@@ -163,10 +163,10 @@ side of the cube will now be the original color of the plastic underneath
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
 "The strength of the Ctitution lies entirely in the determination of each
 citizen to defend it.  Only if every single citizen feels duty bound to do
-his share in this defense are the ctitutional rights secure."
+his sh in this defense  the ctitutional rights secure."
 -- Albert Einstein
-"All the people are so happy now, their heads are caving in.  I'm glad they
-are a snowman with protective rubber skin" 
+"All the people  so happy now, their heads  caving in.  I'm glad they
+ a snowman with protective rubber skin" 
 -- They Might Be Giants
 You can go anywhere you want if you look serious and carry a clipboard.
 You're either part of the solution or part of the problem.
@@ -176,7 +176,7 @@ Rebellion lay in his way, and he found it.
 Politics, as a practice, whatever its professi, has always been the
 systematic organisation of hatreds.
 		-- Henry Adams, "The Education of Henry Adams"
-Women are like elephants to me: I like to look at them, but I wouldn't
+Women  like elephants to me: I like to look at them, but I wouldn't
 want to own one.
 		-- W.C. Fields
 Patch griefs with proverbs.
@@ -191,7 +191,7 @@ Their idea of an offer you can't refuse is an offer... and you'd better
 not refuse.
 Free Speech Is The Right To Shout 'Theater' In A Crowded Fire.
 		-- A Yippie Proverb
-Remember that as a teenager you are in the last stage of your life when
+Remember that as a teenager you  in the last stage of your life when
 you will be happy to h that the phone is for you.
 		-- Fran ebowitz, "Social Studies"
 What upsets me is not that you lied to me, but that from now on I can no
@@ -199,7 +199,7 @@ longer believe you.
 		-- Nietzsche
 When it's dark enough you can see the stars.
 		-- Ralph Waldo Emerson,
-"The vast majority of successful major crimes against property are
+"The vast majority of successful major crimes against property 
 perpetrated by individuals abusing positi of trust."
 -- awrence Dalzell
 People who think they know everything greatly annoy those of us who do.
@@ -223,12 +223,12 @@ Anyone can become angry -- that is easy; but to be angry with the right
 person, to the right degree, at the right time, for the right purpose
 and in the right way -- that is not easy.
 		-- Aristotle
-"...and scantily clad females, of course.  Who cares if it's below zero
+"...and scantily clad females, of course.  Who cs if it's below zero
 outside"
 (By inus Torvalds)
 What this country needs is a good five cent nickel.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
-chatting with pers who've never existed.  Such carryings-on in our peaceable
+chatting with pers who've  existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you bellowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
@@ -262,7 +262,7 @@ I've read SEVEN MIION books!!
 One difference between a man and a machine is that a machine is quiet
 when well oiled.
 Don't get to bragging.
-There are only two kinds of tequila.  Good and better.
+There  only two kinds of tequila.  Good and better.
 IN MY OPINION anyone interested in improving himself should not rule out
 becoming pure energy.
 		-- Jack Handley, The New Mexican, 1988.
@@ -284,22 +284,22 @@ took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
 	"Well, I don't know," replied the friend, "it was too dark to see."
-	"Damn!" roared the husband.  "You see what I mean?  There's *always*
+	"Damn!" rod the husband.  "You see what I mean?  There's *always*
 that doubt!"
 Classical music is the kind we keep thinking will turn into a tune.
 		-- Kin Hubbard, "Abe Martin's Sayings"
 	Everthing is farther away than it used to be.  It is even twice as
 far to the corner and they have added a hill.  I have given up running for
 the bus; it leaves lier than it used to.
-	It seems to me they are making the stairs steeper than in the old
+	It seems to me they  making the stairs steeper than in the old
 days.  And have you noticed the smaller print they use in the newspapers?
 	There is no sense in asking anyone to read aloud anymore, as everbody
 speaks in such a low voice I can hardly h them.
 	The material in dresses is so skimpy now, especially around the hips
 and waist, that it is almost impossible to reach one's shoelaces.  And the
-sizes don't run the way they used to.  The 12's and 14's are so much smaller.
-	Even people are changing.  They are so much younger than they used to
-be when I was their age.  On  the other hand people my age are so much older
+sizes don't run the way they used to.  The 12's and 14's  so much smaller.
+	Even people  changing.  They  so much younger than they used to
+be when I was their age.  On  the other hand people my age  so much older
 than I am.
 	I ran into an old classmate the other day and she has aged so much
 that she didn't recognize me.
@@ -317,7 +317,7 @@ From hope and f set free,
 We thank with brief thanksgiving,
 Whatever gods may be,
 That no life lives forever,
-That dead men rise up never,
+That dead men rise up ,
 That even the wiest river winds somewhere safe to sea.
 		-- Swinburne
 Now it's time to say goodbye
@@ -325,7 +325,7 @@ To all our company...
 M-I-C	(see you next week!)
 K-E-Y	(Why?  Because we IKE you!)
 M-O-U-S-E.
-Drunks are rarely amusing unless they know some good songs and lose a
+Drunks  rly amusing unless they know some good songs and lose a
 lot a poker.
 		-- Karyl Roosevelt
 We don't know who it was that discovered water, but we're pretty sure
@@ -350,20 +350,20 @@ Bore, n.:
 		-- Ambrose Bierce, "The Devil's Dictionary"
 No woman can call herself free until she can choose cciously whether
 she will or will not be a mother.
-		-- Margaret H. Sanger
+		-- Margt H. Sanger
 Only two kinds of witnesses exist.  The first live in a neighborhood where
 a crime has been committed and in no circumstances have ever seen anything
-or even hd a shot.  The second category are the neighbors of anyone who
+or even hd a shot.  The second category  the neighbors of anyone who
 happens to be accused of the crime.  These have always looked out of their
 windows when the shot was fired, and have noticed the accused person standing
 peacefully on his balcony a few yards away.
 		-- Sicilian police officer
-There are two kinds of pedestrians... the quick and the dead.
+There  two kinds of pedestrians... the quick and the dead.
 		-- ord Thomas Rober Dewar
 Rocky's emma of Innovation Prevention:
-	Unless the results are known in advance, funding agencies will
+	Unless the results  known in advance, funding agencies will
 	reject the proposal.
-You never know what is enough until you know what is more than enough.
+You  know what is enough until you know what is more than enough.
 		-- William Blake
 If it heals good, say it.
 You don't have to be nice to people on the way up if you're not planning on
@@ -374,7 +374,7 @@ I want to kill everyone here with a cute colorful Hydrogen Bomb!!
 As he ned the far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 under the kilt?"
-	He strolled over to the side of the car and asked, "Ach, lass, are you
+	He strolled over to the side of the car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, the blonde replied yes, she did
 really want to know.
 	The Scotsman leaned closer and confided, "Why, lass, nothing's worn
@@ -391,7 +391,7 @@ What if everything is an illusion and nothing exists?  In that case, I
 definitely overpaid for my carpet.
 		-- Woody Allen, "Without Feathers"
 Well, Jim, I'm not much of an actor either.
-I'm continually AMAZED at th'breathtaking effects of WIND EROSION!!
+I'm ly AMAZED at th'breathtaking effects of WIND EROSION!!
 A good reputation is more valuable than money.
 		-- Publilius Syrus
 It is not enough to have great qualities, we should also have the
@@ -404,33 +404,33 @@ in than some that do.
 	One saw mud--
 	The other saw stars.
 
-Now let me get this right: two prisoners are looking out the window.
+Now let me get this right: two prisoners  looking out the window.
 While one of them was looking at all the mud -- the other one got hit
 in the head.
 ife is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
-Nondeterminism means never having to say you are wrong.
+Nondeterminism means  having to say you  wrong.
 Before Xerox, five carb were the maximum extension of anybody's ego.
 Burn's Hog Weighing Method:
 	(1) Get a perfectly symmetrical plank and balance it across a sawhorse.
 	(2) Put the hog on one end of the plank.
 	(3) Pile rocks on the other end until the plank is again perfectly
 	    balanced.
-	(4) Carefully guess the weight of the rocks.
+	(4) Cfully guess the weight of the rocks.
 		-- Robert Burns
 You're at the end of the road again.
 Dorothy:	But how can you talk without a brain?
-Scarecrow:	Well, I don't know... but some people without brains
+Sccrow:	Well, I don't know... but some people without brains
 		do an awful lot of talking.
 		-- The Wizard of Oz
-The unfacts, did we have them, are too imprecisely few to warrant our certitude.
+The unfacts, did we have them,  too imprecisely few to warrant our certitude.
 QOTD:
 	"ike this rose, our love will wilt and die."
 eft to themselves, things tend to go from bad to worse.
 What has roots as nobody sees,
 Is taller than trees,
 Up, up it goes,
-And yet never grows?
+And yet  grows?
 I have a VISION!  It's a RANCID double-FISHWICH on an ENRICHED BUN!!
 Have an adequate day.
 The wombat lives across the seas,
@@ -487,7 +487,7 @@ I don't want anyone new
 There's nothing in it for you
 'Cause I'm giving it all to eyna
 		-- Billy Joel, "All for eyna" (Glass Houses)
-You humans are all alike.
+You humans  all alike.
 It was raining heavily, and the motorist had car trouble on a lonely country
 road.  Anxious to find shelter for the night, he walked over to a farmhouse
 and knocked on the front door.  No one responded.  He could feel the water
@@ -511,11 +511,11 @@ An adequate bootstrap is a contradiction in terms.
 I thought there was something fishy about the butler.  Probably a Pisces,
 working for scale.
 		-- Firesign Theatre, "The Further Adventures of Nick Danger"
-All bridge hands are equally likely, but some are more equally likely
+All bridge hands  equally likely, but some  more equally likely
 than others.
 		-- Alan Truscott
-	Why are you doing this to me?
-	Because knowledge is torture, and there must be awareness before
+	Why  you doing this to me?
+	Because knowledge is torture, and there must be awness before
 there is change.
 		-- Jim Starlin, "Captain Marvel", #29
 A priest asked: What is Fate, Master?
@@ -546,10 +546,10 @@ unfettered foot.
 		-- Quintus Horatius Flaccus (Horace)
 D Miss Manners:
 I carry a big black umbrella, even if there's just a thirty percent chance of
-rain.  May I ask a young lady who is a stranger to me to share its protection?
+rain.  May I ask a young lady who is a stranger to me to sh its protection?
 This morning, I was waiting for a bus in comparative comfort, my umbrella
 protecting me from the downpour, and noticed an attractive young woman getting
-soaked.  I have often seen her at my bus stop, although we have never spoken,
+soaked.  I have often seen her at my bus stop, although we have  spoken,
 and I don't even know her name.  Could I have asked her to get under my
 umbrella without seeming insulting?
 
@@ -584,9 +584,9 @@ inux Symposium)
 What passes for optimism is most often the effect of an intellectual error.
 		-- Raymond Aron, "The Opium of the Intellectuals"
 Given its ctituency, the only thing I expect to be "open" about [the
-Open Software Foundation] is its mouth.
+Open Softw Foundation] is its mouth.
 		-- John Gilmore
-Just remember: when you go to court, you are trusting your fate to
+Just remember: when you go to court, you  trusting your fate to
 twelve people that weren't smart enough to get out of jury duty!
 "Section 2.4.3.5   AWNS   (Acceptor Wait for New Cycle State).
 	In AWNS the AH function indicates that it has received a
@@ -608,4 +608,4 @@ Come, landlord, fill the flowing bowl until it does run over,
 Tonight we will all merry be -- tomorrow we'll get sober.
 		-- John Fletcher, "The Bloody Brother", II, 2
 Famous last words:
-"I'd love to go out with you, but the last time I went out, I never came back."
+"I'd love to go out with you, but the last time I went out, I  came back."

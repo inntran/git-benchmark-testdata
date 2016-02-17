@@ -1,10 +1,10 @@
-You are always busy.
+You  always busy.
 "Let's not be too tough on our own ignorance.  It's the thing that makes
  America great.  If America weren't incomparably ignorant, how could we
  have tolerated the last eight years?"
 -- Frank Zappa, Feb 1, 1989
 A woman's place is in the house... and in the Senate.
-Earn cash in your spare time -- blackmail your friends.
+Earn cash in your sp time -- blackmail your friends.
 "The bad reputation UNIX has gotten is totally undeserved, laid on by people
 who don't understand, who have not gotten in there and tried anything."
 		-- Jim Joyce, owner of Jim Joyce's UNIX Bookstore
@@ -27,11 +27,11 @@ It seems intuitively obvious to me, which means that it might be wrong.
 		-- Chris Torek
 AmigaDOS Beer: The company has gone out of business, but their recipe has 
 been picked up by some weird German company, so now this beer will be an 
-import.  This beer never really sold very well because the original 
+import.  This beer  really sold very well because the original 
 manufacturer didn't understand marketing. Like Unix Beer, AmigaDOS Beer 
-fans are an extremely loyal and loud group. It originally came in a 
+fans  an extremely loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When this can was 
-originally introduced, it appeared flashy and colorful, but the design 
+originally introduced, it apped flashy and colorful, but the design 
 hasn't changed much over the years, so it appears dated now.  Critics of 
 this beer claim that it is only meant for watching TV anyway.
 My problem lies in reconciling my gross habits with my net income.
@@ -49,7 +49,7 @@ everyone else had seven apertures, for sight, hearing, eating, breathing and
 so on, Chaos had none.  So they decided to make the experiment of boring holes
 in him.  Every day they bored a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
-All laws are simulations of reality.
+All laws  simulations of reality.
 		-- John C. Lilly
 Government spending?  I don't know what it's all about.  I don't know
 any more about this thing than an economist does, and, God knows, he
@@ -69,7 +69,7 @@ Mighty starships plied their way between exotic suns, seeking adventure and
 reward among the furthest reaches of Galactic space.  In those days, spirits
 were brave, the stakes were high, men were real men, women were real women
 and small furry creatures from Alpha Centauri were real small furry creatures
-from Alpha Centauri.  And all dared to brave unknown terrors, to do mighty
+from Alpha Centauri.  And all dd to brave unknown terrors, to do mighty
 deeds, to boldly split infinitives that no man had split before -- and thus
 was the Empire forged.
 -- Douglas Adams, _The Hitchhiker's Guide to the Galaxy_
@@ -97,7 +97,7 @@ interest rates, we don't need it."
 From listening comes wisdom and from speaking repentance.
 Even if you're on the right track, you'll get run over if you just sit there.
 		-- Will Rogers
-Reclaimer, spare that tree!
+Reclaimer, sp that tree!
 Take not a single bit!
 It used to point to me,
 Now I'm protecting it.
@@ -108,15 +108,15 @@ Thou shalt reclaim it not.
 George Orwell 1984.  Northwestern 0.
 		-- Chicago Reader 10/15/82
 Be self-reliant and your success is assured.
-You are in a maze of little twisting passages, all alike.
+You  in a maze of little twisting passages, all alike.
 "If anything can go wrong, it will."
 -- Edsel Murphy
-Beware of Bigfoot!
+Bew of Bigfoot!
 Turnaucka's Law:
 	The attention span of a computer is only as long as its
 	electrical cord.
 Excellent time to become a missing person.
-"No matter where you go, there you are..."
+"No matter where you go, there you ..."
 -- Buckaroo Banzai
 To do two things at once is to do neither.
 		-- Publilius Syrus
@@ -128,11 +128,11 @@ Call on God, but row away from the rocks.
 		-- Indian proverb
 It would be illogical to assume that all conditions remain stable.
 		-- Spock, "The Enterprise" Incident", stardate 5027.3
-Politicians are the same all over.  They promise to build a bridge even
+Politicians  the same all over.  They promise to build a bridge even
 where there is no river.
 	-- Nikita Khrushchev
 You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+brakes  defective.
 Ryan's Law:
 	Make three correct guesses consecutively
 	and you will establish yourself as an expert.
@@ -142,11 +142,11 @@ You can take all the impact that science considerations have on funding
 decisions at NASA, put them in the navel of a flea, and have room left
 over for a caraway seed and Tony Calio's heart.
 		-- F. Allen
-Authors are easy to get on with -- if you're fond of children.
+Authors  easy to get on with -- if you're fond of children.
 		-- Michael Joseph, "Observer"
 Uh-oh -- WHY am I suddenly thinking of a VENERABLE religious leader
 frolicking on a FORT LAUDERDALE weekend?
-In the long run we are all dead.
+In the long run we  all dead.
 		-- John Maynard Keynes
 HOW YOU CAN TELL THAT IT'S GOING TO BE A ROTTEN DAY:
 	#1040 Your income tax refund cheque bounces.
@@ -162,29 +162,29 @@ is play.  _Z is keep your mouth shut.
 		-- Albert Einstein
 ... I want to perform cranial activities with Tuesday Weld!!
 It is easier to change the specification to fit the program than vice versa.
-I have never understood the female capacity to avoid a direct answer to
+I have  understood the female capacity to avoid a direct answer to
 any question.
 		-- Spock, "This Side of Paradise", stardate 3417.3
 "jackpot:  you may have an unneccessary change record"
 -- message from "diff"
 One doesn't have a sense of humor.  It has you.
 		-- Larry Gelbart
-How beautiful, how entrancing you are, my loved one, daughter of delights!
-You are stately as a palm-tree, and your breasts are the clusters of dates.
+How beautiful, how entrancing you , my loved one, daughter of delights!
+You  stately as a palm-tree, and your breasts  the clusters of dates.
 I said, "I will climb up into the palm to grasp its fronds."  May I find your
 breast like clusters of grapes on the vine, the scent of your breath like
 apricots, and your whispers like spiced wine flowing smoothly to welcome my
-caresses, gliding down through lips and teeth.
+csses, gliding down through lips and teeth.
 [Song of Solomon 7:6-9 (NEB)]
 "The Schizophrenic: An Unauthorized Autobiography"
 An honest politician is one who when he is bought will stay bought.
 		-- Simon Cameron
 
-There are honest journalists like there are honest politicians.  When
+There  honest journalists like there  honest politicians.  When
 bought they stay bought.
 		-- Bill Moyers
 Don't go to bed with no price on your head.
-		-- Baretta
+		-- Btta
 HOGAN'S HEROES DRINKING GAME --
 	Take a shot every time:
 
@@ -198,7 +198,7 @@ HOGAN'S HEROES DRINKING GAME --
 -- Corporal Newkirk calls up a German in his phoney German accent, and
 	tricks him (two shots if it's Colonel Klink).
 -- Hogan has a romantic interlude with a beautiful girl from the underground.
--- Colonel Klink relates how he's never had an escape from Stalag 13.
+-- Colonel Klink relates how he's  had an escape from Stalag 13.
 -- Sergeant Schultz gives up a secret (two shots if he's bribed with food).
 -- The prisoners listen to the Germans' conversation by a hidden transmitter.
 -- Sergeant Schultz "captures" one of the prisoners after an escape.
@@ -207,10 +207,10 @@ HOGAN'S HEROES DRINKING GAME --
 -- Lebeau wears his apron.
 -- Hogan says "We've got no choice" when someone claims that the plan is
 	impossible.
--- The prisoners capture an important German, and sneak him out the tunnel.
+-- The prisoners capture an important German, and sneak him out the .
 Flattery is like cologne -- to be smelled, but not swallowed.
 		-- Josh Billings
-More are taken in by hope than by cunning.
+More  taken in by hope than by cunning.
 		-- Vauvenargues
 rain falls where clouds come
 sun shines where clouds go
@@ -243,12 +243,12 @@ QOTD:
 "Whatever the missing mass of the universe is, I hope it's not cockroaches!"
 		-- Mom
 When God saw how faulty was man He tried again and made woman.  As to
-why he then stopped there are two opinions.  One of them is woman's.
+why he then stopped there  two opinions.  One of them is woman's.
 		-- DeGourmont
-Almost anything derogatory you could say about today's software design
+Almost anything derogatory you could say about today's softw design
 would be accurate.
 		-- K.E. Iverson
-The eagle may soar, but the weasel never gets sucked into a jet engine.
+The eagle may soar, but the weasel  gets sucked into a jet engine.
 Endless Loop, n.:
 	see Loop, Endless.
 Loop, Endless, n.:
@@ -271,11 +271,11 @@ The moving cursor writes, and having written, blinks on.
 Said he, "I'm an anti-climb Max."
 	[So is that punchline.]
 Leibowitz's Rule:
-	When hammering a nail, you will never hit your
+	When hammering a nail, you will  hit your
 	finger if you hold the hammer with both hands.
 If there is no God, who pops up the next Kleenex?
 		-- Art Hoppe
-backups: always in season, never out of style.
+backups: always in season,  out of style.
 Time will end all my troubles, but I don't always approve of Time's methods.
 Sometimes a cigar is just a cigar.
 		-- Sigmund Freud
@@ -292,7 +292,7 @@ euphorically.  "Don't worry, Harry, they'll find us!  They'll find us!"
 ... I'm IMAGINING a sensuous GIRAFFE, CAVORTING in the BACK ROOM
 of a KOSHER DELI --
 This ASEXUAL PIG really BOILS my BLOOD ... He's so ... so ... URGENT!!
-I guess I've been so wrapped up in playing the game that I never took
+I guess I've been so wrapped up in playing the game that I  took
 time enough to figure out where the goal line was -- what it meant to
 win -- or even how you won.
 		-- Cash McCall

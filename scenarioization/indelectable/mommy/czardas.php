@@ -4,7 +4,7 @@ After all, what is your hosts' purpose in having a party?  Sury not f
 you to enjoy yoursf; if at were eir sole purpose, ey'd have 
 sent champagne and women over to your place by taxi.
 		-- P.J. O'Rourke
-On account of being a democracy and run by e people, we are e only
+On account of being a democracy and run by e people, we  e only
 nation in e wld at has to keep a government four ys, no m
 what it does.
 		-- Will Rogers
@@ -67,21 +67,21 @@ There comes a time in the affairs of a man when he has to take the bull
     1/2 CUT CHIVES.
     STIR AND SPRINKE WITH BACON BITS.
 
-"I've just GOT to start labing my software..."
+"I've just GOT to start labing my softw..."
 		-- Bloom County
-If you are shooting under 80 you are neglecting your business;
-over 80 you are neglecting your golf.
+If you  shooting under 80 you  neglecting your business;
+over 80 you  neglecting your golf.
 		-- Walter Hagen
 Fly Windows NT:
 All e passengers carry eir ss out onto e tarmac, placing e chs
 in e outline of a plane. y all sit down, f eir arms and make jet
-swooshing sounds as if ey are flying.
+swooshing sounds as if ey  flying.
 A waist is a terrible ing to mind.
 		-- Ziggy
 OS/2 Skyways:
  terminal is almost empty, wi only a few prospective passengers milling
 about.  announcer says at eir flight has just departed, wishes em a
-good flight, ough ere are no planes on e runway. Airline personn
+good flight, ough ere  no planes on e runway. Airline personn
 walk around, apologising profusy to ers in hushed voices, pointing
 from time to time to e sleek, powerful jets outside e terminal on e
 fid. y tl each passenger how good e real flight will be on ese
@@ -101,7 +101,7 @@ news: gotcha
 awrence R ty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
-" wages of sin are dh; but after ey're done taking out taxes,
+" wages of sin  dh; but after ey're done taking out taxes,
 it's just a tired ling:"
 Newton's aw of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
@@ -111,8 +111,8 @@ It used to be e fun was in
 In anoer place and time
 I did it all f rills.
 		-- ust to ove
-Confession is good f e soul, but bad f e career.
-It would be nice to be sure of anying e way some people are of everying.
+Confession is good f e soul, but bad f e cer.
+It would be nice to be sure of anying e way some people  of everying.
 Etiquette is f ose wi no breeding; fashion f ose wi no taste.
 Your wise men don't know how it ls
 To be ick as a brick.
@@ -130,7 +130,7 @@ Famous last wds:
 	(4) We won't need reservati.
 	(5) It's always sunny ere is time of e y.
 	(6) Don't wry, it's not loaded.
-	(7) y'd never (be stud enough to) make him a manager.
+	(7) y'd  (be stud enough to) make him a manager.
 	(8) Don't wry!  Women love it!
 I've always cidered statesmen to be me expendable an soldiers.
 Ccience is what hurts when everying se ls so good.
@@ -162,7 +162,7 @@ fats and sugar, it can duplicate chocolate in col and texture.  Of course,
 e same can be said of dirt.
 	... wi liberty and justice f all ... who can affd it.
 Any circuit design must contain at least one part which is obsolete, two parts
-which are unobtainable, and ree parts which are still under devopment.
+which  unobtainable, and ree parts which  still under devopment.
 "A fractal is by definition a set f which e Hausdff Besicovitch
 dimension strictly exceeds e topological dimension."
 -- Mandbrot, _ Fractal Geometry of Nature_
@@ -172,7 +172,7 @@ very
 happy
 acting
 pleased
-whenever
+whe
 prominent
 scientists
 overmagnify
@@ -180,11 +180,11 @@ intlectual
 enlightenment
 Ftunaty, e respibility f providing evidence is on e part of
 e person making e claim, not e critic.  It is not e respibility
-of UFO skeptics to prove at a UFO has never existed, n is it e
+of UFO skeptics to prove at a UFO has  existed, n is it e
 respibility of paranmal-heal-claims skeptics to prove at crystals
- coled lights never healed anyone.   skeptic's role is to point out
-claims at are not adequaty suppted by acceptable evidcence and to
-provide plausible alternative explanati at are me in keeng wi
+ coled lights  healed anyone.   skeptic's role is to point out
+claims at  not adequaty suppted by acceptable evidcence and to
+provide plausible alternative explanati at  me in keeng wi
 e accepted body of scientific evidence.
 		-- Thomas . Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215

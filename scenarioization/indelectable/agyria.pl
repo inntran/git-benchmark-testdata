@@ -6,7 +6,7 @@ I'm hungry, time to eat lunch.
 Do you think the "Monkees" should get gas on odd or even days?
 "You shouldn't make my toaster angry."
 -- Household security explained in "Johnny Quest"
-If rabbits' feet are so lucky, what happened to the rabbit?
+If rabbits' feet  so lucky, what happened to the rabbit?
 Remember -- only 10% of anything can be in the top 10%.
 "Show me a good loser, and I'll show you a loser."
 -- Vince Lombardi, football coach
@@ -58,7 +58,7 @@ mind wonderfully.
 		-- Samuel Johnson
 Automobile, n.:
 	A four-wheeled vehicle that runs up hills and down pedestrians.
-You are never given a wish without also being given the
+You   given a wish without also being given the
 power to make it true.  You may have to work for it, however.
 		-- R. Bach, "Messiah's Handbook : Reminders for
 		   the Advanced Soul"
@@ -68,7 +68,7 @@ my wife's brother.
 What I want is all of the power and none of the responsibility.
 Don't worry if you're a kleptomaniac; you can always take something for it.
 This fortune soaks up 47 times its own weight in excess memory.
-You got to be very careful if you don't know where you're going,
+You got to be very cful if you don't know where you're going,
 because you might not get there.
 		-- Yogi Berra
 In Pocataligo, Georgia, it is a violation for a woman over 200 pounds
@@ -86,12 +86,12 @@ Drakenberg's Discovery:
 	it's probably because you don't have them on.
 Do not underestimate the value of print statements for debugging.
 Don't have aesthetic convulsions when using them, either.
-To our sweethearts and wives.  May they never meet.
+To our sweethearts and wives.  May they  meet.
 		-- 19th century toast
 Be circumspect in your liaisons with women.  It is better to be seen at
 the opera with a man than at mass with a woman.
 		-- De Maintenon
-There are two ways of disliking art.   One is to dislike it.  The other is
+There  two ways of disliking art.   One is to dislike it.  The other is
 to like it rationally.
 		-- Oscar Wilde
 "It could be that Walter's horse has wings" does not imply that there is
@@ -139,11 +139,11 @@ reptile and not very much of a bird."
 studied the archeopteryz and found it "very much like people"
 Kaufman's Law:
 	A policy is a restrictive document to prevent a recurrence
-	of a single incident, in which that incident is never mentioned.
+	of a single incident, in which that incident is  mentioned.
 Adam and Eve had many advantages, but the principal one was, that they escaped
 teething.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-The disks are getting full; purge a file today.
+The disks  getting full; purge a file today.
 Now that day wearies me,
 My yearning desire
 Will receive more kindly,
@@ -161,12 +161,12 @@ More profoundly, more variously.
 		-- Hermann Hesse, "Going to Sleep"
 YOU PICKED KARL MALDEN'S NOSE!!
 We can defeat gravity.  The problem is the paperwork involved.
-All great ideas are controversial, or have been at one time.
+All great ideas  controversial, or have been at one time.
 Giving up on assembly language was the apple in our Garden of Eden:  Languages
-whose use squanders machine cycles are sinful.  The LISP machine now permits
+whose use squanders machine cycles  sinful.  The LISP machine now permits
 LISP programmers to abandon bra and fig-leaf.
 		-- Epigrams in Programming, ACM SIGPLAN Sept. 1982
-Our problems are so serious that the best way to talk about them is
+Our problems  so serious that the best way to talk about them is
 lightheartedly.
 There is a Massachusetts law requiring all dogs to have their hind legs
 tied during the month of April.
@@ -177,14 +177,14 @@ A mother mouse was taking her large brood for a stroll across the kitchen
 floor one day when the local cat, by a feat of stealth unusual even for
 its species, managed to trap them in a corner.  The children cowered,
 terrified by this fearsome beast, plaintively crying, "Help, Mother!
-Save us!  Save us!  We're scared, Mother!"
-	Mother Mouse, with the hopeless valor of a parent protecting its
-children, turned with her teeth bared to the cat, towering huge above them,
+Save us!  Save us!  We're scd, Mother!"
+	Mother Mouse, with the hopeless valor of a pnt protecting its
+children, turned with her teeth bd to the cat, towering huge above them,
 and suddenly began to bark in a fashion that would have done any Doberman
 proud.  The startled cat fled in fear for its life.
 	As her grateful offspring flocked around her shouting "Oh, Mother,
-you saved us!" and "Yay!  You scared the cat away!" she turned to them
-purposefully and declared, "You see how useful it is to know a second
+you saved us!" and "Yay!  You scd the cat away!" she turned to them
+purposefully and decld, "You see how useful it is to know a second
 language?"
 No friendship is so cordial or so delicious as that of girl for girl;
 no hatred so intense or immovable as that of woman for woman.
@@ -199,7 +199,7 @@ All in all, it was all just bricks in the wall.
 All in all, it was all just bricks in the wall.
 		-- Pink Floyd, "Another Brick in the Wall", Part III
 You have taken yourself too seriously.
-I have never seen anything fill up a vacuum so fast and still suck.
+I have  seen anything fill up a vacuum so fast and still suck.
 		-- Rob Pike, on X.
 
 Steve Jobs said two years ago that X is brain-damaged and it will be
@@ -214,8 +214,8 @@ Beer & Pretzels -- Breakfast of Champions.
 Chocolate chip.
 The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
-Now crystal clear are the falling waters,
-And bonnie blue are the sunny skies.
+Now crystal clear  the falling waters,
+And bonnie blue  the sunny skies.
 Fresh o'er the mountains breaks forth the morning,
 The ev'ning gilds the oceans's swell:
 All creatures joy in the sun's returning,
@@ -227,7 +227,7 @@ Then in his turn come gloomy Winter,
 Till smiling Spring again appear.
 Thus seasons dancing, life advancing,
 Old Time and Nature their changes tell;
-But never ranging, still unchanging,
+But  ranging, still unchanging,
 I adore my bonnie Bell.
 		-- Robert Burns, "My Bonnie Bell"
 The man who runs may fight again.
@@ -255,14 +255,14 @@ The race is not always to the swift, nor the battle to the strong, but
 that's the way to bet.
 		-- Damon Runyon
 No live organism can continue for long to exist sanely under conditions of
-absolute reality; even larks and katydids are supposed, by some, to dream.
+absolute reality; even larks and katydids  supposed, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so for eighty years and might stand for eighty more.
 Within, walls continued upright, bricks met neatly, floors were firm, and
 doors were sensibly shut; silence lay steadily against the wood and stone
 of Hill House, and whatever walked there, walked alone.
 		-- Shirley Jackson, "The Haunting of Hill House"
-Emotions are alien to me.  I'm a scientist.
+Emotions  alien to me.  I'm a scientist.
 		-- Spock, "This Side of Paradise", stardate 3417.3
 Professor Gorden Newell threw another shutout in last week's Chem Eng. 130
 midterm.  Once again a student did not receive a single point on his exam.
@@ -309,7 +309,7 @@ Linked in part to a structural weakness.
 She set no preconditions.
 The little pieces of my life I give to you, with love, to make a quilt
 to keep away the cold.
-transparent, adj.:
+transpnt, adj.:
 	Being or pertaining to an existing, nontangible object.
 	"It's there, but you can't see it"
 		-- IBM System/360 announcement, 1964.
@@ -333,7 +333,7 @@ I used to be a FUNDAMENTALIST, but then I heard about the HIGH
 RADIATION LEVELS and bought an ENCYCLOPEDIA!!
 You must know that a man can have only one invulnerable loyalty, loyalty
 to his own concept of the obligations of manhood.  All other loyalties
-are merely deputies of that one.
+ merely deputies of that one.
 		-- Nero Wolfe
 Yow!  I want to mail a bronzed artichoke to Nicaragua!
 Of ______course it's the murder weapon.  Who would frame someone with a fake?
@@ -349,7 +349,7 @@ Hors d'oeuvres -- a ham sandwich cut into forty pieces.
 Say "twenty-three-skiddoo" to logout.
 Alimony is the curse of the writing classes.
 		-- Norman Mailer
-There are three things I always forget.  Names, faces -- the third I
+There  three things I always forget.  Names, faces -- the third I
 can't remember.
 		-- Italo Svevo
 The bogosity meter just pegged.
@@ -371,8 +371,8 @@ a pea up a mountain with your nose does not mean that this is a sensible
 way of getting it there.  Each of these techniques of language extension
 should be used in its proper place.
 		-- Christopher Strachey
-Airplanes are interesting toys but of no military value.
-	-- Marechal Ferdinand Foch, Professor of Strategy,
+Airplanes  interesting toys but of no military value.
+	-- Mchal Ferdinand Foch, Professor of Strategy,
 	   Ecole Superieure de Guerre
 My boy is a mean kid.  I came home the other day and saw him taping worms
 to the sidewalk, he sits there and watches the birds get hernias.  Well,
@@ -395,9 +395,9 @@ Arithmetic is being able to count up to twenty without taking off your shoes.
 "Live or die, I'll make a million."
 -- Reebus Kneebus, before his jump to the center of the earth, Firesign Theater
 You will be surrounded by luxury.
-Software entities are more complex for their size than perhaps any other human
-construct because no two parts are alike.  If they are, we make the two
-similar parts into a subroutine -- open or closed.  In this respect, software
+Softw entities  more complex for their size than perhaps any other human
+construct because no two parts  alike.  If they , we make the two
+similar parts into a subroutine -- open or closed.  In this respect, softw
 systems differ profoundly from computers, buildings, or automobiles, where
 repeated elements abound.
 - Fred Brooks, Jr.
@@ -452,7 +452,7 @@ structures in a post-industrial world.  She/he (the artist prefers to
 remain without gender) strives to create dialogue between viewer and
 creator, to aid us in our quest to experience contemporary life with its
 inner-city tensions, homelessness, global warming and gender and
-class-based stress.  The works are arranged to lead us to the essence of
+class-based stress.  The works  arranged to lead us to the essence of
 the argument: that the alienation of the person/machine boundary has
 sapped the strength of our voices and must be destroyed for society to
 exist in a more fundamental sense.
@@ -461,18 +461,18 @@ There's no such thing as a free lunch.
 Testing can show the presense of bugs, but not their absence.
 		-- Dijkstra
 Any sufficiently advanced technology is indistinguishable from a rigged demo.
-Vulcans never bluff.
+Vulcans  bluff.
 		-- Spock, "The Doomsday Machine", stardate 4202.1
-There are certain things men must do to remain men.
+There  certain things men must do to remain men.
 		-- Kirk, "The Ultimate Computer", stardate 4929.4
 Better by far you should forget and smile than that you should remember
 and be sad.
 		-- Christina Rossetti
-Troubled day for virgins over 16 who are beautiful and wealthy and live
+Troubled day for virgins over 16 who  beautiful and wealthy and live
 in eucalyptus trees.
 Immanuel doesn't pun, he Kant.
 You will be married within a year.
-Software suppliers are trying to make their software packages more
+Softw suppliers  trying to make their softw packages more
 "user-friendly".  ...  Their best approach, so far, has been to take all
 the old brochures, and stamp the words, "user-friendly" on the cover.
 		-- Bill Gates, Microsoft, Inc.
@@ -480,7 +480,7 @@ the old brochures, and stamp the words, "user-friendly" on the cover.
 Senate, n.:
 	A body of elderly gentlemen charged with high duties and misdemeanors.
 		-- Ambrose Bierce
-You prefer the company of the opposite sex, but are well liked by your own.
+You prefer the company of the opposite sex, but  well liked by your own.
 Sauron is alive in Argentina!
 George Bernard Shaw once sent two tickets to the opening night of one of
 his plays to Winston Churchill with the following note:
@@ -492,7 +492,7 @@ had a previous engagement.  He also attached the following:
 You will be the last person to buy a Chrysler.
 Our policy is, when in doubt, do the right thing.
 		-- Roy L. Ash, ex-president, Litton Industries
-If at first you don't succeed, you are running about average.
+If at first you don't succeed, you  running about average.
 Invest in physics -- own a piece of Dirac!
 A bunch of Polish scientists decided to flee their repressive government by
 hijacking an airliner and forcing the pilot to fly them to the West.  They
@@ -502,7 +502,7 @@ got louder.  Finally, one of the scientists suggested that since he was an
 experimentalist, he would try to fly the aircraft.
 	He sat down at the controls and tried to figure them out.  The sirens
 got louder and louder.  Armed men surrounded the jet.  The would be pilot's
-friends cried out, "Please, please take off now!!!  Hurry!!!"
+friends  out, "Please, please take off now!!!  Hurry!!!"
 	The experimentalist calmly replied, "Have patience.  I'm just a simple
 pole in a complex plane."
 A boss with no humor is like a job that's no fun.
@@ -523,7 +523,7 @@ piece would be better known as:
 	SAINT-SAENS' SAW SONG "SWAN"!
 Due to a shortage of devoted followers, the production of great leaders
 has been discontinued.
-Crazee Edeee, his prices are INSANE!!!
+Crazee Edeee, his prices  INSANE!!!
 Some people have a great ambition: to build something
 that will last, at least until they've finished building it.
 ===  ALL USERS PLEASE NOTE  ========================
@@ -550,13 +550,13 @@ How much does it cost to entice a dope-smoking UNIX system guru to Dayton?
 Yow!  I'm imagining a surfer van filled with soy sauce!
 Even bytes get lonely for a little bit.
 Mike:	"The Fourth Dimension is a shambles?"
-Bernie:	"Nobody ever empties the ashtrays.  People are SO inconsiderate."
+Bernie:	"Nobody ever empties the ashtrays.  People  SO inconsiderate."
 		-- Gary Trudeau, "Doonesbury"
 When a fellow says, "It ain't the money but the principle of the thing,"
 it's the money.
 		-- Kim Hubbard
 Diplomacy is the art of letting the other party have things your way.
-		-- Daniele Vare
+		-- Daniele V
 The second best policy is dishonesty.
 The best prophet of the future is the past.
 Humpty Dumpty sat on the wall,
@@ -570,7 +570,7 @@ the world is weird because it is stupendous, awesome, mysterious,
 unfathomable; my interest has been to convince you that you must accept
 responsibility for being here, in this marvelous world, in this marvelous
 desert, in this marvelous time.  I wanted to convince you that you must
-learn to make every act count, since you are going to be here for only a
+learn to make every act count, since you  going to be here for only a
 short while, in fact, too short for witnessing all the marvels of it."
 		-- Don Juan
 Class: when they're running you out of town, to look like you're
@@ -579,7 +579,7 @@ leading the parade.
 Take everything in stride.  Trample anyone who gets in your way.
 "Time is an illusion.  Lunchtime doubly so."
 -- Ford Prefect, _Hitchhiker's Guide to the Galaxy_
-It is necessary for the welfare of society that genius should be privileged
+It is necessary for the welf of society that genius should be privileged
 to utter sedition, to blaspheme, to outrage good taste, to corrupt the
 youthful mind, and generally to scandalize one's uncles.
 		-- George Bernard Shaw

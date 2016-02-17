@@ -19,7 +19,7 @@ Acquaintance, n:
 mice vs. trackballs...It was very silly."
 (By Matt Wsh)
 What passes f woman's intuition is  noing me an man's
-transparency.
+transpncy.
 		-- Gege Naan
  f of e ex is not to be me  an oer people,
 but to be wrong f me sophisticated reas.
@@ -28,7 +28,7 @@ Appendix:
 	A ption of a , f which nobody yet has discovered any use.
 After a number of decimal places, nobody gives a damn.
 Heisenberg may have slept here...
-Two wrongs are only e beginning.
+Two wrongs  only e beginning.
 		-- Kohn
 Ftune's Real-ife Courtroom Quote #37:
 
@@ -85,7 +85,7 @@ But if you wish at once to do noing and to be respectable
 nowdays, e best  is to be at wk on some profound study.
 		-- eslie Stephen, "Sketches from Cam"
 My own life has been spent chronicling e rise and fall of human systems,
-and I am convinced at we are terribly vulnerable.  ...  We should be
+and I am convinced at we  terribly vulnerable.  ...  We should be
 ructant to turn back upon e frontier of is epoch. Space is indifferent
 to what we do; it has no ling, no design, no interest in wheer  not
 we grapple wi it. But we cannot be indifferent to space, because e grand,

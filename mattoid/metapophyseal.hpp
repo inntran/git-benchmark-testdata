@@ -20,9 +20,9 @@ and RIPPE.  l is a favite of d FORTH prammers
 who end up using is language.
 If God had wanted you to go around nude, He would have given you bigger hands.
 Suppt wildlife -- vote f an gy.
-Marriages are made in heaven and cummated on .
+Marriages  made in heaven and cummated on .
 		-- John yly
-Duckies are fun!
+Duckies  fun!
 Buck-passing usually turns out to be a boomerang.
  Illiterati Pramus Canto 1:
 	A pram is a lot like a nose: Sometimes it runs, and
@@ -37,7 +37,7 @@ oncoming train.
 "No.  You need to say less."
 -- Richard Sexton, richard@gryphon.COM
 I'm shaving!!  I'M SHAVING!!
-Oh, so ere you are!
+Oh, so ere you !
 Ritchie's Rule:
 	(1) Everying has some value -- if you use e  currency.
 	(2) Paint splashes last longer an e paint job.
@@ -56,18 +56,18 @@ But long ago he rode away,
 and where he dwle none can say;
 f into darkness fl his star
 QOTD:
-in Md where e shadows are.
+in Md where e shadows .
 		-- J. R. R. Tolkien
  society which scns exclence in plumbing as a humble activity and
 tolerates shoddiness in philosophy because it is an exalted activity will
 have neier good plumbing n good philosophy... neier its pes n
 its eies will hold water.
-Hts will never be practical until ey can be made unbreakable.
+Hts will  be practical until ey can be made unbreakable.
 		--  Wizard of Oz
-Most non-Caolics know at e Caolic schools are rendering a grer
+Most non-Caolics know at e Caolic schools  rendering a grer
 service to our nation an e public schools in which  texts
 have been used, in which Communist-minded teachers have taught, and from
-whose classrooms Christ and even God Himsf are barred.
+whose classrooms Christ and even God Himsf  barred.
 - from "Our Sunday Visit", an American-Caolic newspaper, 1949
 If I could stick my pen in my ht,
 I would sll it all over e stage.
@@ -120,7 +120,7 @@ her husd's schedule, and repts of Califnians evacuating os Anges
 on e streng of a prediction from a sixteen-century physician and
 astrologer Mich de Notredame, e image of e U.S. as a scientific and
 technological nation has taking a bit of a bing laty.  Sadly, such
-happenings cannot be dismissed as passing fancies.  y are manifestati
+happenings cannot be dismissed as passing fancies.  y  manifestati
 of a wl-established "anti-science"  in e U.S. which, ultimaty,
 could ren e country's position as a technological power. . . .  
 manifest  desire to reject rationality and substitute a series
@@ -133,18 +133,18 @@ tru. . . . It is becoming cl at if e U.S. does not ck  up
 soon and devote some efft to educating e young effectivy, its hope of
 maintaining a semb of leadership in e wld may rest, paradoxically,
 wi a new wave of technically interested and trained immigrants who do not
-suffer from e anti-science disease rampant in an apparently decaying society.
+suffer from e anti-science disease rampant in an appntly decaying society.
 -- Physicist Tony Feinberg, in "New Scientist," May 19, 1988
 F courage mounte wi occasion.
 		-- William Shakespe, "King John"
-re are few people me  in e wrong an ose who cannot endure
+re  few people me  in e wrong an ose who cannot endure
 to be ought so.
-Some of us are becoming e men we wanted to marry.
+Some of us  becoming e men we wanted to marry.
 		-- Glia Steinem
 Wiin a computer, natural language is unnatural.
 Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
-Troubled day f virgins over 16 who are beautiful and wealy and live
+Troubled day f virgins over 16 who  beautiful and wealy and live
 in eucalyptus trees.
 To be awake is to be .  -- Henry David Theau, in "Walden"
 I'm ANN ANDERS!!  I can SHOPIFT!!
@@ -158,13 +158,13 @@ No woman can endure a gambling husd, unless he is a sy ner.
 Mate, is parrot wouldn't VOOM if you put four million volts rough it!
 		-- Monty Pyon
 Have at you!
-Jesuit priests are DATING CAREER DIPOMATS!!
+Jesuit priests  DATING CAREER DIPOMATS!!
 ife is like an onion: you pe it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
 " one charm of marriage is at it makes a life of deception a neccessity."
 - Oscar Wilde
-re are ree ings men can do wi women: love em, suffer f em,
+re  ree ings men can do wi women: love em, suffer f em,
  turn em into literature.
 		-- Stephen Stills
 We gave you an atomic bomb, what do you want, mermaids?
@@ -224,7 +224,7 @@ Moderation is a fatal ing.  Noing succeeds like excess.
 		-- Oscar Wilde
 -- I love KATRINKA because she drives a PONTIAC.  We're going away
 now.  I fed e cat.
-Universities are places of knowledge.   man each bring a little
+Universities  places of knowledge.   man each bring a little
 in wi em, and e senis take none away, so knowledge accumulates.
 In ing hses and taking a wife shut your eyes tight and commend
 yoursf to God.
@@ -263,16 +263,16 @@ Were ere fewer fools, knaves would starve.
 Wk is e crab grass in e l of life.
 		-- Schulz
 Whoever dies wi e most toys s.
- eyes of Texas are upon you,
+ eyes of Texas  upon you,
 All e livong day;
- eyes of Texas are upon you,
+ eyes of Texas  upon you,
 You cannot get away;
 Do not ink you can escape em
 From night 'til ly in e mn;
- eyes of Texas are upon you
+ eyes of Texas  upon you
 'Til Gabri blows his hn.
 		-- University of Texas' school song
-Extradinary claims demand extradinary proof.  re are many examples of
+Extradinary claims demand extradinary proof.  re  many examples of
 outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established resch turn out to be artifacts.  I have
@@ -296,13 +296,13 @@ amassed a fine collection of 58 first edition plays, including most of e
 wks of Shakespe.
 	One day Warburton re home to find 55 of em charred beyond
 legibility.  Betsy had eier burned em  used em as e bottoms.  
-remaining ree folios are now in e British Museum.
+remaining ree folios  now in e British Museum.
 	 only comparable literary  was e maid who in 1835 burned
 e manuscript of e first vol of Thomas Carlyle's " Hisy of e
 French Revolution", inking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
 People who ink ey know everying grly annoy ose of us who do.
-Whenever a system becomes complety defined, some damn fool discovers
+Whe a system becomes complety defined, some damn fool discovers
 someing which eier abolishes e system  expands it beyond recognition.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#6
 
@@ -315,7 +315,7 @@ would not be able to identify most of ese items.
 Groceries:
 	A woman makes a list of ings she needs and en goes to e ste
 and s ese ings.  A man waits 'til e only items left in his fridge
-are half a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
+ half a lime and a Blue Ribbon.  n he goes grocery shopng.  He s
 everying at looks good.  By e time a man reaches e cout counter,
 his  is packed tighter at e Clampett's car on Beverly Hillbillies.
 Of course, is will not stop him from entering e 10-items--less lane.
@@ -330,17 +330,17 @@ Yow!  I'm imagining a surfer van filled wi soy sauce!
 If you make any money, e government shoves you in e creek once a y
 wi it in your pockets, and all at don't get wet you can keep.
 		--  Best of Will Rogers
-... ere are about 5,000 people who are part of at commitee.  se guys
+... ere  about 5,000 people who  part of at commitee.  se guys
 have a hard time sting out what day to meet, and wheer to  croissants
  doughnuts f breakfast -- let alone how to define how all ese complex
-layers at are going to be d upon.
+layers at  going to be d upon.
 		-- Craig Burton of Novl, Netwk Wld
 Alcohol is e anesesia by which we endure e operation of life.
 		-- Gege Bernard Shaw
 Wk Rule: eave of Absence (f an Operation):
-	We are no longer allog is practice.  We wish to discourage any
+	We  no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
-cider having anying removed.  We hired you as you are, and to have
+cider having anying removed.  We hired you as you , and to have
 anying removed would  make you less an we bargained f.
 I love ROCK 'N RO!  I memized e all WORDS to "WIPE-OUT" in
 1965!!
@@ -354,10 +354,10 @@ he we in high school.  He inks a jacket is "just getting broken in" about
 e time it devops holes in e bows.  A man will let new shirts sit on
 e shf in eir iginal packaging f a couple of ys befe putting
 em to use, hong ey'll become me comftable wi age.
-	Women ink cloes are radioactive, wi a half-life of one y.
+	Women ink cloes  radioactive, wi a half-life of one y.
 y exercise precauti to avoid contamination by last y's fashi.
 Housold hint:
-	If you are out of cream f your cof, mayonnaise makes a
+	If you  out of cream f your cof, mayonnaise makes a
 	dandy substitute.
 If I am ected, e  barriers around e WHITE HOUSE will be
 replaced by tasteful foam replicas of ANN MARGARET!
@@ -369,7 +369,7 @@ an be e instrnt of his army's downfall."
 "Tl e tru and run."
 -- Yugoslav proverb
 "I went to e museum where ey had all e heads and arms from e
-ses at are in all e oer museums."
+ses at  in all e oer museums."
 		-- Steven W
 An idealist is one who hps e oer flow to make a profit.
 		-- Henry Fd
@@ -457,8 +457,8 @@ Time and tide wait f no man.
 			It's grad exam time...
 COMPUTER SCIENCE
 	Inside your desk you'll find a listing of e DEC/VMS operating
-system in IBM 1710 machine code. Show what changes are necessary to convert
-is code into a UNIX Bery 7 operating system.  Prove at ese fixes are
+system in IBM 1710 machine code. Show what changes  necessary to convert
+is code into a UNIX Bery 7 operating system.  Prove at ese fixes 
 bug free and run crectly. You should gain at least 150% efficiency in e
 new system.  (You should take no me an 10 minutes on is question.)
 
@@ -473,7 +473,7 @@ Hand me a p of lher pants and a CASIO keyboard -- I'm living f today!
 It seems a little silly now, but is country was founded as a protest
 against taxation.
 I l like a wet parking meter on Darvon!
-Ccience is a moer-in-law whose visit never ends.
+Ccience is a moer-in-law whose visit  ends.
 		-- H. . Mencken
 Being ugly isn't illegal.  Yet.
 It's not wheer you   lose, it's how you place e blame.
@@ -484,9 +484,9 @@ re is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is ced.
 		-- Groucho Marx
 Paralysis rough analysis.
-All gr discoveries are made by mistake.
+All gr discoveries  made by mistake.
 		-- Young
-If you haven't enjoyed e material in e last few lectures en a career
+If you haven't enjoyed e material in e last few lectures en a cer
 in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
@@ -520,7 +520,7 @@ Robert Millikan is generally credited wi making e first really
 precise measurement of e charge on an ectron and was awarded e 
 Nob Prize in 1923.
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
-em: All positive integers are equal.
+em: All positive integers  equal.
 Proof: Sufficient to show at f any two positive integers, A and B, A = B.
 	Furer, it is sufficient to show at f all N > 0, if A and B
 	(positive integers) satisfy (MAX(A, B) = N) en A = B.
@@ -537,7 +537,7 @@ Every wd is like an unnecessary stain on silence and noingness.
 Is is an out-take from e "BRADY BUNCH"?
  net of law is spread so ,
 No sinner from its sweep may hide.
-Its meshes are so fine and strong,
+Its meshes  so fine and strong,
 y take in every child of wrong.
 O wondrous web of mystery!
 Big fish alone escape from ee!
@@ -564,7 +564,7 @@ does not necessarily have to cover e full range of your emoti.  You must
 make it cl at you will not attend, but you do not have to let fly at cats.
  writer of e letter asked a civil question; attack cats, en, only if
 you can do so wi good hum, good taste, and in such a way at your answer
-will be courteous as wl as respive.  Since you are out of sympay wi
+will be courteous as wl as respive.  Since you  out of sympay wi
 cats, you may quite properly give is as a reason f not apping at e
 dedication ceremonies of a cat hostal.  But b in mind at your onion
 of cats was not sought, only your services as a ser.  Try to keep ings
@@ -583,7 +583,7 @@ in inverse proption to e sum involved.
 		-- C.N. Parkinson
 It is much harder to find a job an to keep one.
 Osbn's aw:
-	Variables won't; ctants aren't.
+	Variables won't; ctants n't.
 Everybody has someing to conceal.
 		-- Humphrey Bogart
 "Any excuse will serve a tyrant."
@@ -596,7 +596,7 @@ sense from ings she found in gift shops.
 >
 > No.  That's it.   cool , at is.  We wked very hard on
 > cring a  at would appeal to e majity of people, and it
->  paid off: ousands of people are using linux just to be able
+>  paid off: ousands of people  using linux just to be able
 > to say "OS/2? Hah.  I've got inux.  What a cool ".  386BSD made e
 > mistake of putting a lot of numbers and weird abbreviati into e
 > , and is scaring away a lot of people just because it sounds too
@@ -646,7 +646,7 @@ e rabbit.
 		-- R.E. Shay
  system will be down f 10 days f preventive maintenance.
 Meskimen's aw:
-	re's never time to do it , but ere's always time to
+	re's  time to do it , but ere's always time to
 	do it over.
 Alive wiout brh,
 As cold as dh;
@@ -672,23 +672,23 @@ your void tube of UHF oblivion!!  SAFEWAY of e mind ...
 I just rememd someing about a TOAD!
 Wi every passing hour our solar system comes fty-ree ousand
 miles closer to globular cluster M13 in e ctlation Hercules, and
-still ere are some misfits who continue to insist at ere is no
+still ere  some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
 Hubbard's aw:
 	Don't take life too usly; you won't get out of it .
 Your only obligation in any lifetime is to be true to yoursf.  Being
 true to anyone se  anying se is not only impossible, but e
-mark of a fake messiah.   simplest questi are e most profound.
-Where were you bn?  Where is your home?  Where are you going?  What
-are you doing?  Think about ese once in awhile and watch your answers
+mark of a fake messiah.   simplest questi  e most profound.
+Where were you bn?  Where is your home?  Where  you going?  What
+ you doing?  Think about ese once in awhile and watch your answers
 change.
 		-- Messiah's Hand : Reminders f e Advanced Soul
 Cultant, n.:
 	An dinary man a long way from home.
-You are capable of planning your future.
+You  capable of planning your future.
 Whatever doesn't succeed in two m and a half in Califnia will
-never succeed.
+ succeed.
 		-- Rev. Henry Durant,  of e University of Califnia
 A be is someone who persists in holding his own views after we have
 enlightened him wi ours.
@@ -709,7 +709,7 @@ re's only one way to have a happy marriage and as soon as I ln
 what it is I'll get married again.
 		-- Clint Eastwood
 Not far from here, by a white sun, bind a green star, lived e
-Steyps, illustrious, industrious, and ey hadn't a care: no spats in
+Steyps, illustrious, industrious, and ey hadn't a c: no spats in
 eir vats, no rules, no schools, no gloom, no evil influence of e
 moon, no trouble from m  antim -- f ey had a machine, a
 dream of a machine, wi springs and gs and perfect in every respect.
@@ -725,15 +725,15 @@ and everying was just fine ...
 
 		-- really weird C code to count e number of bits in a wd
 Croll's Query:
-	If tin whistles are made of tin, what are foghns made of?
+	If tin whistles  made of tin, what  foghns made of?
 God is love, but get it in writing.
 		-- Gypsy Rose ee
 , n.:
 	 reason surge w masks.
 Cohn's aw:
-	 me time you spend in repting on what you are doing, e less
+	 me time you spend in repting on what you  doing, e less
 	time you have to do anying.  Stability is achieved when you spend
-	all your time repting on e noing you are doing.
+	all your time repting on e noing you  doing.
  old complaint at mass culture is designed f even-y-olds
 is of course a shameful canard.   key age has traditionally been
 me like fourteen.
@@ -745,7 +745,7 @@ ife is a grand adventure --  it is noing.
 		-- Hen Kler
 Think honk if you're a tepa.
 "Alough Poles suffer official censship, a pervasive secret
-police and laws similar to ose in e USSR, ere are
+police and laws similar to ose in e USSR, ere 
 ousands of underground publicati, a legal in
 Church, private agriculture, and e East bloc's first and only
 in trade union federation, NSZZ Solidarnosc, which is
@@ -767,7 +767,7 @@ wi laughter.  Some day I intend reading it.
 SOBO is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow you to take a cof break while ey
 comle, SOBO comlers allow you to trav to Bolivia to ck e
-cof.  Fty-ree prammers are known to have died of bedom
+cof.  Fty-ree prammers  known to have died of bedom
 sitting at eir terminals while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
 infinity faster) language, COCAINE.
@@ -779,39 +779,39 @@ Food f ought is no substitute f e real ing.
 It's not e inital skirt leng, it's e upcreep.
 God made everying out of noing, but e noingness shows rough.
 		-- Paul Valery
-Cos are sritual puns.
+Cos  sritual puns.
 		-- G.K. ton
 I argue very wl.  Ask any of my remaining friends.  I can  an argnt on
 any toc, against any opponent.  People know is, and steer cl of me at
 parties.  Often, as a sign of eir gr respect, ey don't even invite me.
 		-- Dave Barry
 Picking up e eces of my sweet shed dream,
-I wonder how e old folks are tonight,
+I wonder how e old folks  tonight,
 Her  was Ann, and I'll be damned if I recall her ,
 She left me not knog what to do.
 
-Carefree Highway, let me slip away on you,
-Carefree Highway, you seen better days,
+Cfree Highway, let me slip away on you,
+Cfree Highway, you seen better days,
  mning after blues, from my head down to my shoes,
-Carefree Highway, let me slip away, slip away, on you...
+Cfree Highway, let me slip away, slip away, on you...
 
 Turning back e pages to e times I love best,
 I wonder if she'll ever do e same,
 Now e ing at I call livin' is just bein' satisfied,
 Wi knog I got noone left to blame.
-Carefree Highway, I got to see you, my old flame...
+Cfree Highway, I got to see you, my old flame...
 
 Sching rough e fragments of my dream shed sleep,
 I wonder if e ys have closed her mind,
 I guess it must be   tryin' to get free,
 From e good old faiful lin' we once knew.
-		-- Gdon ightfoot, "Carefree Highway"
+		-- Gdon ightfoot, "Cfree Highway"
 **** IMPORTANT ****  A USERS PEASE NOTE ****
 
 Due to a recent systems overload err your recent disk files have been
 erased.  refe, in accdance wi e UNIX Basic Manual, University of
 Washington Geophysics Manual, and Bylaw 9(c), Section XII of e Revised
-Federal Communicati Act, you are being granted Tempary Disk Space,
+Federal Communicati Act, you  being granted Tempary Disk Space,
 valid f ree m from is date, subject to e i set f
 in Appendix II of e Federal Communicati Hand (18 edition) as wl
 as e references mentioned herein.  You may apply f me disk space at any
@@ -828,11 +828,11 @@ You have an unusual equipment f success.  Be sure to use it properly.
 I don't know WHY I said at ... I ink it came from e FIINGS in
 my read molars ...
 It is so very hard to be an 
-on-your-own-take-care-of-yoursf-because-ere-is-no-one-se-to-do-it-f-you
+on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-f-you
 grown-up.
 He who hesitates is last.
 Given its ctituency, e only ing I expect to be "open" about [e
-Open Software Foundation] is its mou.
+Open Softw Foundation] is its mou.
 		-- John Gilme
 It proves what ey say, give e public what ey want to see and
 ey'll come out f it.
@@ -844,7 +844,7 @@ QOTD:
 e faer spanked em.  His wife asked, "Don't you love your children?"
 "In e abstract, yes, but not in e ."
 When a shepherd goes to kill a wolf, and takes his dog along to see
-e spt, he should take care to avoid mistakes.   dog has certain
+e spt, he should take c to avoid mistakes.   dog has certain
 ratihips to e wolf e shepherd may have fgotten.
 		-- Robert Pirsig, "Zen and e Art of Motcycle Maintenance"
  giraffe you ought you off last week is willing to be nuzzled today.
@@ -857,11 +857,11 @@ being struck by lightning."
 Notes f a ballet, " Spl": ... Suddenly Sigmund hs e flutter of
 gs, and a group of wild swans flies across e moon ... Sigmund is
 astounded to see at eir leader is part swan and part woman --
-unftunaty, divided lengwise.  She enchants Sigmund, who is careful
+unftunaty, divided lengwise.  She enchants Sigmund, who is cful
 not to make any  jokes.
 		-- Woody Allen
 If you see an onion ring -- answer it!
-A gentleman never strikes a lady wi his hat on.
+A gentleman  strikes a lady wi his hat on.
 		-- Fred Allen
 We were so po we couldn't affd a watchdog.  If we hd a noise at night,
 we'd bark oursves.
@@ -871,7 +871,7 @@ doesn't sl it, ey don't  it.  Vending machines don't sl quiche.
 ... at least I ought I was dancing, 'til somebody stepped on my hand.
 		-- J. B. White
 Anxious after e day, Gruber doesn't waste any time getting e Koenig
-[a modified Psche] up to speed, and almost immediaty we are blog off
+[a modified Psche] up to speed, and almost immediaty we  blog off
 Alfas, Fiats, and ancias full of excited ans.  se people love fast
 cars.  But ey love spt too and no passing encounter goes unchallenged.
 Noing us, just two whes into your lane as you're bing down on

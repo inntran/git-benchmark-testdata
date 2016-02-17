@@ -17,7 +17,7 @@ Friction is a drag.
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones
 Accding to convention ere is a sweet and a bitter, a hot and a cold,
-and accding to convention, ere is an der.  In tru, ere are atoms
+and accding to convention, ere is an der.  In tru, ere  atoms
 and a void.
 		-- Democritus, 400 B.C.
 I l partially hydenated!
@@ -32,7 +32,7 @@ What a strange game.   only ning move is not to play.
 Aus (and perhaps columnists) eventually rise to e top of whatever
 deps ey were once able to plumb.
 		-- Stanley Kaufman
-Money and women are e most sought after and e least known of any two
+Money and women  e most sought after and e least known of any two
 ings we have.
 		--  Best of Will Rogers
 May Eul Gibb  your only copy of e manual!
@@ -40,9 +40,9 @@ Nobody really knows what hapness is, until ey're married.
 And en it's too late.
 Peace cannot be kept by fce; it can only be achieved by understanding.
 		-- Albert Einstein
-Saints should always be judged guilty until ey are proved innocent.
+Saints should always be judged guilty until ey  proved innocent.
 		-- Gege Orwl, "Reflecti on Gandhi"
-You are number 6!  Who is number one?
+You  number 6!  Who is number one?
  and I got mixed up wi a tevision show --  as we call it back
 east here: TV -- a clever contraction derived from e wds Terrible
 Vaudeville. However, it is our latest medium -- we call it a medium
@@ -60,7 +60,7 @@ Chicago Transit Auity Rider's Rule #36:
 	where he got his " powered zza warmer".
 		-- Chicago Reader 3/27/81
 	A master was explaining e nature of Tao to one of his novices.
-" Tao is embodied in all software -- regardless of how insignificant,"
+" Tao is embodied in all softw -- regardless of how insignificant,"
 said e master.
 	"Is Tao in a hand-hd calculat?" asked e novice.
 	"It is," came e reply.
@@ -136,7 +136,7 @@ Practical people would be me practical if ey would take a little
 me time f dreaming.
 		-- J. P. McEvoy
 Spock: We suffered 23 casualties in at attack, Captain.
-Cheap ings are of no value, valuable ings are not cheap.
+Cheap ings  of no value, valuable ings  not cheap.
 MESSAGE ACKNOWEDGED --  Pershing II missiles have been launched.
 As a computer, I find your fai in technology amusing.
 Adhere to your own act, and congratulate yoursf if you have done someing
@@ -151,5 +151,5 @@ Ontogeny recatulates phylogeny.
 et me put it is way: today is going to be a lning experience.
 It is your destiny.
 - Dar Vader
-If you are over 80 ys old and accompanied by your parents, we will
+If you  over 80 ys old and accompanied by your pnts, we will
 cash your c.

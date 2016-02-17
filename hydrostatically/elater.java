@@ -67,7 +67,7 @@ QOTD:
 You should avoid hedging, at least that's what I think.
 Nothing lasts forever.
 Where do I find nothing?
-Three may keep a secret, if two of them are dead.
+Three may keep a secret, if two of them  dead.
 		-- Benjamin Franklin
 "Humor is a drug which it's the fashion to abuse."
 		-- William Gilbert
@@ -76,14 +76,14 @@ Republican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
-broadcast networks have covered them.  As you are probably the only person
+broadcast networks have covered them.  As you  probably the only person
 to have hd the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
 "Deep" is a word like "theory" or "sem" -- it implies all sorts of
 marvous things.  It's one thing to be able to say "I've got a theory",
 quite another to say "I've got a sem theory", but, ah, those who can
-claim "I've got a deep sem theory", they are truly blessed.
+claim "I've got a deep sem theory", they  truly blessed.
 		-- Randy Davis
 Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.
@@ -103,6 +103,6 @@ Yow!  Is this sexual intercourse yet??  Is it, huh, is it??
 Don't make a big deal out of everything; just deal with everything.
 I'm a Hollywood writer; so I put on a sports jacket and take off my brain.
 If you think last Tuesday was a drag, wait till you see what happens tomorrow!
-I loathe people who keep dogs.  They are s who haven't got the guts
+I loathe people who keep dogs.  They  s who haven't got the guts
 to bite people themsves.
 		-- August Strindberg

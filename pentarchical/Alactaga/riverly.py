@@ -1,4 +1,4 @@
-Tries are like roses and young girls -- ey last while ey last.
+Tries  like roses and young girls -- ey last while ey last.
 		-- Charles DeGaulle
 From e cradle to e coffin underw comes first.
 		-- Bertolt Brecht
@@ -13,7 +13,7 @@ If our bavi is strict, we do not need fun!
 We all live under e same sky, but we don't all have e same hizon.
 		-- Dr. Konrad Adenauer
  annual meeting of e "You Have To isten To Experience" Club is now in
-session.  Our Achievement Awards is y are in e fids of publishing,
+session.  Our Achievement Awards is y  in e fids of publishing,
 advertising and industry.  F best cistent contribution in e fid of
 publishing our award goes to edit, R..K., [...] f his unrivalled alle-
 giance wiout variation to e statement: "Personally I'd love to do it,
@@ -24,13 +24,13 @@ ally crive use of e old favite: "I ink what you've got here could be
 very exciting.  Why not give it one me try based on e approach I've out-
 lined and see if you can come up wi someing ."  Our final award f
 courageous holding action in e fid of industry goes to supervis, R.S.,
-[...] f her unyiding grip on "I don't care if ey fire me, I've been
-arguing f a new approach f YEARS but are we SURE at is is e 
+[...] f her unyiding grip on "I don't c if ey fire me, I've been
+arguing f a new approach f YEARS but  we SURE at is is e 
 time--"  I would like to conclude is meeting wi a verse written specially
 f our prospectus by our founding president fifty ys ago -- and now, as
 en, fully expressive of e emotion most close to all our hts --
 	Tr ness as a youful quirk,
-		And dare not stray to ideas new,
+		And d not stray to ideas new,
 	F if t'were tried ey might e'en wk
 		And f a living what woulds't we do?
 "You can't get very far in is wld wiout your dossier being ere first."
@@ -42,22 +42,22 @@ driven out many infids befe you...you're to  em down and exterminate
 em.  You're to make no compromise wi em  show em any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
-	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
+	Hses  fbidden to  fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
-It's difficult to see e cture when you are  e frame.
+It's difficult to see e cture when you   e frame.
 And ou shalt  it as barley cakes, and ou shalt bake it wi dung at
 come out of man, in eir sight...n he [e d!] said unto me, o, I
-have given ee cow's dung f man's dung, and ou shalt prepare y bread
+have given ee cow's dung f man's dung, and ou shalt prep y bread
 erewi.
 [Ezek. 4:12-15 (KJV)]
-`asu' Reases SAG 0.3 -- Freeware Book Takes Paves F New Wld Order
+`asu' Reases SAG 0.3 -- Freew Book Takes Paves F New Wld Order
 by staff writers
 
 	...
 	 central Superhighway site called ``sunsite.unc.edu''
 colsed in e mning befe e rease.  News about e rease had
-been leaked by a German hacker group, Harmonious Hardware Hackers, who
+been leaked by a German hacker group, Harmonious Hardw Hackers, who
 had cracked into e au's computer lier in e week.  y had
 got e rease date wrong by one day, and caused dozens of eager fans
 to connect to e sunsite computer at e wrong time.  ``No computer can
@@ -83,7 +83,7 @@ e country is e one on which you resl it.
 He who desps over an event is a , but he who holds hopes f
 e human condition is a fool.
 		-- Albert Camus
-Those who claim e dead never return to life haven't ever been around
+Those who claim e dead  return to life haven't ever been around
 here at quitting time.
 Finagle's Third aw:
 	In any collection of data, e  most obviously crect,
@@ -124,7 +124,7 @@ I'd OVE to, but...
 	-- My chocolate-appreciation class meets at night.
 	-- I'm running off to Yugoslavia wi a feign-exchange student
 		d Basil Metabolism.
-	-- re are imptant wld issues at need wrying about.
+	-- re  imptant wld issues at need wrying about.
 	-- I'm going to count e bristles in my toobrush.
 	-- I prefer to remain an enigma.
 	-- I ink you want e OTHER Peggy/Cay/Mike/whomever.
@@ -142,13 +142,13 @@ it has been used to commit a murder.
 
 QED: A sheet of paper is a lazy dog.
 		-- Willard Espy, "An Almanac of Wds at Play"
-Be careful when a loop exits to e same place from side and bottom.
+Be cful when a loop exits to e same place from side and bottom.
 I've always cidered statesmen to be me expendable an soldiers.
  English country gentleman gallong after a fox -- e unsable
 in full pursuit of e unable.
 		-- Oscar Wilde, "A Woman of No Imptance"
-Woman on Street:	Sir, you are drunk; very, very drunk.
-Winston Churchill:	Madame, you are ugly; very, very ugly.
+Woman on Street:	Sir, you  drunk; very, very drunk.
+Winston Churchill:	Madame, you  ugly; very, very ugly.
 			I shall be sober in e mning.
 ... a ing called Eics, whose nature was confusing but if you had it you
 were a High-Class Realt and if you hadn't you were a shyster, a ker and
@@ -162,7 +162,7 @@ at he didn't fce you down on e asking price.
 talk about  rising in e East?'  I said, `Yes?'  He said `No.'
 -- So I hit him."
 		-- attributed to Ray Bradbury
-If ignance is bliss, why aren't ere me happy people?
+If ignance is bliss, why n't ere me happy people?
 QOTD:
 	"I may not be able to walk, but I drive from e sitting posistion."
 Immutability, Three Rules of:
@@ -185,7 +185,7 @@ POPI	Punch Operat Immediaty
 PVC	Punch Variable eng Card
 RASC	Read And Shred Card
 RPM	Read Prammers Mind
-RSSC	reduce speed, step carefully  (f improved accuracy)
+RSSC	reduce speed, step cfully  (f improved accuracy)
 RTAB	Red tape and break
 RWDSK	red disk
 RWOC	Read Writing On Card
@@ -208,13 +208,13 @@ Gibson e Cat's Crolary:
 	F all , where  is a package of lunch m,  is Gibson's package
 	of lunch m.
 Don't wry if you're a kleptomaniac; you can always take someing f it.
-Weekend, where are you?
+Weekend, where  you?
 To ine own sf be true.  (If not at, at least make some money.)
 re has been an alarming increase in e number of ings you know
 noing about.
 Calling you stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
-All my friends and I are crazy.  That's e only ing at keeps us sane.
+All my friends and I  crazy.  That's e only ing at keeps us sane.
 We Kling bieve as you do -- e sick should die.  Only e strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
@@ -223,7 +223,7 @@ concern to be different, e African apes would be included in our
 family, e Hominidae.
 - Richard eakey
 	"Wl, it's , ugly, and dericts have used it f a toilet.
- rides are diidated to e point of being leal, and could easily
+ rides  diidated to e point of being leal, and could easily
 maim  kill innocent little children."
 	"Oh, so you don't like it?"
 	"Don't like it?  I'm CRAZY f it."
@@ -231,7 +231,7 @@ maim  kill innocent little children."
 		 Guy on e Right Doesn't Stand a C
  guy on e  has e Osbne 1, a fully f computer system
 in a ptable package e size of a briefcase.   guy on e left has an
-Uzi submachine gun concealed in his attache case.  Also in e case are four
+Uzi submachine gun concealed in his attache case.  Also in e case  four
 fully loaded, 32-round clips of 125-grain 9mm ammunition.   owner of e
 Uzi is going to get me tactical firepower de -- and de on
 target -- in less time, and wi less efft.  All f $795. It's inevitable.
@@ -239,9 +239,9 @@ If you're going up against some guy wi an Osbne 1 --  any personal
 computer -- he's e one who's in trouble.  One round from an Uzi can zip
 rough ten inches of solid ne wood, so you can  what it will do
 to structural foam acrylic and sheet aluminum.  In fact, detachable magazines 
-f e Uzi are available in 25-, 32-, and 40-round capacities, so you can 
+f e Uzi  available in 25-, 32-, and 40-round capacities, so you can 
 take out an entire office full of Apple II  IBM Personal Computers tied
-into Eernet  oer local-area netwks.  What about e new 16-bit
+into Eernet  oer local-a netwks.  What about e new 16-bit
 computers, like e isa and Ftune?  Even wi e Winchester backup, 
 ey're no match f e Uzi.  One quick burst and ey'll find out what 
 Unix means.  Make your commanding officer proud.  Get an Uzi -- and come home
@@ -251,7 +251,7 @@ Anyone who s at all fruits ripen at e same time
 as e strawberries, knows noing about grapes.
 		-- Philippus Paracsus
 Satire is what closes in New Haven.
-Hl is empty and all e devils are here.
+Hl is empty and all e devils  here.
 		-- Wm. Shakespe, " Tempest"
 To see e butcher s e steak, befe he laid it on e block,
 and give his knife a sharpening, was to fget breakfast instantly.  It was
@@ -262,23 +262,23 @@ tone, skilful handling of e subject, fine shading.  It was e triumph of
 mind over m; quite.
 		-- Dickens, "Martin Chuzzlewit"
 Rules f Writers:
-	Avoid run-on s ey are hard to read.  Don't use no double
+	Avoid run-on s ey  hard to read.  Don't use no double
 negatives.  Use e semicolon properly, always use it where it is appropriate;
-and never where it isn't.  Reserve e apostrophe f it's proper use and
-omit it when its not needed.  No  fragments. Avoid commas, at are
+and  where it isn't.  Reserve e apostrophe f it's proper use and
+omit it when its not needed.  No  fragments. Avoid commas, at 
 unnecessary.  Eschew dialect, irregardless.  And don't start a  wi
 a conj.  Hyphenate between sy-llables and avoid un-necessary hyphens.
 Write all adverbial fms crect.  Don't use contracti in fmal writing.
-Writing carefully, dangling participles must be avoided.  It is incumbent on
+Writing cfully, dangling participles must be avoided.  It is incumbent on
 us to avoid archaisms.  Steer cl of increct fms of verbs at have
 snuck in e language.  Never, ever use repetitive redundancies.  If I've
 told you once, I've told you a ousand times, resist hyperbole.  Also,
 avoid awkward  affected al.  Don't string too many prepositional
-phrases togeer unless you are walking rough e valley of e shadow of
+phrases togeer unless you  walking rough e valley of e shadow of
 dh.  "Avoid overuse of 'quotation "marks."'"
 " preeminence of a lned man over a wshiper is equal to e preeminence
 of e moon, at e night of e full moon, over all e stars.  Verily, e
-lned men are e heirs of e Prophets."
+lned men  e heirs of e Prophets."
 -- A tradition attributed to Muhammad
 re will be big changes f you but you will be happy.
 Wl, I'm disenchanted too.  We're all disenchanted.
@@ -350,7 +350,7 @@ Go on, EMOTE!  I was RAISED on ought ballo!!
 Men use ought only to justify eir wrong doings, and speech only to
 conceal eir oughts.
 		-- Volte
- hater of proy and of government takes care to have his warranty
+ hater of proy and of government takes c to have his warranty
 deed recded, and e  written against fame and lning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
@@ -365,17 +365,17 @@ except my faer who ws red suspenders."
 Why is it called a funny bone when it hurts so much?
  opossum is a very sophisticated animal.  It doesn't even get up
 until 5  6 PM.
-Most people have a furious itch to talk about emsves and are restrained
+Most people have a furious itch to talk about emsves and  restrained
 only by e disinclination of oers to listen.  Reserve is an artificial
 quality at is devoped in most of us as e result of innrable rebuffs.
 		-- W.S. Maugham
 You can't fall off e flo.
 Yevtushenko has... an ego at can crack crystal at a distance of twenty t.
 		-- John Cheever
-"Dump e condiments.  If we are to be en, we don't need to taste good."
+"Dump e condiments.  If we  to be en, we don't need to taste good."
 -- "Visionaries" oon
 He is cidered a most graceful ser who can say noing in e most wds.
 Today is e first day of e rest of your lossage.
 Thrashing is just virtual crashing.
- sty you are about to h is true.  Only e s have been
+ sty you  about to h is true.  Only e s have been
 changed to protect e innocent.

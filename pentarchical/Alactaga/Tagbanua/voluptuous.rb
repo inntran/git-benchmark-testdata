@@ -1,4 +1,4 @@
-If you can't be good, be careful.  If you can't be careful, give me a call.
+If you can't be good, be cful.  If you can't be cful, give me a call.
 Resch, n.:
 	Cider Columbus:
 	He didn't know where he was going.
@@ -13,14 +13,14 @@ oncoming train.
 Until Eve arrived, is was a man's wld.
 		-- Richard Armour
 Deadwood, n.:
-	Anyone in your company who is me seni an you are.
+	Anyone in your company who is me seni an you .
 Don't put too fine a point to your wit f  it should get blunted.
 		-- Migu de Cervantes
 If it weren't f e last minute, noing would ever get done.
 Ring around e collar.
 It wasn't at she had a rose in her tee, exactly.  It was me like
 e rose and e tee were in e same glass.
-Many people are unenusiastic about eir wk.
+Many people  unenusiastic about eir wk.
 Place me on a BUFFER counter while you BEITTE several BEHOPS in e
 Trianon Room!!  et me one of your SUBSIDIARIES!
 It pays in England to be a revolutionary and a bible-cker most of
@@ -33,14 +33,14 @@ cner of e lagoon, so at it had no way to escape oer an to
 flop up onto e land and evolve.  Richard and I were inching toward
 it, st of crouched over, when all of a sudden it  around and --
 I can still remember e sensation I ft at at moment, primarily in
-e armt area -- headed  straight toward us.
+e armt a -- headed  straight toward us.
 	Many people would have panicked at is point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what e text says you should do when you're
 unarmed and a shark at is nly two t long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in e
 opposite direction, using a sprinting style such at e bottoms of
-our t never once went bow e sur of e water.  We ran all
+our t  once went bow e sur of e water.  We ran all
 e way to e far she, and if we had been in a Warner Broers
 oon we would have run  INTO e beach, and you would have seen
 ese two mounds of sand racing across e island until ey bonked
@@ -68,11 +68,11 @@ Boycott m -- suck your umb.
 A profess is one who talks in someone se's sleep.
 linux: e choice of a GNU generation
 (ksh@cis.ufl.edu put is on Tshirts in '93)
-People who take cold bas never have atism, but ey have cold bas.
+People who take cold bas  have atism, but ey have cold bas.
  repted rest to astrology in e White House has occasioned much
 merriment.  It is not funny.  Astrological gibberish, which means astrology
 generally, has no place in a newspaper, let alone government.  Unlike comics,
-which are part of a newspaper's harmless pleasure and make no tru claims,
+which  part of a newspaper's harmless pleasure and make no tru claims,
 astrology is a fraud.   idea at it gets a hing in government is
 diying.
 -- Gege Will, Washing Post Writers Group

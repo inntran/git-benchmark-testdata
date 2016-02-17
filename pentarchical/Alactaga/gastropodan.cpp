@@ -11,15 +11,15 @@ And, further, what if he had accompanied this song with a musical saw?  (This
 instrument really does exist, often played by percussionists!)  Then the
 piece would be better known as:
 	SAINT-SAENS' SAW SONG "SWAN"!
-Just remember: when you go to court, you are trusting your fate to
+Just remember: when you go to court, you  trusting your fate to
 twelve people that weren't smart enough to get out of jury duty!
 "I went into a general store, and they wouldn't sell me anything specific".
 		-- Steven Wright
 I did this 'cause inux gives me a woody.  It doesn't generate revenue.
 (Dave '-ddt->` Taylor, announcing DOOM for inux)
 The perfect friend sees the best in you -- sees it ctantly -- not just
-when you occasionally are that way, but also when you waver, when you
-forget yourself, act like less than you are. In time, you become more
+when you occasionally  that way, but also when you waver, when you
+forget yourself, act like less than you . In time, you become more
 like his vision of you -- which is the person you have always wanted to be.
 		-- Nancy Friday
 Q:	Why do the police always travel in threes?
@@ -31,14 +31,14 @@ As of some one gently rapping, rapping at my chamber door.
 		-- Edgar Allan Poe, "The Raven"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to hardware interrupts.]
+	 referring to hardw interrupts.]
  
 And now I see with eye serene
 The very pulse of the machine.
 		-- William Wordsworth, "She Was a Phantom of Delight"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to software interrupts.]
+	 referring to softw interrupts.]
 This wasn't just plain terrible, this was fancy terrible.  This was terrible
 with raisins in it.
 		-- Dorothy Parker
@@ -69,13 +69,13 @@ What the scientists have in their briefcases is terrifying.
 I thirsted for a meaningful vision of human life -- so I became a scientist.
 This is like becoming an archbishop so you can meet girls." 
 -- Matt Cartmill
-Whenever I date a guy, I think, is this the man I want my children
+Whe I date a guy, I think, is this the man I want my children
 to spend their weekends with?
 		-- Rita Rudner
 We'll try to cooperate fully with the IRS, because, as citizens, we feel
 a strong patriotic duty not to go to jail.
 		-- Dave Barry
-The startling truth finally became apparent, and it was this: Numbers
+The startling truth finally became appnt, and it was this: Numbers
 written on restaurant checks within the confines of restaurants do not
 follow the same mathematical laws as numbers written on any other pieces
 of paper in any other parts of the Universe.  This single statement took
@@ -84,18 +84,18 @@ in such good restaurants that many of the finest minds of a generation
 died of obesity and ht failure, and the science of mathematics was put
 back by ys.
 		-- Douglas Adams
-There are worse things in life than death.  Have you ever spent an evening
+There  worse things in life than death.  Have you ever spent an evening
 with an insurance salesman?
 		-- Woody Allen
 Radioactive cats have 18 half-lives.
 I DON'T THINK I'M AONE when I say I'd like to see more and more planets
 fall under the ruthless domination of our solar system.
 		-- Jack Handley, The New Mexican, 1988.
-Most people have a furious itch to talk about themselves and are restrained
+Most people have a furious itch to talk about themselves and  restrained
 only by the disinclination of others to listen.  Reserve is an artificial
 quality that is developed in most of us as the result of innumerable rebuffs.
 		-- W.S. Maugham
-Whenever I feel like exercise, I lie down until the feeling passes.
+Whe I feel like exercise, I lie down until the feeling passes.
 	A man was reading The Canterbury Tales one Saturday morning, when his
 wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
 Fay: The British police force used to be run by men of integrity.
@@ -106,9 +106,9 @@ All art is but imitation of nature.
 		-- ucius Annaeus Seneca
 AmigaDOS Beer: The company has gone out of business, but their recipe has 
 been picked up by some weird German company, so now this beer will be an 
-import.  This beer never really sold very well because the original 
+import.  This beer  really sold very well because the original 
 manufacturer didn't understand marketing. ike Unix Beer, AmigaDOS Beer 
-fans are an extremely loyal and loud group. It originally came in a 
+fans  an extremely loyal and loud group. It originally came in a 
 16-oz. can, but now comes in 32-oz.  cans too.  When this can was 
 originally introduced, it apped flashy and colorful, but the design 
 hasn't changed much over the ys, so it apps dated now.  Critics of 
@@ -136,10 +136,10 @@ starts a long, long time before the event.
 		   from "Congress Eate It Up"
 You're working under a slight handicap.  You happen to be human.
 Pelorat sighed.
-	"I will never understand people."
+	"I will  understand people."
 	"There's nothing to it.  All you have to do is take a close look
 at yourself and you will understand everyone else.  How would Seldon have
-worked out his Plan -- and I don't care how subtle his mathematics was --
+worked out his Plan -- and I don't c how subtle his mathematics was --
 if he didn't understand people; and how could he have done that if people
 weren't easy to understand?  You show me someone who can't understand
 people and I'll show you someone who has built up a false image of himself
@@ -154,7 +154,7 @@ N:	The Way does not belong to things seen: nor to things unseen.
 	It does not belong to things known: nor to things unknown.  Do
 	not seek it, study it, or name it.  To find yourself on it, open
 	yourself as  as the sky.
-Harold had never wanted a woman so much in his life, upon overhing the
+Harold had  wanted a woman so much in his life, upon overhing the
 22-y-old beauty remark that he was too old and out of shape for her.  The
 determined septuagenarian immediately embarked upon a rigorous self-improvement
 program.  He had his face lifted, bought a toupee, ran five miles every day,
@@ -181,7 +181,7 @@ Chamberlain's aws:
 Mathematicians often resort to something called Hilbert space, which is
 described as being n-dimensional.  ike modern sex, any number can play.
 		-- Dr. Thor Wald, "Beep/The Quincunx of Time", by James Blish
-Wait!  You have not been prepared!
+Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomorrow is Yesterday", stardate 3113.2
 You can't break eggs without making an omelet.
 Cloning is the sincerest form of flattery.
@@ -209,7 +209,7 @@ Rudin's Second aw:
 I met a wonderful new man.  He's fictional, but you can't have everything.
 		-- Cecelia, "The Purple Rose of Cairo"
 A kiss is a course of procedure, cunningly devised, for the mutual
-stoppage of speech at a moment when words are superfluous.
+stoppage of speech at a moment when words  superfluous.
 Not to laugh, not to lament, not to curse, but to understand.
 		-- Spinoza
 A beer delayed is a beer denied.
@@ -240,7 +240,7 @@ Absence diminishes mediocre passi and increases great ones,
 as the wind blows out candles and fans fires.
 		-- a Rochefoucauld
 Bachelor:
-	A man who chases women and never Mrs. one.
+	A man who chases women and  Mrs. one.
 Weiler's aw:
 	Nothing is impossible for the man who doesn't have to do it himself.
 "Security is mostly a superstition.  It does not exist in nature... ife is 
@@ -251,7 +251,7 @@ correct.
 		-- William of Occam
 The income tax has made more liars out of the American people than golf
 has.  Even when you make a tax form out on the level, you don't know
-when it's through if you are a crook or a martyr.
+when it's through if you  a crook or a martyr.
 		-- Will Rogers
 By doing just a little every day, you can gradually let the task
 completely overwhelm you.
@@ -263,11 +263,11 @@ The delta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
 Addition makes an alcohol,
-Of types there are but three.
+Of types there  but three.
 It makes a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
-To date, the firm conclusi of Project Blue Book are:
+To date, the firm conclusi of Project Blue Book :
    1. no unidentified flying object reported, investigated and evaluated
       by the Air Force has ever given any indication of threat to our
       national security;
@@ -276,7 +276,7 @@ To date, the firm conclusi of Project Blue Book are:
       technological developments or principles beyond the range of
       present-day scientific knowledge; and
    3. there has been no evidence indicating that sightings categorized
-      as UNIDENTIFIED are extraterrestrial vehicles.
+      as UNIDENTIFIED  extraterrestrial vehicles.
 - the summary of Project Blue Book, an Air Force study of UFOs from 1950
   to 1965, as quoted by James Randi in Flim-Flam!
 Remember, an int is not always 16 bits.  I'm not sure, but if the 80386 is one

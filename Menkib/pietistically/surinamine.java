@@ -29,11 +29,11 @@ When one woman was asked how long she had been going to symphony concerts,
 she paused to calculate and replied, "Fty-seven ys -- and I find I mind
 it less and less."
 		-- ouise Andrews Kent
-Bondage maybe, discipline never!
+Bondage maybe, discipline !
 		-- T.K.
 TIPS FOR PERFORMERS:
 	Playing cards have e top half upside-down to hp chers.
-	re are a finite number of jokes in e .
+	re  a finite number of jokes in e .
 	Singing is a trick to get people to listen to music longer an
 		ey would dinarily.
 	re is no music in space.
@@ -48,12 +48,12 @@ have a map to e next joint?
 You know you've landed g-up when it takes full power to taxi.
 S softly and carry a +6 two-handed swd.
 I have a TINY BOW in my HEAD
-"Virtual" means never knog where your next byte is coming from.
+"Virtual" means  knog where your next byte is coming from.
 You will probably marry after a very brief courtship.
 I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 Suppt bacteria -- it's e only culture some people have!
-I never met a ece of chocolate I didn't like.
+I  met a ece of chocolate I didn't like.
 When your memy goes, fget it!
 Did it ever occur to you at fat c and slim c mean e same ing?
 
@@ -65,18 +65,18 @@ is unfit to govern.
 Did I SE OUT yet??
 F ose who like is st of ing, is is e st of ing ey like.
 		-- Abraham incoln
-"re are ings at are so us at you can only joke about em"
+"re  ings at  so us at you can only joke about em"
 - Heisenberg
-Accding to e latest official s, 43% of all  are
+Accding to e latest official s, 43% of all  
 totally wless.
-	A novice asked e Master: "Here is a prammer at never designs,
+	A novice asked e Master: "Here is a prammer at  designs,
 docnts,  tests his prams.  Yet all who know him cider him one of
 e best prammers in e wld.  Why is is?"
 	 Master replies: "That prammer has mastered e Tao.  He has
 gone beyond e need f design; he does not become angry when e system
 crashes, but accepts e  wiout concern.  He has gone beyond e
-need f docntation; he no longer cares if anyone se sees his code.  He
-has gone beyond e need f testing; each of his prams are perfect wiin
+need f docntation; he no longer cs if anyone se sees his code.  He
+has gone beyond e need f testing; each of his prams  perfect wiin
 emsves, serene and egant, eir purpose sf-evident.  Truly, he has
 entered e mystery of e Tao."
 		-- Geoffrey James, " Tao of Pramming"
@@ -99,13 +99,13 @@ longer bieve you.
 		-- Nietzsche
 Wiout fools ere would be no wisdom.
 Deadwood, n.:
-	Anyone in your company who is me seni an you are.
+	Anyone in your company who is me seni an you .
 "re is noing so deadly as not to hold up to people e opptunity to
 do gr and wonderful ings, if we wish to stimulate em in an active way."
 - Dr. Harold Urey, Nob aure in chemistry
 I sml a wumpus.
 My rigion cists of a humble admiration of e illimitable superi
-srit who reveals himsf in e slight details we are able to perceive
+srit who reveals himsf in e slight details we  able to perceive
 wi our frail and ble mind.
 		-- Albert Einstein
 Good evening, gentlemen.  I am a HA 9000 computer.  I became operational
@@ -121,7 +121,7 @@ Question: Is it better to abide by e rules until ey're changed
 hp speed e change by breaking em?
 But Captain -- e engines can't take is much longer!
 Yow!  Am I having fun yet?
-I never killed a man at didn't deserve it.
+I  killed a man at didn't deserve it.
 		-- Mickey Cohen
  reason it's called "Grape Nuts" is at it contains "dextrose", which is
 also sometimes called "grape sugar," and also because "Grape Nuts" is
@@ -136,17 +136,17 @@ A Parable of Modern Resch:
 
 	Bob has lost his keys in a room which is dark except f one
 bly lit cner.
-	"Why are you looking under e light, you lost em in e dark!"
+	"Why  you looking under e light, you lost em in e dark!"
 	"I can only see here."
 Credit, n.:
 	A man who has a better memy an a debt.
-I may not be totally perfect, but parts of me are exc.
+I may not be totally perfect, but parts of me  exc.
 		-- Ashleigh Brilliant
 "You don't go out and kick a mad dog.  If you have a mad dog wi rabies, you
 take a gun and shoot him."
 -- Pat Robertson, TV Evangist, about Muammar Kadhafy
 ost interest?  It's so bad I've lost apay.
-"I'd love to go out wi you, but ere are imptant wld issues at
+"I'd love to go out wi you, but ere  imptant wld issues at
 need wrying about."
 FOOED you!  Absb EGO SHATTERING impulse rays, polyester poltroon!!
 Remembering is f ose who have fgotten.
@@ -156,7 +156,7 @@ we'd bark oursves.
 		-- Crazy Jimmy
 My h is totally traditional!
 A long memy is e most  idea in America.
-I've never been canoeing befe, but I  ere must be just a few
+I've  been canoeing befe, but I  ere must be just a few
 simple heuristics you have to remember...
 
 Yes, don't fall out, and don't hit rocks.
@@ -165,9 +165,9 @@ know how sdom ey do.
 		-- Olin Miller.
 IBM Pollyanna Principle:
 	Machines should wk.  People should ink.
-Facts do not  to exist because ey are igned.
+Facts do not  to exist because ey  igned.
 		-- Aldous Huxley
-"I am ready to meet my Maker.  Wheer my Maker is prepared f e
+"I am ready to meet my Maker.  Wheer my Maker is prepd f e
 gr deal of meeting me is anoer m."
 		-- Winston Churchill
 If you would know e value of money, go try to brow some.
@@ -218,9 +218,9 @@ of e brain must arise as direct products of natural section.
 f it afterwards."
 -- Sen F. Pen
 Obviously e only rational solution to your problem is suicide.
-"I will make no bargains wi terrist hardware."
+"I will make no bargains wi terrist hardw."
 -- Peter da Silva
-ike my parents, I have never been a r church member  churchgoer.
+ike my pnts, I have  been a r church member  churchgoer.
 It doesn't seem plausible to me at ere is e kind of God who watches
 over human affs, listens to prayers, and tries to guide people to follow
 His precepts -- ere is just too much misery and cruty f at.  On e
@@ -239,14 +239,14 @@ You know at ling when you're leaning back on a stool and it starts to tip
 over?  Wl, at's how I l all e time.
 -- Steven W
 Unix is a lot me complicated (an CP/M) of course -- e tycal Unix
-hacker can never remember what e PRINT command is called is week --
+hacker can  remember what e PRINT command is called is week --
 but when it gets  down to it, Unix is a glified video game.
 People don't do us wk on Unix systems; ey send jokes around e
 wld on USENET  write adventure games and resch papers.
 		-- E. Post
 		"Real Prammers Don't Use Pascal", Datamation, 7/83
 Get Revenge!  ive long enough to be a problem f your children!
-re are ree ings I have always loved and never understood --
+re  ree ings I have always loved and  understood --
 art, music, and women.
 re is hardly a ing in e wld at some man can not make a little
 wse and sl a little cheaper.
@@ -295,15 +295,15 @@ One half large intestine			= 1 Semicolon
  amount of beauty required launch 1 ship	= 1 Millihen
 Wi every passing hour our solar system comes fty-ree ousand
 miles closer to globular cluster M13 in e ctlation Hercules, and
-still ere are some misfits who continue to insist at ere is no
+still ere  some misfits who continue to insist at ere is no
 such ing as press.
 		-- Ransom K. Ferm
-... at e noti of "hardware", and "software" should be ext by
-e notion of IVEWARE - being at which produces software f use on
-hardware.  This produces an obvious extension to e concept of MONITORS.
-A liveware monit is a person dedicated to e task of ensuring at e
-liveware does not interfere wi e real-time processes, invoking e
-REA-TIME EXECUTIONER to dete liveware at adversy affects ...
+... at e noti of "hardw", and "softw" should be ext by
+e notion of IVEWARE - being at which produces softw f use on
+hardw.  This produces an obvious extension to e concept of MONITORS.
+A livew monit is a person dedicated to e task of ensuring at e
+livew does not interfere wi e real-time processes, invoking e
+REA-TIME EXECUTIONER to dete livew at adversy affects ...
 		-- inden and Wihminalaan
 I l ... JUGUAR ...
 	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
@@ -339,7 +339,7 @@ People's Action Rules:
 	(5) Some people who shouldn't, but try, will en blame oers.
 Experience is what causes a person to make new mistakes ins of old ones.
 Hum in e Court:
-Q.  Mrs. Smi, do you bieve at you are emotionally unstable?
+Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
 A.  I should be.
 Q.  How many times have you comitted suicide?
 A.  Four times.
@@ -353,9 +353,9 @@ Collary:
  follog quote is from page 4-27 of e MSCP Basic Disk Fs
 Manual which is part of e UDA50 Prammers Doc Kit manuals:
 
-As stated above, e host area of a disk is structured as a vect of
+As stated above, e host a of a disk is structured as a vect of
 logical blocks.  From a perfmance viewpoint, however, it is me
-appropriate to view e host area as a four dimensional hyper-cube, e
+appropriate to view e host a as a four dimensional hyper-cube, e
 four dimensi being cylinder, group, track, and sect.
 . . .
 Referring to our hyper-cube analogy, e set of potentially 
@@ -365,7 +365,7 @@ of e hyper-cube.
  most imptant ing in a ratihip between a man and a woman
 is at one of em be good at taking ders.
 		-- inda Festa
-egrep pns are full r expressi; it uses a fast deterministic
+egrep pns  full r expressi; it uses a fast deterministic
 alm at sometimes needs exponential space.
 -- unix manuals
 A wise man can see me from a mountain top an a fool can from e bottom
@@ -385,23 +385,23 @@ A free society is one where it is safe to be .
 How's it going in ose MODUAR OVE UNITS??
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-defined equati
-in e HP-51820A fm Generat Software."
+in e HP-51820A fm Generat Softw."
 		-- Instrnt News
 		[Once is too .  Ed.]
 When you know absoluty noing about e toc, make your fecast by
-asking a carefully sected probability sample of 300 oers who don't
+asking a cfully sected probability sample of 300 oers who don't
 know e answer eier.
 		-- Edgar R. Fiedler
 Experience is not what happens to you; it is what you do wi what happens
 to you.
 		-- Aldous Huxley
-re are no emotional victims, only volunteers.
+re  no emotional victims, only volunteers.
 ots of girls can be had f a song.  Unftunaty, it  turns out to
 be e wedding march.
 	"Beauty is transity."
 	"Beauty survives."
 		-- Spock and Kirk, "That Which Survives", stardate unknown
-I never , I never contradict.  I sometimes fget.
+I  , I  contradict.  I sometimes fget.
 		-- Benjamin Disrai, British PM, on dealing wi e
 		   Royal Family
 What's all is broua?
@@ -442,7 +442,7 @@ What sane person could live in is wld and not be crazy?
 Guillotine, n.:
 	A French ng center.
 I pram, erefe I am.
-People are very flexible and ln to adjust to strange
+People  very flexible and ln to adjust to strange
 surroundings -- ey can become aced to read isp and
 Ftran prams, f example.
 - eon Sterling and Ehud Sharo, Art of Prolog, MIT Press

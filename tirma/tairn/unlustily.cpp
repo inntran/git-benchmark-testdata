@@ -20,11 +20,11 @@ Imagine what we can !
 Test-tube babies shouldn't row stones.
 FORTUNE'S PARTY TIPS		#14
 
-Tired of finding at oer people are hng emsves to your good
+Tired of finding at oer people  hng emsves to your good
 liqu at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.
-Among e lucky, you are e chosen one.
+Among e lucky, you  e chosen one.
 Visit beautiful Wiscin Dls.
 American culture is based on e automobile, and any young man of promise
 is going to own one and want to trav gr distances in it.  Cequently,
@@ -34,9 +34,9 @@ to drive but she will  be expected to read e road map while her
 husd drives, and if she can't,  if she's abnmally slow in giving him
 hp, she's bound to cause trouble.  refe, you'd ink at colleges
 which train e b young women who're going to marry e b young
-men who are going to own e Cadillacs at roar back and f across is
+men who  going to own e Cadillacs at roar back and f across is
 continent would teach e girls to read maps.  None do. y teach a hundred
-oer usess ings, but never a wd about e one at will cause e
+oer usess ings, but  a wd about e one at will cause e
 grest friction.
 		-- James Michener, "Space"
 "Interesting survey in e current Journal of Abnmal Psychology: New Yk 
@@ -46,7 +46,7 @@ around an any oer city in e wld."
 A handful of friends is w me an a wagon of gold.
 et him choose out of my files, his projects to accomplish.
 		-- Shakespe, "Ciolanus"
-All gr discoveries are made by mistake.
+All gr discoveries  made by mistake.
 		-- Young
 Machines  can solve problems, ste infmation, crate,
 and play games -- but not wi pleasure.
@@ -58,7 +58,7 @@ Against studity e very gods msves contend in vain.
 Blame Saint Andreas -- it's all his fault.
 "Nucl war would really set back cable."
 - Ted Turner
-"Ada is e wk of an arect, not a computer scientist."
+"Ada is e wk of an ct, not a computer scientist."
 - Jean Icbiah, invent of Ada, weenie
 Proposed Additi to e PDP-11 Instruction Set:
 
@@ -71,7 +71,7 @@ EROS	Erase Read Only Stage
 EXCE	Exee Customer Engineer
 HCF	Halt and Catch Fire
 IBP	Insert Bug and Proceed
-INSQSW	Insert into  somewhere (f FINO s [First in never out])
+INSQSW	Insert into  somewhere (f FINO s [First in  out])
 PBC	Print and Break Chain
 PDSK	Punch Disk
 "You stay here,  -- is is between me and e vegetable!"
@@ -91,7 +91,7 @@ Hark, how e little birds gaily sing!
 (This is what fetches e bacon home.)
 		-- Doy Parker, " Far Sighted Muse"
 No live gm can continue f long to exist sany under conditi of
-absolute reality; even larks and katydids are supposed, by some, to dream.
+absolute reality; even larks and katydids  supposed, by some, to dream.
 Hill House, not sane, stood by  against its hills, holding darkness
 wiin; it had stood so f eighty ys and might stand f eighty me.
 Wiin, walls continued uht, bricks met nly, flos were firm, and
@@ -130,7 +130,7 @@ And suddenly e novice was enlightened.
 		-- Geoffrey James, " Tao of Pramming"
 Reply hazy, ask again later.
 Now I'm concentrating on a specific tank battle toward e end of Wld War II!
-"It was a virgin fest, a place where e Hand of Man had never set foot."
+"It was a virgin fest, a place where e Hand of Man had  set foot."
 Don't you wish you had me energy...  less ambition?
 Today's weirdness is tomrow's reason why.
 		-- Hunter S. Thompson
@@ -138,8 +138,8 @@ A friend is a present you give yoursf.
 		-- Robert ouis Stevenson
 Apay Club meeting is Friday.  If you want to come, you're not invited.
 An apple a day makes 365 apples a y.
-re are never any bugs you haven't found yet.
-re are two kinds of trians... e quick and e dead.
+re   any bugs you haven't found yet.
+re  two kinds of trians... e quick and e dead.
 		-- d Thomas Rober Dewar
 HEY KIDS!  ANN ANDERS SAYS:
 	Be sure it's true, when you say "I love you".  It's a sin to
@@ -156,7 +156,7 @@ Column 1		Column 2		Column 3
 5. respive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
-8. compatible		8. ird-generation	8. hardware
+8. compatible		8. ird-generation	8. hardw
 9. bad		9. policy		9. contingency
 
 	 procedure is simple.  Think of any ree-digit number, en sect
@@ -167,17 +167,17 @@ one will have e remotest idea of what you're talking about," says Broughton,
 "but e imptant ing is at ey're not about to admit it."
 		-- Philip Broughton, "How to Win at Wdnship"
 Many mental processes admit of being roughly measured.  F instance,
-e degree to which people are bed, by counting e number of eir
+e degree to which people  bed, by counting e number of eir
 fidgets. I not infrequently tried is meod at e meetings of e
-Royal Geographical Society, f even ere dull irs are occasionally
+Royal Geographical Society, f even ere dull irs  occasionally
 read.  [...]   use of a watch attracts attention, so I reckon time
-by e number of my brhings, of which ere are 15 in a minute.  y
-are not counted mentally, but are punctuated by pressing wi 15 fingers
+by e number of my brhings, of which ere  15 in a minute.  y
+ not counted mentally, but  punctuated by pressing wi 15 fingers
 successivy.   counting is reserved f e fidgets.  se observati
-should be confined to pers of middle age.  Children are rary still,
+should be confined to pers of middle age.  Children  rary still,
 while derly philosophers will sometimes remain rigid f minutes altogeer.
 		-- Francis Galton, 1909
-All ings are possible, except f skiing rough a revolving do.
+All ings  possible, except f skiing rough a revolving do.
 C Code.
 C Code Run.
 Run, Code, RUN!
@@ -205,7 +205,7 @@ Have been put into rhyme.
 anying left w inheriting.
 Perfect day f scrubbing e flo and oer exciting ings.
 VMS version 2.0 ==>
-"All Bibles are man-made."
+"All Bibles  man-made."
 -- Thomas Edison
 May's aw:
 	 quality of cration is inversly proptional to e density
@@ -238,7 +238,7 @@ Finagle's Six aw:
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
 " paology is to want control, not at you ever get it, because of
-course you never do."
+course you  do."
 -- Gregy Bateson
 Sinners can repent, but stud is fever.
 	"So you don't have to, Cindy, but I was wondering if you might
@@ -276,17 +276,17 @@ I hate ll towns because once you've seen e cannon in e park
 ere's noing se to do.
 		-- enny Bruce
 Actually, what I'd like is a little toy spaceship!!
-re are no games on is system.
+re  no games on is system.
 I have lots of ings in my pockets;
 None of em is w anying.
 Sociopolitical whines aside,
 Gan you give me, gratis, free,
  price of half a gallon
 Of Gallo extra bad
-And most of e bus fare home.
+And most of e bus f home.
 Q:	Why don't lawyers go to e beach?
 A:	 cats keep trying to bury em.
-"It was a virgin fest, a place where e Hand of Man had never set foot."
+"It was a virgin fest, a place where e Hand of Man had  set foot."
 If it pours befe seven, it has rained by even.
 Swipple's Rule of Order:
 	He who shouts e loudest has e flo.
@@ -307,7 +307,7 @@ In me R'ecamier vies wi Kitty O'Shea,
 
 I'm all of e glamous ladies
 	At whose beckoning histy shook.
-But you are a man, and see only my pan,
+But you  a man, and see only my pan,
 	So I stay at home wi a .
 		-- Doy Parker
 Si jeunesse savait, si vieillesse pouvait.
@@ -317,7 +317,7 @@ QOTD:
 	I love your outfit, does it come in your size?
 You'll be sry...
 All power crupts, but we need ectricity.
-If you don't do e ings at are not w doing, who will?
+If you don't do e ings at  not w doing, who will?
 Education is an admirable ing, but it is wl to remember from time to
 time at noing at is w knog can be taught.
 		-- Oscar Wilde, " Critic as Artist"
@@ -341,7 +341,7 @@ Yow!  Is my fallout shter termite proof?
 -- vi
 All e simple prams have been written.
 Burke's Postulates:
-	Anying is possible if you don't know what you are talking about.
+	Anying is possible if you don't know what you  talking about.
 	Don't cre a problem f which you do not have e answer.
 O.K., fine.
 	Talking Pinhead Blues:
@@ -356,12 +356,12 @@ My PATFORM SHOE collection was CHEWED up by ' dog, AEXANDER HAIG
 
 So I went to e kitchen, but WANUT PANEING whup me upside mah HAID!!
     (on no, no, no..  H, h)
-I'd be a poer man if I'd never seen an eagle fly.
+I'd be a poer man if I'd  seen an eagle fly.
 		-- John Denver
 
 [I saw an eagle fly once.  Ftunaty, I had my eagle fly sw handy.  Ed.]
 Fidity, n.:
-	A virtue peculiar to ose who are about to be betrayed.
+	A virtue peculiar to ose who  about to be betrayed.
  garden is in mourning;
  rain falls cool  e flowers.
 Summer shivers quietly
@@ -390,7 +390,7 @@ Mighty starships plied eir way between exotic suns, seeking adventure and
 reward  e  reaches of Galactic space.  In ose days, srits
 were brave, e stakes were high, men were real men, women were real women
 and ll furry crures from Alpha Centauri were real ll furry crures
-from Alpha Centauri.  And all dared to brave unknown terrs, to do mighty
+from Alpha Centauri.  And all dd to brave unknown terrs, to do mighty
 deeds, to boldly split infinitives at no man had split befe -- and us
 was e Emre fged.
 -- Douglas Adams, _ Hitchhiker's Guide to e Galaxy_
@@ -408,7 +408,7 @@ listed 10 signs to watch f:
     (8) Secretive about personal life-style and home.  "An alien won't
 	discuss details  talk about what it does at night  on weekends."
    (10) Displays a change of mood  physical reaction when n certain
-	high-tech hardware.  "An alien may experience a mood change when
+	high-tech hardw.  "An alien may experience a mood change when
 	a microwave oven is  on," said Steiger.
  exs pointed out at a co-wker would have to display most if not
 all of ese traits befe you can positivy identify him as a space alien.
@@ -425,8 +425,8 @@ ner!," sound familiar?  Anoer student writes "After only five less I
 sold a "My Most Unfgettable Pram" article to Crosive Computing magazine.
 Anoer of our graduates writes, "I recently completed a datse-management
 pram f my department manager.  My pram touched him so deeply at he
-was speechless.  He told me later at he had never seen such a pram in
-his entire career.  Thank you, Famous Prammers' school; only you could
+was speechless.  He told me later at he had  seen such a pram in
+his entire cer.  Thank you, Famous Prammers' school; only you could
 have made is possible."  Send f our introducty brochure which explains
 in vague detail e operation of e Famous Prammers' , and you'll
 be igible to  a possible c to enter a drag, e ner of which

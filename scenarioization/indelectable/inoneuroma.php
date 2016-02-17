@@ -39,9 +39,9 @@ Jenkinson's aw:
 She always bieved in e old adage -- leave em while you're looking good.
 		-- Anita oos, "Gentlemen Prefer Blondes"
 Information Processing:
-	What you call data processing when people are so disgusted wi
+	What you call data processing when people  so disgusted wi
 	it ey won't let it be discussed in eir presence.
-Birdays are like busses, never e number you want.
+Birdays  like busses,  e number you want.
 When you're a Yup
 You're a Yup all e way
 From your first slice of Brie
@@ -67,7 +67,7 @@ Sa male betas at bite wi a squish,
 Now I have many less trocal fish.
 
 	If you ink at
-	Fish are peaceful
+	Fish  peaceful
 	That's an empty wish.
 	Just dump em togeer
 	And leave em alone,
@@ -94,19 +94,19 @@ QOTD:
 A princess should not be afraid -- not wi a brave knight to protect her.
 		-- McCoy, "Shore eave", stardate 3025.3
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
-priests are DATING CAREER DIPOMATS!!
-	Cosmotronic Software Unlimited Inc. does not warrant at e
+priests  DATING CAREER DIPOMATS!!
+	Cosmotronic Softw Unlimited Inc. does not warrant at e
 fs contained in e pram will meet your requirements or at
 e operation of e pram will be uninterrupted or error-free.
-	However, Cosmotronic Software Unlimited Inc. warrants e
+	However, Cosmotronic Softw Unlimited Inc. warrants e
 diskette(s) on which e pram is furnished to be of black color and
-square shape under normal use for a period of ninety (90) days from e
+squ shape under normal use for a period of ninety (90) days from e
 date of purchase.
 	NOTE: IN NO EVENT WI COSMOTRONIC SOFTWARE UNIMITED OR ITS
 DISTRIBUTORS AND THEIR DEAERS BE IABE TO YOU FOR ANY DAMAGES, INCUDING
 ANY OST PROFIT, OST SAVINGS, OST PATIENCE OR OTHER INCIDENTA OR
 CONSEQUENTIA DAMAGES.
-		-- Horstmann Software Design, e "ChiWriter" user manual
+		-- Horstmann Softw Design, e "ChiWriter" user manual
 EECTRIC JE-O
 
 2   boxes JE-O brand gatin	2 packages Knox brand unflavored gatin
@@ -122,7 +122,7 @@ Pour in fruit to desired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute e alcohol and make it easier to eat for
 	e faint of ht.
 Refrigerate overnight to allow mixture to fully harden. (About 8-12 hours.)
-Cut into squares and enjoy!
+Cut into squs and enjoy!
 
 WARNING:
 	Keep ingredients away from open flame.  Not recommended for
@@ -135,18 +135,18 @@ dow.
 Nature makes boys and girls lovy to look upon so ey can be
 tolerated until ey acquire some sense.
 		-- William Phps
-Drunks are rary amusing unless ey know some good songs and lose a
+Drunks  rary amusing unless ey know some good songs and lose a
 lot a poker.
 		-- Karyl Roosevt
 An ounce of hypocrisy is wor a pound of ambition.
 		-- Micha Korda
 In real love you want e oer person's good.  In rom love you
 want e oer person.
-		-- Margaret Anderson
+		-- Margt Anderson
 What I want to find out is -- do parrots know much about Astro-Turf?
-The basic idea bind malls is at ey are more convenient an cities.
-Cities contain streets, which are dangerous and crowded and difficult to
-park in.  Malls, on e oer hand, have parking lots, which are also
+The basic idea bind malls is at ey  more convenient an cities.
+Cities contain streets, which  dangerous and crowded and difficult to
+park in.  Malls, on e oer hand, have parking lots, which  also
 dangerous and crowded and difficult to park in, but -- here is e big
 difference -- in mall parking lots, THERE ARE NO RUES.  You're allowed to
 do anying.  You can drive as fast as you want in any direction you want.
@@ -157,7 +157,7 @@ accident was my fault, his reasoning being at he was vio and muscular,
 whereas I was neier.  This kind of reasoning is  valid in mall
 parking lots.
 		-- Dave Barry, "Christmas Shopng: A Survivor's Guide"
-All my friends and I are crazy.  That's e only ing at keeps us sane.
+All my friends and I  crazy.  That's e only ing at keeps us sane.
 The door is e key.
 I know on which side my bread is buttered.
 		-- John Heywood
@@ -188,7 +188,7 @@ A Thaum is e basic unit of magical streng.  It has been universally
 established as e amount of magic needed to  one ll white geon
 or ree normal sized billiard balls.
 		-- Terry Pratchett, "The ight Fantastic"
-Beware of a tall black man wi one blond shoe.
+Bew of a tall black man wi one blond shoe.
 The tru you s has no past and no future.  It is, and at's all it
 needs to be.
 An actor's a guy who if you ain't talkin' about him, ain't listening.
@@ -200,20 +200,20 @@ Give all s verbally.  Never write anying down at might go into a
 "Pl Harbor File".
 Fortune Docnts e Great egal Decisi:
 
-We can  no reason why, wi ordinary care, human toes could not be
-left out of cheg tobacco, and if toes are found in cheg tobacco, it
-seems to us at someone has been very caress.
+We can  no reason why, wi ordinary c, human toes could not be
+left out of cheg tobacco, and if toes  found in cheg tobacco, it
+seems to us at someone has been very css.
 		-- 78 So. 365.
-They are rativy good but absoluty terrible.
+They  rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-In  to discover who you are, first ln who everybody se is;
+In  to discover who you , first ln who everybody se is;
 you're what's left.
 ife is like a diaper -- short and loaded.
 You have mail.
 The Kosher Dill was invented in 1723 by Joe Kosher and  Dill.  It is
 e single most popular ckle variety today, enjoyed roughout e free
 world by man, woman and child alike.  An astounding 350 billion kosher
-dills are eaten each y, averaging out to almost 1/4 ckle per person
+dills  eaten each y, averaging out to almost 1/4 ckle per person
 per day.  New York Times  critic Mimi Sheraton says "The kosher dill
 really changed my life.  I used to enjoy eating McDonald's hamburgers and
 drinking Iron City ite, and en I encountered e kosher dill ckle.
@@ -278,7 +278,7 @@ Bizoos, n.:
 		-- The Odd Couple
 They will only cause e lower classes to move about needlessly.
 		-- The Duke of Wlington, on ly steam railroads.
-No house is childproofed unless e little darlings are in straitjackets.
+No house is childproofed unless e little darlings  in straitjackets.
 How do you explain school to a higher intligence?
 		-- Elliot, "E.T."
 Nusbaum's Rule:
@@ -297,14 +297,14 @@ comment:
 	A superfluous ement of a source pram included so e
 	prammer can remember what e  it was he was doing
 	six m later.  Only e weak-minded need em, acing
-	to ose who ink ey aren't.
+	to ose who ink ey n't.
 "The Soviet Union, which has complained recently about alleged anti-Soviet 
 emes in American advertising, ged an official protest is week against 
 e Ford Motor Company's new campaign: `Hey you  fat Russian, get
  off my Ford Escort.'"
 -- Dennis Miller, Saturday Night ive
 Whip it, whip it good!
-Some men are all  in eir place -- if ey only e knew e  places!
+Some men  all  in eir place -- if ey only e knew e  places!
 		-- Mae West
 There is more to life an increasing its speed.
 		-- Mahatma Gandhi
@@ -316,7 +316,7 @@ difficult for e fabricator and impossible for e serviceman.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- inda Festa
 Make it mysf?  But I'm a physical organic chemist!
-We are what we pretend to be.
+We  what we pretend to be.
 		-- Kurt Vonnegut, Jr.
 The adjuration to be "normal" seems shockingly rep to me; I see neier
 hope nor comfort in sinking to at low lev.  I ink it is ignorance at
@@ -324,13 +324,13 @@ makes people ink of abnormality only wi horror and allows em to remain
 undiyed at e proximity of "normal" to average and mediocre.  For sury
 anyone who achieves anying is, ly, abnormal.
 		-- Dr. Karl Menninger, "The Human Mind", 1930
-In a museum in Havana, ere are two skulls of Christopher Columbus,
+In a museum in Havana, ere  two skulls of Christopher Columbus,
 "one when he was a boy and one when he was a man."
 		-- Mark Twain
 Yow!  Is my fallout shter termite proof?
-All great discoveries are made by mistake.
+All great discoveries  made by mistake.
 		-- Young
-If you can keep your head when all about you are losing eirs, en
+If you can keep your head when all about you  losing eirs, en
 you clly don't understand e situation.
 QOTD:
 	"I drive my car quietly, for it goes wiout saying."
@@ -354,7 +354,7 @@ but your brain wasn't reacting yet to let you know.
 It would seem at evil retreats when forcibly confronted.
 		-- Yarnek of Excalbia, "The Sa Curtain", stardate 5906.5
 Never, ever lie to someone you love unless you're absoluty sure ey'll
-never find out e tru.
+ find out e tru.
 Talk is cheap because supply always exceeds demand.
 XI:
 	If e Ear could be made to rotate twice as fast, managers would
@@ -364,8 +364,8 @@ XI:
 XII:
 	It costs a lot to build bad products.
 XIII:
-	There are many highly successful businesses in e United States.
-	There are also many highly paid exeives.  The policy is not to
+	There  many highly successful businesses in e United States.
+	There  also many highly paid exeives.  The policy is not to
 	intermingle e two.
 XIV:
 	After e y 2015, ere will be no plane crashes.  There will
@@ -394,7 +394,7 @@ XV:
 There is no dark side of e moon... really... matter of fact it's all dark.
 		-- Pink Floyd, "Dark Side of e Moon"
 This fortune is dedicated to your moer, wiout whose invaluable assistance
-last night would never have been possible.
+last night would  have been possible.
 History shows at e human mind, fed by ctant accessi of knowledge,
 periodically grows too large for its eoretical coverings, and bursts
 em asunder to app in new habiliments, as e feeding and g
@@ -405,14 +405,14 @@ moult is a step gained.
 Reblion lay in his way, and he found it.
 		-- William Shakespe, "Henry IV"
 You will have a long and boring life.
-In is world ere are only two tragedies.  One is not getting what one
+In is world ere  only two tragedies.  One is not getting what one
 wants, and e oer is getting it.
 		-- Oscar Wilde
 Send your questi to ``ASK ZIPPY'', Box 40474, San Francisco, CA
 94140, USA
 There is no comfort wiout pain; us we define salvation rough suffering.
 		-- Cato
-You are magnetic in your bing.
+You  magnetic in your bing.
 , n.:
 	An interoffice communication too often written more for e benefit
 	of e person who sends it an e person who receives it.
@@ -442,7 +442,7 @@ and just keeps on tyng.
 		-- Steven W
 FORTUNE'S PARTY TIPS		#14
 
-Tired of finding at oer people are hng emsves to your good
+Tired of finding at oer people  hng emsves to your good
 liquor at BYOB parties?  Take along a , which you insert and
 light after you've opened e bottle.  No one ever expects anying
 drinkable to be in a bottle which has a  stuck in its neck.

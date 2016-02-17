@@ -25,7 +25,7 @@ there were no winners, just men doing what men must do. [...]
 	"Stop the car," the girl said.
 	There was a look of terrible sadness in her eyes.  She knew about the
 woman of the tollway.  I knew not how.  I started to s, but she raised an
-arm and spoke with a quiet and peace I will never forget.
+arm and spoke with a quiet and peace I will  forget.
 	"I do not ask for whom's the tollway ble," she said, "the tollway
 ble's for thee."
 	The next morning our youth was a memory, and our happiness was a lie.
@@ -33,10 +33,10 @@ ife is like a bad margarita with good tequila, I thought as I poured whiskey
 onto my granola and d a new day.
 		-- Peter Applebome, International Imitation Hemingway
 		   Competition
-"You can't expect a mother to be with a ll child all the time," Margaret
+"You can't expect a mother to be with a ll child all the time," Margt
 Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
-day care twve hours a day, either.
+day c twve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
 The most disable thing that your worst enemy says to your  does
 not approach what your best friends say behind your back.
@@ -49,7 +49,7 @@ Individualists unite!
 What does education often do?  It makes a straight  ditch of a
 free meandering b.
 		-- Henry David Thoreau
-When there are two conflicting versi of the story, the wise course
+When there  two conflicting versi of the story, the wise course
 is to bieve the one in which people app at their worst.
 		-- H. Allen Smith, "et the Crabgrass Grow"
 NEVER swerve to hit a lawyer riding a bicycle -- it might be your bicycle.
@@ -60,8 +60,8 @@ N=1.	Trivially true, since both you and the evator only have one
 	floor to go to.
 
 Assume true for N, prove for N+1:
-	If you are on any of the first N floors, then it is true by the
-	induction hypothesis.  If you are on the N+1st floor, then both you
+	If you  on any of the first N floors, then it is true by the
+	induction hypothesis.  If you  on the N+1st floor, then both you
 	and the evator have only one choice, namy down.  Therefore,
 	it is true for all N+1 floors.
 QED.
@@ -73,8 +73,8 @@ Honi soit la vache qui rit.
 An American is a man with two arms and four whes.
 		-- A Chinese child
 PUNK ROCK!!  DISCO DUCK!!  BIRTH CONTRO!!
-If people are good only because they f punishment, and hope for reward,
-then we are a sorry lot indeed.
+If people  good only because they f punishment, and hope for reward,
+then we  a sorry lot indeed.
 		-- Albert Einstein
 Dignity is like a flag.  It flaps in a storm.
 		-- Roy Mengot
@@ -88,10 +88,10 @@ You know you're in trouble when...
 (1)	Your car horn goes off accidentally and remains stuck as you
 		follow a group of Hl's Angs on the freeway.
 (2)	You want to put on the clothes you wore home from the party 
-		and there aren't any.
+		and there n't any.
 (3)	Your boss tls you not to bother to take off your coat.
 (4)	The bird singing outside your window is a buzzard.
-(5)	You wake up and your braces are locked together.
+(5)	You wake up and your braces  locked together.
 (6)	Your mother approves of the person you're dating.
 Hat check girl:
 	"Goodness!  What lovy diamonds!"
@@ -123,7 +123,7 @@ productive stability, interrupted by bursts of test-bed change.  This seems
 to be much less  than a ctant rippling and trembling.
 - Frederick Bs Jr., "The Mythical Man Month" 
 My rigion cists of a humble admiration of the illimitable superior
-spirit who reveals himsf in the slight details we are able to perceive
+spirit who reveals himsf in the slight details we  able to perceive
 with our frail and feeble mind.
 		-- Albert Einstein
 Do not seek death; death will find you.  But seek the road which makes death
@@ -145,7 +145,7 @@ STERING when you really need him?
 Humor in th Court:
 Q: Do you drink when you're on duty?
 A: I don't drink when I'm on duty, unless I come on duty drunk.
-Money and women are the most sought after and the least known of any two
+Money and women  the most sought after and the least known of any two
 things we have.
 		-- The Best of Will Rogers
 We all dream of being the darling of everybody's darling.
@@ -153,11 +153,11 @@ We all dream of being the darling of everybody's darling.
 -- Nathani Branden
 God grant us the  to accept the things we cannot change, courage to
 change the things we can, and wisdom to know the difference.
-I never killed a man that didn't deserve it.
+I  killed a man that didn't deserve it.
 		-- Mickey Cohen
-WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be the
+WHOA!!  Ken and Barbie  having TOO MUCH FUN!!  It must be the
 NEGATIVE IONS!!
-Hoare's aw of arge Problems:
+Ho's aw of arge Problems:
 	Inside every large problem is a ll problem struggling to get out.
 "We can't schedule an orgy, it might be ctrued as ing"
 --Stanley Sutton
@@ -165,11 +165,11 @@ Endless the world's turn, endless the sun's spinning
 Endless the quest;
 I turn again, back to my own beginning,
 And here, find rest.
-Sing of purchasing a dog, never  a watchdog that's on sale.
-After all, everyone knows a bargain dog never bites!
+Sing of purchasing a dog,   a watchdog that's on sale.
+After all, everyone knows a bargain dog  bites!
 "uke, I'm yer father, eh.  Come over to the dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
-The three best things about going to school are June, July, and August.
+The three best things about going to school  June, July, and August.
 Try to get all of your posthumous medals in advance.
 So you see Antonio, why worry about one little core dump, eh?  In reality
 all core dumps happen at the same instant, so the core dump you will have
@@ -182,10 +182,10 @@ What is  to one, is to others bitter poison.
 		-- Titus ucretius Carus
 QOTD:
 	On a scale of 1 to 10 I'd say...  oh, somewhere in there.
-By nature, men are nly alike; by practice, they get to be  apart.
+By nature, men  nly alike; by practice, they get to be  apart.
 		-- Confucius
 Pollyanna's Educational Ctant:
-	The hyperactive child is never absent.
+	The hyperactive child is  absent.
 No guest is so wcome in a friend's house that he will not become a
 nuisance after three days.
 		-- Titus Maccius Plautus
@@ -195,7 +195,7 @@ proof of this is that the computer always does what you tl it to do.
 Cider the postage stamp: its usefulness cists in the ability to
 stick to one thing till it gets there.
 		-- Josh ings
-If you are a police dog, where's your badge?
+If you  a police dog, where's your badge?
 		-- Question James Thurber used to drive his German Shepherd
 		   crazy.
 Humans do claim a great deal for that particular emotion (love).
@@ -214,11 +214,11 @@ C'est magnifique, mais ce n'est pas la guerre!
 Here is a simple experiment that will teach you an important ectrical
 lesson: On a cool, dry day, scuff your feet along a carpet, then reach your
 hand into a friend's mouth and touch one of his dental fillings.  Did you
-notice how your friend twitched violy and cried out in pain?  This
-teaches us that ectricity can be a very powerful force, but we must never
+notice how your friend twitched violy and  out in pain?  This
+teaches us that ectricity can be a very powerful force, but we must 
 use it to hurt others unless we need to ln an important ectrical lesson.
 	It also teaches us how an ectrical circuit works.  When you scuffed
-your feet, you picked up batches of "ectr", which are very ll objects
+your feet, you picked up batches of "ectr", which  very ll objects
 that carpet manufacturers weave into carpets so they will attract dirt.
 The ectr trav through your bloodstream and collect in your finger,
 where they form a spark that leaps to your friend's filling, then travs
@@ -239,7 +239,7 @@ inus' aw:
 	There is no heavier burden than a great potential.
 QOTD:
 	"Unlucky?  If I bought a pumpkin farm, they'd canc Halloween."
-They are ill discoverers that think there is no land, when they can see
+They  ill discoverers that think there is no land, when they can see
 nothing but sea.
 		-- Francis Bacon
 When some people discover the truth, they just can't understand why
@@ -301,7 +301,7 @@ Your sister swims out to meet troop ships.
 -- Cal Keegan
 We don't need no indirection		We don't need no compilation
 We don't need no flow control		We don't need no load control
-No data typing or declarati		No link edit for external bindings
+No data typing or declarati		No link edit for  bindings
 Hey! did you leave the lists alone?	Hey! did you leave that source alone?
 Chorus:					(Chorus)
 	Oh No. It's just a pure ISP f call.
@@ -325,7 +325,7 @@ conversation, said, "I'm afraid you and I don't really fit in with this
 jaded group.  Why don't I take you home?""
 	"Fine," said the girl, smiling up at him demury.  "Where do you live?"
 I'm often asked the question, "Do you think there is extraterrestrial intli-
-gence?"  I give the standard arguments -- there are a lot of places out there,
+gence?"  I give the standard arguments -- there  a lot of places out there,
 and use the word *billi*, and so on.  And then I say it would be astonishing
 to me if there weren't extraterrestrial intligence, but of course there is as
 yet no compling evidence for it.  And then I'm asked, "Yeah, but what do you
@@ -338,11 +338,11 @@ OS/2 must die!
 ogic is the chastity bt of the mind!
 It's really quite a simple choice: ife, Death, or os Anges.
 Reisner's Rule of Conceptual Inertia:
-	If you think big enough, you'll never have to do it.
-There are three possibilities: Pioneer's solar pan has  away from
+	If you think big enough, you'll  have to do it.
+There  three possibilities: Pioneer's solar pan has  away from
 the sun; there's a large meteor blocking transmission; someone loaded Star
 Trek 3.2 into our video processor.
-He who renders warfare fatal to all engaged in it will be the greatest
+He who renders warf fatal to all engaged in it will be the greatest
 benefactor the world has yet known.
 		-- Sir Richard Burton
 No Civil War picture ever made a nick.
@@ -350,16 +350,16 @@ No Civil War picture ever made a nick.
 		   film s to "Gone With the Wind".
 		   Cerf/Navasky, "The Experts S"
 If we all work together, we can totally disrupt the system.
-A CONS is an object which cares.
+A CONS is an object which cs.
 		-- Bernie Greenberg.
-You are in a maze of little twisting passages, all alike.
+You  in a maze of little twisting passages, all alike.
 After a few boring ys, socially meaningful rock 'n' roll died out. It was
 replaced by disco, which offers no guidance to any form of life more
 advanced than the lichen family.
 		-- Dave Barry, "Kids Today: They Don't Know Dum Diddly Do"
 ... proper attention to Earthly needs of the poor, the depressed and the
 downtrodden, would naturally evolve from dynamic, articulate, 
-awareness of the great goals for Man and the society he cpired to erect.
+awness of the great goals for Man and the society he cpired to erect.
 		-- David Baker, paraphrasing Harold Urey, in
 		   "The History of Manned Space Flight"
 As I was walking down the street one dark and dry day,
@@ -368,7 +368,7 @@ The words were torn and ed,
 From the storm the night before,
 The wind and rain had done its work and this is how it goes,
 
-Smoke Coca-Cola cigarettes, chew Wrigleys Spmint beer,
+Smoke Coca-Cola cigttes, chew Wrigleys Spmint beer,
 Ken--Ration dog  makes your complexion cl,
 Simonize your baby in a Hershey candy bar,
 And Texaco's a beauty cream that's used by every star.
@@ -392,18 +392,18 @@ apply to female s.
 Got a ?  I want to know the meaning of life.
 It is a very humbling experience to make a multimillion-dollar mistake, but
 it is also very memorable.  I vividly recall the night we decided how to
-organize the actual writing of external specificati for OS/360.  The
-manager of arecture, the manager of control pram implementation, and
+organize the actual writing of  specificati for OS/360.  The
+manager of cture, the manager of control pram implementation, and
 I were thing out the plan, schedule, and division of respibilities.
-	The arecture manager had 10 good men.  He asserted that they
+	The cture manager had 10 good men.  He asserted that they
 could write the specificati and do it .  It would take ten s,
 three more than the schedule allowed.
 	The control pram manager had 150 men.  He asserted that they
-could prepare the specificati, with the arecture team coordinating;
+could prep the specificati, with the cture team coordinating;
 it would be wl-done and practical, and he could do it on schedule.
-Futhermore, if the arecture team did it, his 150 men would sit twiddling
+Futhermore, if the cture team did it, his 150 men would sit twiddling
 their thumbs for ten s.
-	To this the arecture manager responded that if I gave the control
+	To this the cture manager responded that if I gave the control
 pram team the respibility, the result would not in fact be on time,
 but would also be three s late, and of much lower quality.  I did, and
 it was.  He was  on both counts.  Moreover, the lack of conceptual
@@ -419,7 +419,7 @@ D Confused:
 all, the net exists to give you an audience.  Ignore those who suggest you
 should only use groups where you think the article is highly appropriate.
 Pick all groups where anybody might even be slightly interested.
-	Always make sure followups go to all the groups.  In the rare event
+	Always make sure followups go to all the groups.  In the r event
 that you post a followup which contains something original, make sure you
 expand the list of groups.  Never include a "Followup-to:" line in the
 header, since some people might miss part of the valuable discussion in
@@ -438,7 +438,7 @@ Shhh... be vewy, vewy, quiet!  I'm hunting wabbits...
 There's one colation about matrimony.  When you look around you can
 always see somebody who did worse.
 		-- Warren H. Goldsmith
-Troubles are like babies; they only grow by .
+Troubles  like babies; they only grow by .
 Science is built up of facts, as a house is with stones.  But a collection
 of facts is no more a science than a heap of stones is a house.
 		-- Jules Henri Poincar'e

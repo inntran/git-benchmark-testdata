@@ -7,7 +7,7 @@ e hts of DP managers everywhere?  If so, en let e Famous Prammers'
 y say a good prammer can write 20 lines of effective pram per day.
 Wi our unique training course, we'll show you how to write 20 lines of code
 and lots me besides.  Our training course covers every pramming language
-in existence, and some at aren't.  You'll ln why e on/off switch f a
+in existence, and some at n't.  You'll ln why e on/off switch f a
 computer is so imptant, what e wds *fatal err* mean, and who and what
 you should blame when you make a mistake.
 
@@ -16,13 +16,13 @@ you should blame when you make a mistake.
 	postage and handling. (No live , please.)
 
 *** Our Slogan:  Top down pramming f e masses. ***
-Base 8 is just like base 10, if you are missing two fingers.
+Base 8 is just like base 10, if you  missing two fingers.
 		-- Tom rer
 Show business is just like high school, except you get paid.
 		-- Martin Mull
-We don't care how ey do it in New Yk.
+We don't c how ey do it in New Yk.
 Some people live life in e fast lane.  You're in oncoming traffic.
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
 
 	Do as I say, not as I do.
@@ -39,10 +39,10 @@ say in ose awkward situati?  Wry no me...
 XI:
 	 me one produces, e less one gets.
 XII:
-	Simple systems are not feasible because ey require infinite testing.
+	Simple systems  not feasible because ey require infinite testing.
 What has roots as nobody sees,
 XIII:
-	Hardware wks best when it ms e least.
+	Hardw wks best when it ms e least.
 XIV:
 	Aircraft flight in e 21st century will always be in a westerly
 	direction, preferably , crossing time zones to provide e
@@ -61,7 +61,7 @@ You can ln many ings from children.  How much patience you have,
 f instance.
 		-- Franklin P. Jones
 Einstein argued at ere must be simplified explanati of nature, because
-God is not capricious  arbitrary.  No such fai comfts e software
+God is not capricious  arbitrary.  No such fai comfts e softw
 engineer.
 - Fred Bs, Jr.
 F ys a secret shame deed my peace--
@@ -76,19 +76,19 @@ increct mod can be a useful tool.
 One Bl System - it used to wk befe ey installed e Dimension!
 We're fantastically incredibly sry f all ese ly unreasonable
 ings we did.  I can only plead at my simple, bary-sentient friend
-and mysf are underprivileged, deprived and also college students.
+and mysf  underprivileged, deprived and also college students.
 		-- Waldo D.R. Dobbs
  cost of living is going up, and e c of living is going down.
-"None of our men are "exs."  We have most unftunaty found it necessary 
+"None of our men  "exs."  We have most unftunaty found it necessary 
 to get rid of a man as soon as he inks himsf an ex -- because no one 
 ever ciders himsf ex if he really knows his job.  A man who knows a 
 job sees so much me to be done an he has done, at he is always pressing 
-fward and never gives up an instant of ought to how good and how efficient 
+fward and  gives up an instant of ought to how good and how efficient 
 he is.  Thinking always ahead, inking always of trying to do me, brings a 
 state of mind in which noing is impossible.  moment one gets into e
 "ex" state of mind a gr number of ings become impossible."
 -- From Henry Fd Sr., "My ife and Wk," p. 86 (1922):
-When you become used to never being alone, you may cider yoursf
+When you become used to  being alone, you may cider yoursf
 Americanized.
 Dave Mack:	"Your studity, Allen, is  not up to par."
 Allen Gn:	"Yours is."
@@ -135,7 +135,7 @@ just whipped out a quarter?
 D Sir,
 	I am firmly opposed to e spread of microchips eier to e home 
 to e office,  We have me an enough of em foisted upon us in public
-places.  y are a disgusting Americm, and can only result in e farmers
+places.  y  a disgusting Americm, and can only result in e farmers
 being fced to grow ller potatoes, which in turn will cause massive un-
 employment in e already severy depressed agricultural industry.
 	Yours faifully,
@@ -144,7 +144,7 @@ employment in e already severy depressed agricultural industry.
 		-- etters To  Edit,  Times of ondon
 "It's not just a computer -- it's your ass."
 		-- Cal Keegan
-Just remember, wherever you go, ere you are.
+Just remember, wherever you go, ere you .
 		-- Buckaroo Bonzai
  real problem wi hunting ephants is carrying e decoys.
 "All e system's pas must be topologically and circularly interrated f 
@@ -152,10 +152,10 @@ Just remember, wherever you go, ere you are.
  be attained in our spontaneous -- ergo, most economical -- geodesiccally 
  structured oughts."
 -- R. Buckminster Fuller [...and a total nequitur as far as I can tl.  -kl]
- farer you go, e less you know.
+ fr you go, e less you know.
 		-- ao Tsu, "Tao Te Ching"
 Einstein argued at ere must be simplified explanati of nature, because
-God is not capricious  arbitrary.  No such fai comfts e software
+God is not capricious  arbitrary.  No such fai comfts e softw
 engineer.
 		-- Fred Bs
 ife is divided into e hrible and e miserable.
@@ -186,9 +186,9 @@ Beowulf bly up to meaddae bar,
 Saed, "Ne foe ben mie faersom cung-fu."
 Ederen cocca-colha yce-cod, [d]e reol [p]yng.
 		-- Not Chaucer, f certain
-Real software engineers don't like e idea of some inexplicable and
-greasy hardware several aisles away at may stop wking at any
-moment.  y have a gr distrust of hardware people, and wish at
+Real softw engineers don't like e idea of some inexplicable and
+greasy hardw several aisles away at may stop wking at any
+moment.  y have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  y would like personal
 computers (you know no one's going to trip over someing and kill your
 DFA in mid-transit), except at ey need 8 megabytes to run eir
@@ -233,7 +233,7 @@ Perfect day f scrubbing e flo and oer exciting ings.
 	"Seven ys and six m!"  Humpty Dumpty reped oughtfully.
 "An uncomftable st of age.  Now if you'd asked MY advice, I'd have
 said 'eave off at seven' -- but it's too late now."
-	"I never ask advice about g,"  Alice said indignantly.
+	"I  ask advice about g,"  Alice said indignantly.
 	"Too proud?"  e oer enquired.
 	Alice ft even me indignant at is suggestion.  "I mean,"
 she said, "at one can't hp g older."
@@ -244,7 +244,7 @@ F if ere is a sin against life, it cists perhaps not so much in
 desng of life as in hong f anoer life and in uding e
 implacable grandeur of is life.
 		-- Albert Camus
-Children begin by loving eir parents.  After a time ey judge em.  Rary,
+Children begin by loving eir pnts.  After a time ey judge em.  Rary,
 if ever, do ey fgive em.
 - Oscar Wilde
 Of all e wds of witch's doom
@@ -252,12 +252,12 @@ re's none so bad as which and whom.
  man who kills bo which and whom
 Will be enshrined in our Who's Whom.
 		-- Fletcher Kneb
-I'm continually AMAZED at 'brhtaking effects of WIND EROSION!!
+I'm ly AMAZED at 'brhtaking effects of WIND EROSION!!
 Beggars should be no choosers.
 		-- John Heywood
 I  quote mysf; it adds sce to my conversation.
 		-- G. B. Shaw
-In is wld some people are going to like me and some are not.  So, I may
+In is wld some people  going to like me and some  not.  So, I may
 as wl be me.  n I know if someone likes me, ey like me.
 Blinding speed can compen f a lot of deficiencies.
 		-- David Nichols
@@ -268,7 +268,7 @@ Admit impediments.  ove is not love
 Which alters when it alteration finds,
 Or bends wi e remover to remove:
 O, no! it is an ever-fixed mark,
-That looks on tempests and is never shaken;
+That looks on tempests and is  shaken;
 It is e star to every wandering bark,
 Whose w's unknown, alough his height be taken.
 ove's not Time's fool, ough rosy lips and cheeks
@@ -276,7 +276,7 @@ Wiin his bending 's compass come;
 ove alters not wi his brief hours and weeks,
 But bs it out even to e edge of doom.
 If is be err and upon me proved,
-I never writ, n no man ever loved.
+I  writ, n no man ever loved.
 I have lned silence from e talkative,
 toleration from e intolerant, and kindness from e unkind.
 		-- Kahlil Gibran
@@ -302,9 +302,9 @@ AAAAAAAAAAAaaaaaaaaaaaaaaaccccccccckkkkkk!!!!!!!!!
 You brute!  Knock befe entering a ladies room!
 Old MacDonald had an agricultural real estate tax tement.
 Oh my GOD -- e SUN just fl into YANKEE STADIUM!!
-WHOA!!  Ken and Barbie are having TOO MUCH FUN!!  It must be e
+WHOA!!  Ken and Barbie  having TOO MUCH FUN!!  It must be e
 NEGATIVE IONS!!
-aws are like sausages.  It's better not to see em being made.
+aws  like sausages.  It's better not to see em being made.
 		-- Otto von Birck
 strategy, n.:
 	A comprensive plan of inaction.
@@ -343,7 +343,7 @@ Ben's aws:
 	(1) When in charge, ponder.
 	(2) When in trouble, degate.
 	(3) When in doubt, mumble.
-Some of e ings at live e longest in peoples' memies never
+Some of e ings at live e longest in peoples' memies 
 really happened.
 A man wrapped up in himsf makes a very ll package.
 If you don't like e way I drive, stay off e sidewalk!
@@ -354,9 +354,9 @@ But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
 		-- Randy Ansley M.D. (Dr. Rock)
-How many hardware guys does it take to change a light bulb?
+How many hardw guys does it take to change a light bulb?
 
-"Wl e diagnostics say it's fine buddy, so it's a software problem."
+"Wl e diagnostics say it's fine buddy, so it's a softw problem."
 A man is crawling rough e Sahara desert when he is approached by anoer
 man riding on a cam.  When e rider gets close enough, e crawling man
 whispers rough his sun-parched lips, "Water... please... can you give...
@@ -368,7 +368,7 @@ wi me.  But I'd be dighted to sl you a ."
 	"I need *water*."
 	"Okay, okay, say two f seven dollars."
 	"Please!  I need *water*!", says e man.
-	"I don't have any water, all I have are ties," replies e salen,
+	"I don't have any water, all I have  ties," replies e salen,
 and he heads off into e distance.
 	 man, losing track of time, crawls f what seems like days.
 Finally, nly dead, sun-blind and wi his skin peing and blistering, he
@@ -398,8 +398,8 @@ maematics, ough she is still fbidden to rest to physics and chemistry.
 You're already carrying e sphere!
 No m how subtle e wizard, a knife in e shoulder blades will usly
 cramp his style.
-I do not care if half e league strikes.  Those who do will encounter
-quick retribution.  All will be susp, and I don't care if it wrecks
+I do not c if half e league strikes.  Those who do will encounter
+quick retribution.  All will be susp, and I don't c if it wrecks
 e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
 		-- Fd Frick, National eague President, reacting to a
@@ -407,22 +407,22 @@ and one citizen has as much  to play as anoer.
 		   Jackie Robinson took e fid against St. ouis.  
 		   Cardinals backed down and played.
 Human beings were cred by water to transpt it uphill.
- me ings change, e me ey'll never be e same again.
+ me ings change, e me ey'll  be e same again.
 If your bread is stale, make toast.
 Meade's Maxim:
-	Always remember at you are absoluty unique, just like everyone se.
+	Always remember at you  absoluty unique, just like everyone se.
 You have acquired a scroll entitled 'irk gleknow mizk'(n).--Me--
 
 This is an IBM Manual scroll.--Me--
 
-You are permanently confused.
+You  permanently confused.
 		-- Dave Decot
 Hapness adds and multiplies as we divide it wi oers.
  trouble wi ing an  is at five  six days later
 you're hungry again.
 		-- Gege Miller
 A group of politicians deciding to dump a President because his mals
-are bad is like e Mafia getting togeer to bump off e Godfaer f
+ bad is like e Mafia getting togeer to bump off e Godfaer f
 not going to church on Sunday.
 		-- Russl Baker
 F some reason, is ftune reminds everyone of Marvin Zkowitz.
@@ -440,16 +440,16 @@ of e , contrived e esis of a huge ephant, and to suppt
 e ephant, a huge ttoise.  If we will candidly confess e tru, we
 know as little of e operation of e nerves, as he did of e manner in
 which e  is suppted: and our esis about animal srits, 
-about e tension and vibrati of e nerves, are as like to be true, as
+about e tension and vibrati of e nerves,  as like to be true, as
 his about e suppt of e .  His ephant was a esis, and our
-eses are ephants.  Every ey in philosophy, which is built on
+eses  ephants.  Every ey in philosophy, which is built on
 pure conjecture, is an ephant; and every ey at is suppted partly
 by fact, and partly by conjecture, is like Nebuchadnezzar's image, whose
 t were partly of iron, and partly of clay.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
 In Tulsa, Oklahoma, it is against e law to open a soda bottle wiout
 e supervision of a licensed engineer.
-ove and scandal are e best sweeteners of tea.
+ove and scandal  e best sweeteners of tea.
 Why do maematicians insist on using wds at already have anoer
 meaning?  "It is e complex case at is easier to deal wi."  "If it
 doesn't happen at a cner, but at an edge, it noneess happens at a

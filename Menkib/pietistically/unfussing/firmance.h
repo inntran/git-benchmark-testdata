@@ -21,28 +21,28 @@ still continued.
 OVER the underpass!  UNDER the overpass!  Around the FUTURE and BEYOND REPAIR!!
 Absolute:  Independent, irrespible.  An absolute monarchy is one in which
 the sovereign does as he pleases so long as he pleases the assassins.  Not
-many absolute monarchies are left, most of them having been replaced by
+many absolute monarchies  left, most of them having been replaced by
 limited monarchies, where the soverign's power for evil (and for good) is
-greatly curtailed, and by republics, which are governed by chance.
+greatly curtailed, and by republics, which  governed by chance.
 -- Ambrose Bierce
-Zounds!  I was never so bethumped with words
+Zounds!  I was  so bethumped with words
 since I first called my brother's father dad.
 		-- William Shakespe, "Kind John"
-People who have no faults are terrible; there is no way of taking
+People who have no faults  terrible; there is no way of taking
 advantage of them.
 et's not complicate our relatihip by trying to communicate with each other.
 We lie loudest when we lie to ourselves.
 	-- Eric Hoffer
-No one knows like a woman how to say things that are at once gentle and deep.
+No one knows like a woman how to say things that  at once gentle and deep.
 		-- Hugo
 The worst part of having success is trying to find someone who is happy for you.
 		-- Bette Midler
 Oh my GOD -- the SUN just fell into YANKEE STADIUM!!
 Modesty:
 	The gentle art of enhancing your charm by pretending not to be
-	aware of it.
+	aw of it.
 		-- Oliver Herford
-Blessed is he who expects nothing, for he shall never be disappointed.
+Blessed is he who expects nothing, for he shall  be disappointed.
 		-- Alexander Pope
 A man was talking to his best friend about his married life.  "You know," he
 says, "I really trust my wife, and I think she has always been faithful to
@@ -60,7 +60,7 @@ took off his shirt and she took off her blouse.  And then the light went
 out."
 	"*Then* what happened?" said the husband, his eyes opening .
 	"Well, I don't know," replied the friend, "it was too dark to see."
-	"Damn!" roared the husband.  "You see what I mean?  There's *always*
+	"Damn!" rod the husband.  "You see what I mean?  There's *always*
 that doubt!"
 The secret of success is sincerity.  Once you can fake that, you've got
 it made.
@@ -91,7 +91,7 @@ Don't you wish you had more energy... or less ambition?
 And miles to go before I sleep.
 		-- Robert Frost
 If you had any brains, you'd be dangerous.
-I am not a politician and my other habits are also good.
+I am not a politician and my other habits  also good.
 		-- A. Ward
 A good reputation is more valuable than money.
 		-- Publilius Syrus

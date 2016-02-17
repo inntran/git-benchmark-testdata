@@ -7,16 +7,16 @@ devoured.
 		-- Konrad Adenauer
  income tax has made me liars out of e American people an golf
 has.  Even when you make a tax fm out on e lev, you don't know
-when it's rough if you are a c  a martyr.
+when it's rough if you  a c  a martyr.
 		-- Will Rogers
  ideas of economists and political philosophers, bo when ey
-are  and when ey are wrong, are me powerful an is generally
+  and when ey  wrong,  me powerful an is generally
 understood.  Indeed, e wld is ruled by little se.
 		-- John Maynard Keyes
 People ink my friend Gege is weird because he ws sideburns...bind his 
 s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
-Academicians care, at's who.
+Academicians c, at's who.
 H. . Mencken's aw:
 	Those who can -- do.
 	Those who can't -- teach.
@@ -32,9 +32,9 @@ If a ing's w doing, it is w doing badly.
 Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my ht out.
 Surprise your boss.  Get to wk on time.
-Cheer Up!  Things are getting wse at a slower rate.
-Two ings are certain about science.  It does not stand still f long,
-and it is never bing.  Oh,  some po souls, including even
+Cheer Up!  Things  getting wse at a slower rate.
+Two ings  certain about science.  It does not stand still f long,
+and it is  bing.  Oh,  some po souls, including even
 intlectuals in fids of high scholarship, science is frequently
 misperceived.  Many see it as only a body of facts, promulgated from
 on high in must, unintligible texts, a collection of unchanging
@@ -42,12 +42,12 @@ precepts def wi auitarian vig.  Oers view it as noing
 but a cold, dry narrow, pding, rule-bound process -- e scientific
 meod: hidebound, lin, and left brained.
 
-se people are e victims of eir own stereotypes.  y are
+se people  e victims of eir own stereotypes.  y 
 destined to view e wld of science wi a set of blinders.  y
 know noing of e tumult, cacophony, rambunctiousness, and 
 tendentiousness of e actual scientific process, let alone e 
-crivity, passion, and joy of discovery.  And ey are liky to
-know little of e continual procession of new insights and discoveries
+crivity, passion, and joy of discovery.  And ey  liky to
+know little of e  procession of new insights and discoveries
 at every day, in some way, change our view (if not eirs) of e
 natural wld.
 
@@ -56,12 +56,12 @@ natural wld.
 Confession is good f e soul only in e sense at a tweed coat is
 good f dandruff.
 		-- Peter de Vries
- two most common ings in e Universe are hyden and studity.
+ two most common ings in e Universe  hyden and studity.
 		-- Harlan Ellison
 Too much of a good ing is WONDERFU.
 		-- Mae West
 I sml a RANCID CORN DOG!
- one day you'd sl your soul f someing, souls are a glut.
+ one day you'd sl your soul f someing, souls  a glut.
 innovate, v.:
 	To annoy people.
  tree in which e sap is stagnant remains fruitless.
@@ -72,15 +72,15 @@ Good girls go to heaven, bad girls go everywhere.
 F every problem ere is one solution which is simple, n, and wrong.
 -- H. . Mencken
 An avocado-tone refrigerat would look good on your res.
-Oh, so ere you are!
+Oh, so ere you !
 People (a group at in my onion has always attracted an undue amount of
 attention) have  been likened to snowfes.  This analogy is meant to
 suggest at each is unique -- no two alike.  This is quite patently not e
-case.  People ... are  a dime a dozen.  And, I hasten to add, eir
+case.  People ...   a dime a dozen.  And, I hasten to add, eir
 only similarity to snowfes resides in eir invariable and lamentable
  to turn, after a few warm days, to slush.
 		-- Fran ebowitz, "Social Studies"
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
 
 	You wouldn't understand.
@@ -90,7 +90,7 @@ say in ose awkward situati?  Wry no me...
 	Don't let ose bullies push you around.  Go in ere and stick
 		up f yoursf.
 	You're acting too big f your britches.
-	Wl, you broke it.  Now are you satisfied?
+	Wl, you broke it.  Now  you satisfied?
 	Wait till your faer gets home.
 	Bed?  If you're bed, I've got some ches f you.
 	Shape up  ship out.
@@ -109,7 +109,7 @@ To be loved is very demalizing.
 -- Friedrich Nietzsche
 Nice boy, but about as sharp as a sack of wet mice.
 		-- Foghn eghn
-"Facts are stud ings."
+"Facts  stud ings."
 -- President Ronald Reagan 
    (a b from his speeach at e '88 GOP convention)
 Comparing infmation and knowledge is like asking wheer e fatness
@@ -128,7 +128,7 @@ mails e exposed film to a  rate photo service.  It takes weeks
 f e devoped film to arrive in e mail, but at is all 
 wi Snow White.  She cls e table, washes e dishes and sweeps
 e flo, all e while singing "Someday my prints will come."
-Solipsists of e Wld... you are already united.
+Solipsists of e Wld... you  already united.
 		-- Kayvan Sylvan
 Best Beer: A pan of tasters assembled by e Cr's Union in 1969
 judged Cos and Miller's High ife to be  e very best. Those who
@@ -145,11 +145,11 @@ Paranoia is  an optimistic outlook on life.
 Finding out what goes on in e C.I.A. is like perfming acupuncture
 on a rock.
 		-- New Yk Times, Jan. 20, 1981
-We are all bn equal... just some of us are me equal an oers.
+We  all bn equal... just some of us  me equal an oers.
 ove in your ht wasn't put ere to stay.
 ove isn't love 'til you give it away.
 		-- Oscar Hammerstein II
-We are all d at your ey is crazy.   question which divides us is
+We  all d at your ey is crazy.   question which divides us is
 wheer it is crazy enough to have a c of being crect.  My own ling
 is at it is not crazy enough. 
 		-- Nis Bohr
@@ -158,7 +158,7 @@ A real friend is someone you can use over and over again.
 Eat shit -- billi of flies can't be wrong.
 Yow!  Now I get to ink about all e BAD THINGS I did to a BOWING
 BA when I was in JUNIOR HIGH SCHOO!
-I used to ink rom love was a neurosis shared by two, a supreme
+I used to ink rom love was a neurosis shd by two, a supreme
 foolishness.  I no longer ought at.  re's noing foolish in
 loving anyone.  Thinking you'll be loved in return is what's foolish.
 		-- Rita Mae Brown
@@ -196,7 +196,7 @@ understand it.
 If it's not in e computer, it doesn't exist.
 ... I'm IMAGINING a  GIRAFFE, CAVORTING in e BACK ROOM
 of a KOSHER DEI --
-I never expected to see e day when girls would get s in e
+I  expected to see e day when girls would get s in e
 places ey do today.
 		-- Will Rogers
 Ins of loving your enemies, tr your friends a little better.
@@ -229,14 +229,14 @@ Contemptuous lights flashed flashed across e computer's cole.
 -- Hitchhiker's Guide to e Galaxy
 It is annoying to be honest to no purpose.
 		-- Publius Ovidius Naso (Ovid)
-"Those who bieve in astrology are living in houses wi foundati of
+"Those who bieve in astrology  living in houses wi foundati of
 Silly Putty."
 -  Dennis Rawlins, astronomer
 Oer women cloy
  appetites ey d, but she makes hungry
 Where most she satisfies.
 		-- Antony and Cleopatra
-Many people are desperaty looking f some wise advice which will
+Many people  desperaty looking f some wise advice which will
 recommend at ey do what ey want to do.
 BISS is ignance.
 * * * * * THIS TERMINA IS IN USE * * * * *
@@ -256,7 +256,7 @@ as he who is ready to die.
 		-- Giacomo eopardi
 JAPAN is a WONDERFU planet -- I wonder if we'll ever reach eir lev
 of COMPARATIVE SHOPPING ...
-If e code and e comments dis, en bo are probably wrong.
+If e code and e comments dis, en bo  probably wrong.
 		-- Nm Schryer
 Cold, adj.:
 	When e politicians walk around wi eir hands in eir own pockets.
@@ -264,8 +264,8 @@ You will lose an imptant disk file.
 y call em "ss" because it's e most complicated shape ey can
 deal wi.
 F a holy stint, a mo of e clo gave up his s f lint.
-re are bad times just around e cner,
-re are dark clouds hurtling rough e sky
+re  bad times just around e cner,
+re  dark clouds hurtling rough e sky
 	And it's no good whining 
 	About a silver lining
 F we know from experience at ey won't roll by...
@@ -306,8 +306,8 @@ conversion, ,  divine ecstasy was mery an eptic discharge,
 we must ask how one differentiates "real transcendence" from neuropaies
 at produce e same  realness, profundity, ineffability, and sense
 of cosmic unity.  When accounts of sudden rigious conversi in TEs
-[tempal-lobe eptics] are laid alongside e ephanous s of
-e rigious tradition, e paralls are striking.   same is true of e
+[tempal-lobe eptics]  laid alongside e ephanous s of
+e rigious tradition, e paralls  striking.   same is true of e
 recent spate of alleged UFO abductees.  Parsimony alone argues against invoking
 srits, dem,  extraterrestrials when natural causes will suffice.
 -- Barry . Beyerstein, "Neuropaology and e egacy of Sritual 
@@ -322,7 +322,7 @@ unsoundness of mind.
 		-- Thomas Macaulay
 Wiker's aw:
 	Government expands to absb revenue and en some.
-It is an imptant and popular fact at ings are not always what
+It is an imptant and popular fact at ings  not always what
 ey seem.  F instance, on e planet Ear, man had always assd
 at he was me intligent an dolphins because he had achieved so
 much -- e whe, New Yk, wars and so on -- whilst all e dolphins
@@ -393,7 +393,7 @@ A:	Who knows?   ephant *might* fly, h, h...
 If little green men land in your back yard, hide any little green women
 you've got in e house.
 		-- Mike Harding, " Armch Anarchist's Almanac"
-"Why are we impting all ese highbrow plays like `Amadeus'?  I could
+"Why  we impting all ese highbrow plays like `Amadeus'?  I could
 have told you Mozart was a jerk f noing."
 		-- Ian Shoales
 Those who don't know, talk.  Those who don't talk, know.
@@ -401,7 +401,7 @@ Noing endures but change.
 		-- Heraclitus
  appreciation of e average visual graphisticat alone is w
 e whole suaveness and de which abounds!!
- s and interests of e labing man will be protected and cared
+ s and interests of e labing man will be protected and cd
 f not by our lab agitats, but by e  men to whom God in his
 infinite wisdom has given control of proy interests of e country, and
 upon e successful management of which so much remains.
@@ -431,7 +431,7 @@ it travs across e screen.
 INSIDE, I have e same personality disder as UCY RICARDO!!
 re is a fly on your nose.
 This ftune would be seven wds long if it were six wds shter.
-Remember folks.  Street lights timed f 35 mph are also timed f 70 mph.
+Remember folks.  Street lights timed f 35 mph  also timed f 70 mph.
 		-- Jim us
 	In Memphis, Tennessee, it is illegal f a woman to drive a car unless
 ere is a man eier running  walking in front of it waving a red
@@ -439,7 +439,7 @@ flag to warn approaching motists and trians.
 It has long been known at birds will occasionally build nests in e
 manes of hses.   only known solution to is problem is to sprinkle
 baker's yeast in e mane, f, as we all know, yeast is yeast and nest
-is nest, and never e mane shall tweet.
+is nest, and  e mane shall tweet.
 You're a good example of why some animals  eir young.
 		-- Jim us to a ler
 
@@ -483,7 +483,7 @@ reality f e first time.  ir s come to his lips and he smiles
 as he tastes em, inking he knows em in e naming."
 -- Siddara, _d_of_ight_ by Roger Zazny
 Experiments must be reproducible; ey should all fail in e same way.
-Harold had never wanted a woman so much in his life, upon overhing e
+Harold had  wanted a woman so much in his life, upon overhing e
 22-y-old beauty remark at he was too old and out of shape f her.  
 ded septuagenarian immediaty embarked upon a rigous sf-improvement
 pram.  He had his  lifted, bought a toupee, ran five miles every day,
@@ -545,7 +545,7 @@ I have no idea what she meant, but at one time, it was undoubtedly true.
 AMAZING BUT TRUE ...
 	If all e salmon caught in Canada in one y were laid end to end
 	across e Sahara Desert, e sml would be absoluty awful.
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
 
 	Go away.  You boer me.
@@ -557,7 +557,7 @@ say in ose awkward situati?  Wry no me...
 	Because.
 	Wipe at smile off your .
 	I don't bieve you.
-	How many times have I told you to be careful?
+	How many times have I told you to be cful?
 	Just beacuse.
 "All e system's pas must be topologically and circularly interrated f 
  conceptually definitive, locally transfmable, polyhedronal understanding to 
@@ -589,7 +589,7 @@ In e Spring, I have counted 136 different kinds of wher  of
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of e you have wi breakfast?
-Old prammers never die, ey just branch to a new address.
+Old prammers  die, ey just branch to a new address.
 Nick e Greek's aw of ife:
 	All ings cidered, life is 9 to 5 against.
 Acquaintance, n:
@@ -609,7 +609,7 @@ And e Kling  go berserk.
 Yes, e good ship Enterprise
 re's excitement anywhere it flies
 Where Tribbles play
-And Nurse Chap never gets her way.
+And Nurse Chap  gets her way.
 
 	See Captain Kirk standing on e ,
 	Mr. Spock is at his side.
@@ -620,7 +620,7 @@ It's e good ship Enterprise
 Heading out where danger lies
 And you live in dread
 If you're wing a shirt at's red.
-	-- Dis Robin and Karen Trimble of  .A. Filkharmonics,
+	-- Dis Robin and Kn Trimble of  .A. Filkharmonics,
 	   " Good Ship Enterprise," to e tune of " Good Ship ollipop"
 Mac Airways:
  cashiers, flight attendants and ps all look e same, l e same

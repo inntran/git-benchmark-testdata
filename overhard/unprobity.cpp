@@ -65,7 +65,7 @@ of the duperies on which they live.
 - Thomas Jefferson
 Pascal is not a high-lev language.
 		-- Steven Feiner
-There are more old drunkards than old doctors.
+There  more old drunkards than old doctors.
 augh at your problems; everybody se does.
 Sometimes, when I think of what that girl means to me, it's all I can do
 to keep from tling her.
@@ -84,9 +84,9 @@ to drive but she will  be expected to read the road map while her
 husband drives, and if she can't, or if she's abnormally slow in giving him
 hp, she's bound to cause trouble.  Therefore, you'd think that colleges
 which train the b young women who're going to marry the b young
-men who are going to own the Cadillacs that roar back and forth across this
+men who  going to own the Cadillacs that roar back and forth across this
 continent would teach the girls to read maps.  None do. They teach a hundred
-other usess things, but never a word about the one that will cause the
+other usess things, but  a word about the one that will cause the
 greatest friction.
 		-- James Michener, "Space"
 A good name lost is sdom regained.  When character is gone,
@@ -106,7 +106,7 @@ They call Alabama the Crimson Tide,
 Call me Deacon Blues.
 		-- er and Fagan, "Deacon Blues"
 A diplomatic husband said to his wife, "How do you expect me to remember
-your birthday when you never look any older?"
+your birthday when you  look any older?"
 "By golly, I'm beginning to think inux really *is* the best thing since
 sliced bread."
 (By Vance Petree, Virginia Power)
@@ -114,7 +114,7 @@ If all the world's a stage, I want to operate the trap door.
 		-- Paul Beatty
 Wiker's aw:
 	Government expands to absorb revenue and then some.
-We may not like doctors, but at least they doctor.  Bankers are not ever
+We may not like doctors, but at least they doctor.  Bankers  not ever
 popular but at least they bank.  Policeman police and undertakers take
 under.  But lawyers do not give us law.  We receive not the gladsome light
 of jurisprudence, but rather precedents, objecti, appeals, stays,
@@ -126,7 +126,7 @@ very
 happy
 acting
 pleased
-whenever
+whe
 prominent
 scientists
 overmagnify
@@ -138,7 +138,7 @@ Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
 him a great deal of pains to become what we now see him.  Such an excess of
 stupidity, sir, is not in Nature.
 		-- u Johnson
-Alimony and bribes will engage a large share of your wealth.
+Alimony and bribes will engage a large sh of your wealth.
 The degree of technical confidence is inversy proportional to the
 lev of management.
 We're all sorry for the other guy when he loses his job to a machine.
@@ -149,12 +149,12 @@ ive long and prosper.
 		-- Spock, "Amok Time", stardate 3372.7
 On-line, adj.:
 	The idea that a human being should always be accessible to a computer.
-Two wrongs are only the beginning.
+Two wrongs  only the beginning.
 		-- Kohn
 Cebrate Hannibal Day this y.  Take an ephant to lunch.
 I'd like some JUNK FOOD ... and then I want to be AONE --
 If in doubt, mumble.
-Disclaimer: "These opini are my own, though for a ll fee they be
+Disclaimer: "These opini  my own, though for a ll fee they be
 yours too."
 		-- Dave Haynie
 Santa Claus is watching!
@@ -162,7 +162,7 @@ Clovis' Cideration of an Atmospheric Anomaly:
 	The perversity of nature is nowhere better demtrated
 	than by the fact that, when exposed to the same atmosphere,
 	bread becomes hard while crackers become soft.
-Excessive login or logout messages are a sure sign of senility.
+Excessive login or logout messages  a sure sign of senility.
 I got tired of listening to the reing on the phone at the movie
 theater.  So I bought the album.  I got kicked out of a theater the
 other day for bringing my own  in.  I argued that the concession
@@ -223,16 +223,16 @@ A: The victim lived.
 Although golf was originally restricted to wealthy, overweight Protestants,
 today it's open to anybody who owns hideous clothing.
 		-- Dave Barry
-You can never tl which way the train went by looking at the tracks.
-To doubt everything or to bieve everything are two equally convenient
+You can  tl which way the train went by looking at the tracks.
+To doubt everything or to bieve everything  two equally convenient
 soluti; both dispense with the necessity of .
 		-- H. Poincar'e
-I never said all Democrats were saloonkeepers; what I said was all
+I  said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
 To err is human,
 To purr fine.
 		-- Robert Byrne
-In a gathering of two or more people, when a lighted cigarette is
+In a gathering of two or more people, when a lighted cigtte is
 placed in an ashtray, the smoke will waft into the  of the non-smoker.
 Wl, O.K.  I'll compromise with my principles because of EXISTENTIA DESPAIR!
 Get Revenge!  ive long enough to be a problem for your children!
@@ -260,20 +260,20 @@ We place two copies of PEOPE magazine in a DARK, HUMID mobile home.
 45 minutes later CYNDI AUPER emerges wing a BIRD CAGE on her head!
 You will overcome the attacks of jealous associates.
 Save yoursf!  Reboot in 5 seconds!
-You are confused; but this is your normal state.
+You  confused; but this is your normal state.
 After the game the king and the p go in the same box.
 		-- an proverb
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
-The ys of  mental activity are undoubtedly between the ages of four
+The ys of  mental activity  undoubtedly between the ages of four
 and eighteen.  At four we know all the questi, at eighteen all the answers.
-The assertion that "all men are created equal" was of no practical use
+The assertion that "all men  created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
 		--  Abraham incoln
-They are rativy good but absoluty terrible.
+They  rativy good but absoluty terrible.
 		-- Alan Kay, commenting on Apollos
-You are a fluke of the universe; you have no  to be here.
+You  a fluke of the universe; you have no  to be here.
 Never accept an invitation from a stranger unless he gives you candy.
 		-- inda Festa
 ... Had this been an actual emergency, we would have fled in terror,
@@ -291,7 +291,7 @@ Wl, it's hard for a mere man to bieve that woman doesn't have equal s.
 Experience is the worst teacher.  It always gives the test first and
 the instruction afterward.
 "Humpf!" Humpfed a voice! "For almost two days you've run wild and insisted on
-chatting with pers who've never existed.  Such carryings-on in our peaceable
+chatting with pers who've  existed.  Such carryings-on in our peaceable
 jungle!  We've had quite enough of you blowing bungle!  And I'm here to
 state," snapped the big kangaroo, "That your silly nensical game is all
 through!"  And the young kangaroo in her pouch said, "Me, too!"
@@ -300,7 +300,7 @@ Uncles and Wickersham Cousins and Wickersham In-aws, whose hp I've engaged,
 You're going to be roped!  And you're going to be caged!  And, as for your dust
 speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Horton Hs a Who"
-Never  facts; if you do you'll never get up in the morning.
+Never  facts; if you do you'll  get up in the morning.
 		-- Marlo Thomas
 	How do you insult a lawyer?
 	You might as wl not even try.  Cider: of all the highly
@@ -312,11 +312,11 @@ unhappy.
 		-- Groucho Marx
 The person who marries for money usually ns every penny of it.
 Fifth aw of Applied Terror:
-	If you are given an open- exam, you will forget your .
+	If you  given an open- exam, you will forget your .
 
 Corollary:
-	If you are given a take-home exam, you will forget where you live.
-If you don't care where you are, then you ain't lost.
+	If you  given a take-home exam, you will forget where you live.
+If you don't c where you , then you ain't lost.
 A young man wrote to Mozart and said:
 
 Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
@@ -324,7 +324,7 @@ Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
 A: "A symphony is a very complex musical form, perhaps you should begin with
    some simple lieder and work your way up to a symphony."
 Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
-A: "But I never asked anybody how."
+A: "But I  asked anybody how."
 ong were the days of pain I have spent within its walls, and
 long were the nights of aloneness; and who can depart from his
 pain and his aloneness without regret?
@@ -343,9 +343,9 @@ I think very probably he might be cured."
 	"Now, what affects it?"
 	"Ah!" said old Yacob.
 	"This," said the doctor, answering his own question.  "Those queer
-things that are called the eyes, and which exist to make an able soft
-depression in the , are diseased, in the case of Bogota, in such a way
-as to affect his brain.  They are greatly distended, he has eyashes, and
+things that  called the eyes, and which exist to make an able soft
+depression in the ,  diseased, in the case of Bogota, in such a way
+as to affect his brain.  They  greatly distended, he has eyashes, and
 his eyids move, and cosequently his brain is in a state of ctant
 irritation and distraction."
 	"Yes?" said old Yacob.  "Yes?"
@@ -363,11 +363,11 @@ following quote from enny Bruce illustrates:
 Eddie Cantor's goyish.  The B'nai Brith is goyish.  The Hadassah is
 Jewish.  Marine Corps -- heavy goyish, dangerous.
 
-	"Kool-Aid is goyish.  All Drake's Cakes are goyish.
+	"Kool-Aid is goyish.  All Drake's Cakes  goyish.
 Pumpernick is Jewish and, as you know, white bread is very goyish.
 Instant potatoes -- goyish.  Black cherry soda's very Jewish.
-Macaro are ____very Jewish.  Fruit salad is Jewish.  ime Jl-O is
-goyish.  ime soda is ____very goyish.  Trailer parks are so goyish that
+Macaro  ____very Jewish.  Fruit salad is Jewish.  ime Jl-O is
+goyish.  ime soda is ____very goyish.  Trailer parks  so goyish that
 Jews won't go n them ..."
 		-- Arthur Naiman, "Every Goy's Guide to Yiddish"
 Fortune's Real-ife Courtroom Quote #37:
@@ -384,16 +384,16 @@ History is curious stuff
 	You'd think by now we had enough
 Yet the fact remains I f
 	They make more of it every y.
-A musician, an artist, an arect:
+A musician, an artist, an ct:
 	the man or woman who is not one of these is not a .
 		-- William Blake
-You are ing for survival in your own sweet and gentle way.
+You  ing for survival in your own sweet and gentle way.
 Alcoholics Anonymous is when you get to drink under someone se's name.
 Getting the job done is no excuse for not following the rules.
 
 Corollary:
 	Following the rules will not get the job done.
-War spares not the brave, but the ly.
+War sps not the brave, but the ly.
 		-- Anacreon
 'Scuse me, while I kiss the sky!
 		-- Robert James Marshall (Jimi) Hendrix
@@ -401,7 +401,7 @@ You can get everything in life you want, if you will hp enough other
 people get what they want.
 Acing to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
-Take Care of the Molehills, and the Mountains Will Take Care of Themsves.
+Take C of the Molehills, and the Mountains Will Take C of Themsves.
 		-- Motto of the Federal Civil Service
 Most people's favorite way to end a game is by winning.
 Why do so many s come packaged in plastic?  It's quite .
@@ -409,8 +409,8 @@ Ahead warp factor one, Mr. Sulu.
 Ah, but the choice of dreams to live,
 there's the rub.
 
-For all dreams are not equal,
-some exit to nightmare
+For all dreams  not equal,
+some exit to nightm
 most end with the dreamer
 
 But at least one must be lived ... and died.
@@ -448,7 +448,7 @@ QOTD:
 --Tammy Faye Bakker
 The truth about a man lies first and foremost in what he hides.
 		-- Andre Malraux
-Also, the Scots are said to have invented golf.  Then they had
+Also, the Scots  said to have invented golf.  Then they had
 to invent Scotch whiskey to take away the pain and frustration.
 "Every Solidarity center had piles and piles of paper .... everyone was
 eating paper and a policeman was at the door.  Now all you have to do is
@@ -462,7 +462,7 @@ K:	Cobalt's metal, hard and shining;
 	KOBODS topple when you strike them;
 	Don't fe bad, it's hard to like them.
 		-- The Roguet's ABC
-This is a country where people are free to practice their rigion,
+This is a country where people  free to practice their rigion,
 regardless of race, creed, color, obesity, or number of dangling keys...
 MAC user's dynamic debugging list evaluator?  Never hd of that.
 MOUNT TAPE U1439 ON B3, NO RING
@@ -470,7 +470,7 @@ Tephone, n.:
 	An invention of the devil which abates some of the advantages
 	of making a disable person keep his distance.
 		-- Ambrose Bierce
-All great ideas are controversial, or have been at one time.
+All great ideas  controversial, or have been at one time.
 To the systems prammer, users and applicati serve only to provide a
 test load.
 	How do you insult a lawyer?
@@ -485,9 +485,9 @@ You like to form new friendships and make new acquaintances.
 Victory or defeat!
 Don't get mad, get interest.
 Here comes the orator, with his flood of words and his drop of reason.
-If you don't have time to do it , where are you going to find the time
+If you don't have time to do it , where  you going to find the time
 to do it over?
-New members are urgently needed in the Society for Prevention of
+New members  urgently needed in the Society for Prevention of
 Cruty to Yoursf.  Apply within.
 	There was once a prammer who was attached to the court of the
 warlord of Wu.  The warlord asked the prammer: "Which is easier to design:
@@ -538,7 +538,7 @@ Good judgement comes from experience.  Experience comes from bad judgement.
 		-- Jim Horning
 How do I type "for i in *.dvi do xdvi i done" in a GUI?
 (Discussion in comp.os.linux.misc on the intuitiveness of inters.)
-Many Myths are based on truth
+Many Myths  based on truth
 		-- Spock, "The Way to Eden",  stardate 5832.3
 Have a taco.
 		-- P.S. Beagle
@@ -560,10 +560,10 @@ women.
 It's a recession when your neighbour loses his job; it's a depression
 when you lose yours.
 		-- Harry S. Truman
-You're growing out of some of your problems, but there are others that
+You're growing out of some of your problems, but there  others that
 you're growing into.
 When a shepherd goes to kill a wolf, and takes his dog along to see
-the sport, he should take care to avoid mistakes.  The dog has certain
+the sport, he should take c to avoid mistakes.  The dog has certain
 ratihips to the wolf the shepherd may have forgotten.
 		-- Robert Pirsig, "Zen and the Art of Motorcycle Maintenance"
 Hand, n.:
@@ -574,7 +574,7 @@ The fancy is indeed no other than a mode of memory emancipated from the
 of space and time.  -- u Taylor Coleridge
 Bagbiter:
 	1. n.; Equipment or pram that fails, usually intermittently.  2.
-adj.: Failing hardware or software.  "This bagbiting system won't let me get
+adj.: Failing hardw or softw.  "This bagbiting system won't let me get
 out of spacewar." Usage: verges on obscenity.  Grammatically separable; one
 may s of "biting the bag".  Synonyms: OSER, OSING, CRETINOUS,
 BETCHEROUS, BARFUCIOUS, CHOMPER, CHOMPING.

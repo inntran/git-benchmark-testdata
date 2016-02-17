@@ -11,18 +11,18 @@ Do be do be do!
 Yabba-Dabba-Doo!
 		-- F. Flintstone
 Fuch's Warning:
-	If you actually look like your passport photo, you aren't well
+	If you actually look like your passport photo, you n't well
 	enough to travel.
-Psychiatry enables us to correct our faults by confessing our parents'
+Psychiatry enables us to correct our faults by confessing our pnts'
 shortcomings.
 		-- Laurence J. Peter, "Peter's Principles"
-Your reasoning powers are good, and you are a fairly good planner.
+Your reasoning powers  good, and you  a fairly good planner.
 How can you think and hit at the same time?
 		-- Yogi Berra
 Cohn's Law:
-	The more time you spend in reporting on what you are doing, the less
+	The more time you spend in reporting on what you  doing, the less
 	time you have to do anything.  Stability is achieved when you spend
-	all your time reporting on the nothing you are doing.
+	all your time reporting on the nothing you  doing.
 The hardest part of climbing the ladder of success is getting through
 the crowd at the bottom.
 Great American Axiom:
@@ -66,7 +66,7 @@ such difficult conditions.
 		-- Laurence J. Peter
 People love high ideals, but they got to be about 33-percent plausible.
 		-- The Best of Will Rogers
-It is impossible to make anything foolproof because fools are so ingenious.
+It is impossible to make anything foolproof because fools  so ingenious.
 Reader, suppose you were an idiot.  And suppose you were a member of
 Congress.  But I repeat myself.
 		-- Mark Twain
@@ -89,7 +89,7 @@ Art is a jealous mistress.
 Good advice is one of those insults that ought to be forgiven.
 He that bringeth a present, findeth the door open.
 		-- Scottish proverb.
-If you think nobody cares if you're alive, try missing a couple of car
+If you think nobody cs if you're alive, try missing a couple of car
 payments.
 		-- Earl Wilson
 SHOP OR DIE, people of Earth!
@@ -100,7 +100,7 @@ QOTD:
 Machines certainly can solve problems, store information, correlate,
 and play games -- but not with pleasure.
 		-- Leo Rosten
-Paranoia is heightened awareness.
+Paranoia is heightened awness.
 Life only demands from you the strength you possess.
 Only one feat is possible -- not to have run away.
 		-- Dag Hammarskjold
@@ -118,7 +118,7 @@ The gods gave man fire and he invented fire engines.  They gave him
 love and he invented marriage.
 Paul's Law:
 	In America, it's not how much an item costs, it's how much you save.
-There are three possibilities: Pioneer's solar panel has turned away from
+There  three possibilities: Pioneer's solar panel has turned away from
 the sun; there's a large meteor blocking transmission; someone loaded Star
 Trek 3.2 into our video processor.
 	Excellence is THE trend of the '80s.  Walk into any shopping
@@ -128,7 +128,7 @@ how to be excellent: "In Search of Excellence", "Finding Excellence",
 "Grasping Hold of Excellence", "Where to Hide Your Excellence at Night
 So the Cleaning Personnel Don't Steal It", etc.
 		-- Dave Barry, "In Search of Excellence"
-We are anthill men upon an anthill world.
+We  anthill men upon an anthill world.
 		-- Ray Bradbury
 It's currently a problem of access to gigabits through punybaud.
 -- J. C. R. Licklider
@@ -138,10 +138,10 @@ the milk.
 Newton's Little-Known Seventh Law:
 	A bird in the hand is safer than one overhead.
 Life is an exciting business, and most exciting when it is lived for others.
-Since aerosols are forbidden, the police are using roll-on Mace!
+Since aerosols  forbidden, the police  using roll-on Mace!
 Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
-When you try to make an impression, the chances are that is the
+		-- William Shakespe, "The Merchant of Venice"
+When you try to make an impression, the chances  that is the
 impression you will make.
 TeX is potentially the most significant invention in typesetting in this
 century.  It introduces a standard language for computer typography, and in

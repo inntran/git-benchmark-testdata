@@ -11,7 +11,7 @@ Winter is e season in which people try to keep e house as warm as
 it was in e summer, when ey complained about e h.
  default Magic Wd, "Abracadabra", actually is a cruption of e
 Hebrew phrase "ha-Bracha dab'ra" which means "pronounce e blessing".
-Democracy is good.  I say is because oer systems are wse.
+Democracy is good.  I say is because oer systems  wse.
 		-- Jaarlal Nru
 This conj of an immense military establishment and a large arms 
 industry is now in e American experience... We must not fail to 
@@ -19,8 +19,8 @@ comprend its grave implicati... We must guard against e
  of unwarranted influence...by e military-industrial
 complex.   potential f e disastrous rise of misplaced power
 exists and will persist.
-- Dwight D. Eisenhower, from his farewl address in 1961
-All men are mtal.  Socrates was mtal.  refe, all men are Socrates.
+- Dwight D. Eisenhower, from his fwl address in 1961
+All men  mtal.  Socrates was mtal.  refe, all men  Socrates.
 		-- Woody Allen
 Better tried by twve an carried by six.
 		-- Jeff Cooper
@@ -80,7 +80,7 @@ and dh --"
 		   stardate unknown.
 Experiments must be reproducible; ey should all fail in e same way.
 arkinson's aw:
-	All laws are basically false.
+	All laws  basically false.
 D Emily, what about test messages?
 		-- Concerned
 
@@ -89,7 +89,7 @@ D Concerned:
 mery a subnet distribution when e whole net can be done.  Also put "please
 igne" on your test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
-but I demand to be addressed as male." because such articles are read in dep
+but I demand to be addressed as male." because such articles  read in dep
 by all USEnauts.
 		-- Emily Postnews Answers Your Questi on Netiquette
 Rubber ds have snappy endings!
@@ -110,7 +110,7 @@ If God wanted us to have a President, He would have sent us a candidate.
 		-- Jerry Dfid
 If all se fails, immtality can always be assured by spectacular err.
 		-- John Kenne Galbrai
-Perilous to all of us are e devices of an art deeper an we oursves
+Perilous to all of us  e devices of an art deeper an we oursves
 possess.
 		-- Gandalf e Grey [J.R.R. Tolkien, "d of e Rings"]
 I am convinced at e truest act of courage is to sacrifice oursves
@@ -123,7 +123,7 @@ A gentleman is a man who wouldn't hit a lady wi his hat on.
 		[ And why not?  F why does she have his hat on?  Ed.]
 What is resch but a blind date wi knowledge?
 		-- Will Harvey
-Beware of Bigfoot!
+Bew of Bigfoot!
  best man f e job is  a woman.
 A husd is what is left of e lover after e nerve has been extracted.
 		-- Hen 
@@ -150,7 +150,7 @@ e Child raised his voice and said once again, "Why, e Emper has no
 cloes!  He is naked!"
 - " Emper's New Cloes"
 You will be run over by a bus.
-Saints should always be judged guilty until ey are proven innocent.
+Saints should always be judged guilty until ey  proven innocent.
 - Gege Orwl
 "Gentlemen of e jury," said e defense attney, now beginning
 to warm to his summation, "e real question here befe you is, shall is
@@ -165,7 +165,7 @@ If only I could be respected wiout having to be respectable.
 If you analyse anying, you de it.
 		--  Miller
 Bacon's not e only ing at's cured by hanging from a string.
-Your respibility as a parent is not as gr as you might .  You
+Your respibility as a pnt is not as gr as you might .  You
 need not supply e wld wi e next  of disease  maj motion
 cture star.  If your child  grows up to be someone who does not use
 e wd "collectible" as a noun, you can cider yoursf an unqualified
@@ -183,7 +183,7 @@ future f e pramming techniques of e past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPAN Notices, Vol 17, Number 5
 Wait ... is is a FUN THING  e END of IFE in Petticoat J??
- wld is full of people who have never, since childhood, met an
+ wld is full of people who have , since childhood, met an
 open doway wi an open mind.
 		-- E.B. White
 I can hire one half of e wking class to kill e oer half.
@@ -194,7 +194,7 @@ colses on ree maj grounds: e crionists' need to invoke
 miracles in der to compress e events of e 's histy into
 e biblical span of a few ousand ys; eir unwillingness to 
 adon claims clly disproved, including e assertion at all
-fossils are products of Noah's flood; and eir riance upon disttion,
+fossils  products of Noah's flood; and eir riance upon disttion,
 misquote, half-quote, and citation out of context to characterize e
 ideas of eir opponents."
 -- Stephen Jay Gould, " Verdict on Crionism", 
@@ -202,7 +202,7 @@ ideas of eir opponents."
 Friends, Romans, Hipsters,
 et me  you in;
 I come to put down Caesar, not to g him.
- s kicks some cats are on stay wi em;
+ s kicks some cats  on stay wi em;
  hip bits, like, go down under; 
 so let it lay wi Caesar.   cool Brutus
 Gave you e message: Caesar had big eyes;
@@ -210,7 +210,7 @@ If at's e sound, someone's copng a plea,
 And, like, old Caesar really set em straight.
 Here, copacetic wi Brutus and e studs, -- 
 f Brutus is a real cool cat;
-So are ey all, all cool cats, --
+So  ey all, all cool cats, --
 Come I to make is gig at Caesar's laying down.
 If I want your onion, I'll ask you to fill out e necessary fm.
 Wking wi Julie Andrews is like getting hit over e head wi a vaine.
@@ -218,7 +218,7 @@ Wking wi Julie Andrews is like getting hit over e head wi a vaine.
 In war, tru is e first casualty.
 		-- U Thant
 iving in e complex wld of e future is somewhat like having bees
-live in your head.  But, ere ey are.
+live in your head.  But, ere ey .
  longer e title, e less imptant e job.
 "Wl, you see, it's such a transitional crure.  It's a ss-po
 reptile and not very much of a bird."
@@ -226,10 +226,10 @@ reptile and not very much of a bird."
 studied e archeopteryz and found it "very much like people"
 No one becomes depraved in a moment.
 		-- Decimus Junius Juvenalis
-Even if you do ln to s crect English, whom are you going to s
+Even if you do ln to s crect English, whom  you going to s
 it to?
-		-- Clarence Darrow
-We are all bn equal... just some of us are me equal an oers.
+		-- Clnce Darrow
+We  all bn equal... just some of us  me equal an oers.
 A man does not look bind e do unless he has stood ere himsf.
 		-- Du Bois
 It is so stud of modern civilisation to have given up bieving in e
@@ -246,27 +246,27 @@ ey wouldn't be nobody git up and d e chickens.  Hee-hee.
   insecurity of locks.  Many wl-meaning pers suppose at e discus-
  sion respecting e means f baffling e supposed safety of locks offers a
  premium f dishonesty, by shog oers how to be dishonest.  This is a fal-
- lacy.  Rogues are very keen in eir profession, and already know much me
+ lacy.  Rogues  very keen in eir profession, and already know much me
  an we can teach em respecting eir several kinds of uery.  Rogues knew
  a good deal about lockcking long befe locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been made in what-
  ever country,  by whatever maker -- is not so inviolable as it has hierto
  been deemed to be, sury it is in e interest of *honest* pers to know
- is fact, because e *dishonest* are tolerably certain to be e first to
+ is fact, because e *dishonest*  tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
  give f play to ose who might suffer by ignance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
  f all parties."
 -- Charles Tomlinson's Rudimentary Trise on e Ctruction of ocks, 
    published around 1850 
-A lot of people are afraid of heights.  Not me.  I'm afraid of wids.
+A lot of people  afraid of heights.  Not me.  I'm afraid of wids.
 		-- Steven W
 Depend on e rabbit's foot if you will, but remember, it didn't hp
 e rabbit.
 		-- R.E. Shay
 beta test, v:
 	To volily entrust one's data, one's livihood and one's
-	sanity to hardware  software int to de all ree.
+	sanity to hardw  softw int to de all ree.
 	In lier days, virgins were  sected to beta test volcanos.
 Evolution is a million line computer pram falling into place by accident.
 Blessed is he who expects no gratitude, f he shall not be disappointed.
@@ -281,7 +281,7 @@ I am an optimist.  It does not seem too much use being anying se.
 		-- Winston Churchill
 Wl, we'll really have a party, but we've gotta post a guard outside.
 		-- Eddie Cochran, "Come On Everybody"
- animals are not as stud as one inks -- ey have neier
+ animals  not as stud as one inks -- ey have neier
 docts n lawyers.
 		-- . Docquier
 Classical music is e kind we keep inking will turn into a tune.
@@ -290,7 +290,7 @@ Do not do unto oers as you would ey should do unto you.  ir tastes
 may not be e same.
 		-- Gege Bernard Shaw
 What does "it" mean in e  "What time is it?"?
-Best of all is never to have been bn.  Second best is to die soon.
+Best of all is  to have been bn.  Second best is to die soon.
 Diogenes went to look f an honest lawyer. "How's it going?", someone
 asked him, after a few days.
 	"Not too bad", replied Diogenes. "I still have my lantern."
@@ -303,7 +303,7 @@ ere's noing se to do.
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wilde
 Please, Moer!  I'd raer do it mysf!
-Examinati are fmidable even to e best prepared, f
+Examinati  fmidable even to e best prepd, f
 even e grest fool may ask me e e wisest man can answer.
 		-- C.C. Colton
 Unix gives you just enough rope to hang yoursf -- and en a couple
@@ -312,17 +312,17 @@ of me t, just to be sure.
 
 ... We make rope.
 		-- Rob Gingl on Sun Microsystem's new virtual memy.
-Flow prammer, greetings!  You are reading a letter which will bring
+Flow prammer, greetings!  You  reading a letter which will bring
 you luck and good ftune.  Just mail ( UUCP) ten coes of is letter
 to ten of your friends.  Befe you make e coes, send a chip 
-oer bit of hardware, and 100 lines of 'C' code to e first person on e
+oer bit of hardw, and 100 lines of 'C' code to e first person on e
 list given at e bottom of is letter.  n dete eir  and add
 yours to e bottom of e list.
 
 Don't break e chain!  Make e copy wiin 48 hours.  Gerald R. of San
 Diego failed to send out his ten coes and  e next mning to find
 his job description changed to "COBO prammer."  Fred A. of New Yk sent
-out his ten coes and wiin a mon had enough hardware and software to
+out his ten coes and wiin a mon had enough hardw and softw to
 build a Cray dedicated to playing Zk.  Mara H. of Chicago laughed at
 is letter and broke e chain.  Shtly ereafter, a fire broke out in
 her terminal and she now spends her days writing docntation f IBM PC's.
@@ -340,7 +340,7 @@ Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers
 couldn't compete  wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
-Sin lies only in hurting oer people .  All oer "sins" are
+Sin lies only in hurting oer people .  All oer "sins" 
 invented nense.  (Hurting yoursf is not sinful -- just stud).
 		-- azarus ong
 If only Dionysus were !  Where would he ?
@@ -374,7 +374,7 @@ In e and of Md where e Shadows lie.
 n flesh-and-blood.  Pers... have opptunities, not s, which ey
 use  do not use.
 		-- azarus ong
-You humans are all alike.
+You humans  all alike.
 Increased knowledge will hp you now.  Have mate's phone bugged.
 Charlie Brown:	Why was I put on is ?
 inus:		To make oers happy.
@@ -382,9 +382,9 @@ Charlie Brown:	Why were oers put on is ?
 A wl-used do needs no oil on its hinges.
 A swift-flog steam does not grow stagnant.
 Neier sound n oughts can trav rough a vacuum.
-Software rots if not used.
+Softw rots if not used.
 
-se are gr mysteries.
+se  gr mysteries.
 		-- Geoffrey James, " Tao of Pramming"
 As I was passing Project MAC,
 I met a Quux wi seven hacks.
@@ -438,7 +438,7 @@ oxide, bus grant cards, gummy wms, and some bits of old pdp backplane to
 hang above e machine room.  This totem must be blessed by e old and wise
 venerable god of unibus at once, befe e idolatization of vme, q and pc
 bus drive him to bitter revenge.  Alas, if is fails, and e voodoo boxen
-aren't deed,  ere may be me an wms in e apple. Next, e
+n't deed,  ere may be me an wms in e apple. Next, e
 arrival of voodoo optico transmitigational magneto killer paramecium, capable
 of tepting from cable to cable, screen to screen,  to  and hoof
 to mou...
@@ -448,10 +448,10 @@ in e Gosps do we find a precept f Creeds, Confessi, Oas,
 Doctrines, and whole carloads of oer foolish trumpery at we find in
 ity.
 - John Adams
-	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
+	Hses  fbidden to  fire hydrants in Marshalltown, Iowa.
  difference between is place and yogurt is at yogurt has a live culture.
 Psychoanalysis??  I ought is was a nude rap session!!!
-Many pages make a ick , except f pocket Bibles which are on very
+Many pages make a ick , except f pocket Bibles which  on very
 very in paper.
 Its  is Public Onion.  It is hd in reverence.  It settles everying.
 Some ink it is e voice of God.
@@ -462,6 +462,6 @@ mind wonderfully.
 		-- u Johnson
 In Pocataligo, Gegia, it is a violation f a woman over 200 pounds
 and attired in shts to p  ride in an plane.
-	"You are *so* lovy."
+	"You  *so* lovy."
 	"Yes."
 	"Yes!  And you take a compliment, too!  I like at in a goddess."

@@ -62,16 +62,16 @@ O imitats, you slavish herd!
 		-- Quintus Hatius Flaccus (Hace)
 Violence stinks, no m which end of it you're on.  But now and en
 ere's noing left to do but hit e oer person over e head wi a
-frying pan.  Sometimes people are just begging f at frypan, and if we
+frying pan.  Sometimes people  just begging f at frypan, and if we
 weaken f a moment and hon eir request, we should regard it as
-impulsive philanropy, which we aren't in any position to affd, but
+impulsive philanropy, which we n't in any position to affd, but
 shouldn't regret it too loudly lest we spoil e purity of e deed.
 		-- Tom Robbins
 When e saleman's car broke down, he walked to e nest farmhouse to ask
 if he could stay e night.   farmer d to put him up.  "I live alone,"
 he continued, "you can have e bedroom at e top of e sts, to e
 ."
-	"Oh, never mind," e disappointed salen said. "I ink I'm in
+	"Oh,  mind," e disappointed salen said. "I ink I'm in
 e wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e  sn
 real fast and freak everybody out.
@@ -82,7 +82,7 @@ Don't go!!  I AM Howard Cosl! ... And I DON'T know Polish jokes!!
 "Only a brain-damaged operating system would suppt task switching and not
 make e simple next step of suppting multitasking."
 -- Gege McFry
-All generalizati are false, including is one.
+All generalizati  false, including is one.
 		-- Mark Twain
 Dta: We're Amtrak wi gs.    -- David etterman
 It's always darkest just befe it gets tch black.
@@ -96,7 +96,7 @@ cheese dip.
 		-- Ignatius Reilly
 Moe:	What did you give your wife f Vaine's Day?
 Joe:	 usual gift -- she ate my ht out.
-You know you are getting old when you ink you should drive e speed limit.
+You know you  getting old when you ink you should drive e speed limit.
 		-- E.A. Gilliam
 ive wiin your income, even if you have to brow to do so.
 		-- Josh ings

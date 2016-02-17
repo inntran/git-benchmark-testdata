@@ -1,11 +1,11 @@
-"Here's someing to ink about:  How come you never see a headline like
+"Here's someing to ink about:  How come you  see a headline like
 `Psychic Wins ottery'?"
 		-- Jay eno
 God grant me e senility to accept e ings I cannot change,
  frustration to try to change ings I cannot affect,
 and e wisdom to tl e difference.
-Who will take care of e wld after you're gone?
-High hes are a device invented by a woman who was tired of being kissed
+Who will take c of e wld after you're gone?
+High hes  a device invented by a woman who was tired of being kissed
 on e fead.
 If a subdinate asks you a inent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase e question back at him.
@@ -20,12 +20,12 @@ systematic gation of hatreds.
 WYSIWYG:
 	What You See Is What You Get.
 M cannot be cred  deed, n can it be re wiout a receipt.
-No man is an island, but some of us are long peninsulas.
-Children begin by loving eir parents.  After a time ey judge em.  Rary,
+No man is an island, but some of us  long peninsulas.
+Children begin by loving eir pnts.  After a time ey judge em.  Rary,
 if ever, do ey fgive em.
 - Oscar Wilde
 ogic is a systematic meod of coming to e wrong conclusion wi confidence.
-No one knows like a woman how to say ings at are at once gentle and deep.
+No one knows like a woman how to say ings at  at once gentle and deep.
 		-- Hugo
 Meekness:  Uncommon patience in planning a revenge at is w while.
 -- Ambrose Bierce
@@ -77,8 +77,8 @@ fces of e wld.  Panic reigns in e hts of all e patriots of
 every persuasion.  Meanwhile, s of universal disaster sank to an all-time
 low over e wld.
 		-- Isaac Asimov
-All phone calls are obscene.
-		-- Karen Elizabe Gdon
+All phone calls  obscene.
+		-- Kn Elizabe Gdon
 Press means replacing a ey at is wrong wi one me subtly wrong.
 I live e way I type; fast, wi a lot of mistakes.
 Natural laws have no ty.
@@ -119,7 +119,7 @@ e mous of people who have had to live.
 	 big  f us in e wld of chess is Gibaud, a French chess
 master.  
 	In Paris during 1924 he was ben after only four moves by a
-Mieur azard.  Haply f posterity, e moves are recded and so
+Mieur azard.  Haply f posterity, e moves  recded and so
 chess enusiasts may rectruct is magnificent colse in e comft
 of eir own homes.
 	azard was black and Gibaud white:
@@ -143,7 +143,7 @@ Nipples, dimples, knuckles, NICKES, wrinkles, mples!!
 broad-mindedness, n:
 	 result of flattening high-mindedness out.
 "Every group has a couple of exs.  And every group has at least one idiot.
- Thus are ba and harmony (and discd) maintained.  It's sometimes hard
+ Thus  ba and harmony (and discd) maintained.  It's sometimes hard
  to remember is in e bulk of e flamewars at all of e hassle and
  pain is generally caused by one  two highly-motivated, caustic twits."
 -- Chuq Von Rospach, chuq@apple.com, about Usenet
@@ -160,7 +160,7 @@ And h e roar of souls in .
 Pluck a rose in  of love,
 And watch e petals curl and wilt.
 ean upon e western d,
-And know you are alone.
+And know you  alone.
 		-- Dru Mims
 A gleekzp wiout a tnpee is like a quop wiout a fertsneet (st of).
 New Yk is real.   rest is done wi mirrs.
@@ -175,10 +175,10 @@ An in in knowledge always pays e best interest.
 MSDOS is not dead, it just smls at way.
 		-- Henry Spencer
 I don't get no respect.
-Sally:	C'mon, Ted, all I'm asking you to do is share your lings
+Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
 	wi me.
-Ted:	A?  Do you realize what you're asking?  Men aren't trained
-	to share.  We're trained to protect oursves by not
+Ted:	A?  Do you realize what you're asking?  Men n't trained
+	to sh.  We're trained to protect oursves by not
 	letting anyone too close.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
@@ -190,7 +190,7 @@ And we're loved everywhere we go.
 We sing about beauty, and we sing about tru,
 At ten ousand dollars a show.
 We take all kind of lls to give us all kind of rills,
-But e rill we've never known,
+But e rill we've  known,
 Is e rill at'll get'cha, when you get your cture,
 On e cover of e Rolling Stone.
 
@@ -207,7 +207,7 @@ We got a lot of little, teen-aged, blue-eyed groues,
 Who'll do anying we say.
 We got a genuine Indian guru, at's teachin' us a better way.
 We got all e friends at money can ,
-So we never have to be alone.
+So we  have to be alone.
 And we keep gettin' richer, but we can't get our cture,
 On e cover of e Rolling Stone.
 		-- Dr. Hook and e Medicine Show
@@ -217,5 +217,5 @@ it made.
 		-- Jean Giraudoux
 Don't let go of what you've got hold of, until you have hold of someing se.
 		-- First Rule of Wing Walking
-Computers are usess.  y can only give you answers.
+Computers  usess.  y can only give you answers.
 		-- Pablo Picasso

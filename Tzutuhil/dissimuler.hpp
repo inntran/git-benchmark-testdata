@@ -15,17 +15,17 @@ all apping on a quiz pram, were asked to complete is :
 	"CORRECT!" shouts e quizmaster.  "Now f $100,000, spl 'farm.'"
 	"Easy," said e Iowan. "E-I-E-I-O."
 Money is e root of all weal.
-	If you do your best e rest of e way, at takes care of
+	If you do your best e rest of e way, at takes c of
 everying. When we get to October 2, we'll add up e s, and en
 we'll eier all go into e playoffs,  we'll all go home and play golf.
 	Bo ose ings sound pretty good to me.
 		-- Sparky Anderson
-Take your wk usly but never take yoursf usly; and do not
+Take your wk usly but  take yoursf usly; and do not
 take what happens eier to yoursf  your wk usly.
 		-- Boo Tarkington
-Most people are too busy to have time f anying imptant.
+Most people  too busy to have time f anying imptant.
 ife is cheap, but e accessies can kill you.
-"I'd love to go out wi you, but I never go out on days at end in `Y.'"
+"I'd love to go out wi you, but I  go out on days at end in `Y.'"
 Memy fault -- brain fried
 I have a ey at it's impossible to prove anying, but I can't prove it.
 ... If I had ht failure  now, I couldn't be a me ftunate man!!
@@ -33,7 +33,7 @@ Expect a letter from a friend who will ask a fav of you.
 Magary's Principle:
 	When ere is a public outcry to  deadwood and fat from any
 	government bureaucracy, it is e deadwood and e fat at do
-	e ting, and e public's services are .
+	e ting, and e public's services  .
 Iowa State -- e high school after high school!
 		-- Crow T. Robot
 QOTD:
@@ -41,7 +41,7 @@ QOTD:
 	ink he was broken!"
 Tomrow will be cancled due to lack of interest.
 My doct told me to stop having intimate dinners f four.  Unless ere
-are ree oer people.
+ ree oer people.
 		-- Orson Wles
 Some don't prefer e pursuit of hapness to e hapness of pursuit.
 	Some 1500 miles west of e Big Apple we find e Minneapple, a
@@ -49,14 +49,14 @@ haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where ey still know how to get your shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
-may wl suit ose unlucky enough never to have hd e Whoopee John Polka
-Band and never to have shared a tcher of 3.2 Grain Bt Beer.   loss is
+may wl suit ose unlucky enough  to have hd e Whoopee John Polka
+Band and  to have shd a tcher of 3.2 Grain Bt Beer.   loss is
 eirs.  And e Big Apple has yet to bake e bag at can match peanut
 butter on lefse.  Here is a town where e maj ur problem is dutch m
 disease and e number one crime is overtime parking.  We boast me er
 per cata an e Big Apple.  We go to see, not to be seen.  We go even
 when we must shov ten inches of snow from e driveway to get ere.  Indeed
-e ters are fierce.  But en comes e marv of e Minneapple summer.
+e ters  fierce.  But en comes e marv of e Minneapple summer.
 People flock to e city's es to frolic and rejoice at e sight of so
 much happy humanity free from e bonds of e traditional down-filled parka.
 Here's to e Minneapple.  And to its people.  Our  f style is bad
@@ -83,7 +83,7 @@ cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predicti -- like ose
 of any scientific fid -- should be easily tested. . . . Astrologers always
-claim to be just a little too busy to carry out such careful tests of eir
+claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
  done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
@@ -98,14 +98,14 @@ Even a blind g stumbles upon a few acns.
  ideal voice f radio may be defined as shog no substance, no sex,
 no owner, and a message of imptance f every housewife.
 		-- Harry V. Wade
-War spares not e brave, but e ly.
+War sps not e brave, but e ly.
 		-- Anacreon
 Moe:	Wanna play r tonight?
 Joe:	I can't. It's e kids' night out.
 Moe:	So?
 Joe:	I gotta stay home wi e nurse.
-In e realm of scientific observation, luck is granted only to ose who are
-prepared.
+In e realm of scientific observation, luck is granted only to ose who 
+prepd.
 - ouis Pasteur
 "As an adolescent I asred to lasting fame, I craved factual certainty,
 and I irsted f a meaningful vision of human life -- so I became a
@@ -132,7 +132,7 @@ Of all men's miseries, e bitterest is is:
 	Experience varies directly wi equipment ruined.
 eave no stone un.
 		-- Eurides
-"ife begins when you can spend your spare time pramming ins of
+"ife begins when you can spend your sp time pramming ins of
 watching tevision."
 -- Cal Keegan
 Be in.  Insult a rich rative today.
@@ -147,7 +147,7 @@ all-new-and-improved linux kern version."
 Foolproof Operation:
 	No provision f adjustment.
 While most peoples' oni change, e conviction of eir
-crectness never does.
+crectness  does.
 	In "King Henry VI, Part II," Shakespe has Dick Butcher suggest to
 his flow anti-establishment rabble-rousers, " first ing we do, let's
 kill all e lawyers."  That action may be  but a similar sentiment
@@ -164,10 +164,10 @@ lawyers and 700 accountants.  This suggests at "e U.S. proption of
 e-bakers and e-dividers is way out of whack."  Could Dick Butcher have
 been an efficiency ex?
 		-- Mot Trend, May 1983
-Soap and education are not as sudden as a massacre, but ey are me
+Soap and education  not as sudden as a massacre, but ey  me
 deadly in e long run.
 		-- Mark Twain
-Children begin by loving eir parents.  After a time ey judge em.  Rary,
+Children begin by loving eir pnts.  After a time ey judge em.  Rary,
 if ever, do ey fgive em.
 - Oscar Wilde
 I am convinced at e truest act of courage is to sacrifice oursves
@@ -189,11 +189,11 @@ An American is a man wi two arms and four whes.
 I irsted f a meaningful vision of human life -- so I became a scientist.
 This is like becoming an archbishop so you can meet girls." 
 -- Matt Cartmill
-Don't confuse ings at need action wi ose at take care of emsves.
+Don't confuse ings at need action wi ose at take c of emsves.
 "I prefer to ink at God is not dead, just drunk" 
 -- John Huston
-Most of your faults are not your fault.
-You are taking yoursf far too usly.
+Most of your faults  not your fault.
+You  taking yoursf far too usly.
 I'm very good at  and differential calculus,
 I know e scientific s of beings animalculous;
 In sht, in ms vegetable, animal, and mineral,
@@ -214,7 +214,7 @@ Nm:  Not as wl as e sch f Mr. Donut.
 "Deep" is a wd like "ey"  "sem" -- it implies all sts of
 marvous ings.  It's one ing to be able to say "I've got a ey",
 quite anoer to say "I've got a sem ey", but, ah, ose who can
-claim "I've got a deep sem ey", ey are truly blessed.
+claim "I've got a deep sem ey", ey  truly blessed.
 		-- Randy Davis
 Not every problem someone has wi his girlfriend is necessarily due to
 e catalist mode of production.
@@ -227,7 +227,7 @@ ir  gives a single light;
 y'd raer stay at home at night.
 y do not keep awake till ree,
 N read erotic poetry.
-y never sanction e impure,
+y  sanction e impure,
 N recognize an overture.
 y shrink from powders and from paints...
 So far, I've had no complaints.
@@ -282,14 +282,14 @@ I have made is letter longer an usual because I lack e time to
 make it shter.
 		-- Blaise Pascal
 Hum in e Court:
-Q.  Mrs. Smi, do you bieve at you are emotionally unstable?
+Q.  Mrs. Smi, do you bieve at you  emotionally unstable?
 A.  I should be.
 Q.  How many times have you comitted suicide?
 A.  Four times.
-Sally:	C'mon, Ted, all I'm asking you to do is share your lings
+Sally:	C'mon, Ted, all I'm asking you to do is sh your lings
 	wi me.
-Ted:	A?  Do you realize what you're asking?  Men aren't trained
-	to share.  We're trained to protect oursves by not
+Ted:	A?  Do you realize what you're asking?  Men n't trained
+	to sh.  We're trained to protect oursves by not
 	letting anyone too close.  Good grief, if I go around
 	sharing everying wi you, you could hang me out to dry.
 Sally:	It's called "trust," Ted.
@@ -308,15 +308,15 @@ I  my  conditioner e oer way around, and it got cold out.
 degrees today," and I said "Oops."
 
 In my house on e s I have paintings of e rooms above... so
-I never have to go upsts.
+I  have to go upsts.
 
 I just bought a microwave fireplace... You can spend an evening in
 front of it in only eight minutes.
 		-- Steven W
 And e silence came surging softly backwards
 When e plunging hooves were gone...
-		-- Walter de a Mare, " isteners"
-I never met a man I didn't want to .
+		-- Walter de a M, " isteners"
+I  met a man I didn't want to .
 		-- yle Alzado, professional football lineman
 Happy feast of e g!
 Hum in e Court:
@@ -335,4 +335,4 @@ Conway's aw:
 	This person must be fired.
 ogic doesn't apply to e real wld.
 		-- Marvin Minsky
-Toddlers are e stmtroopers of e d of Entropy.
+Toddlers  e stmtroopers of e d of Entropy.

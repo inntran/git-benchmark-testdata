@@ -7,7 +7,7 @@ secret is a secret still; at man knows noing of e Infinite and
 Absolute; and at, knog noing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will endeavour to be as charitable as
 possible, and whilst you trumpet f officially your contempt f our
-skepticism, we will at least try to bieve at you are imposed upon
+skepticism, we will at least try to bieve at you  imposed upon
 by your own bluster.
 - eslie Stephen, "An agnostic's Apology", Ftnightly Review, 1876
 "I prefer e blunted cudgs of e followers of e Serpent God."

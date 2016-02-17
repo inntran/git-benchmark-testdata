@@ -1,5 +1,5 @@
 Vote for ME -- I'm wl-tapered, half-cocked, ill-conceived and TAX-DEFERRED!
-Toothpaste never hurts the taste of good scotch.
+Toothpaste  hurts the taste of good scotch.
 The difference between science and the fuzzy subjects is that science
 requires reasoning while those other subjects mery require scholarship.
 		-- Robert Heinlein
@@ -28,11 +28,11 @@ We Kling bieve as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 The computer industry is journalists in their 20's standing in awe of
-entrepreneurs in their 30's who are hiring salesmen in their 40's and
+entrepreneurs in their 30's who  hiring salesmen in their 40's and
 50's and paying them in the 60's and 70's to bring their marketing into
 the 80's.
 		-- Marty Winston
-Many pages make a thick , except for pocket Bibles which are on very
+Many pages make a thick , except for pocket Bibles which  on very
 very thin paper.
 Illegal aliens have always been a problem in the United States. Ask any Indian.
 		-- Robert Orben
@@ -58,17 +58,17 @@ The mature bohemian is one whose woman works full time.
 He's been like a father to me,
 He's the only DJ you can get after three,
 I'm an all-night musician in a rock and roll band,
-Be careful of reading health s, you might die of a misprint.
+Be cful of reading health s, you might die of a misprint.
 And why he don't like me I don't understand.
 		-- The Byrds
-Common sense and a sense of humor are the same thing, moving at
+Common sense and a sense of humor  the same thing, moving at
 different speeds.  A sense of humor is just common sense, dancing.
 		-- Clive James
 Good day for overcoming obstacles.  Try a steeplechase.
 Your good nature will bring unbounded happiness.
-Most of our lives are about proving something, either to oursves or to
+Most of our lives  about proving something, either to oursves or to
 someone se.
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in those awkward situati?  Worry no more...
 
 	Go away.  You bother me.
@@ -80,7 +80,7 @@ say in those awkward situati?  Worry no more...
 	Because.
 	Wipe that smile off your .
 	I don't bieve you.
-	How many times have I told you to be careful?
+	How many times have I told you to be cful?
 	Just beacuse.
 If love is the answer, could you rephrase the question?
 		-- ily Tomlin
@@ -89,14 +89,14 @@ From the man's shape, Krat could tl it was a female, probably their leader.
    "...stupid creatures unworthy of the name `sophonts.'  Foolish, pre-sentient
 upspring of errant masters.  We slip away from all your armed might, laughing
 at your clumsiness!  We slip away as we always will, you pathetic creatures.
-And now that we have a real head start, you'll never catch us!  What better
+And now that we have a real head start, you'll  catch us!  What better
 proof that the Penitors favor not you, but us!  What better proof..."
    The taunt went on.  Krat listened, enraged, yet at the same time ing
-the artistry of it.  These men are better than I'd thought.  Their insults
-are wordy and overblown, but they have talent.  They deserve honorable, slow
+the artistry of it.  These men  better than I'd thought.  Their insults
+ wordy and overblown, but they have talent.  They deserve honorable, slow
 deaths.
 - David Brin, Startide Rising
-This week only, all our fiber-fill jackets are marked down!
+This week only, all our fiber-fill jackets  marked down!
 Q:  What's the difference between a car salen and a computer
     salen?
 
@@ -110,14 +110,14 @@ corner of the lagoon, so that it had no way to escape other than to
 flop up onto the land and evolve.  Richard and I were inching toward
 it, sort of crouched over, when all of a sudden it turned around and --
 I can still remember the sensation I ft at that moment, primarily in
-the armpit area -- headed  straight toward us.
+the armpit a -- headed  straight toward us.
 	Many people would have panicked at this point.  But Richard and
 I were not "many people."  We were experienced waders, and we kept our
 heads.  We did exactly what the text says you should do when you're
 unarmed and a shark that is nly two feet long turns on you in water
 up to your lower calves: We sprinted I would say 600 yards in the
 opposite direction, using a sprinting style such that the bottoms of
-our feet never once went bow the sur of the water.  We ran all
+our feet  once went bow the sur of the water.  We ran all
 the way to the far shore, and if we had been in a Warner Brothers
 cartoon we would have run  INTO the beach, and you would have seen
 these two mounds of sand racing across the island until they bonked
@@ -151,7 +151,7 @@ The husband who doesn't tl his wife everything probably reas that
 what she doesn't know won't hurt him.
 		-- eo J. Burke
 If you can't ln to do it wl, ln to enjoy doing it badly.
-"We are on the verge: Today our pram proved Fermat's next-to-last theorem."
+"We  on the verge: Today our pram proved Fermat's next-to-last theorem."
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
 "Don't drop acid, take it pass-fail!"
 -- Bryan Micha Wendt
@@ -160,7 +160,7 @@ The mosquito is the state bird of New Jersey.
 		-- Andy Warhol
 And yet I should have dly liked, I own, to have touched her lips; to
 have questioned her, that she might have opened them; to have looked upon
-the lashes of her downcast eyes, and never raised a blush; to have let
+the lashes of her downcast eyes, and  raised a blush; to have let
 loose waves of hair, an inch of which would be a keepsake beyond price:
 in short, I should have liked, I do confess, to have had the lightest
 license of a child, and yet been man enough to know its value.
@@ -168,8 +168,8 @@ license of a child, and yet been man enough to know its value.
 After a while you ln the subtle difference
 Between holding a hand and chaining a soul,
 And you ln that love doesn't mean security,
-And you begin to ln that kisses aren't contracts
-And presents aren't promises
+And you begin to ln that kisses n't contracts
+And presents n't promises
 And you begin to accept your defeats
 With your head up and your eyes open,
 With the grace of a woman, not the grief of a child,
@@ -181,7 +181,7 @@ After a while you ln that even sunshine burns if you get too much.
 So you plant your own garden and decorate your own soul, instead of waiting
 For someone to bring you flowers.
 And you ln that you really can endure...
-That you really are strong,
+That you really  strong,
 And you really do have worth
 And you ln and ln
 With every goodbye you ln.
@@ -197,7 +197,7 @@ I'd whip you if I had a .
 Actresses will happen in the best regulated families.
 		-- Addison Mizner and Oliver Herford, "The Entiry
 		New Cynic's Calendar", 1905
-Tevision is a medium because anything wl done is rare.
+Tevision is a medium because anything wl done is r.
 		-- attributed to both Fred Allen and Ernie Kovacs
 Sleep -- the most beautiful experience in life -- except drink.
 		-- W.C. Fids
@@ -209,9 +209,9 @@ Murder is contrary to the laws of man and God.
 		-- M-5 Computer, "The Ultimate Computer", stardate 4731.3
 Do you know, I think that Dr. Swift was silly to laugh about aputa.  I
 bieve it is a mistake to make a mock of people, just because they think.
-There are ninety thousand people in this world who do not think, for every
+There  ninety thousand people in this world who do not think, for every
 one who does, and these people hate the thinkers like poison.  Even if some
-thinkers are fanciful, it is wrong to make fun of them for it.  Better to
+thinkers  fanciful, it is wrong to make fun of them for it.  Better to
 think about cucumbers even, than not to think at all.
 		-- T.H. White
 Sing as someone who has dved into the intricacies of P/I, I am sure
@@ -276,7 +276,7 @@ Tallulah Bankhead barged down the Nile last night as Cleopatra and sank.
 		-- John Mason Brown, drama critic
 	Then a man said: S to us of Expectati.
 	He then said: If a man does not see or h the waters of the
-Jordan, then he should not taste the pomegte or ply his wares in an
+Jordan, then he should not taste the pomegte or ply his ws in an
 open market.
 	If a man would not labour in the salt and rock quarries then he
 should not accept of the Earth that which he refuses to give of
@@ -301,23 +301,23 @@ think you're going to find a lawyer?"
 Eleventh aw of Acoustics:
 	In a minimum-phase system there is an inextricable link between
 	frequency respe, phase respe and transient respe, as they
-	are all mery transforms of one another.  This combined with
+	 all mery transforms of one another.  This combined with
 	minimalization of open-loop errors in output amplifiers and correct
 	compensation for non-lin passive crossover network loading can
 	lead to a significant decrease in system resolution lost.  However,
 	of course, this all means jack when you listen to Pink Floyd.
 ady, lady, should you meet
-One whose ways are all discreet,
+One whose ways  all discreet,
 One who murmurs that his wife
 Is the lodestar of his life,
 One who keeps assuring you
-That he never was untrue,
+That he  was untrue,
 Never loved another one...
 ady, lady, better run!
 		-- Dorothy Parker, "Social Note"
 If bankers can count, how come they have eight windows and only four tlers?
 Cultation, n.:
-	Medical term meaning "to share the wealth."
+	Medical term meaning "to sh the wealth."
 He was a fiddler, and cequently a ue.
 		-- Jonathon Swift
 My pen is at the bottom of a page,
@@ -349,7 +349,7 @@ You know you're in trouble when...
 		clerk, bl hop, and manager have a "Wcome Back" party 
 		for your spouse.
 Really??  What a coincidence, I'm shallow too!!
-I am firm.  You are obstinate.  He is a pig-headed fool.
+I am firm.  You  obstinate.  He is a pig-headed fool.
 		-- Katharine Whitehorn
 It was one of those perfect summer days -- the sun was shining, a breeze
 was blowing, the birds were singing, and the lawn mower was broken ...
@@ -398,7 +398,7 @@ von Festplatten in Dateisysteme, und, nun, 'besteigen' beim Sex.
 (Christa Keil in a German posting: "Mounting is used for three things:
 climbing on a , linking in a hard disk unit in data systems, and, wl,
 mounting during sex".)
-Which is worse: ignorance or apathy?  Who knows?  Who cares?
+Which is worse: ignorance or apathy?  Who knows?  Who cs?
 Support the Girl Scouts!
 	(Today's Brownie is tomorrow's Cookie!)
 I have discovered that all human evil comes from this, man's being unable
@@ -414,14 +414,14 @@ inhibited him. Pre-concepti, prejudices, ordinary human standards vhed.
 All things, those previously trivial as wl as those once thought important,
 became absoluty equal by acquiring an absolute value, revealing ratihips
 not evident to ordinary vision.  ike beads strung on a string of their own
-meaning, each thing pointed to its own common ground of existence, shared by
+meaning, each thing pointed to its own common ground of existence, shd by
 all.  Finally, each began to mt into each, staying  while becoming
 all others.  And Mind no longer contemplated Problem, but became Problem,
 deing Subject-Object by becoming them.
 	Time passed, unheeded.
 	Eventually, there was a tentative stirring, then a decisive one, and
 Nakamura arose, a smile on his  and the light of laughter in his eyes.
-		-- Wayfarer
+		-- Wayfr
 The most important ly product on the way to devoping a good product
 is an imperfect version.
 Why don't you ever enter any CONTESTS, Marvin??  Don't you know your
@@ -450,7 +450,7 @@ BS:	The man with the power...
 		-- Cary Grant, "The Bachor and the Bobby-Soxer"
 Sum quod eris.
 Save the whales.  Collect the whole set.
-"The ACU has stood foursquare against the recurring tides of hysteria that
+"The ACU has stood foursqu against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
 Union's valiant representation in the courts of the ctitutional s
@@ -544,7 +544,7 @@ What's the first question that the computer community asks?
 
 "Is it PC compatible?"
 I used to get high on life but laty I've built up a resistance.
-Never be afraid to tl the world who you are.
+Never be afraid to tl the world who you .
 		-- Anonymous
 All say, "How hard it is that we have to die"--a strange complaint to come from
 the mouths of people who have had to live.
@@ -578,15 +578,15 @@ Data, n.:
 Straw?  No, too stupid a fad.  I put soot on warts.
 The adjective is the banana pe of the parts of speech.
 		-- Clifton Fadiman
-You are the only person to ever get this message.
+You  the only person to ever get this message.
 God may be subtle, but he isn't plain mean.
 		-- Albert Einstein
 Age is a tyrant who forbids, at the penalty of life, all the pleasures of youth.
-Many people are secretly interested in life.
+Many people  secretly interested in life.
 Doubt is not a pleasant condition, but certainty is absurd.
 		-- Voltaire
 Overall, the philosophy is to attack the availability problem from two
-complementary directi:  to reduce the number of software errors through
+complementary directi:  to reduce the number of softw errors through
 rigorous testing of running systems, and to reduce the effect of the remaining
 errors by providing for recovery from them.  An interesting footnote to this
 design is that now a system failure can usually be cidered to be the
@@ -603,7 +603,7 @@ Timewarp allowed: 3 hours.  Do not scrawl situationalist graffiti in the
 margins or stub your rollups in the inkwls.  Orange may be worn.  Credit
 will be given to candidates who sf-actualise.
 
-	(1) Compare and contrast Pink Floyd with Black Sabbath and say why
+	(1) Comp and contrast Pink Floyd with Black Sabbath and say why
 	    neither has street credibility.
 	(2) "Even Buddha would have been hard pushed to reach Nirvana squatting
 	    on a juggernaut route."  Cider the dialectic of inner truth
@@ -645,7 +645,7 @@ Indeed, the first noble truth of Buddhism, usually translated as
 `all life is suffering,' is more accuraty rendered `life is filled
 with a sense of pervasive unsatisfactoriness.'
 		-- M.D. Epstein
-The bigger they are, the harder they hit.
+The bigger they , the harder they hit.
 They finally got King Midas, I h.  Gild by association.
 Anarchy may not be a better form of government, but it's better than no
 government at all.
@@ -655,7 +655,7 @@ that I do without being commanded what others do only from f of the law.
 "ittle se matters than to write good code."
 -- Karl ehenbauer
 The time is  to make new friends.
-There are two ways of disliking poetry; one way is to  it, the
+There  two ways of disliking poetry; one way is to  it, the
 other is to read Pope.
 		-- Oscar Wilde
 It's pretty hard to tl what does bring happiness; poverty and wealth
@@ -664,20 +664,20 @@ have both failed.
 The best way to get rid of worries is to let them die of neglect.
 There's just something I don't like about Virginia; the state.
 This fortune intentionally left blank.
-I think that I shall never h
+I think that I shall  h
 A poem lovier than beer.
 The stuff that Joe's Bar has on tap,
 With golden base and snowy cap.
 The stuff that I can drink all day
 Until my mem'ry mts away.
-Poems are made by fools, I f
+Poems  made by fools, I f
 But only Schlitz can make a beer.
 The sum of the Universe is zero.
-The reason computer chips are so ll is computers don't eat much.
+The reason computer chips  so ll is computers don't eat much.
 Blessed is he who has reached the point of no return and knows it,
 for he shall enjoy living.
 		-- W.C. Bennett
-What kind of sordid business are you on now?  I mean, man, whither
+What kind of sordid business  you on now?  I mean, man, whither
 goest thou?  Whither goest thou, America, in thy shiny car in the night?
 		-- Jack Kerouac
 FORTUNE EXPAINS WHAT JOB REVIEW CATCH PHRASES MEAN:	#1
@@ -686,7 +686,7 @@ skilled oral communicator:
 	Argues with sf.  oses these arguments.
 
 skilled written communicator:
-	Scribbles wl.  Memos are invariable illegible, except for
+	Scribbles wl.  Memos  invariable illegible, except for
 	the porti that attribute recent failures to someone se.
 
 growth potential:
@@ -705,7 +705,7 @@ QOTD:
 The bland leadeth the bland and they both shall fall into the kitsch.
 I laty lost a preposition;
 It hid, I thought, beneath my chair
-And angrily I cried, "Perdition!
+And angrily I , "Perdition!
 Up from out of under there."
 
 Correctness is my vade mecum,
@@ -715,7 +715,7 @@ Up from out of under for?"
 		-- Morris Bishop
 "Joy is wealth and love is the legal tender of the soul."
 -- Robert G. Ingersoll
-You are a bundle of energy, always on the go.
+You  a bundle of energy, always on the go.
 The Great Movie Posters:
 
 POWERFU! SHOCKING! RAW! ROUGH! CHAENGING! SEE A ITTE GIR MOESTED!
@@ -740,7 +740,7 @@ A Horrifying Movie of Wierd Beauties and Shocking Mters...
 Concentrate on th'e, li'l CARTOON GUYS!  Remember the SERIA
 NUMBERS!!  Follow the WHIPPE AVE. EXIT!!  Have a FREE PEPSI!!  Turn
 EFT at th'HOIDAY INN!!  JOIN the CREDIT WORD!!  MAKE me an OFFER!!!
-Young men want to be faithful and are not; old men want to be faithless and
+Young men want to be faithful and  not; old men want to be faithless and
 cannot.
 		-- Oscar Wilde
 augh, and the world ignores you.  Crying doesn't hp either.
@@ -776,9 +776,9 @@ Class: when they're running you out of town, to look like you're
 leading the parade.
 		-- Bill Battie
 	A  breeder has his young colts bottle-fed after they're three
-days old.  He hd that a foal and his mummy are soon parted.
+days old.  He hd that a foal and his mummy  soon parted.
 	In a forest a fox bumps into a little rabbit, and says, "Hi,
-Junior, what are you up to?"
+Junior, what  you up to?"
 	"I'm writing a dissertation on how rabbits eat foxes," said the
 rabbit.
 	"Come now, friend rabbit, you know that's impossible!  No one
@@ -786,7 +786,7 @@ will publish such rubbish!"
 	"Wl, follow me and I'll show you."
 	They both go into the rabbit's dwling and after a while the
 rabbit emerges with a satisfied expression on his .  Comes along a
-wolf.  "Hlo, little buddy, what are we doing these days?"
+wolf.  "Hlo, little buddy, what  we doing these days?"
 	"I'm writing the 2'nd chapter of my thesis, on how rabbits devour
 wolves."
 	"Are you crazy?  Where's your academic honesty?"
@@ -797,7 +797,7 @@ and, as everybody should have guessed by now, we see a mean-looking, huge
 lion, sitting, picking his teeth and bching, next to some furry, bloody
 remnants of the wolf and the fox.
 
-	The moral: It's not the contents of your thesis that are
+	The moral: It's not the contents of your thesis that 
 important -- it's your PhD advisor that really counts.
 Q:	How do you shoot a blue ephant?
 A:	With a blue-ephant gun.
@@ -805,12 +805,12 @@ A:	With a blue-ephant gun.
 Q:	How do you shoot a pink ephant?
 A:	Twist its trunk until it turns blue, then shoot it with
 	a blue-ephant gun.
-Some s are to be tasted, others to be swallowed, and some few to be
+Some s  to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]
 Visit beautiful Wiscin Dls.
-I'm not in' the women are foolish: God Almighty made 'em to match the men.
+I'm not in' the women  foolish: God Almighty made 'em to match the men.
 		-- George Eliot
 I have stripped off my dress; must I put it on again?  I have washed my feet;
 must I  them again?
@@ -834,7 +834,7 @@ what if only that fat guy in the third row exists?
 in his hand.  But is it not true, that you had something in YOUR hand?"
 	"Yes," the man admitted, "his wife. Very charming, of course,
 but not much good in a ."
-I never said all Democrats were saloonkeepers; what I said was all
+I  said all Democrats were saloonkeepers; what I said was all
 saloonkeepers were Democrats.
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
@@ -865,13 +865,13 @@ I think we're all Bozos on this bus.
 		-- Firesign Theatre
 <<<<< EVACUATION ROUTE <<<<<
 When you know absoluty nothing about the topic, make your forecast by
-asking a carefully sected probability sample of 300 others who don't
+asking a cfully sected probability sample of 300 others who don't
 know the answer either.
 		-- Edgar R. Fiedler
 Absent, adj.:
 	Exposed to the attacks of friends and acquaintances; defamed; slandered.
 Boy!  Eucalyptus!
-"The ACU has stood foursquare against the recurring tides of hysteria that
+"The ACU has stood foursqu against the recurring tides of hysteria that
 >from time to time threaten freedoms everyhere... Indeed, it is difficult
 to appreciate how far our freedoms might have eroded had it not been for the
 Union's valiant representation in the courts of the ctitutional s
@@ -885,7 +885,7 @@ Beggars should be no choosers.
 Fly Windows NT:
 All the passengers carry their seats out onto the tarmac, placing the chairs
 in the outline of a plane. They all sit down, flap their arms and make jet
-swooshing sounds as if they are flying.
+swooshing sounds as if they  flying.
 This wasn't just plain terrible, this was fancy terrible.  This was terrible
 with raisins in it.
 		-- Dorothy Parker

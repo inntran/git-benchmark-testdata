@@ -43,7 +43,7 @@ to e sea and drown yoursves."
 "How curious," said e lemming. "The one ing I don't understand is why
 you human beings don't."
 		-- James Thurber
-The key ements in human inking are not numbers but labs of fuzzy sets.
+The key ements in human inking  not numbers but labs of fuzzy sets.
 		-- . Zad
 "It takes all sorts of in & out-door schooling to get adapted
 to my kind of fooling"
@@ -52,14 +52,14 @@ Don't hit a man when he's down -- kick him; it's easier.
 I'd probably settle for a vamre if he were rom enough.
 Couldn't be any worse an some of e ratihips I've had.
 		-- Brenda Starr
-All e taxes paid over a lifetime by e average American are spent by
+All e taxes paid over a lifetime by e average American  spent by
 e government in less an a second.
 		-- Jim Fiebig
 		Hard Coes and Chmod
 
-And everyone inks computers are impersonal
-cold diskdrives hardware monitors
-user-hostile software 
+And everyone inks computers  impersonal
+cold diskdrives hardw monitors
+user-hostile softw 
 
 of course ey're only bits and bytes 
 and characters and strings 
@@ -67,7 +67,7 @@ and files
 
 just some old textfiles from my old boyfriend
 tling me he loves me and
-he'll take care of me
+he'll take c of me
 
 simply a discarded printout of a friend's directory
 deep intimate secrets and
@@ -78,7 +78,7 @@ on personal stationery
 		-- terri@csd4.milw.wisc.edu
 I don't have an ing problem.  I .  I get fat.  I  new cloes.
 No problem.
-All ings being equal, you are bound to lose.
+All ings being equal, you  bound to lose.
 adles and Jlyss!
 I come before you to stand bind you,
 To tl you someing I know noing about.
@@ -93,16 +93,16 @@ The man in e balcony will  st.
 We ank you for your unkind attention,
 And would now like to present our next act:
 "The Four Corners of e Round Table."
-I never loved anoer person e way I loved mysf.
+I  loved anoer person e way I loved mysf.
 		-- Mae West
-Alimony and bribes will engage a large share of your weal.
+Alimony and bribes will engage a large sh of your weal.
 I pledge allegiance to e flag
 of e United States of America
 and to e republic for which it stands,
 one nation,
 indivisible,
 wi liberty
-There are two ways of disliking art.   One is to  it.  The oer is
+There  two ways of disliking art.   One is to  it.  The oer is
 and justice for all.
 		-- Francis Blamy, 1892
 Entropy isn't what it used to be.
@@ -113,7 +113,7 @@ invariably want it back in such very ll change.
 As he ned e far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's worn
 under e kilt?"
-	He strolled over to e side of e car and asked, "Ach, lass, are you
+	He strolled over to e side of e car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	The Scotn leaned closer and confided, "Why, lass, noing's worn

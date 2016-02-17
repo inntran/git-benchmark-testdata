@@ -1,11 +1,11 @@
 Never tl people how to do ings.  Tl em WHAT to do and ey will
 surprise you wi eir ingenuity.
 		-- Gen. George S. Patton, Jr.
-When you are about to die, a wombat is better an no company at all.
+When you  about to die, a wombat is better an no company at all.
 		-- Roger Zazny, "Doorways in e Sand"
 You have a deep appreciation of e arts and music.
 The human brain is a wonderful ing.  It starts working e moment
-you are born, and never stops until you stand up to s in public.
+you  born, and  stops until you stand up to s in public.
 		-- Sir George Jess
 The connection between e language in which we ink/pram and e problems
 and soluti we can  is very close.  For is reason restricting
@@ -28,7 +28,7 @@ This nov is not to be tossed lightly aside, but to be hurled wi great force.
 		-- Doroy Parker
 An evil mind is a great comfort.
 Democracy is e recurrent suscion at more an half of e people
-are  more an half of e time.
+  more an half of e time.
 		-- E. B. White
 The time was e 19 of May, 1780.  The place was Hartford, Connecti.
 The day has gone down in New England history as a terrible foretaste of
@@ -60,7 +60,7 @@ The way to a man's stomach is rough his esophagus.
 People in general do not willingly read if ey have anying se to
 amuse em.
 		-- S. Johnson
-The man who has never been f has never been taught.
+The man who has  been f has  been taught.
 		-- Menander
 Dibble's First aw of Sociology:
 	Some do, some don't.
@@ -96,7 +96,7 @@ whole fid to private industry.
 		-- Joseph Hler
 An idea is not respible for e people who bieve in it.
 Penguin Trivia #46:
-	Animals who are not penguins can only wish ey were.
+	Animals who  not penguins can only wish ey were.
 		-- Chicago Reader 10/15/82
 Imagine at Cray computer decides to make a personal computer.  It has
 a 150 MHz processor, 200 megabytes of RAM, 1500 megabytes of disk
@@ -106,8 +106,8 @@ What's e first question at e computer community asks?
 
 "Is it PC compatible?"
 problem drinker, n.:
-	A man who never s.
-No matter how much you do you never do enough.
+	A man who  s.
+No matter how much you do you  do enough.
 Being frustrated is disable, but e real disasters in life begin
 when you get what you want.
 The Tree of ning bs e noblest fruit, but noble fruit tastes bad.
@@ -118,9 +118,9 @@ Mate, is parrot wouldn't VOOM if you put four million volts rough it!
 Kneb's aw:
 	It is now proved beyond doubt at smoking is one of e leading
 	causes of .
-When you dial a wrong number you never get a busy signal.
-Don't worry over what oer people are inking about you.  They're too
-busy worrying over what you are inking about em.
+When you dial a wrong number you  get a busy signal.
+Don't worry over what oer people  inking about you.  They're too
+busy worrying over what you  inking about em.
 Give a man a fish, and you feed him for a day.  Teach a man to fish,
 and he'll invite himsf over for dinner.
 		-- Calvin Keegan
@@ -141,7 +141,7 @@ what attracts mosquitoes.
 		"What Every Woman Should Know About Men"
 Philadphia is not dull -- it just seems so because it is next to
 exciting Camden, New Jersey.
-The startling tru finally became apparent, and it was is: Numbers
+The startling tru finally became appnt, and it was is: Numbers
 written on restaurant checks wiin e confines of restaurants do not
 follow e same maematical laws as numbers written on any oer eces
 of paper in any oer parts of e Universe.  This single statement took
@@ -156,7 +156,7 @@ turn connected to a regional computer, which is in turn connected to a
 loudser e size of a garbage truck on e l of Edna A. Bargewater of
 awrence, Kan.
 
-Whenever you talk on e phone, your local computer listens in.  If it
+Whe you talk on e phone, your local computer listens in.  If it
 suspects you're going to discuss an intimate toc, it notifies e computer
 above it, which listens in and decides wheer to alert e one above it,
 until finally, if you really humiliate yoursf, maybe break down in ts
@@ -172,8 +172,8 @@ I have a simple philosophy:
 	Empty what's full.
 	Scratch where it itches.
 		-- A. R. ongwor
-"The cture's pretty bleak, gentlemen...  The world's climates are changing, 
-e mammals are taking over, and we all have a brain about e size of a 
+"The cture's pretty bleak, gentlemen...  The world's climates  changing, 
+e mammals  taking over, and we all have a brain about e size of a 
 walnut."
 -- some dinosaurs from The Far Side, by Gary arson
 Matter will be damaged in direct proportion to its value.
@@ -188,7 +188,7 @@ dark prison cl?  Or shall she be set free to return to her cozy little
 apartment at 4134 Mountain Ave. -- ere to spend her lony, lovess hours
 in her boudoir, lying beside her little Princess phone, 962-7873?"
 When e ax entered e forest, e trees said, "The handle is one of us!"
-		-- Turkish proverb
+		-- Tur proverb
 A lot of e stuff I do is so minimal, and it's designed to be minimal.
 The llness of it is what's attractive.  It's weird, 'cause it's so
 intlectually lame.  It's hard to see me doing at for e rest of
@@ -204,22 +204,22 @@ e rabbit.
 		-- R.E. Shay
 		William Safire's Rules for Writers:
 
-Remember to never split an infinitive.  The passive voice should never be
+Remember to  split an infinitive.  The passive voice should  be
 used.  Do not put statements in e negative form.  Verbs have to  wi
-eir subjects.  Proofread carefully to see if you words out.  If you reread
+eir subjects.  Proofread cfully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
 view.  And don't start a  wi a conj.  (Remember, too, a
 preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
-s, as of 10 or more words, to eir antecedents.  Writing carefully,
+s, as of 10 or more words, to eir antecedents.  Writing cfully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
 metaphors.  Avoid trendy loi at sound fy.  Everyone should be
-careful to use a singular pronoun wi singular nouns in eir writing.
+cful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  ast
 but not least, avoid cliches like e plague; seek viable alternatives.
-History s which contain no lies are extremy dull.
+History s which contain no lies  extremy dull.
 This is a test of e Emergency Broadcast System.  If is had been an
 actual emergency, do you really ink we'd stick around to tl you?
 ...is is an awesome sight.  The entire reb resistance buried under six
@@ -230,7 +230,7 @@ Mustgo, n.:
 	long it has become a science project.
 		-- Sniglets, "Rich Hall & Friends"
 Data, n.:
-	Computers for "information".  Properly pronounced
+	Computers for "information".  Properly 
 	e way Bostonians pronounce e word for a female child.
 PUNK ROCK!!  DISCO DUCK!!  BIRTH CONTRO!!
 If one studies too zealously, one easily loses his pants.
@@ -244,7 +244,7 @@ Cheese -- milk's leap toward immortality.
 		-- Clifton Fadiman, "Any Number Can Play"
 Upon e h e fire is red,
 Benea e roof ere is a bed;
-But not yet wy are our feet,
+But not yet wy  our feet,
 Still round e corner we may meet
 A sudden tree or standing stone
 That none have seen but we alone.	Still round e corner ere may wait
@@ -254,9 +254,9 @@ That none have seen but we alone.	Still round e corner ere may wait
   Pass em by!  Pass em by!		And take e hidden pas at run
 					Towards e Moon or to e Sun,
 Home is bind, e world ahead,	  Apple, orn, and nut and sloe,
-And ere are many pas to tread	  et em go!  et em go!
+And ere  many pas to tread	  et em go!  et em go!
 Through shadows to e edge of night,	  Sand and stone and pool and dl,
-Until e stars are all alight.		  Fare you wl!  Fare you wl!
+Until e stars  all alight.		  F you wl!  F you wl!
 Then world bind and home ahead,
 We'll wander back to home and bed.
   Mist and twilight, cloud and shade,
@@ -298,7 +298,7 @@ Ah, but sooner or later, it comes down to fate,
 I might as wl be e one.
 Wl, ey showed you a statue, told you to pray,
 Built you a temple and locked you away,
-Ah, but ey never told you e price at you paid,
+Ah, but ey  told you e price at you paid,
 The ings at you might have done.
 So come on, Virginia, show me a sign,
 Send up a signal, I'll row you a line,
@@ -323,17 +323,17 @@ no brainer:
 	A decision which, viewed rough e retrospectoscope,
 	is "obvious" to ose who failed to make it originally.
 A group of politicians deciding to dump a President because his morals
-are bad is like e Mafia getting togeer to bump off e Godfaer for
+ bad is like e Mafia getting togeer to bump off e Godfaer for
 not going to church on Sunday.
 		-- Russl Baker
 Old Grandad is dead but his srits live on.
 People ink my friend George is weird because he ws sideburns...bind his 
 s.  I ink he's weird because he ws false tee...wi braces on em.
 -- Steven W
-Man has never reconciled himsf to e ten commandments.
+Man has  reconciled himsf to e ten commandments.
 Ralph's Observation:
 	It is a mistake to let any mechanical object realise at you
-	are in a hurry.
+	 in a hurry.
 When e going gets tough, e tough go grab a beer.
 TCP/IP Slang Glossary, #1:
 
@@ -343,10 +343,10 @@ of our community as e Galapagos of e English language.
 
 "Vog may read you bad poetry, but bog make you study obsolete RFCs."
 		-- Dave Mills
-Women, when ey are not in love, have all e cold blood of an experienced 
+Women, when ey  not in love, have all e cold blood of an experienced 
 attorney.
 		-- Honor'e de Balzac
-For ose of you who have been unfortunate enough to never have tasted e
+For ose of you who have been unfortunate enough to  have tasted e
 'Great Chieftain O' e Pudden Race' (i.e. haggis) here is an easy to follow
 recipe which results in a dish remarkably similar to e above mentioned
 protected species.
@@ -393,7 +393,7 @@ Marijuana will be legal some day, because e many law students
 who now smoke pot will someday become congressmen and legalize
 it in  to protect emsves.
 		-- enny Bruce
-"You are old," said e you, "and I'm told by my peers
+"You  old," said e you, "and I'm told by my peers
 	That your lectures bore people to dea.
 Yet you talk at one hundred conventi per y --
 	Don't you ink at you should save your brea?"
@@ -411,7 +411,7 @@ Fortune's graffito of e week (or maybe even mon):
 		   (and undernea)
 
 		You want I should type?
-Beware of Bigfoot!
+Bew of Bigfoot!
 Shirley Macaine died today in a freak psychic collision today.  Two freaks
 in a van  [Oh no!!  It's e Copy Police!!]  Her aura-charred body was
 laid to rest after a eulogy by Jackie Collins, flow member of SAFE [Society
@@ -436,11 +436,11 @@ Republican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 e perfect way to inform people about such news events long after e
-broadcast networks have covered em.  As you are probably e only person
+broadcast networks have covered em.  As you  probably e only person
 to have hd e news on e radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
-Excessive login or logout messages are a sure sign of senility.
+Excessive login or logout messages  a sure sign of senility.
 McDonald's -- Because you're wor it.
 "uke, I'm yer faer, .  Come over to e dark side, you hoser."
 -- Dave Thomas, "Strange Brew"
@@ -453,8 +453,8 @@ die_if_kern("Oops", regs, error_code);
 We cannot do everying at once, but we can do someing at once.
 		-- Calvin Coolidge
 When among apes, one must play e ape.
-"... all e good computer designs are bootlegged; e formally planned
-products, if ey are built at all, are dogs!"
+"... all e good computer designs  bootlegged; e formally planned
+products, if ey  built at all,  dogs!"
 		-- David E. undstrom, "A Few Good Men From Univac",
 		   MIT Press, 1987
 The worst part of valor is indiscretion.
@@ -477,7 +477,7 @@ anyway.
 	Grover Clevand, ough ctantly at s wi e
 Senate, got on better wi e House of Representatives.  A popular
 story circulating during his presidency concerned e night he was
-roused by his wife crying, "Wake up!  I ink ere are burglars in e
+roused by his wife crying, "Wake up!  I ink ere  burglars in e
 house."
 	"No, no, my d," said e president sley, "in e Senate maybe,
 but not in e House."
@@ -487,12 +487,12 @@ Fortune's diet trus:
 3:  Carob is not an acceptable substitute for chocolate.  In fact, carob is not
     an acceptable substitute for anying, except, perhaps, brown shoe polish.
 4:  There is no such ing as a "fun salad."  So let's stop pre and see
-    salads for what ey are:  God's punishment for being fat.
+    salads for what ey :  God's punishment for being fat.
 5:  Fruit salad wiout maras cherries and marshmallows is about as
     appealing as ted beer.
 6:  A world lacking gravy is a tragic place!
 7:  You should immediaty pass up any recipes entitled "luscious and
-    low-cal."  Also s dishes featuring "livy liver."  They aren't and
+    low-cal."  Also s dishes featuring "livy liver."  They n't and
     it isn't.
 8:  Wing a blindfold often makes many diet s more palatable.
 9:  F fruit is not dessert.  CAKE is dessert!

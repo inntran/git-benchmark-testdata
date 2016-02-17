@@ -11,17 +11,17 @@ evening and there was morning, one interrupt.
 		-- Rico Tudor, "The Story of Creation or, The Myth of Urk"
 ife is both difficult and time cuming.
 	"The best thing for being sad," replied Merlin, beginning to puff
-and blow, "is to ln something.  That's the only thing that never fails.
+and blow, "is to ln something.  That's the only thing that  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
 night listening to the disorder of your veins, you may miss your only love,
 you may see the world about you devastated by evil lunatics, or know your
 honour trampled in the sewers of baser minds. There is only one thing for
 it then -- to ln.  n why the world wags and what wags it.  That is
-the only thing which the mind can never exhaust, never alienate, never be
-tortured by, never f or distrust, and never dream of regretting.  ning
-is the only thing for you.  ook what a lot of things there are to ln."
+the only thing which the mind can  exhaust,  alienate,  be
+tortured by,  f or distrust, and  dream of regretting.  ning
+is the only thing for you.  ook what a lot of things there  to ln."
 		-- T.H. White, "The Once and Future King"
-We are all born mad.  Some remain so.
+We  all born mad.  Some remain so.
 		-- Samuel ett
 A student, in hopes of understanding the ambda-nature, came to Greenblatt.
 As they spoke a Multics system hacker walked by.  "Is it true", asked the
@@ -41,7 +41,7 @@ getting a better engineer.  It's a policy I urge all companies to adopt."
 -- Apple co-founder Steve Wozniak, "Will Wozniak's class give Apple to teacher?"
    EE Times, June 6, 1988, pg 45
 You have a strong appeal for members of your own sex.
-"All these black people are screwing up my democracy." - Ian Smith
+"All these black people  screwing up my democracy." - Ian Smith
 Place me on a BUFFER counter while you BEITTE several BEHOPS in the
 Trianon Room!!  et me one of your SUBSIDIARIES!
 Baruch's Observation:
@@ -56,7 +56,7 @@ may be as natural to future times as to us is a literary correspondence.
 		-- Joseph Glanvill, 1661
 Go on, EMOTE!  I was RAISED on thought ballo!!
 It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
+freedom of speech, freedom of thought, and the wisdom  to use either.
 		-- Mark Twain
 Isn't air travel wonderful?  Breakfast in ondon, dinner in New York,
 luggage in Brazil.
@@ -89,7 +89,7 @@ infinite distances continue to exist, a wonderful living side by side can
 grow up, if they succeed in loving the distance between them which makes it
 possible for each to see each other whole against the sky.
 		-- Rainer Rilke
-ast yeer I kudn't spel Engineer.  Now I are won.
+ast yeer I kudn't spel Engineer.  Now I  won.
 When you're in command, command.
 		-- Admiral Nimitz
 	"I'll tell you what I know, then," he decided.  "The pin I'm wing
@@ -98,7 +98,7 @@ somebody in love.  That's the worst addiction of all."
 	"Somebody is about to fall in love," Oedipa said, "you go sit with
 them, or something?"
 	"Right.  The whole idea is to get where you don't need it.  I was
-lucky.  I kicked it young.  But there are sixty-y-old men, believe it or
+lucky.  I kicked it young.  But there  sixty-y-old men, believe it or
 not, and women even older, who might wake up in the night screaming."
 	"You hold meetings, then, like the AA?"
 	"No, of course not.  You get a phone number, an answering service
@@ -107,7 +107,7 @@ it gets so bad you can't handle it alone.  We're isolates, Arnold.  Meetings
 would destroy the whole point of it."
 		-- Thomas Pynchon, "The Crying of ot 49"
 Pushing 40 is exercise enough.
-We don't like their sound.  Groups of guitars are on the way out.
+We don't like their sound.  Groups of guitars  on the way out.
 		-- Decca Reing Company, turning down the Beatles, 1962
 I am a man: nothing human is alien to me.
 		-- Publius Terentius Afer (Terence)
@@ -119,7 +119,7 @@ Q: "Herr Mozart, I am thinking of writing symphonies. Can you give me any
 A: "A symphony is a very complex musical form, perhaps you should begin with
    some simple lieder and work your way up to a symphony."
 Q: "But Herr Mozart, you were writing symphonies when you were 8 ys old."
-A: "But I never asked anybody how."
+A: "But I  asked anybody how."
 But this has taken us far afield from interface, which is not a bad
 place to be, since I particularly want to move ahead to the kludge.
 Why do people have so much trouble understanding the kludge?  What
@@ -149,14 +149,14 @@ imagine the grandeur and scope of a pram that would take as long?
 I am two with nature.
 		-- Woody Allen
 Anyone who has attended a USENIX conference in a fancy hotel can tell you
-that a sentence like "You're one of those computer people, aren't you?"
+that a sentence like "You're one of those computer people, n't you?"
 is roughly equivalent to "ook, another amazingly mobile form of slime
 mold!" in the mouth of a hotel cocktail waitress.
 		-- Elizabeth Zwicky
 Why isn't there some cheap and easy way to prove how much she means to me?
 "No problem is so formidable that you can't walk away from it."
  -- C. Schulz
-Xerox never comes up with anything original.
+Xerox  comes up with anything original.
 System/3!  System/3!
 See how it runs!  See how it runs!
 	Its monitor loses so totally!
@@ -196,7 +196,7 @@ lawless, and bloody piece of mayhem, and then asked Eastwood himself to
 define a Clint Eastwood picture.  "To me," said Eastwood calmly, "what
 a Clint Eastwood picture is, is one that I'm in."
 		-- Boller and Davis, "Hollywood Anecdotes"
-The man who has never been flogged has never been taught.
+The man who has  been flogged has  been taught.
 		-- Menander
 If it's Tuesday, this must be someone else's fortune.
 Oatmeal raisin.
@@ -223,7 +223,7 @@ Mos Eisley Spaceport; you'll not find a more wretched collection of
 villainy and disreputable types...
 		-- Obi-wan Kenobi, "Star Wars"
 I always choose my friends for their good looks and my enemies for their
-good intellects.  Man cannot be too careful in his choice of enemies.
+good intellects.  Man cannot be too cful in his choice of enemies.
 		-- Oscar Wilde, "The Picture of Dorian Gray"
 Hiccuping & trembling into the WASTE DUMPS of New Jersey like some
 drunken CABBAGE PATCH DO, coughing in line at FIORUCCI'S!!
@@ -240,7 +240,7 @@ But if I do, don't pity me at all,
 Just lay my bones in the study hall.
 Tell my teacher I've done my best,
 Then pile my books upon my chest.
-Hackers are just a  lifeform with a tropism for computers.
+Hackers  just a  lifeform with a tropism for computers.
 andru! Guide us!
 		-- A Beta 3-oid, "The Return of the Arch", stardate 3157.4
 QOTD:
@@ -256,8 +256,8 @@ Than to fade away		It's better to burn out than it is to rust
 My my, hey hey			The king is gone but he's not forgotten
 
 It's out of the blue and into the black		Hey hey, my my
-They give you this, but you pay for that	Rock and roll can never die
-And once you're gone you can never come back	There's more to the picture
+They give you this, but you pay for that	Rock and roll can  die
+And once you're gone you can  come back	There's more to the picture
 When you're out of the blue			Than meets the eye
 And into the black
 		-- Neil Young
@@ -270,7 +270,7 @@ The tree in which the sap is stagnant remains fruitless.
 Never fen a small man -- he'll kill you.
 There's nothing like good food, good wine, and a bad girl.
 Gauls! We have nothing to f; except perhaps that the sky may fall on
-our heads tomorrow.  But as we all know, tomorrow never comes!!
+our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
 "Roman Polanski makes his own blood.  He's smart -- that's why his movies work."
 -- A brilliant director at "Frank's Place"
@@ -312,9 +312,9 @@ su not a manager			Even now, forty ys after,
 					and the memory goes on hurting.
 		-- Bart anier Safford III, "An Obscured Radiance"
 Hildebrant's Principle:
-	If you don't know where you are going, any road will get you there.
+	If you don't know where you  going, any road will get you there.
 "There is no Father Christmas.  It's just a marketing ploy 
-to make low income parents' lives a misery."
+to make low income pnts' lives a misery."
 "... I want you to picture the trusting face of a child,
 streaked with ts because of what you just said."
 "I want you to picture the face of its mother, because one
@@ -326,5 +326,5 @@ We ARE as gods and might as well get good at it.
 Computer prams expand so as to fill the core available.
 To be is to be related.
 		-- C.J. Keyser.
-Don't confuse things that need action with those that take care of themselves.
+Don't confuse things that need action with those that take c of themselves.
 Is a wedding successful if it comes off without a hitch?

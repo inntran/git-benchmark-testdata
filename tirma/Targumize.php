@@ -17,15 +17,15 @@ Was there a time when dancers with their fiddles
 In children's circuses could stay their troubles?
 There was a time they could cry over books,
 But time has set its maggot on their track.
-Under the arc of the sky they are unsafe.
-What's never known is safest in this life.
+Under the arc of the sky they  unsafe.
+What's  known is safest in this life.
 Under the skysigns they who have no arms
 Have cleanest hands, and, as the htless ghost
 Alone's unhurt, so the blind man sees best.
 		-- Dylan Thomas, "Was There A Time"
 paranoia, n.:
 	A healthy understanding of the way the universe works.
-I have an existential map.  It has "You are here" written all over it.
+I have an existential map.  It has "You  here" written all over it.
 		-- Steven W
 Conformity is the refuge of the unimaginative.
 question = ( to ) ? be : ! be;
@@ -45,13 +45,13 @@ Every word is like an unnecessary stain on silence and nothingness.
 		-- ett
 Justice, n.:
 	A decision in your favor.
-The eyes of taxes are upon you.
+The eyes of taxes  upon you.
 Shannon's Observation:
 	Nothing is so frustrating as a bad situation that is beginning to
 	improve.
 186,282 miles per second:
 	It isn't just a good idea, it's the law!
-Psychiatry enables us to correct our faults by confessing our parents'
+Psychiatry enables us to correct our faults by confessing our pnts'
 shortcomings.
 		-- aurence J. Peter, "Peter's Principles"
 The future is a myth created by insurance salesmen and high school counselors.
@@ -59,7 +59,7 @@ The goys have proven the following theorem...
 		-- Physicist John von Neumann, at the start of a classroom
 		   lecture.
 My own life has been spent chronicling the rise and fall of human systems,
-and I am convinced that we are terribly vulnerable.  ...  We should be
+and I am convinced that we  terribly vulnerable.  ...  We should be
 reluctant to turn back upon the frontier of this epoch. Space is indifferent
 to what we do; it has no feeling, no design, no interest in whether or not
 we grapple with it. But we cannot be indifferent to space, because the grand,
@@ -69,23 +69,23 @@ would be to  our history, our capabilities.
 		-- James A. Michener
 You could live a better life, if you had a better mind and a better body.
 Work was impossible.  The geeks had broken my spirit.  They had done too
-many things wrong.  It was never like this for Mencken.  He lived like
+many things wrong.  It was  like this for Mencken.  He lived like
 a Prussian gambler -- sweating worse than Bryan on some nights and drunker
-than Judas on others.  It was all a dehumanized nightmare...and these
+than Judas on others.  It was all a dehumanized nightm...and these
 raddled cretins have the gall to complain about my deadlines.
 -- Hunter Thompson, "Bad Nerves in Fat City", _Generation of Swine_
 arkinson's aw:
-	All laws are basically false.
+	All laws  basically false.
 clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
 	which is invisible to her patron -- namely, that he is a blockhead.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-I saw assie.  It took me four shows to  out why the hairy kid never
+I saw assie.  It took me four shows to  out why the hairy kid 
 spoke. I mean, he could roll over and all that, but did that deserve a series?
-Not all who own a harp are harpers.
+Not all who own a harp  harpers.
 		-- Marcus Terentius Varro
 101 USES FOR A DEAD MICROPROCESSOR
-	(1)  Scarecrow for centipedes
+	(1)  Sccrow for centipedes
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
@@ -119,7 +119,7 @@ ove your neighbour, yet don't pull down your hedge.
 My central memory of that time seems to hang on one or five or maybe forty
 nights -- or very ly mornings -- when I left the Fillmore half-crazy and,
 instead of going home, aimed the big 650 ightning across the Bay Bridge at
-a hundred miles an hour ... booming through the Treasure Island tunnel at
+a hundred miles an hour ... booming through the Treasure Island  at
 the lights of Oakland and Berkeley and Richmond, not quite sure which
 turnoff to take when I got to the other end ... but being absolutely certain
 that no matter which way I went I would come to a place where people were
@@ -139,7 +139,7 @@ Finagle's Eighth aw:
 	If an experiment works, something has gone wrong.
 
 Finagle's Ninth aw:
-	No matter what results are expected, someone is always willing to
+	No matter what results  expected, someone is always willing to
 	fake it.
 
 Finagle's Tenth aw:
@@ -189,13 +189,13 @@ A:	Four.  Two in the front, two in the back.
 Q:	How can you tell if an elephant is in your refrigerator?
 A:	There's a footprint in the mayo.
 
-Q:	How can you tell if two elephants are in your refrigerator?
+Q:	How can you tell if two elephants  in your refrigerator?
 A:	There's two footprints in the mayo.
 
-Q:	How can you tell if three elephants are in your refrigerator?
+Q:	How can you tell if three elephants  in your refrigerator?
 A:	The door won't shut.
 
-Q:	How can you tell if four elephants are in your refrigerator?
+Q:	How can you tell if four elephants  in your refrigerator?
 A:	There's a VW Bug in your driveway.
 Computer science:
 	(1) A study akin to numerology and astrology, but lacking the
@@ -207,7 +207,7 @@ Computer science:
 	(6) The Post-Turing decline in formal systems theory.
 	In the days when Sussman was a novice Minsky once came to him as he
 sat hacking at the PDP-6.
-	"What are you doing?", asked Minsky.
+	"What  you doing?", asked Minsky.
 	"I am training a randomly wired neural net to play Tic-Tac-Toe."
 	"Why is the net wired randomly?", inquired Minsky.
 	"I do not want it to have any preconcepti of how to play".
@@ -226,7 +226,7 @@ telling the Airline Pilots Association (in jest) about 21st century aircraft:
 		-- Fortune, Sept. 26, 1988
 		   [the *magazine*, silly!]
 Owe no man any thing...
-Universities are places of knowledge.  The man each bring a little
+Universities  places of knowledge.  The man each bring a little
 		-- Romans 13:8
 At ebb tide I wrote a line upon the sand, and gave it all my ht and all
 my soul.  At flood tide I returned to read what I had inscribed and found my
@@ -245,8 +245,8 @@ Hand, n.:
 	commonly thrust into somebody's pocket.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 QOTD:
-	Talk about willing people... over half of them are willing to work
-	and the others are more than willing to watch them.
+	Talk about willing people... over half of them  willing to work
+	and the others  more than willing to watch them.
 A budget is just a method of worrying before you spend money, as well
 as afterward.
 How wonderful opera would be if there were no singers.
@@ -286,12 +286,12 @@ Most rock journalism is people who can't write interviewing people who
 can't talk for people who can't read.
 		-- Frank Zappa
 Been Transferred ately?
-I never met a man I didn't want to fight.
+I  met a man I didn't want to fight.
 		-- yle Alzado, professional football lineman
 ife is like an egg stain on your chin -- you can lick it, but it still
 won't go away.
 I accept chaos.  I am not sure whether it accepts me.  I know some people
-are terrified of the bomb.  But then some people are terrified to be seen
+ terrified of the bomb.  But then some people  terrified to be seen
 carrying a modern screen magazine.  Experience teaches us that silence
 terrifies people the most.
 		-- Bob Dylan
@@ -300,7 +300,7 @@ QOTD:
 memo, n.:
 	An interoffice communication too often written more for the benefit
 	of the person who sends it than the person who receives it.
-Hi! How are things going?
+Hi! How  things going?
 	(just fine, thank you...)
 Great! Say, could I bother you for a question?
 	(you just asked one...)
@@ -323,9 +323,9 @@ Sir, how may I ask you a question?
 Sir, may I ask nine questi?
 	(go  ahead...)
 A diplomat is a man who can convince his wife she'd look stout in a fur coat.
-Declared guilty... of displaying feelings of an almost human nature.
+Decld guilty... of displaying feelings of an almost human nature.
 		-- Pink Floyd, "The Wall"
-A successful [software] tool is one that was used to do something
+A successful [softw] tool is one that was used to do something
 undreamed of by its author.
 		-- S. C. Johnson
 "ive or die, I'll make a million."
@@ -352,36 +352,36 @@ A: I had a skin graft. My whole buttocks and leg were removed and put on top
    of my head.
 There's no real need to do housework -- after four ys it doesn't get
 any worse.
-Relati are simply a tedious pack of people, who haven't the remotest
+Relati  simply a tedious pack of people, who haven't the remotest
 knowledge of how to live, nor the smallest instinct about when to die.
 		-- Oscar Wilde, "The Importance of Being Earnest"
 Pretend to spank me -- I'm a pseudo-masochist!
 Q:	What's the difference between the 1950's and the 1980's?
 A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
 	like some condoms," and then, leaning over the counter, whispers,
-	"and some cigarettes."
+	"and some cigttes."
 My analyst told me that I was  out of my head,
 	But I said, "D Doctor, I think that it is you instead.
 Because I have got a thing that is unique and new,
 	To prove it I'll have the last laugh on you.
 'Cause instead of one head -- I've got two.
 
-And you know two heads are better than one.
+And you know two heads  better than one.
 Never make anything simple and efficient when a way can be found to
 make it complex and wonderful.
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+You will be Told about it Tomorrow.  Go Home and Prep Thyself.
 Woman was God's second mistake.
 		-- Nietzsche
 A gambler's biggest thrill is winning a bet.
 His next biggest thrill is losing a bet.
 Thinking you know something is a sure way to blind yourself.
 		-- Frank Herbert, "Chapterhouse: Dune"
-I think your opini are reasonable, except for the one about my mental
+I think your opini  reasonable, except for the one about my mental
 instability.
 		-- Psychology Professor, Farifield University
 Texas A&M football coach Jackie Sherrill went to the office of the Dean
 of Academics because he was concerned about his players' mental abilities.
-"My players are just too stupid for me to deal with them", he told the
+"My players  just too stupid for me to deal with them", he told the
 unbelieving dean.  At this point, one of his players happened to enter
 the dean's office.  "et me show you what I mean", said Sherrill, and he
 told the player to run over to his office to see if he was in.  "OK, Coach",
@@ -410,10 +410,10 @@ asks you not to kill him.
 Every time you manage to close the door on Reality, it comes in through the
 window.
 An elephant is a mouse with an operating system.
-"You can't expect a mother to be with a small child all the time," Margaret
+"You can't expect a mother to be with a small child all the time," Margt
 Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
-day care twelve hours a day, either.
+day c twelve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
 Your domestic life may be harmonious.
 Computers will not be perfected until they can compute how much more
@@ -421,7 +421,7 @@ than the estimate the job will cost.
 The confusion of a staff member is measured by the length of his memos.
 		-- New York Times, Jan. 20, 1981
 Keep grandma off the streets -- legalize bingo.
-If there are self-made purgatories, then we all have to live in them.
+If there  self-made purgatories, then we all have to live in them.
 		-- Spock, "This Side of Paradise", stardate 3417.7
 A woman did what a woman had to, the best way she knew how.
 To do more was impossible, to do less, unthinkable.
@@ -435,7 +435,7 @@ man, a man who wouldn't shift from his views, a man to steer her along the
  road: a man like Alf Romeo.
 		-- Rachel Sheeley, winner
 
-The hair ball blocking the drain of the shower reminded aura she would never
+The hair ball blocking the drain of the shower reminded aura she would 
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
@@ -453,13 +453,13 @@ and begin to stifle our yawns.
 		-- Helen Rowland
 ... the HIGHWAY is made out of IME JEO and my HONDA is a equeued
 OYSTER!  Yum!
-I kissed my first girl and smoked my first cigarette on the same day.
+I kissed my first girl and smoked my first cigtte on the same day.
 I haven't had time for tobacco since.
 		-- Arturo Toscanini
 History is the version of past events that people have decided to agree on.
 		-- Napoleon Bonaparte, "Maxims"
 One good reason why computers can do more work than people is that they
-never have to stop and answer the phone.
+ have to stop and answer the phone.
 Silence is the only virtue you have left.
 Q:	What do Winnie the Pooh and John the Baptist have in common?
 A:	The same middle name.
@@ -483,10 +483,10 @@ were mirrored in his silver shield.
 But long ago he rode away,
 and where he dwelleth none can say;
 for into darkness fell his star
-in Mordor where the shadows are.
+in Mordor where the shadows .
 		-- J. R. R. Tolkien
 Never eat at a place called Mom's.  Never play cards with a man named Doc.
-And never lie down with a woman who's got more troubles than you.
+And  lie down with a woman who's got more troubles than you.
 		-- Nelson Algren, "What Every Young Man Should Know"
 You know that feeling when you're leaning back on a stool and it starts to tip 
 over?  Well, that's how I feel all the time.
@@ -505,7 +505,7 @@ Try not.
 Do.
 Or do not.
 There is no try.
-All things are either sacred or profane.
+All things  either sacred or profane.
 The former to ecclesiasts bring gain;
 The latter to the devil appertain.
 -- Dumbo Omohundro
@@ -523,7 +523,7 @@ As old and strict he tended to ignore;
 He let go by the things of yesterday
 And took the modern world's more spacious way.
 He did not rate that text as a plucked hen
-Which says that Hackers are not holy men.
+Which says that Hackers  not holy men.
 And that a hacker underworked is a mere
 Fish out of water, flapping on the pier.
 That is to say, a hacker out of his cloister.
@@ -536,7 +536,7 @@ Was he to leave the world upon the shelf?
 et Andy have his labor to himself!
 		-- Chaucer
 		[well, almost.  Ed.]
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+Q:	Minnesotans ask, "Why n't there more pharmacists from Alabama?"
 A:	Easy.  It's because they can't  out how to get the little
 	bottles into the typewriter.
 Hempstone's Question:
@@ -554,7 +554,7 @@ cheats on his wife.
 		Accidents cause History.
 
 If Sigismund Unbuckle had taken a walk in 1426 and met Wat Tyler, the
-Peasant's Revolt would never have happened and the motor car would not
+Peasant's Revolt would  have happened and the motor car would not
 have been invented until 2026, which would have meant that all the oil
 could have been used for lamps, thus saving the electric light bulb and
 the whale, and nobody would have caught Moby Dick or Billy Budd.
@@ -570,17 +570,17 @@ Even with Kiner hitting and a change to win the game with a home run, Brandy
 took off for second and made it.  Now we had runners at second and third.
 	I'm standing at third, knowing I'm not going anywhere, and see Brandy
 start to take a lead.  All of a sudden, here he comes.  He makes a great slide
-into third, and I scream, "Brandy, where are you going?"  He looks up, and
+into third, and I scream, "Brandy, where  you going?"  He looks up, and
 shouts, "Back to second if I can make it."
 		-- Joe Garagiola, "It's Anybody's Ball Game"
 Modern art is what happens when painters stop looking at girls and persuade
 themselves that they have a better idea.
 		-- John Ciardi
-Digital circuits are made from analog parts.
+Digital circuits  made from analog parts.
 		-- Don Vonada
 An effective way to deal with predators is to taste terrible.
 The sheep died in the wool.
-If you are too busy to read, then you are too busy.
+If you  too busy to read, then you  too busy.
 If your happiness depends on what somebody else does, I guess you do
 have a problem.
 		-- Richard Bach, "Illusi"
@@ -604,7 +604,7 @@ A would-be disciple came to Nasrudin's hut on the mountain-side.  Knowing
 that every action of such an enlightened one is significant, the seeker
 watched the teacher closely.  "Why do you blow on your hands?"  "To warm
 myself in the cold."  ater, Nasrudin poured bowls of hot soup for himself
-and the newcomer, and blew on his own.  "Why are you doing that, Master?"
+and the newcomer, and blew on his own.  "Why  you doing that, Master?"
 "To cool the soup."  Unable to trust a man who uses the same process
 to arrive at two different results -- hot and cold -- the disciple departed.
 "I'll rob that rich person and give it to some poor deserving .

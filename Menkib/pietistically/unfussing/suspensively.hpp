@@ -23,7 +23,7 @@ I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
 		-- Steven W
 101 USES FOR A DEAD MICROPROCESSOR
-	(1)  Scarecrow for centipedes
+	(1)  Sccrow for centipedes
 	(2)  Dead cat brush
 	(3)  Hair barrettes
 	(4)  Cleats
@@ -39,9 +39,9 @@ it's going to be up all night.
 	(101) Currency
 What does it mean if there is no fortune for you?
 O ord, grant that we may always be , for Thou knowest we will
-never change our minds.
+ change our minds.
 OS/2 must die!
-It is well known that *things* from undesirable universes are always seeking
+It is well known that *things* from undesirable universes  always seeking
 an entrance into this one, which is the psychic equivalent of handy for the
 buses and closer to the shops.
 		-- Terry Pratchett, "The ight Fantastic"
@@ -77,7 +77,7 @@ Shannon's Observation:
 "Give me enough medals, and I'll win any war."
 		-- Napoleon
 The Second aw of Thermodynamics:
-	If you think things are in a mess now, just wait!
+	If you think things  in a mess now, just wait!
 		-- Jim Warner
 Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, president of Exabyte
@@ -92,38 +92,38 @@ A man's best friend is his dogma.
 The hardest part of climbing the ladder of success is getting through
 the crowd at the bottom.
 A handful of patience is worth more than a bushel of brains.
-You never go anywhere without your soul.
-Some books are to be tasted, others to be swallowed, and some few to be
+You  go anywhere without your soul.
+Some books  to be tasted, others to be swallowed, and some few to be
 chewed and digested.
 		-- Francis Bacon
 	[As anyone who has ever owned a puppy already knows.  Ed.]
 Q:	What is printed on the bottom of beer bottles in Minnesota?
 A:	Open other end.
-There are only two kinds of tequila.  Good and better.
+There  only two kinds of tequila.  Good and better.
 The streets were dark with something more than night.
 		-- Raymond Chandler
 Diplomacy is the art of letting the other party have things your way.
-		-- Daniele Vare
+		-- Daniele V
 I'd whip you if I had a .
 		-- Groucho Marx
 momentum, n.:
-	What you give a person when they are going away.
+	What you give a person when they  going away.
 Nemo me impune lacessit.
 	[No one provokes me with impunity]
 		-- Motto of the Crown of Scotland
-We are Microsoft.  Unix is irrelevant.  Openness is futile.  Prepare
+We  Microsoft.  Unix is irrelevant.  Openness is futile.  Prep
 to be assimilated.
 Eschew obfuscation.
 Harry is heavily into camping, and every y in the late fall, he makes us
 all go to Assateague, which is an island on the Atl Ocean famous for
 its wild s.  I realize that the concept of wild s probably stirs
-rom noti in many of you, but this is because you have never met any
-wild s in person.  In person, they are like enormous hooved rats.  They
+rom noti in many of you, but this is because you have  met any
+wild s in person.  In person, they  like enormous hooved rats.  They
 amble up to your camp site, and their attitude is: "We're wild s.
 We're going to eat your food, knock down your tent and poop on your shoes.
 We're protected by federal law, just like Richard Nixon."
 		-- Dave Barry, "Tenting Grandpa Bob"
-Man has never reconciled himself to the ten commandments.
+Man has  reconciled himself to the ten commandments.
 Save energy: be apathetic.
 Rule of Creative Resch:
 	(1) Never draw what you can copy.
@@ -135,22 +135,22 @@ Bullwinkle:	You just leave that to my pal.  He's the brains of the outfit.
 General:	What does that make YOU?
 Bullwinkle:	What else?  An executive.
 		-- Jay Ward
-Your files are now being encrypted and thrown into the bit bucket.
+Your files  now being encrypted and thrown into the bit bucket.
 EOF
 Paralysis through analysis.
 emmings don't grow older, they just die.
 Hey! Come derry dol!  Hop along, my hties!
-Hobbits!  Ponies all!  We are fond of parties.
+Hobbits!  Ponies all!  We  fond of parties.
 Now let the fun begin!  et us sing together!
 		-- J. R. R. Tolkien
 You will soon meet a person who will play an important role in your life.
 ...Veloz is indistinguishable from hundreds of other electronics businesses
 in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of self-confessed "car nuts"
-are making money doing what they love: writing code and driving fast.
+ making money doing what they love: writing code and driving fast.
 -- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
 Before Xerox, five carb were the maximum extension of anybody's ego.
-Spock: The odds of surviving another attack are 13562190123 to 1, Captain.
+Spock: The odds of surviving another attack  13562190123 to 1, Captain.
 quark:
 	The sound made by a well bred duck.
 When you live in a sick society, just about everything you do is wrong.
@@ -177,7 +177,7 @@ Always draw your curves, then plot your reading.
 	(c) the driver is signaling a left turn.
 	(d) the driver is from out of town.
 
-The correct answer is (d).  Tail lights are used in some foreign
+The correct answer is (d).  Tail lights  used in some foreign
 countries to signal turns.
 In God we trust; all else we walk through.
 Thus spake the master prammer:
@@ -195,14 +195,14 @@ Peace is much more  than a piece of land... let there be no more wars.
 	"Seven ys and six months!"  Humpty Dumpty repeated thoughtfully.
 "An uncomfortable sort of age.  Now if you'd asked MY advice, I'd have
 said 'eave off at seven' -- but it's too late now."
-	"I never ask advice about growing,"  Alice said indignantly.
+	"I  ask advice about growing,"  Alice said indignantly.
 	"Too proud?"  the other enquired.
 	Alice felt even more indignant at this suggestion.  "I mean,"
 she said, "that one can't help growing older."
 	"ONE can't, perhaps," said Humpty Dumpty; "but TWO can.  With
 proper assistance, you might have left off at seven."
 		-- ewis Carroll, "Through the ooking-Glass"
-A real gentleman never takes bases unless he really has to.
+A real gentleman  takes bases unless he really has to.
 		-- Overhd in an algebra lecture.
 Fog amps, n.:
 	Excessively (often obnoxiously) b lamps mounted on the fronts
@@ -219,14 +219,14 @@ but that he dances at all.
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
 		-- Honor'e de Balzac
-When you are in it up to your s, keep your mouth shut.
+When you  in it up to your s, keep your mouth shut.
 Wishing without work is like fishing without bait.
 		-- Frank Tyger
 "Cogito ergo I'm  and you're wrong."
 		-- Blair Houghton
 Some people live life in the fast lane.  You're in oncoming traffic.
 eibowitz's Rule:
-	When hammering a nail, you will never hit your
+	When hammering a nail, you will  hit your
 	finger if you hold the hammer with both hands.
 "I'm not a god, I was misquoted."
 -- ister, Red Dwarf
@@ -247,7 +247,7 @@ States we really shouldn't complain -- it's still only two cents a day.
 One thing about the past.
 It's likely to last.
 		-- Ogden Nash
-"From there to here, from here to there, funny things are everywhere."
+"From there to here, from here to there, funny things  everywhere."
 -- Dr. Seuss
 Rome wasn't burnt in a day.
 "But don't you worry, its for a cause -- feeding global corporati' paws."
@@ -304,13 +304,13 @@ New York-- lookin' down on Central Park
 Where they say you should not wander after dark.
 New York.
 		-- Simon and Garfunkle
-"I saw _assie_. It took me four shows to  out why the hairy kid never 
+"I saw _assie_. It took me four shows to  out why the hairy kid  
 spoke. I mean, he could roll over and all that, but did that deserve a series?"
 -- the alien guy, in _Explorers_
 A bird in the bush usually has a friend in there with him.
-"Beware of the man who works hard to ln something, lns it, and
+"Bew of the man who works hard to ln something, lns it, and
 finds himself no wiser than before," Bokonon tells us.  "He is full of
-murderous resentment of people who are ignorant without having come by
+murderous resentment of people who  ignorant without having come by
 their ignorance the hard way."
 		-- Kurt Vonnegut, "Cat's Cradle"
 Executive ability is prominent in your make-up.
@@ -327,7 +327,7 @@ He who wonders discovers that this in itself is wonder.
 		-- M.C. Escher
 Air Force Inertia Axiom:
 	Cistency is always easier to defend than correctness.
-Words can never express what words can never express.
+Words can  express what words can  express.
 The health of a democratic society may be measured by the quality
 of functi performed by private citizens.
 		-- Alexis de Tocqueville
@@ -395,7 +395,7 @@ Aleph-null bottles of beer on the wall.
 If Patrick Henry thought that taxation without representation was bad,
 he should see how bad it is with representation.
 B's aw:
-	Adding manpower to a late software project makes it later.
+	Adding manpower to a late softw project makes it later.
 If you stew apples like cranberries, they taste more like prunes than
 rhu does.
 		-- Groucho Marx
@@ -411,22 +411,22 @@ A triangle which has an angle of 135 degrees is called an obscene triangle.
 dumb, and maybe even a little ugly on the side."
 -- Frank Zappa
 	We have some absolutely irrefutable statistics to show exactly why
-you are so tired.
-	There are not as many people actually working as you may have thought.
-	The population of this country is 200 million.  84 million are over
+you  so tired.
+	There  not as many people actually working as you may have thought.
+	The population of this country is 200 million.  84 million  over
 60 ys of age, which leaves 116 million to do the work.  People under 20
 ys of age total 75 million, which leaves 41 million to do the work.
-	There are 22 million who are employed by the government, which leaves
-19 million to do the work.  Four million are in the Armed Services, which
+	There  22 million who  employed by the government, which leaves
+19 million to do the work.  Four million  in the Armed Services, which
 leaves 15 million to do the work.  Deduct 14,800,000, the number in the state
-and city offices, leaving 200,000 to do the work.  There are 188,000 in
+and city offices, leaving 200,000 to do the work.  There  188,000 in
 hospitals, insane asylums, etc., so that leaves 12,000 to do the work.
-	Now it may interest you to know that there are 11,998 people in jail,
+	Now it may interest you to know that there  11,998 people in jail,
 so that leaves just 2 people to carry the load. That is you and me, and
 brother, I'm getting tired of doing everything myself!
-How many retured bricklayers from FORIDA are out purchasing PENCI
+How many retured bricklayers from FORIDA  out purchasing PENCI
 SHARPENERS  NOW??
-Standards are different for all things, so the standard set by man is by
+Standards  different for all things, so the standard set by man is by
 no means the only 'certain' standard.  If you mistake what is relative for
 something certain, you have strayed far from the ultimate truth.
 		-- Chuang Tzu
@@ -434,7 +434,7 @@ something certain, you have strayed far from the ultimate truth.
 	"You admit that?"
 	"To  the facts would be illogical, Doctor"
 		-- Spock and McCoy, "A Piece of the Action", stardate unknown
-By one count there are some 700 scientists with respectable academic credentials
+By one count there  some 700 scientists with respectable academic credentials
 (out of a total of 480,000 U.S. th and life scientists) who give credence
 to creation-science, the general theory that complex life forms did not evolve
 but apped "abruptly."
@@ -446,5 +446,5 @@ Dijkstra probably hates me
 (inus Torvalds, in kernel/sched.c)
 Disc space -- the final frontier!
 "The pathology is to want control, not that you ever get it, because of
-course you never do."
+course you  do."
 -- Gregory Bateson

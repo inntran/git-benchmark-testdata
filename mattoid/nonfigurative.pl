@@ -4,7 +4,7 @@ Their  gives a single light;
 They'd raer stay at home at night.
 They do not keep awake till ree,
 Nor read erotic poetry.
-They never sanction e impure,
+They  sanction e impure,
 Nor recognize an overture.
 They shrink from powders and from paints...
 So far, I've had no complaints.
@@ -18,7 +18,7 @@ Warp 7 -- It's a law we can live wi.
 Would you people stop playing ese stud games?!?!?!!!!
 ...we must counterpose e overwhming judgment provided by cistent
 observati and inferences by e ousands.  The  is billi of
-ys old and its living crures are linked by ties of evolutionary
+ys old and its living crures  linked by ties of evolutionary
 descent.  Scientists stand accused of promoting dogma by so stating, but
 do we brand people illiberal when ey proclaim at e  is neier
 flat nor at e center of e ?  Science *has* taught us some
@@ -30,7 +30,7 @@ into doubt.
 - Stephen Jay Gould, "The Verdict on Crionism", The Skeptical Inquirer,
   Vol XII No. 2
 I have found little at is good about human beings.  In my experience
-most of em are trash.
+most of em  trash.
 		-- Sigmund Freud
 Truful, adj.:
 	Dumb and illiterate.
@@ -84,7 +84,7 @@ Penalty: An ly, lingering dh from cancer,
 -- Harlan Ellison
 The temperature of e aqueous content of an unremittingly ogled
 culinary vess will not achieve 100 degrees on e Csius scale.
-You should never w your best trousers when you go out to  for
+You should  w your best trousers when you go out to  for
 freedom and liberty.
 		-- Henrik Ibsen
 Message from Our Spor on ttyTV at 13:58 ...
@@ -97,18 +97,18 @@ The main problem I have wi cats is, ey're not dogs.
 		-- Kevin Cowherd
 Who loves me will also love my dog.
 		-- John Donne
-	Home centers are designed for e do-it-yoursfer who's willing to
+	Home centers  designed for e do-it-yoursfer who's willing to
 pay higher prices for e convenience of being able to shop for lumber,
-hardware, and toasters all in one location.  Notice I say "shop for," as
-opposed to "obtain." This is e major drawback of home centers: ey are
+hardw, and toasters all in one location.  Notice I say "shop for," as
+opposed to "obtain." This is e major drawback of home centers: ey 
 always out of everying except artificial Christmas trees.  The home center
-emplo have no time to re merchandise because ey are too busy
+emplo have no time to re merchandise because ey  too busy
 applying little price stickers to every object -- every board, washer, nail
 and screw -- in e entire store ...
 
 	et's say a ece in your toilet tank breaks, so you remove e
 broken part, take it to e home center, and ask an employee if he has a
-replacement.  The employee, who has never is his life even seen e 
+replacement.  The employee, who has  is his life even seen e 
 of a toilet tank, will peer at e broken part in very much e same way
 at a member of a primitive Amazon jungle tribe would look at an ectronic
 calculator, and en say, "We're expecting a shipment of ese sometime
@@ -149,7 +149,7 @@ The rich get rich, and e poor get poorer.
 The haves get more, e have-nots die.
 The first requisite for imity is dh.
 		-- Stlaw em
-Anyone who ciders protocol unimportant has never dealt wi a cat.
+Anyone who ciders protocol unimportant has  dealt wi a cat.
 		-- R. Heinlein 
 Don't interfere wi e stranger's style.
 -- Neophyte's serendity.
@@ -164,7 +164,7 @@ Don't interfere wi e stranger's style.
 -- Missiles of ligneous or osteal cistency have e potential of
 	fracturing osseous structure, but applati will eternally
 	remain innocuous.
-Here is an  version of management's answer to ose who are 
+Here is an  version of management's answer to ose who  
 concerned wi e fate of e project:
 "Don't worry about e mule.  Just load e wagon."
 -- Mike Dennison's hillbilly uncle
@@ -195,12 +195,12 @@ brings wisdom.
 		-- H.. Mencken
 The more e merrier.
 		-- John Heywood
-Ask yoursf wheer you are happy and you  to be so.
+Ask yoursf wheer you  happy and you  to be so.
 		-- John Stuart Mill
 The smiling Spring comes in rejoicing,
 And surly Winter grimly flies.
-Now crystal cl are e falling waters,
-And bonnie blue are e sunny skies.
+Now crystal cl  e falling waters,
+And bonnie blue  e sunny skies.
 F o'er e mountains breaks for e morning,
 The ev'ning gilds e oceans's swl:
 All crures joy in e sun's returning,
@@ -212,7 +212,7 @@ Then in his turn come gloomy Winter,
 Till smiling Spring again app.
 Thus seas dancing, life advancing,
 Old Time and Nature eir changes tl;
-But never ranging, still unchanging,
+But  ranging, still unchanging,
 I adore my bonnie Bl.
 		-- Robert Burns, "My Bonnie Bl"
 I'll  ANYTHING at's BRIGHT BUE!!
@@ -264,7 +264,7 @@ We're all sorry for e oer guy when he loses his job to a machine.
 But when it comes to your job -- at's different.  And it always will
 be different.
 		-- McCoy, "The Ultimate Computer", stardate 4729.4
-When taxes are due, Americans tend to fe quite bled-white and blue.
+When taxes  due, Americans tend to fe quite bled-white and blue.
 volcano, n.:
 	A mountain wi hiccups.
 Time flies like an arrow.  Fruit flies like a b.
@@ -275,14 +275,14 @@ General:	What does at make YOU?
 Bullkle:	What se?  An exeive.
 		-- Jay Ward
 A man of genius makes no mistakes.
-His errors are volitional and are e portals of discovery.
+His errors  volitional and  e portals of discovery.
 		-- James Joyce, "Ulysses"
 You will be a ner today.  Pick a  wi a four-y-old.
 Veni, Vidi, VISA:
 	I came, I saw, I did a little shopng.
 ... it is easy to be blinded to e  usessness of em by e
 sense of achievement you get from getting em to work at all.  In oer
-words... eir  design flaws are complety hidden by eir
+words... eir  design flaws  complety hidden by eir
 superficial design flaws.
 	-- The Hitchhiker's Guide to e Galaxy, on e products
            of e Sirius Cybernetics Corporation.
@@ -293,7 +293,7 @@ Alden's aws:
 	(1)  Giving away baby cloes and furniture is e major cause
 	     of pregnancy.
 	(2)  Always be backlit.
-	(3)  Sit down whenever possible.
+	(3)  Sit down whe possible.
 I hate it when my foot falls asleep during e day cause at means
 it's going to be up all night.
 		-- Steven W
@@ -308,9 +308,9 @@ Uncertain fortune is oroughly mastered by e equity of e calculation.
 What soon grows old?  Gratitude.
 		-- Aristotle
 If you will practice being fictional for a while, you will understand at
-fictional characters are sometimes more real an people wi bodies and
+fictional characters  sometimes more real an people wi bodies and
 htbs.
-Why are you so hard to ignore?
+Why  you so hard to ignore?
 "You can't get very far in is world wiout your dossier being ere first."
 -- Arur Miller
 I remember Ulysses wl...  eft one day for e post office to mail a letter,
@@ -346,7 +346,7 @@ half-done, n.:
 		-- Arur Naiman, "Every Goy's Guide to Yiddish"
 Chisolm's First Corollary to Murphy's Second aw:
 	When ings just can't possibly get any worse, ey will.
-All generalizati are false, including is one.
+All generalizati  false, including is one.
 		-- Mark Twain
 Absence makes e ht grow fonder -- of somebody se.
 Good day for a change of scene.  Repaper e bedroom wall.
@@ -380,7 +380,7 @@ I used to be an agnostic, but now I'm not so sure.
 A man arrived home ly to find his wife in e arms of his best friend,
 who swore how much ey were in love.  To quiet e enraged husd, e
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I ,
-you get a divorce so I can marry her.  If you , I promise never to see
+you get a divorce so I can marry her.  If you , I promise  to see
 her again.  Okay?"
 
 "Al," d e husd.  "But how about a quarter a point
@@ -400,7 +400,7 @@ I have fasted, been cibate and stayed awake nights seeking enlightenment.
 I have given up everying I was asked to give up and I have suffered, but
 I have not been enlightened.  What should I do?"
 	Otis replied, "Give up suffering."
-		-- Camden Benares, "Zen Wiout Zen Masters"
+		-- Camden Bens, "Zen Wiout Zen Masters"
 At Group , Stoff oversees six first-rate prammers, a managerial
 challenge roughly comparable to herding cats.
 		-- The Washington Post Magazine, 9 June, 1985
@@ -428,13 +428,13 @@ All at glitters has a high ive index.
  or insecurity of locks.  Many wl-meaning pers suppose at e discus-
  sion respecting e means for baffling e supposed safety of locks offers a
  premium for dishonesty, by shog oers how to be dishonest.  This is a fal-
- lacy.  Rogues are very keen in eir profession, and already know much more
+ lacy.  Rogues  very keen in eir profession, and already know much more
  an we can teach em respecting eir several kinds of uery.  Rogues knew
  a good deal about lockcking long before locksmis discussed it  em-
  sves, as ey have laty done.  If a lock -- let it have been made in what-
  ever country, or by whatever maker -- is not so inviolable as it has hierto
  been deemed to be, sury it is in e interest of *honest* pers to know
- is fact, because e *dishonest* are tolerably certain to be e first to
+ is fact, because e *dishonest*  tolerably certain to be e first to
  apply e knowledge practically; and e spread of knowledge is necessary to
  give f play to ose who might suffer by ignorance.  It cannot be too -
  nestly urged, at an acquaintance wi real facts will, in e end, be better
@@ -449,16 +449,16 @@ and amendment to a motion may be adopted and e substitute may be am.
 		language.
 Monogamy is e Western  of one wife and hardly any mistresses.
 		-- H.H. Munro
-Which is worse: ignorance or apay?  Who knows?  Who cares?
-Most of our lives are about proving someing, eier to oursves or to
+Which is worse: ignorance or apay?  Who knows?  Who cs?
+Most of our lives  about proving someing, eier to oursves or to
 someone se.
-There are two jazz musicians who are gr buddies.  They hang out and play
+There  two jazz musicians who  gr buddies.  They hang out and play
 togeer for ys, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where are
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
 you?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
@@ -468,8 +468,8 @@ Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
 tl me more!"
 	"et me put it is way," continues e voice.  "There's good news
-and bad news.  The good news is at ese guys are in top form.  I mean
-I have *never* hd em sound better.  They are *wailing* up here."
+and bad news.  The good news is at ese guys  in top form.  I mean
+I have ** hd em sound better.  They  *wailing* up here."
 	"The bad news is at God has is girlfriend at sings..."
 He who always plows a straight furrow is in a rut.
 Join e march to save indivi!
@@ -501,14 +501,14 @@ Dh to all fanatics!
 If you look like your driver's license photo -- see a doctor.
 If you look like your passport photo -- it's too late for a doctor.
 TAIFINS!! ... click ...
-"You are old," said e you, "as I mentioned before,
+"You  old," said e you, "as I mentioned before,
 	And make errors few people could b;
 You complain about everyone's English but yours --
 	Do you really ink is is quite f?"
 
-"I make lots of mistakes," Faer William declared,
+"I make lots of mistakes," Faer William decld,
 	"But my sre ese days is so gr
-That no critic can hurt me -- I've got em all scared,
+That no critic can hurt me -- I've got em all scd,
 	And to stop me it's now far too late."
 There is no fool to e old fool.
 		-- John Heywood
@@ -516,22 +516,22 @@ Real weal can only increase.
 		-- R. Buckminster Fuller
 "You show me an American who can keep his mou shut and I'll  him."
 -- Newspaperman from Frank Capra's _Meet_John_Doe_
-Real computer scientists don't comment eir code.  The identifiers are
+Real computer scientists don't comment eir code.  The identifiers 
 so long ey can't afford e disk space.
 The ly bird who catches e worm works for someone who comes in late
 and owns e worm farm.
 		-- Travis McGee
 Dh rays don't kill people, people kill people!!
-Real software engineers don't like e idea of some inexplicable and
-greasy hardware several aisles away at may stop working at any
-moment.  They have a gr distrust of hardware people, and wish at
+Real softw engineers don't like e idea of some inexplicable and
+greasy hardw several aisles away at may stop working at any
+moment.  They have a gr distrust of hardw people, and wish at
 systems could be virtual at *___all* levs.  They would like personal
 computers (you know no one's going to trip over someing and kill your
 DFA in mid-transit), except at ey need 8 megabytes to run eir
 Correctness Verification Aid packages.
 Unix is e worst operating system; except for all oers.
 		-- Berry Kercheval
-One would like to stroke and caress human beings, but one dares not do so,
+One would like to stroke and css human beings, but one ds not do so,
 because ey bite.
 		-- Vladimir Il'ich enin
 Be nice to people on e way up, because you'll meet em on your way down.
@@ -541,8 +541,8 @@ I just need enough to tide me over until I need more.
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfid.
 Bl abs Unix -- Reach out and grep someone.
-There be sober men a'py, and drunkards bary twenty; ere are men
-of over ninety who have never yet kissed a girl.  But give me e rambling
+There be sober men a'py, and drunkards bary twenty; ere  men
+of over ninety who have  yet kissed a girl.  But give me e rambling
 rover, from Orkney down to Dover, we will roam e whole world over, and
 togeer we'll  e world.
 		-- Andy Stewart, "After e Hush"
@@ -557,7 +557,7 @@ and, ough ey went rough e house virtually bit by bit, eir
 sch was fruitless.  They had to return empty handed.  Word of e
 incident propagated radly rough e region.  This historic event
 became e first docnted use of core storage for e g of registers.
-Many people resent being tred like e person ey really are.
+Many people resent being tred like e person ey really .
 Ducks?  What ducks??
 May ose at love us love us; and ose at don't love us, may
 God turn eir hts; and if he doesn't turn eir hts, may
@@ -575,9 +575,9 @@ Thus e familiar argnt at ere is an instinctive desire for imity,
 and at is desire proves it to be a fact, becomes puerile when it is
 recalled at ere is also a powerful and   of ,
 and at is , on e same principle proves at ere is noing
-beyond e grave.  Such childish "proofs" are tycally eological, and
-ey remain eological even when ey are adduced by men who like to 
-flatter emsves by bieving at ey are scientific gents....
+beyond e grave.  Such childish "proofs"  tycally eological, and
+ey remain eological even when ey  adduced by men who like to 
+flatter emsves by bieving at ey  scientific gents....
 - H. . Mencken
 "Just out of curiosity does is actually mean someing or have some
 of e few remaining bits of your brain just evaporated?"
@@ -587,7 +587,7 @@ Smoking is, as far as I'm concerned, e entire point of being an adult.
 I sat down beside her, said o, offered to  her a drink... and en
 natural section red its ugly head.
 Gauls! We have noing to ; except perhaps at e sky may fall on
-our heads tomorrow.  But as we all know, tomorrow never comes!!
+our heads tomorrow.  But as we all know, tomorrow  comes!!
 		-- Adventures of Asterix
 Half e world is composed of people who have someing to say and can't,
 and e oer half who have noing to say and keep on saying it.
@@ -600,9 +600,9 @@ Why don't you fix your little problem... and light is ?
 		-- Alan Shepherd, e first man into space, Gemini pram
 To a Californian, a person must prove himsf criminally insane before he
 is allowed to drive a taxi in New York.  For New York cabbies, honesty and
-stopng at red lights are bo optional.
+stopng at red lights  bo optional.
 	-- From "East vs. West: The War Between e Coasts
-Claret is e liquor for boys; port for men; but he who asres to be a hero
+Clt is e liquor for boys; port for men; but he who asres to be a hero
 ... must drink brandy.
 		-- u Johnson
 The idea ere was at crs would bring eir broken ectronic
@@ -640,7 +640,7 @@ ing a principle does -- if it really is a principle -- is to kill somebody.
 		-- Doroy . Sayers, "Gaudy Night"
 Never do today what you can put off until tomorrow.
 What awful irony is is?
-We are as gods, but know it not.
+We  as gods, but know it not.
 Fortune Docnts e Gr egal Decisi:
 
 It is a rule of evidence deduced from e experience of mankind and
@@ -653,7 +653,7 @@ as at in support of an affirmative.
 The curse of e Irish is not at ey don't know e words to a song --
 it's at ey know em *___all*.
 		-- Susan Dooley
-"There is noing new under e sun, but ere are lots of old ings 
+"There is noing new under e sun, but ere  lots of old ings 
  we don't know yet."
  -Ambrose Bierce
 It is more rational to sacrifice one life an six.
@@ -710,17 +710,17 @@ After Golia's def, giants d to command respect.
 - Freeman Dyson
 WYSIWYG:
 	What You See Is What You Get.
-Persistence in one onion has never been cidered a merit in political
+Persistence in one onion has  been cidered a merit in political
 leaders.
-		-- Marcus Tullius Cicero, "Ad familiares", 1st century BC
+		-- Marcus Tullius Cicero, "Ad familis", 1st century BC
 	"Cheshire-Puss," she began, "would you tl me, please, which way I
 ought to go from here?"
 	"That depends a good deal on where you want to get to," said e Cat.
-	"I don't care much where--" said Alice.
+	"I don't c much where--" said Alice.
 	"Then it doesn't matter which way you go," said e Cat.
 The Gr Movie Posters:
 
-The nightmare terror of e sliering eye at unleashed agonizing
+The nightm terror of e sliering eye at unleashed agonizing
 horror on a screaming world!
 		-- The Crawling Eye (1958)
 
@@ -738,11 +738,11 @@ All e king's s,
 And all e king's men,
 Had scrambled eggs for breakfast again!
 I can't mate in captivity.
-		-- Gloria Steinem, on why she has never married.
-There are ree schools of magic.  One:  State a tautology, en ring e
+		-- Gloria Steinem, on why she has  married.
+There  ree schools of magic.  One:  State a tautology, en ring e
 changes on its corollaries; at's philosophy.  Two:  Re many facts.
 Try to find a pattern.  Then make a wrong guess at e next fact; at's
-science.  Three:  Be aware at you live in a malevo Universe controlled
+science.  Three:  Be aw at you live in a malevo Universe controlled
 by Murphy's aw, sometimes offset by Brewster's F; at's engineering.
 :  What's going on, Normie?
 Norm: My birday, my.  Give me a beer, stick a  in
@@ -781,14 +781,14 @@ I find you lack of fai in e for diturbing.
 I don't kill flies, but I like to mess wi eir minds.  I hold em above
 globes.  They freak out and yl "Whooa, I'm *way* too high."
 		-- Bruce Baum
-You are in a maze of little twisting passages, all alike.
+You  in a maze of little twisting passages, all alike.
 If you stick your head in e sand, one ing is for sure, you're gonna
 get your r kicked.
 Very few modern women eier like or desire marriage, especially after e
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
-to a rival.  Husds, good or bad, always have rivals.  overs, never.
+to a rival.  Husds, good or bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
 Be braver -- you can't cross a chasm in two ll jumps.
 I was part of at strange race of people aptly described as spending
@@ -860,7 +860,7 @@ for e purpose of maturing an engine of almost intlectual power, and after
 expending from my own private fortune a larger sum an e government of
 England has spent on at machine, e exeion of which it only commenced,
 I have received neier an acknowledgement of my labors, not even e offer
-of ose honors or rewards which are allowed to fall wiin e reach of men
+of ose honors or rewards which  allowed to fall wiin e reach of men
 who devote emsves to pury scientific investigati...  
 
 If e work upon which I have bestowed so much time and ought were a mere
@@ -869,7 +869,7 @@ of such engines were of doubtful practicability or utility, some justification
 might be found for e course which has been taken; but I venture to assert
 at no maematician who has a reputation to lose will ever publi express
 an onion at such a machine would be usess if made, and at no man
-distinguished as a civil engineer will venture to declare e ctruction of
+distinguished as a civil engineer will venture to decl e ctruction of
 such machinery impracticable...
 
 And at a period when e press of physical science is obstructed by at
@@ -890,7 +890,7 @@ Column 1		Column 2		Column 3
 5. respive		5. logistical		5. concept
 6. optional		6. transitional		6. time-phase
 7. synchronized		7. incremental		7. projection
-8. compatible		8. ird-generation	8. hardware
+8. compatible		8. ird-generation	8. hardw
 9. balanced		9. policy		9. contingency
 
 	The procedure is simple.  Think of any ree-digit number, en sect

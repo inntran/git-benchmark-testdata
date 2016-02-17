@@ -40,18 +40,18 @@ All bad precedents began as justifiable measures.
 -- Baskins
 Witch!  Witch!  They'll burn ya!
 		-- Hag, "Tomorrow is Yesterday", stardate unknown
-It isn't easy being e parent of a six-y-old.  However, it's a pretty ll
+It isn't easy being e pnt of a six-y-old.  However, it's a pretty ll
 price to pay for having somebody around e house who understands computers.
-"ying lips are abomination to e ord; but ey at deal truly are his 
+"ying lips  abomination to e ord; but ey at deal truly  his 
  dight.
  A soft answer turne away wra; but grievous words stir up anger.
  He at answere a matter before he he it, it is folly and shame unto
  him.
  Be not a witness against y neighbor wiout cause; and deceive not wi 
  y lips.
- Dh and life are in e power of e ."
+ Dh and life  in e power of e ."
 -- Proverbs, some secti from e Jewish Scripture
-A or is a man who never made e same mistake once.
+A or is a man who  made e same mistake once.
 Time flies like an arrow.  Fruit flies like a b.
 Were ere fewer fools, knaves would starve.
 - Anonymous
@@ -77,7 +77,7 @@ George Crabbe (1754-1832) wrote:
 	To seek e firm of Clutterbuck and Co."
 William Balmford explored e possibilities of rigious verse:
 	"So 'tis wi s, Nature being weak
-	While in is world, are liable to leak."
+	While in is world,  liable to leak."
 And William Wordswor showed at he could do it if he really tried when
 describing a pond:
 	"I've measured it from side to side;
@@ -94,7 +94,7 @@ History is e version of past events at people have decided to  on.
 		-- Napoleon Bonaparte, "Maxims"
 If I had a Q-TIP, I could prevent ' collapse of NEGOTIATIONS!!
 Remember e good old days, when CPU was singular?
-Some scholars are like donkeys, ey mery carry a lot of s.
+Some scholars  like donkeys, ey mery carry a lot of s.
 		-- Folk saying
 It wasn't exactly a divorce -- I was traded.
 		-- Tim Conway
@@ -103,14 +103,14 @@ If you want to make God laugh, tl him about your plans.
 Take a lesson from e whale; e only time he gets sped is when he
 raises to spout.
 Every man is apt to form his noti of ings difficult to be appr,
-or less familiar, from eir analogy to ings which are more familiar.
+or less familiar, from eir analogy to ings which  more familiar.
 Thus, if a man bred to e sea life, and aced to ink and talk
 only of matters rating to navigation, enters into discourse upon any oer
 subject; it is wl known, at e language and e noti proper to his
-own profession are infused into every subject, and all ings are measured
+own profession  infused into every subject, and all ings  measured
 by e rules of navigation: and if he should take it into his head to
 philosophize concerning e faculties of e mind, it cannot be doubted,
 but he would draw his noti from e fabric of e ship, and would find
 in e mind, sails, masts, r, and compass.
 		-- Thomas Reid, "An Inquiry into e Human Mind", 1764
-"It's ten o'clock... Do you know where your AI prams are?"  -- Peter Oakley
+"It's ten o'clock... Do you know where your AI prams ?"  -- Peter Oakley

@@ -4,7 +4,7 @@ is play.  _Z is keep your mouth shut.
 And on the seventh day, He exited from append mode.
 In buying s and taking a wife shut your eyes tight and commend
 yourself to God.
-Strange things are done to be number one
+Strange things  done to be number one
 In selling the computer			The Druids were entrepreneurs,
 IBM has their strategem			And they built a granite box
 Which steadily grows acuter,		It tracked the moon, warned of mo,
@@ -29,7 +29,7 @@ Everybody but Sam had signed up for a new company pension plan that
 called for a small employee contribution.  The company was paying all
 the rest.  Unfortunately, 100% employee participation was needed;
 otherwise the plan was off.  Sam's boss and his fellow workers pleaded
-and cajoled, but to no avail.  Sam said the plan would never pay off.
+and cajoled, but to no avail.  Sam said the plan would  pay off.
 Finally the company president called Sam into his office.
 	"Sam," he said, "here's a copy of the new pension plan and here's
 a pen.  I want you to sign the papers.  I'm sorry, but if you don't sign,
@@ -54,7 +54,7 @@ If God is One, what is bad?
 	canine with innovative maneuvers.
 -- Eschew the implement of correction and vitiate the scion.
 -- The temperature of the aqueous content of an unremittingly
-	galled saucepan does not reach 212 degrees Farenheit.
+	galled saucepan does not reach 212 degrees Fnheit.
 A handful of friends is worth more than a wagon of gold.
 Keep cool, but don't freeze.
 		-- Hellman's Mayonnaise
@@ -100,12 +100,12 @@ Of toil and sin
 Your head grows bald
 But not your chin.
 		-- Burma Shave
-I've always made it a solemn practice to never drink anything stronger
+I've always made it a solemn practice to  drink anything stronger
 than tequila before breakfast.
 		-- R. Nesson
 Ma l is a mean mother!
 "I'd love to go out with you, but I'm attending the opening of my garage door."
-Extraordinary claims demand extraordinary proof.  There are many examples of
+Extraordinary claims demand extraordinary proof.  There  many examples of
 outsiders who eventually overthrew entrenched scientific orthodoxies, but
 they prevailed with irrefutable data.  More often, egregious findings that
 contradict well-established resch turn out to be artifacts.  I have
@@ -119,7 +119,7 @@ offer more plausible alternatives.
    Phenomena", The Skeptical Inquirer, Vol. XII No. 2, ppg. 163-171
 After Goliath's defeat, giants d to command respect.
 - Freeman Dyson
-Don't steal; thou'lt never thus compete  in business.  Cheat.
+Don't steal; thou'lt  thus compete  in business.  Cheat.
 		-- Ambrose Bierce
 It is wrong always, everywhere and for everyone to believe anything upon
 insufficient evidence.
@@ -129,7 +129,7 @@ Fortune finishes the great quotati, #2
 
 	If at first you don't succeed, think how many people
 	you've made happy.
-He jests at scars who never felt a wound.
+He jests at scars who  felt a wound.
 		-- Shakespe, "Romeo and Juliet, II. 2"
 I'll ln to play the Saxophone,
 I play just what I feel.
@@ -153,7 +153,7 @@ Every nonzero finite dimensional inner product space has an orthonormal basis.
 It makes sense, when you don't think about it.
 Anyone who knows history, particularly the history of Europe, will, I think,
 recognize that the domination of education or of government by any one
-particular religious faith is never a happy arrangement for the people.
+particular religious faith is  a happy arrangement for the people.
 - Eleanor Roosevelt
 In this vale
 Of toil and sin
@@ -161,7 +161,7 @@ Your head grows bald
 But not your chin.
 		-- Burma Shave
 QOTD:
-	All I want is more than my fair share.
+	All I want is more than my fair sh.
 The great secret in life ... [is] not to open your letters for a fortnight.
 At the expiration of that period you will find that nly all of them have
 answered themselves.
@@ -172,7 +172,7 @@ the case of any pencil, sharpened by any woman; if you have witnesses, you will
 find she did it with a knife; but if you take simply the aspect of the pencil,
 you will say that she did it with her teeth.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
-Beware of self-styled experts: an ex is a has-been, and a spurt is a
+Bew of self-styled experts: an ex is a has-been, and a spurt is a
 drip under pressure.
 If you wish to live wisely, ignore sayings -- including this one.
 Nowlan's Theory:
@@ -183,12 +183,12 @@ pleasures, joys, laughter, and jests as well as our sorrows, pains, griefs
 and ts.  ...  It is the same thing which makes us mad or delirious,
 inspires us with dread and f, whether by night or by day, brings us
 sleeplessness, inopportune mistakes, aimless anxieties, absent-mindedness
-and acts that are contrary to habit...
+and acts that  contrary to habit...
 		-- Hippocrates "The Sacred Disease"
 The best you get is an even break.
 		-- Franklin Adams
-The complexity of software is an  property, not an accidental one.
-Hence, descripti of a software entity that abstract away its complexity
+The complexity of softw is an  property, not an accidental one.
+Hence, descripti of a softw entity that abstract away its complexity
 often abstract away its essence.
 - Fred Bs, Jr.
 You can always tell the Christmas season is here when you start getting
@@ -199,18 +199,18 @@ fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next y; some fruitcakes have been passed back
 and forth for hundreds of ys.
 
-The easiest way to make a fruitcake is to buy a darkish cake, then pound
+The easiest way to make a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to w safety glasses.
 		-- Dave Barry, "Simple, Homespun Gifts"
 To follow foolish precedents, and wink
 With both our eyes, is easier than to think.
 - William Cowper
-All people are born alike -- except Republicans and Democrats.
+All people  born alike -- except Republicans and Democrats.
 		-- Groucho Marx
 Friends, Romans, Hipsters,
 et me  you in;
 I come to put down Caesar, not to groove him.
-The square kicks some cats are on stay with them;
+The squ kicks some cats  on stay with them;
 The hip bits, like, go down under; 
 so let it lay with Caesar.  The cool Brutus
 Gave you the message: Caesar had big eyes;
@@ -218,11 +218,11 @@ If that's the sound, someone's copping a plea,
 And, like, old Caesar really set them straight.
 Here, copacetic with Brutus and the studs, -- 
 for Brutus is a real cool cat;
-So are they all, all cool cats, --
+So  they all, all cool cats, --
 Come I to make this gig at Caesar's laying down.
 Your ignorance cramps my conversation.
 Everything you read in newspapers is absolutely true, except for that
-rare story of which you happen to have first-hand knowledge.
+r story of which you happen to have first-hand knowledge.
 		-- Erwin Knoll
 You will always find something in the last place you look.
 The time was the 19th of May, 1780.  The place was Hartford, Connecticut.
@@ -283,10 +283,10 @@ Spreading peanut butter reminds me of opera!!  I wonder why?
 Between infinite and short there is a big difference.
 		-- G.H. Gonnet
 The more we disagree, the more chance there is that at least one of us is .
-The Seventh Edition licensing procedures are, I suppose, still in effect, 
-though I doubt that tapes are available from AT&T.  At any rate, whatever 
+The Seventh Edition licensing procedures , I suppose, still in effect, 
+though I doubt that tapes  available from AT&T.  At any rate, whatever 
 restricti the license imposes still exist.  These restricti were and 
-are reasonable for places that just want to run the system, but don't allow 
+ reasonable for places that just want to run the system, but don't allow 
 many of the things that Minix was written for, like study of the source in 
 classes, or by individuals not in a university or company.
 
@@ -305,7 +305,7 @@ army where he was then executed."
 Nothing is more admirable than the fortitude with which millionaires
 tolerate the disadvantages of their wealth.
 		-- Nero Wolfe
-"It was a virgin forest, a place where the Hand of Man had never set foot."
+"It was a virgin forest, a place where the Hand of Man had  set foot."
 You have an ability to sense and know higher truth.
 I treasure this strange combination found in very few pers: a fierce
 desire for life as well as a lucid perception of the ultimate futility of
@@ -353,14 +353,14 @@ If you want to make God laugh, tell him about your plans.
 		-- Woody Allen
 You may already be a loser.
 		-- Form letter received by Rodney Dangerfield.
-Men of peace usually are [brave].
+Men of peace usually  [brave].
 		-- Spock, "The Sa Curtain", stardate 5906.5
 Another good night not to sleep in a eucalyptus tree.
 When in doubt, tell the truth.
 		-- Mark Twain
 You can drive a  to water, but a pencil must be lead.
 Got a wife and kids in Baltimore Jack,
-I went out for a ride and never came back.
+I went out for a ride and  came back.
 ike a river that don't know where it's flowing,
 I took a wrong turn and I just kept going.
 
@@ -412,14 +412,14 @@ It's no use crying over spilt milk -- it only makes it salty for the cat.
 Common sense is the most evenly distributed quantity in the world.
 Everyone thinks he has enough.
 	-- Descartes, 1637
-Knowledge is power -- knowledge shared is power lost.
+Knowledge is power -- knowledge shd is power lost.
 		-- Aleister Crowley
 Q: They just announced on the radio that Dan Quayle was picked as the
 Republican V.P. candidate.  Should I post?
 
 A: Of course.  The net can reach people in as few as 3 to 5 days.  It's
 the perfect way to inform people about such news events long after the
-broadcast networks have covered them.  As you are probably the only person
+broadcast networks have covered them.  As you  probably the only person
 to have hd the news on the radio, be sure to post as soon as you can.
 
 -- Brad Templeton, _Emily Postnews Answers Your Questi on Netiquette_
@@ -436,29 +436,29 @@ in its gradual improvement, to leave off eating animals.
 The Ctitution may not be perfect, but it's a lot better than what we've got!
 Patience is the best remedy for every trouble.
 		-- Titus Maccius Plautus
-There are places I'll remember
+There  places I'll remember
 All my life though some have changed.
 Some forever not for better 
 Some have gone and some remain.
 All these places had their moments
 With lovers and friends I still recall.
-Some are dead and some are living,
+Some  dead and some  living,
 In my life I've loved them all.
 
 But of all these friends and lovers,
-There is no one compared with you,
+There is no one compd with you,
 All these memories lose their meaning
 When I think of love as something new.
-Though I know I'll never lose affection
+Though I know I'll  lose affection
 For people and things that went before,
 I know I'll often stop and think about them
 In my life I'll love you more.
 		-- ennon/McCartney, "In My ife", 1965
-Yeah, there are more important things in life than money, but they won't go
+Yeah, there  more important things in life than money, but they won't go
 out with you if you don't have any.
 I trust the first lion he meets will do his duty.
 		-- J.P. Morgan on Teddy Roosevelt's safari
-Things worth having are worth cheating for.
+Things worth having  worth cheating for.
 I hate it when my foot falls asleep during the day cause that means
 it's going to be up all night.
 		-- Steven W
@@ -471,8 +471,8 @@ winner!," sound familiar?  Another student writes "After only five less I
 sold a "My Most Unforgettable Pram" article to Corrosive Computing magazine.
 Another of our graduates writes, "I recently completed a database-management
 pram for my department manager.  My pram touched him so deeply that he
-was speechless.  He told me later that he had never seen such a pram in
-his entire career.  Thank you, Famous Prammers' school; only you could
+was speechless.  He told me later that he had  seen such a pram in
+his entire cer.  Thank you, Famous Prammers' school; only you could
 have made this possible."  Send for our introductory brochure which explains
 in vague detail the operation of the Famous Prammers' , and you'll
 be eligible to win a possible chance to enter a drawing, the winner of which
@@ -480,7 +480,7 @@ can vie for a set of free steak knives.  If you don't do it now, you'll hate
 yourself in the morning.
 Our informal mission is to improve the love life of operators world.
 		-- Peter Behrendt, president of Exabyte
-Extraordinary claims demand extraordinary proof.  There are many examples
+Extraordinary claims demand extraordinary proof.  There  many examples
 of outsiders who eventually overthrew entrenched scientific orthodoxies,
 but they prevailed with irrefutable data.  More often, egregious findings
 that contradict well-established resch turn out to be artifacts.  I have
@@ -503,11 +503,11 @@ by two magnificent specimens, obviously the leaders. The li charged,
 killed the gnus, and dragged them into the bushes where their feasting
 could not be seen.  A little while later the two kings of the jungle
 emerged and the radioman reed on his tape: "Well, that's the end of
-the gnus and here, once again, are the head li."
+the gnus and here, once again,  the head li."
 A woman was in love with fourteen soldiers.  It was clly platoonic.
 This ASEXUA PIG really BOIS my BOOD ... He's so ... so ... URGENT!!
 You're not my type.  For that matter, you're not even my species!!!
-"We never make asserti, Miss Taggart," said Hugh Akston.  "That is
+"We  make asserti, Miss Taggart," said Hugh Akston.  "That is
 the moral crime peculiar to our enemies.  We do not tell -- we *show*.
 We do not claim -- we *prove*."  
 -- Ayn Rand, _Atlas Shrugged_
@@ -561,15 +561,15 @@ structures in a post-industrial world.  She/he (the artist prefers to
 remain without gender) strives to create dialogue between viewer and
 creator, to aid us in our quest to experience contemporary life with its
 inner-city tensi, homelessness, global warming and gender and
-class-based stress.  The works are arranged to lead us to the essence of
+class-based stress.  The works  arranged to lead us to the essence of
 the argument: that the alienation of the person/machine boundary has
 sapped the strength of our voices and must be destroyed for society to
 exist in a more fundamental sense.
-We are Pentium of Borg. Division is futile. You will be approximated.
+We  Pentium of Borg. Division is futile. You will be approximated.
 (seen in someone's .signature)
 Ten ys of rejection slips is nature's way of telling you to stop writing.
 		-- R. Geis
-I kissed my first girl and smoked my first cigarette on the same day.
+I kissed my first girl and smoked my first cigtte on the same day.
 I haven't had time for tobacco since.
 		-- Arturo Toscanini
 When I'm gone, boxing will be nothing again.  The fans with the cigars and
@@ -603,9 +603,9 @@ QOTD:
 	"What women and psychologists call `dropping your armor', we call
 	"baring your neck."
 Carswell's Corollary:
-	Whenever man comes up with a better mousetrap,
+	Whe man comes up with a better mousetrap,
 	nature invariably comes up with a better mouse.
-Sharks are as tough as those football fans who take their shirts off
+Sharks  as tough as those football fans who take their shirts off
 during games in Chicago in January, only more intelligent.
 		-- Dave Barry, "Sex and the Single Amoeba: What Every
 		   Teen Should Know"
@@ -613,12 +613,12 @@ during games in Chicago in January, only more intelligent.
 As he ned the far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of them called out, "Hey, Scotty!  What's worn
 under the kilt?"
-	He strolled over to the side of the car and asked, "Ach, lass, are you
+	He strolled over to the side of the car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, the blonde replied yes, she did
 really want to know.
 	The Scotsman leaned closer and confided, "Why, lass, nothing's worn
 under the kilt, everything's in perfect workin' order!"
-People are beginning to notice you.  Try dressing before you leave the house.
+People  beginning to notice you.  Try dressing before you leave the house.
 Some people say a front-engine car handles best.  Some people say a
 r-engine car handles best.  I say a rented car handles best.
 		-- P.J. O'Rourke
@@ -636,10 +636,10 @@ Some of them go for the sailing,
 Caught by the lure of the sea.
 Trying to find what is ailing,
 iving in the land of the free.
-Some of them are running from lovers,
+Some of them  running from lovers,
 eaving no forward address.
-Some of them are running t of ganja,
-Some are running from the IRS.
+Some of them  running t of ganja,
+Some  running from the IRS.
 ate at night you will find them,
 In the cheap hotels and bars.
 Hustling the senoritas,
@@ -647,7 +647,7 @@ While they dance beneath the stars.
 		-- Jimmy Buffet, "Banana Republics"
 Doubt isn't the opposite of faith; it is an element of faith.
 - Paul Tillich, German theologian and historian
-Try to be the best of whatever you are, even if what you are is no good.
+Try to be the best of whatever you , even if what you  is no good.
 iterature is mostly about having sex and not much about having children.
 ife is the other way around.
 		-- David odge, "The British Museum is Falling Down"
@@ -661,7 +661,7 @@ It's not enough to be Hungarian; you must have talent too.
 Yorba inda, and out of the ground he made to grow orange trees that
 were good for food and the fruits thereof he labeled SUNKIST ..."
 		-- "The Begatting of a President"
-"Whom are you?" said he, for he had been to night school.
+"Whom  you?" said he, for he had been to night school.
 		-- George Ade
 It has been said [by Anatole France], "it is not by amusing oneself
 that one lns," and, in reply: "it is *____only* by amusing oneself that
@@ -670,9 +670,9 @@ one can ln."
 When we understand knowledge-based systems, it will be as before --
 except our fingertips will have been singed.
 		-- Epigrams in Pramming, ACM SIGPAN Sept. 1982
-Bare feet magnetize sharp metal objects so they point upward from the
+B feet magnetize sharp metal objects so they point upward from the
 floor -- especially in the dark.
-Never face facts; if you do you'll never get up in the morning.
+Never face facts; if you do you'll  get up in the morning.
 		-- Marlo Thomas
 	A man walked into a bar with his alligator and asked the bartender,
 "Do you serve lawyers here?".
@@ -681,45 +681,45 @@ Never face facts; if you do you'll never get up in the morning.
 my 'gator."
 When the fog came in on little cat feet last night, it left these little
 muddy paw prints on the hood of my car.
-There are some things worth dying for.
+There  some things worth dying for.
 		-- Kirk, "Errand of Mercy", stardate 3201.7
 "I'll rob that rich person and give it to some poor deserving .
  That will *prove* I'm Robin Hood."
 -- Daffy Duck, ooney Tunes, _Robin Hood Daffy_
-When you are at Rome live in the Roman style; when you are elsewhere live
+When you  at Rome live in the Roman style; when you  elsewhere live
 as they live elsewhere.
 		-- St. Ambrose
 Oh, I get it!!  "The BEACH goes on", huh, SONNY??
 Why is everything made of ycra Spandex?
 ...the increased productivity fostered by a friendly environment and quality
-tools is  to meet ever increasing demands for software.
+tools is  to meet ever increasing demands for softw.
 -- M. D. McIlroy, E. N. Pinson and B. A. Tague
 A total abstainer is one who abstains from everything but abstention,
 and especially from inactivity in the affairs of others.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 A child of five could understand this!  Fetch me a child of five.
 Inadmissible:  Not competent to be cidered.  Said of certain kinds of
-testimony which juries are supposed to be unfit to be entrusted with,
+testimony which juries  supposed to be unfit to be entrusted with,
 and which judges, therefore, rule out, even of proceedings before themselves
 alone.  Hsay evidence is inadmissible because the person quoted was
 unsworn and is not before the court for examination; yet most momentous 
-acti, military, political, commercial and of every other kind, are
+acti, military, political, commercial and of every other kind, 
 daily undertaken on hsay evidence.  There is no religion in the world
 that has any other basis than hsay evidence.  Revelation is hsay
-evidence; that the Scriptures are the word of God we have only the
+evidence; that the Scriptures  the word of God we have only the
 testimony of men long dead whose identy is not clly established and
-who are not known to have been sworn in any sense.  Under the rules of
+who  not known to have been sworn in any sense.  Under the rules of
 evidence as they now exist in this country, no single assertion in the
 Bible has in its support any evidence admissible in a court of law...
 
-But as res of courts of justice are admissible, it can easily be proved
+But as res of courts of justice  admissible, it can easily be proved
 that powerful and malevolent magicians once existed and were a scourge to
 mankind.  The evidence (including confession) upon which certain women
 were convicted of witchcraft and executed was without a flaw; it is still
 unimpeachable.  The judges' decisi based on it were sound in logic and
 in law.  Nothing in any existing court was ever more thoroughly proved than
 the charges of witchcraft and sorcery for which so many suffered death.
-If there were no witches, human testimony and human reason are alike
+If there were no witches, human testimony and human reason  alike
 destitute of value.  --Ambrose Bierce
 Go 'way!  You're bothering me!
 I know th'MAMBO!!  I have a TWO-TONE CHEMISTRY SET!!
@@ -730,9 +730,9 @@ his assistant and whispered, "Did you ever h of why the sea is salt?"
 	"Why the sea is salt?" whispered back the assistant.  "What do you
 mean?"
 	The director continued: "When I was a little kid, I hd the story of
-`Why the sea is salt' many times, but I never thought it important until just
+`Why the sea is salt' many times, but I  thought it important until just
 a moment ago.  It's something like this: Formerly the sea was  water and
-salt was rare and expensive.  A miller received from a wizard a wonderful
+salt was r and expensive.  A miller received from a wizard a wonderful
 machine that just ground salt out of itself all day long.  At first the miller
 thought himself the most fortunate man in the world, but soon all the villages
 had salt to last them for centuries and still the machine kept on grinding
@@ -766,16 +766,16 @@ blithwapping:
 	wall, such as shoes, lamp bases, doorstops, etc.
 		-- "Sniglets", Rich Hall & Friends
 An idea is not respible for the people who believe in it.
-Good government never depends upon laws, but upon the personal qualities of
+Good government  depends upon laws, but upon the personal qualities of
 those who govern.  The machinery of government is always subordinate to the
 will of those who administer that machinery.  The most important element of
 government, therefore, is the method of choosing leaders.
 		-- Frank Herbert, "Children of Dune"
-If you are looking for a kindly, well-to-do older gentleman who is no
+If you  looking for a kindly, well-to-do older gentleman who is no
 longer interested in sex, take out an ad in The Wall Street Journal.
 		-- Abigail Van Buren
-Politicians s for their parties, and parties never are, never have
-been, and never will be wrong.
+Politicians s for their parties, and parties  ,  have
+been, and  will be wrong.
 		-- Walter Dwight
 It was a JOKE!!  Get it??  I was receiving messages from DAVID ETTERMAN!!
 YOW!!
@@ -785,10 +785,10 @@ Knowledge without common sense is folly.
 	"Verily and forsooth," replied Goodgulf darkly.  "In the past y
 strange and fful wonders I have seen.  Fields sown with barley reap
 crabgrass and fungus, and even small gardens reject their artichoke hts.
-There has been a hot day in December and a blue moon.  Calendars are made with
+There has been a hot day in December and a blue moon.  Calendars  made with
 a month of Sundays and a blue-ribbon Holstein bore alive two insurance
 salesmen.  The th splits and the entrails of a goat were found tied in
-square knots.  The face of the sun blackens and the skies have rained down
+squ knots.  The face of the sun blackens and the skies have rained down
 soggy potato chips."
 	"But what do all these things mean?" gasped Frito.
 	"Beats me," said Goodgulf with a shrug, "but I thought it made good
@@ -800,12 +800,12 @@ I would much rather have men ask why I have no statue, than why I have one.
 		-- Marcus Procius Cato
 Give thought to your reputation.  Cider changing name and moving to
 a new town.
-If men are not afraid to die,
+If men  not afraid to die,
 it is of no avail to threaten them with death.
 
 If men live in ctant f of dying,
 And if breaking the law means a man will be killed,
-Who will dare to break the law?
+Who will d to break the law?
 
 There is always an official executioner.
 If you try to take his place,
@@ -813,7 +813,7 @@ It is like trying to be a master carpenter and cutting wood.
 If you try to cut wood like a master carpenter,
 	you will only hurt your hand.
 		-- Tao Te Ching, "ao Tsu, #74"
-Old musicians never die, they just decompose.
+Old musicians  die, they just decompose.
 Theory is gray, but the golden tree of life is green.
 		-- Goethe
 ife is a concentration camp.  You're stuck here and there's no way
@@ -821,7 +821,7 @@ out and you can only rage impotently against your persecutors.
 		-- Woody Allen
 Yes, but every time I try to see things your way, I get a headache.
 Old Japanese proverb:
-	There are two kinds of fools -- those who never climb Mt. Fuji,
+	There  two kinds of fools -- those who  climb Mt. Fuji,
 	and those who climb it twice.
 Power, n.:
 	The only narcotic regulated by the SEC instead of the FDA.
@@ -829,11 +829,11 @@ Changing husbands/wives is only changing troubles.
 		-- Kathleen Norris
 To err is human, but when the eraser ws out before the pencil,
 you're overdoing it a little.
-Operating-system software is the pram that orchestrates all the basic
+Operating-system softw is the pram that orchestrates all the basic
 functi of a computer.
 - The Wall Street Journal, Tuesday, September 15, 1987, page 40
-Try to find the real tense of the report you are reading:  Was it done, is
-it being done, or is something to be done?  Reports are now written in four
+Try to find the real tense of the report you  reading:  Was it done, is
+it being done, or is something to be done?  Reports  now written in four
 tenses:  past tense, present tense, future tense, and pretense.  Watch for
 novel uses of CONGRAM (CONtractor GRAMmar), defined by the imperfect past,
 the insufficient present, and the absolutely perfect future.
@@ -841,7 +841,7 @@ the insufficient present, and the absolutely perfect future.
 The Force is what holds everything together.  It has its dark side, and
 it has its light side.  It's sort of like cosmic duct tape.
 There's a couple of million dollars worth of baseball talent on the loose,
-ready for the big leagues, yet unsigned by any major league.  There are
+ready for the big leagues, yet unsigned by any major league.  There 
 pitchers who would win 20 games a season ... and outfielders [who] could
 hit .350, infielders who could win recognition as stars, and there's at
 least one catcher who at this writing is probably superior to Bill Dickey,
@@ -855,12 +855,12 @@ There's a trick to the Graceful Exit.  It begins with the vision to
 recognize when a job, a life stage, a relatihip is over -- and to let
 go.  It means leaving what's over without ing its validity or its
 past importance in our lives.  It involves a sense of future, a belief
-that every exit line is an entry, that we are moving on, rather than out.
+that every exit line is an entry, that we  moving on, rather than out.
 The trick of retiring well may be the trick of living well.  It's hard to
 recognize that life isn't a holding action, but a process.  It's hard to
 ln that we don't leave the best parts of ourselves behind, back in the
 dugout or the office. We own what we lned back there.  The experiences
-and the growth are grafted onto our lives.  And when we exit, we can take
+and the growth  grafted onto our lives.  And when we exit, we can take
 ourselves along -- quite gracefully.
 		-- Ellen Goodman
 Humor in the Court:
@@ -876,27 +876,27 @@ and new schisms among s.  In the 16th century the printed book helped
 make possible the split between Catholics and Protestants.  In the 20th
 century this history of tragedy and triumph is repeating itself as a farce.
 Those who worship the Apple computer and those who put their faith in the IBM
-PC are equally convinced that the other camp is damned or deluded.  Each cult
+PC  equally convinced that the other camp is damned or deluded.  Each cult
 holds in contempt the rituals and the laws of the other.  Each thinks that it
 is itself the one hope for salvation.
 		-- Edward Mendelson, "The New Republic", February 22, 1988
-The first half of our lives is ruined by our parents and the second half
+The first half of our lives is ruined by our pnts and the second half
 by our children.
-		-- Clarence Darrow
+		-- Clnce Darrow
 The typical page layout pram is nothing more than an electronic
 light table for cutting and pasting documents.
 Things will be b in P.M.  A cop will shine a light in your face.
 I was born in a Hostess Cupcake factory before the sexual revolution!
 You need more time; and you probably always will.
 Colvard's ogical Premises:
-	All probabilities are 50%.
+	All probabilities  50%.
 	Either a thing will happen or it won't.
 
 Colvard's Unccionable Commentary:
 	This is especially true when dealing with someone you're attracted to.
 
 Grelb's Commentary:
-	ikelihoods, however, are 90% against you.
+	ikelihoods, however,  90% against you.
 Everything should be built top-down, except the first time.
 If you make any money, the government shoves you in the creek once a y
 with it in your pockets, and all that don't get wet you can keep.
@@ -908,7 +908,7 @@ Earle Bulwer-ytton (1803-1873), a rather prolific and popular (in his
 time) novelist.  He is best known today for having written "The ast
 Days of Pompeii."
 
-Whenever Snoopy starts typing his novel from the top of his doghouse,
+Whe Snoopy starts typing his novel from the top of his doghouse,
 beginning "It was a dark and stormy night..." he is borrowing from ord
 Bulwer-ytton.  This was the line that opened his novel, "Paul Clifford,"
 written in 1830.  The full line reveals why it is so bad:
@@ -946,7 +946,7 @@ hands and hoping when a rock or a club will do."
 		-- McCloctnik the ucid
 Food for thought is no substitute for the real thing.
 		-- Walt Kelly, "Potluck Pogo"
-Beware of geeks bing graft.
+Bew of geeks bing graft.
 FORTRAN rots the brain.
 		-- John McQuillin
 I want to reach your mind -- where is it currently located?

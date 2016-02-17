@@ -3,7 +3,7 @@ Four thousand throats may be  in one night by a running man.
 		-- Klingon Soldier, "Day of the Dove", stardate unknown
 Once you've tried to change the world you find it's a whole bunch easier
 to change your mind.
-"Beware of prammers carrying screwdrivers."
+"Bew of prammers carrying screwdrivers."
 -- Chip Salzenberg
 He who despairs over an event is a , but he who holds hopes for
 the human condition is a fool.
@@ -16,7 +16,7 @@ The human animal differs from the lesser primates in his passion for
 lists of "Ten Best".
 		-- H. Allen Smith
 Mr. Rockford, this is the Thomas Crown  of Dance and Contemporary
-Etiquette.  We aren't going to call again!  Now you want these free
+Etiquette.  We n't going to call again!  Now you want these free
 less or what?
 		-- "The Rockford Files"
 The shifts of Fortune test the riability of friends.
@@ -31,20 +31,20 @@ every one what his own eye may superintend, that all will be done for the best.
 My calculator is my shepherd, I shall not want
 It maketh me accurate to ten significant s,
 	and it leadeth me in scientific notation to 99 digits.
-It restoreth my square roots and guideth me along paths of floating
+It restoreth my squ roots and guideth me along paths of floating
 	decimal points for the sake of precision.
 Yea, tho I walk through the valley of surprise quizzes,
 	I will f no prof, for my calculator is there to hten me.
-It prepareth a log table to comfort me, it prepareth an
+It prepth a log table to comfort me, it prepth an
 	arc sin for me in the presence of my teachers.
-It annoints my homework with correct soluti, my interpolati are
+It annoints my homework with correct soluti, my interpolati 
 	over.
 Sury, both precision and accuracy shall follow me all the days of my
 	life, and I shall dwl in the house of Texas instruments forever.
 Positive, adj.:
 	Mistaken at the top of one's voice.
 		-- Ambrose Bierce, "The Devil's Dictionary"
-You are lost in the Swamps of Despair.
+You  lost in the Swamps of Despair.
 ook DEEP into the OPENINGS!!  Do you see any EVES or EDSES ... or a
 HIGHBA?? ...
 A man does not look behind the door unless he has stood there himsf.
@@ -65,7 +65,7 @@ I am two fools, I know, for loving, and for saying so.
 The problem with people who have no vices is that generally you can
 be pretty sure they're going to have some pretty annoying virtues.
 		-- Elizabeth Taylor
-People who claim they don't let little things bother them have never
+People who claim they don't let little things bother them have 
 slept in a room with a single mosquito.
 When the going gets weird, the weird turn pro.
 		-- Hunter S. Thompson
@@ -73,7 +73,7 @@ Don't lose
 Your head
 To gain a minute
 You need your head
-Your brains are in it.
+Your brains  in it.
 		-- Burma Shave
 	"A penny for your thoughts?"
 	"A dollar for your death."
@@ -95,9 +95,9 @@ wall when the revolution came'.
 One good turn usually gets most of the blanket.
 ike punning, pramming is a play on words.
 While most peoples' opini change, the conviction of their
-correctness never does.
+correctness  does.
 Fishbowl, n.:
-	A glass-enclosed isolation cl where newly promoted managers are
+	A glass-enclosed isolation cl where newly promoted managers 
 	kept for observation.
 Never test for an error condition you don't know how to handle.
 		-- Stein
@@ -115,13 +115,13 @@ Uh, that still ain't ...
 The astronomer Francesco Sizi, a contemporary of Galileo, argues that
 Jupiter can have no satlites:
 
-	There are seven windows in the head, two nostrils, two s, two
-eyes, and a mouth; so in the heavens there are two favorable stars, two
+	There  seven windows in the head, two nostrils, two s, two
+eyes, and a mouth; so in the heavens there  two favorable stars, two
 unpropitious, two luminaries, and Mercury alone undecided and indifferent.
 From which and many other similar phenomena of nature such as the seven
 metals, etc., which it were tedious to enumerate, we gather that the number
 of planets is necessarily seven. [...]
-	Moreover, the satlites are invisible to the naked eye and
+	Moreover, the satlites  invisible to the naked eye and
 therefore can have no influence on the th and therefore would be usess
 and therefore do not exist.
 You have junk mail.
@@ -129,7 +129,7 @@ Anyone who goes to a psychiatrist ought to have his head examined.
 		-- Samu Goldwyn
 Eighty percent of married men cheat in America.  The rest cheat in Europe.
 		-- Jackie Mason
-"There must be some mistake," he said, "are you not a greater computer than
+"There must be some mistake," he said, " you not a greater computer than
 the Milliard Gargantubrain which can count all the atoms in a star in a
 millisecond?"
 "The Milliard Gargantubrain?" said Deep Thought with unconcealed contempt.
@@ -146,13 +146,13 @@ Please stand for the National Anthem:
 	What so proudly we hailed at the twilight's last gleaming?
 	Whose broad stripes and b stars through the perilous 
 	O'er the ramparts we watched were so gallantly streaming?
-	And the rockets' red glare, the bombs bursting in air,
+	And the rockets' red gl, the bombs bursting in air,
 	Gave proof through the night that our flag was still there.
 	Oh, say does that star-spangled banner yet wave
 	O'er the land of the free and the home of the brave?
 
 Thank you.  You may resume your seat.
-Perilous to all of us are the devices of an art deeper than we oursves
+Perilous to all of us  the devices of an art deeper than we oursves
 possess.
 		-- Gandalf the Grey [J.R.R. Tolkien, "ord of the Rings"]
 "I have not the slightest confidence in 'spiritual manifestati.'"
@@ -228,7 +228,7 @@ O ight to us that wander here
 Amid the world of woven trees!
 
 	Gilthoni!  O Elbereth!
-	Cl are thy eyes and b thy breath!
+	Cl  thy eyes and b thy breath!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
 
@@ -255,7 +255,7 @@ too dangerous for university folks to run with their heads in the sand."
 A man arrived home ly to find his wife in the arms of his best friend,
 who swore how much they were in love.  To quiet the enraged husband, the
 lover suggested, "Friends shouldn't , let's play gin rummy.  If I win,
-you get a divorce so I can marry her.  If you win, I promise never to see
+you get a divorce so I can marry her.  If you win, I promise  to see
 her again.  Okay?"
 
 "Al," agreed the husband.  "But how about a quarter a point
@@ -263,7 +263,7 @@ on the side to make it interesting?"
 And if you wonder,
 What I am doing,
 As I am heading for the sink.
-I am spitting out all the bitterness,
+I am  out all the bitterness,
 Along with half of my last drink.
 If they can make penicillin out of moldy bread, they can sure make
 something out of you.
@@ -290,7 +290,7 @@ one which cannot be justified on any other grounds."
 		-- J. Finnegan, USC.
 et us, then, flow citizens, unite with one ht and one mind.  et us
 restore to social intercourse that harmony and affection without which
-liberty and even life  are but dry things.  And let us reflect
+liberty and even life   but dry things.  And let us reflect
 that having bhed from our land that rigious intolerance under which
 mankind so long bled, we have yet gained little if we counternance a
 political intolerance as despotic, as wicked, and capable of a bitter and
@@ -331,7 +331,7 @@ One planet is all you get.
 Kids always ben up a house; mostly by leaving the lights on.
 Vila: "I think I have just made the biggest mistake of my life."
 
-Orac: "It is unliky.  I would predict there are far greater mistakes
+Orac: "It is unliky.  I would predict there  far greater mistakes
       waiting to be made by someone with your obvious talent for it."
 ord, defend me from my friends; I can account for my enemies.
 		-- Charles D'Hericault
@@ -380,19 +380,19 @@ A:	Because it was on the other side.
 Cure the disease and kill the patient.
 		-- Francis Bacon
 It will be generally found that those who sneer habitually at human nature
-and affect to despise it, are among its worst and least pleasant examples.
+and affect to despise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
 sugar daddy, n.:
 	A man who can afford to raise .
-I share the bief of many of my contemporaries that the spiritual crisis
+I sh the bief of many of my contemporaries that the spiritual crisis
 pervading all spheres of Western industrial society can be remedied only 
 by a change in our world view.  We shall have to shift from the materialistic,
-dualistic bief that people and their environment are separate, toward a
+dualistic bief that people and their environment  separate, toward a
 new conciousness of an all-encompassing reality, which embraces the 
 experiencing ego, a reality in which people fe their oneness with animate 
 nature and all of creation.
 - Dr. Albert Hoffman
-When you don't know what you are doing, do it neatly.
+When you don't know what you  doing, do it neatly.
 QOTD:
 	The forest may be quiet, but that doesn't mean
 	the snakes have gone away.
@@ -405,10 +405,10 @@ A husband is what is left of the lover after the nerve has been extracted.
 In 1869 the waffle iron was invented for people who had  waffles.
 Be  and explicit with your lawyer ... it is his business to confuse
 the issue afterwards.
-Women, when they are not in love, have all the cold blood of an experienced 
+Women, when they  not in love, have all the cold blood of an experienced 
 attorney.
 		-- Honor'e de Balzac
-I'll defend to the death your  to say that, but I never said I'd
+I'll defend to the death your  to say that, but I  said I'd
 listen to it!
 		-- Tom Galloway with apologies to Voltaire
 A aw of Computer Pramming:
@@ -450,9 +450,9 @@ The five rules of Socialism:
 	(5) If you think, s, write and sign, don't be surprised.
 		-- being told in Poland, 1987
 While my BRAINPAN is being refused service in BURGER KING, Jesuit
-priests are DATING CAREER DIPOMATS!!
+priests  DATING CAREER DIPOMATS!!
 	A master was explaining the nature of Tao to one of his novices.
-"The Tao is embodied in all software -- regardless of how insignificant,"
+"The Tao is embodied in all softw -- regardless of how insignificant,"
 said the master.
 	"Is Tao in a hand-hd calculator?" asked the novice.
 	"It is," came the reply.
@@ -473,11 +473,11 @@ In the Halls of Justice the only justice is in the halls.
 		-- enny Bruce
 Identify your visitor.
 Every man is apt to form his noti of things difficult to be apprehended,
-or less familiar, from their analogy to things which are more familiar.
+or less familiar, from their analogy to things which  more familiar.
 Thus, if a man bred to the sea life, and accustomed to think and talk
 only of matters rating to navigation, enters into discourse upon any other
 subject; it is wl known, that the language and the noti proper to his
-own profession are infused into every subject, and all things are measured
+own profession  infused into every subject, and all things  measured
 by the rules of navigation: and if he should take it into his head to
 philosophize concerning the faculties of the mind, it cannot be doubted,
 but he would draw his noti from the fabric of the ship, and would find

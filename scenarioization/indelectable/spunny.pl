@@ -5,11 +5,11 @@ Every time a fly landed on the web and was entangled in it the spider devoured
 him, so that when another fly came along he would think the web was a safe and
 quiet place in which to rest.  One day a fairly intelligent fly buzzed around
 above the web so long without lighting that the spider apped and said,
-"Come on down."  But the fly was too clever for him and said, "I never light
+"Come on down."  But the fly was too clever for him and said, "I  light
 where I don't see other flies and I don't see any other flies in your house."
 So he flew away until he came to a place where there were a great many other
 flies.  He was about to settle down among them when a bee buzzed up and said,
-"Hold it, stupid, that's flypaper.  All those flies are trapped."  "Don't be
+"Hold it, stupid, that's flypaper.  All those flies  trapped."  "Don't be
 silly," said the fly, "they're dancing."  So he settled down and became stuck
 to the flypaper with all the other flies.
 
@@ -67,11 +67,11 @@ What to do in case of an alien attack:
 
     1)   Hide beneath the seat of your plane and look away.
     2)   Avoid eye contact.
-    3) If there are no eyes, avoid all contact.
+    3) If there  no eyes, avoid all contact.
 
 -- The Firesign Theatre, _Everything you know is Wrong_
 "I went to the museum where they had all the heads and arms from the
-statues that are in all the other museums."
+statues that  in all the other museums."
 		-- Steven Wright
 The less time planning, the more time programming.
 Nothing ever becomes real till it is experienced -- even a
@@ -98,7 +98,7 @@ A cultant is a person who borrows your watch, tells you what time it
 is, pockets the watch, and sends you a bill for it.
 Stop sching forever.  Happiness is unattainable.
 Is there life before breakfast?
-"You should, without hesitation, pound your typewriter into a plowshare,
+"You should, without hesitation, pound your typewriter into a plowsh,
 your paper into fertilizer, and enter agriculture"
 		-- Business Professor, University of Georgia
 What really shapes and conditi and makes us is somebody only a few of
@@ -106,10 +106,10 @@ us ever have the courage to face: and that is the child you once were,
 long before formal education ever got its claws into you -- that
 impatient, all-demanding child who wants love and power and can't get
 enough of either and who goes on raging and weeping in your spirit till
-at last your eyes are closed and all the fools say, "Doesn't he look
+at last your eyes  closed and all the fools say, "Doesn't he look
 peaceful?" It is those pent-up, craving children who make all the wars
 and all the horrors and all the art and all the beauty and discovery in
-life, because they are trying to achieve what lay beyond their grasp
+life, because they  trying to achieve what lay beyond their grasp
 before they were five ys old.
 		-- Robertson Davies, "The Rebel Angels"
 Foolproof Operation:
@@ -122,7 +122,7 @@ and TWIDDE.  Usage: FROB, TWIDDE, and TWEAK sometimes connote points along
 a continuum.  FROB connotes aimless manipulation; TWIDDE connotes gross
 manipulation, often a coarse sch for a proper setting; TWEAK connotes
 fine-tuning.  If someone is turning a knob on an oscilloscope, then if he's
-carefully adjusting it he is probably tweaking it; if he is just turning it
+cfully adjusting it he is probably tweaking it; if he is just turning it
 but looking at the screen he is probably twiddling it; but if he's just
 doing it because turning a knob is fun, he's frobbing it.
 It were not best that we should all think alike; it is difference of opinion
@@ -132,10 +132,10 @@ Rattling around the back of my head is a disturbing image of something I
 saw at the airport ... Now I'm remembering, those giant piles of computer
 magazines right next to "People" and "Time" in the airport store.  Does
 it bother anyone else that half the world is being told all of our hard-won
-secrets of computer technology?  Remember how all the lawyers cried foul
+secrets of computer technology?  Remember how all the lawyers  foul
 when "How to Avoid Probate" was published?  Are they taking no-fault
 insurance lying down?  No way!  But at the current rate it won't be long
-before there are stacks of the "Transacti on Information Theory" at the
+before there  stacks of the "Transacti on Information Theory" at the
 A&P checkout counters.  Who's going to be impressed with us electrical
 engineers then?  Are we, as the saying goes, giving away the store?
 		-- Robert W. ucky, IEEE President
@@ -145,7 +145,7 @@ To understand a program you must become both the machine and the program.
 ADA:
 	Something you need only know the name of to be an Expert in
 	Computing.  Useful in sentences like, "We had better develop
-	an ADA awareness.
+	an ADA awness.
 		-- "Datamation", January 15, 1984
 Practice is the best of all instructors.
 		-- Publilius
@@ -153,7 +153,7 @@ In Hollywood, if you don't have happiness, you send out for it.
 		-- Rex Reed
 It is your destiny.
 - Darth Vader
-Being a mime means never having to say you're sorry.
+Being a mime means  having to say you're sorry.
 If I had to live my life again, I'd make the same mistakes, only sooner.
 		-- Tallulah Bankhead
 ove is in the offing.
@@ -164,11 +164,11 @@ life, n.:
 	That brief interlude between nothingness and eternity.
 Q:	How do you save a drowning lawyer?
 A:	Throw him a rock.
-Good night, Mrs. Calabash, wherever you are.
+Good night, Mrs. Calabash, wherever you .
 There is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is crooked.
 		-- Groucho Marx
-Software, n.:
+Softw, n.:
 	Formal evening attire for female computer analysts.
 What's a cult?  It just means not enough people to make a minority.
 		-- Robert Altman
@@ -203,13 +203,13 @@ Billy:	Well, this generation dropped it.
 A woman can look both moral and exciting -- if she also looks as if it
 were quite a struggle.
 		-- Edna Ferber
-There are no threads in a.b.p.erotica,  so there's no  gain in using a
+There  no threads in a.b.p.erotica,  so there's no  gain in using a
 threaded news reader.
 (Unknown source)
 "If I do not return to the pulpit this weekend, milli of people will go
 to hell."
 -- Jimmy Swaggart, 5/20/88
-Often statistics are used as a drunken man uses lampposts -- for support
+Often statistics  used as a drunken man uses lampposts -- for support
 rather than illumination.
 Your lucky number has been disconnected.
 Cutting the space budget really restores my faith in humanity.  It
@@ -245,9 +245,9 @@ In the silent forest listening.
 		-- J. R. R. Tolkien
 No guts, no glory.
 This screen intentionally left blank.
-"I'd love to go out with you, but the last time I went out, I never came back."
+"I'd love to go out with you, but the last time I went out, I  came back."
 If in doubt, mumble.
-"Spare no expense to save money on this one."
+"Sp no expense to save money on this one."
 		-- Samuel Goldwyn
 Have at you!
 Some men rob you with a six-gun -- others with a fountain pen.
@@ -279,10 +279,10 @@ Error in operator: add beer
 Recently deceased blues guitarist Stevie Ray Vaughan "comes to" after
 his death.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he thinks to himself, "this guy is my idol."  Over at the
-microphone, about to sing, are Jim Morrison and Janis Joplin, and the
+microphone, about to sing,  Jim Morrison and Janis Joplin, and the
 bassist is the late Barry Oakley of the Allman Brothers.  So Stevie
 Ray's thinking, "Oh, wow!  I've died and gone to rock and roll heaven."
-Just then, Karen Carpenter walks in, sits down at the drums, and says:
+Just then, Kn Carpenter walks in, sits down at the drums, and says:
 "'Close to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Teller
 The husband who doesn't tell his wife everything probably reas that
@@ -291,7 +291,7 @@ what she doesn't know won't hurt him.
 Every country has the government it deserves.
 		-- Joseph De Maistre
 Absinthe makes the tart grow fonder.
-The idea of male and female are universal ctants.
+The idea of male and female  universal ctants.
 		-- Kirk, "Metamorphosis", stardate 3219.8
 Marriage, n.:
 	The evil aye.
@@ -312,7 +312,7 @@ the coat.
 anything for one of those Rolls-Royces," she said.
 	"Jeez, baby," the guy moaned, "you think I'm made of bricks?"
 "Every group has a couple of experts.  And every group has at least one
-idiot.  Thus are balance and harmony (and discord) maintained.  It's
+idiot.  Thus  balance and harmony (and discord) maintained.  It's
 sometimes hard to remember this in the bulk of the flamewars that all
 of the hassle and pain is generally caused by one or two highly-motivated,
 caustic twits."
@@ -331,13 +331,13 @@ kill me.  You're talking about the American way of survival of the fittest.
 But like the Good Book says... There's BIGGER DEAS to come!
 Thank God a million billion times you live in Texas.
 Some people need a good imaginary cure for their painful imaginary ailment.
-Stellar rays prove fibbing never pays.  Embezzlement is another matter.
+Stellar rays prove fibbing  pays.  Embezzlement is another matter.
 A beautiful man is paradise for the eyes, hell for the soul, and
 purgatory for the purse. 
 What makes the universe so hard to comprehend is that there's nothing
-to compare it with.
+to comp it with.
 A kiss is a course of procedure, cunningly devised, for the mutual
-stoppage of speech at a moment when words are superfluous.
+stoppage of speech at a moment when words  superfluous.
 	"What was the worst thing you've ever done?"
 	"I won't tell you that, but I'll tell you the worst thing that
 ever happened to me... the most dreadful thing."
@@ -361,32 +361,32 @@ All Employees do for A Group of Employees."
 -- Mike Dennison
 When speculation has done its worst, two plus two still equals four.
 		-- S. Johnson
-Something unpleasant is coming when men are anxious to tell the truth.
+Something unpleasant is coming when men  anxious to tell the truth.
 		-- Benjamin Disraeli
 Only the hypocrite is really rotten to the core.
 		-- Hannah Arendt
-Software, n.:
+Softw, n.:
 	Formal evening attire for female computer analysts.
 The turtle lives 'twixt plated decks
 Which practically conceal its sex.
 I think it clever of the turtle
 In such a fix to be so fertile.
 		-- Ogden Nash
-Beware of a tall black man with one blond shoe.
+Bew of a tall black man with one blond shoe.
 The Commandments of the EE:
 
-(1)	Beware of lightning that lurketh in an uncharged condenser
+(1)	Bew of lightning that lurketh in an uncharged condenser
 	lest it cause thee to bounce upon thy buttocks in a most
 	embarrassing manner.
 (2)	Cause thou the switch that supplieth large quantities of juice to
 	be opened and thusly tagged, that thy days may be long in this
 	thly vale of ts.
 (3)	Prove to thyself that all circuits that radiateth, and upon
-	which the worketh, are grounded and thusly tagged lest they lift
+	which the worketh,  grounded and thusly tagged lest they lift
 	thee to a radio frequency potential and causeth thee to make like
 	a radiator too.
 (4)	Tarry thou not amongst these fools that engage in intentional
-	shocks for they are not long for this world and are surely
+	shocks for they  not long for this world and  surely
 	unbelievers.
 We will have solar energy as soon as the utility companies solve one technical
 problem -- how to run a sunbeam through a meter.
@@ -394,7 +394,7 @@ The morning sun when it's in your face really shows your age,
 But that don't bother me none; in my eyes you're everything.
 I know I keep you amused,
 But I feel I'm being used.
-Oh, Maggie, I wish I'd never seen your face.
+Oh, Maggie, I wish I'd  seen your face.
 
 You took me away from home,
 Just to save you from being alone;
@@ -404,7 +404,7 @@ I suppose I could collect my books and get on back to school,
 Or steal my daddy's cue and make a living out of playing pool,
 Or find myself a rock 'n' roll band,
 That needs a helping hand,
-Oh, Maggie I wish I'd never seen your face.
+Oh, Maggie I wish I'd  seen your face.
 
 You made a first-class fool out of me,
 But I'm as blind as a fool can be.
@@ -429,20 +429,20 @@ ife sucks, but death doesn't put out at all.
 The public is an old woman.  et her maunder and mumble.
 		-- Thomas Carlyle
 Einstein argued that there must be simplified explanati of nature, because
-God is not capricious or arbitrary.  No such faith comforts the software
+God is not capricious or arbitrary.  No such faith comforts the softw
 engineer.
 - Fred Brooks, Jr.
 Never use "etc." -- it makes people think there is more where there is not
 or that there is not space to list it all, etc.
-Just as most issues are seldom black or white, so are most good soluti
-seldom black or white.  Beware of the solution that requires one side to be
+Just as most issues  seldom black or white, so  most good soluti
+seldom black or white.  Bew of the solution that requires one side to be
 totally the loser and the other side to be totally the winner.  The reason
-there are two sides to begin with usually is because neither side has all
+there  two sides to begin with usually is because neither side has all
 the facts.  Therefore, when the wise mediator effects a compromise, he is
 not acting from political motivation.  Rather, he is acting from a deep
 sense of respect for the whole truth.
 		-- Stephen R. Schwam
-Democracy is good.  I say this because other systems are worse.
+Democracy is good.  I say this because other systems  worse.
 		-- Jaarlal Nehru
 A fox is a wolf who sends flowers.
 		-- Ruth Weston
@@ -467,7 +467,7 @@ the third day, I hd a knock."
 	"I hurried along the old passage and there, in the sunlight,
 there was nothing."
 	"Just," Vance Joy said, "a butterfly, flying away."
-		-- Peter Carey, BISS
+		-- Peter Cy, BISS
 Pascal is not a high-level language.
 		-- Steven Feiner
 Everything is possible.  Pass the word.
@@ -492,18 +492,18 @@ It seems you have missed your last 17 payments, and the university you
 attended said that they received none of the $17,000 we loaned you... we
 would just like to know what happened to the money?'  I said, 'Mr. Jones,
 I'll give it to you straight.  I gave all of the money to my friend Slick,
-and with it he built a nucl weapon... and I would appreciate it if you never
+and with it he built a nucl weapon... and I would appreciate it if you 
 called me again."
 		-- Steven Wright
 I think...  I think it's in my basement... et me go upstairs and check.
 		-- Escher
-Both models are identical in performance, functional operation, and
-interface circuit details.  The two models, however, are not compatible
+Both models  identical in performance, functional operation, and
+interface circuit details.  The two models, however,  not compatible
 on the same communicati line connection.
 		-- Bell System Technical Reference
 I dread success.  To have succeeded is to have finished one's business on
 th, like the male spider, who is killed by the female the moment he has
-succeeded in his courtship.  I like a state of continual becoming, with a
+succeeded in his courtship.  I like a state of  becoming, with a
 goal in front and not behind.
 		-- George Bernard Shaw
 It's not the inital skirt length, it's the upcreep.

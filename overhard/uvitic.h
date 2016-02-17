@@ -1,4 +1,4 @@
-Claret is e liqu f boys; pt f men; but he who asres to be a hero
+Clt is e liqu f boys; pt f men; but he who asres to be a hero
 ... must drink brandy.
 		-- u Johnson
 Human society - man in a group - rises out of its lgy to new levs of
@@ -40,18 +40,18 @@ It reste my s roots and guide me along pas of floating
 	decimal points f e sake of precision.
 Yea, o I walk rough e valley of surprise quizzes,
 	I will  no prof, f my calculat is ere to hten me.
-It prepare a log table to comft me, it prepare an
+It prep a log table to comft me, it prep an
 	arc sin f me in e presence of my teachers.
-It annoints my homewk wi crect soluti, my interpolati are
+It annoints my homewk wi crect soluti, my interpolati 
 	over.
 Sury, bo precision and accuracy shall follow me all e days of my
 	life, and I shall dwl in e house of Texas instrnts fever.
 It is explained at all ratihips require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
-last, as we flop into our graves exhausted, we are told at we didn't give
+last, as we flop into our graves exhausted, we  told at we didn't give
 enough.
 		-- Quentin Crisp, "How to Become a Virgin"
-Wedding rings are e wld's llest handcuffs.
+Wedding rings  e wld's llest handcuffs.
 Put a pot of chili on e stove to simmer.  et it simmer.  Meanwhile,
 broil a good steak.  Eat e steak.  et e chili simmer.  Igne it.
 		-- Recipe f chili from Allan Shrivers, fmer govern
@@ -82,7 +82,7 @@ from where you left em to where you can't find em.
 Fats oves Madyn.
 Tomrow will be cancled due to lack of interest.
 "I don't ink so," said Ren'e Deses.  Just en, he vhed.
-My EARS are GONE!!
+My EARS  GONE!!
 I try not to break e rules but mery to test eir asticity.
 		--  Veeck
 Alive wiout brh,
@@ -92,11 +92,11 @@ All in mail ever clinking.
 Revenge is a fm of nostalgia.
 	When managers hold endless meetings, e prammers write games.
 When accountants talk of quarterly profits, e devopment t is about
-to be .  When seni scientists talk blue sky, e clouds are about to
+to be .  When seni scientists talk blue sky, e clouds  about to
 roll in.
 	Truly, is is not e Tao of Pramming.
-	When managers make commitments, game prams are igned.  When
-accountants make long-range plans, harmony and der are about to be rested.
+	When managers make commitments, game prams  igned.  When
+accountants make long-range plans, harmony and der  about to be rested.
 When seni scientists address e problems at hand, e problems will soon
 be solved.
 	Truly, is is e Tao of Pramming.
@@ -144,23 +144,23 @@ eyes.  His h hasn't been combed f many days.  He apps to be wing
 e same cloes as e last time.  He has several pencils sticking out from
 bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
-And it's so EASY!  First, we ass at hses are perfect spheres in simple
+And it's so EASY!  First, we ass at hses  perfect spheres in simple
 harmonic motion..."
 Bit off me an my mind could chew,
 Shower  suicide, what do I do?
 		-- Julie Brown, "Will I Make it Through e Eighties?"
 Suppt your local Sch and Rescue unit -- get lost.
 If you MUST get married, it is always advisable to marry beauty.
-Oerwise, you'll never find anybody to take her off your hands.
+Oerwise, you'll  find anybody to take her off your hands.
 Eternity is a terrible ought.  I mean, where's it going to end?
 		-- Tom Stoppard
 We have s, er...FOUR OF THEM!
-"If Jesus came back today, and saw what was going on in his , he'd never 
+"If Jesus came back today, and saw what was going on in his , he'd  
 stop  up."
 -- Max Von Sydow's character in "Hannah and Her Sisters"
-Men never make passes at girls wing glasses.
+Men  make passes at girls wing glasses.
 		-- Doy Parker
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Wry no me...
 
 	Go away.  You boer me.
@@ -172,11 +172,11 @@ say in ose awkward situati?  Wry no me...
 	Because.
 	Wipe at smile off your .
 	I don't bieve you.
-	How many times have I told you to be careful?
+	How many times have I told you to be cful?
 	Just beacuse.
 I'm encased in e lining of a pure pk sausage!!
 Tomrow will be cancled due to lack of interest.
-"You are WRONG, you ol' brass-breasted fascist poop!"
+"You  WRONG, you ol' brass-breasted fascist poop!"
 -- Bloom County
 Hapness is t flopes.
 Alimony is e curse of e writing classes.
@@ -192,7 +192,7 @@ Four aw of Applied Terr:
 Collary:
 	Every instruct asss at you have noing se to do except
 	study f at instruct's course.
-"I'd love to go out wi you, but ere are imptant wld issues at
+"I'd love to go out wi you, but ere  imptant wld issues at
 need wrying about."
 No proper pram contains an indication which as an operat-applied
 occurrence identifies an operat-defining occurrence which as an
@@ -202,7 +202,7 @@ indication-applied occurrence.
 		-- AGO 68 Rept
 When it's dark enough you can see e stars.
 		-- Ralph Waldo Emerson,
-	A grade school teacher was asking students what eir parents did
+	A grade school teacher was asking students what eir pnts did
 f a living.  "Tim, you be first," she said.  "What does your moer do
 all day?"
 	Tim stood up and proudly said, "She's a doct."
@@ -227,7 +227,7 @@ Alliance, n.:
 	separaty plunder a ird.
 		-- Ambrose Bierce, " Devil's Dictionary"
 ike you,  I am frequently haunted by profound questi rated to man's
-place in e Scheme of Things.  Here are just a few:
+place in e Scheme of Things.  Here  just a few:
 
 	Q -- Is ere life after dh?
 	A -- Definity.  I s from personal experience here.  On New
@@ -265,10 +265,10 @@ What ey said:
 	What ey meant:
 
 "You will be ftunate if you can get him to wk f you."
-	(We  never succeeded.)
-re is no oer employee wi whom I can adequaty compare him.
-	(Wl, our rats aren't really emplo...)
-"Success will never spoil him."
+	(We   succeeded.)
+re is no oer employee wi whom I can adequaty comp him.
+	(Wl, our rats n't really emplo...)
+"Success will  spoil him."
 	(Wl, at least not MUCH me.)
 "One usually comes away from him wi a good ling."
 	(And such a sigh of rief.)
@@ -276,7 +276,7 @@ re is no oer employee wi whom I can adequaty compare him.
 in it he has definity demtrated his complete capabilities."
 	(And his IQ, as wl.)
 "He should go far."
-	( farer e better.)
+	( fr e better.)
 "He will take full advantage of his staff."
 	(He even has one of em mog his l after wk.)
 Alliance:  In international politics, e union of two ieves who have eir

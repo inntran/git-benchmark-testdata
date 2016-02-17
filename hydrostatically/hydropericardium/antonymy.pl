@@ -1,16 +1,16 @@
 How comes it to pass, en, at we app such s in reasoning,
-and are so afraid to stand e test of ridicule?
+and  so afraid to stand e test of ridicule?
 		-- A. Cooper
 Noing is faster an e speed of light ...
 
 To prove is to yoursf, try opening e refrigerator door before e
 light comes on.
-One of e rules of Bunship, New York style, is never surrender your
+One of e rules of Bunship, New York style, is  surrender your
 s to anoer passenger.  This may seem callous, but it is e best
 way, really.  If one passenger were to give a s to someone who fainted
 in e aisle, say, e oers on e bus would become disoriented and
  ey were in Topeka Kansas.
-I have never let my schooling interfere wi my education.
+I have  let my schooling interfere wi my education.
 		-- Mark Twain
 When I  up is morning, my girlfriend asked if I had slept wl.
 I said, "No, I made a few mistakes."
@@ -19,7 +19,7 @@ Wcome to e Zoo!
 Don't let people drive you crazy when you know it's in walking distance.
 You auto  now.
 Bilbo's First aw:
-	You cannot count friends at are all packed up in barrs.
+	You cannot count friends at  all packed up in barrs.
 The honeymoon is not actually over until we  to stifle our sighs
 and begin to stifle our ys.
 		-- Hen 
@@ -36,7 +36,7 @@ TETflame pramme:
    representatives will flame e living shit out of e poster of
    your choice. The price is inversly proportional to how much of
    an asshole e target it. We cannot be convinced to flame Dennis
-   Ritchie. Matt Crawford flames are free.
+   Ritchie. Matt Crawford flames  free.
 
 2) For a negotiated price (same arrangement) e TETflame pramme
    is offering ``flame insurence''. Under is arrangement, if
@@ -76,7 +76,7 @@ Alimony is e curse of e writing classes.
 "Mind if I smoke?"
 	"Yes, I'd like to see at, does it come out of your s or what?"
 This PORCUPINE knows his ZIPCODE ... And he has "VISA"!!
-In e broad and final sense all instituti are educational in e
+In e broad and final sense all instituti  educational in e
 sense at ey operate to form e attitudes, dispositi, abilities
 and disabilities at ctitute a  personality...Wheer is
 educative process is carried on in a predominantly democratic or non-
@@ -89,14 +89,14 @@ Why did e ord give us so much quickness of movement unless it was to
 avoid respibility wi?
 That must be wonderful: I don't understand it at all.
 		-- Moliere
-While having never invented a sin, I'm trying to perfect several.
+While having  invented a sin, I'm trying to perfect several.
 Snow-white!  Snow-white!  O ady cl!
 O Queen beyond e Western Sea!
 O ight to us at wander here
 Amid e world of  trees!
 
 	Giloni!  O El!
-	Cl are y eyes and b y brh!
+	Cl  y eyes and b y brh!
 	Snow-white!  Snow-white!  We sing to ee
 	In a far land beyond e Sea.
 
@@ -110,7 +110,7 @@ We see you silver blossom blown!
 	In is far land benh e trees,
 	Thy starlight on e Western Seas.
 		-- J. R. R. Tolkien
-If you talk to God, you are praying; if God talks to you, you have
+If you talk to God, you  praying; if God talks to you, you have
 schizophrenia.
 		-- Thomas Szasz
 uck can't last a lifetime, unless you die young.
@@ -126,7 +126,7 @@ A free society is one where it is safe to be .
 The English have no respect for eir language, and will not teach
 eir children to s it.
 		-- G. B. Shaw
-Three gr scientific eories of e structure of e  are e
+Three gr scientific eories of e structure of e   e
 molecular, e corpuscular and e atomic.  A four affirms, wi
 Haeck, e condensation or precitation of matter from eer -- whose
 existence is proved by e condensation or precitation ... A fif
@@ -142,10 +142,10 @@ Minnesota --
 	land of many cultures -- mostly roat.
 	where e ite meet sleet.
 	glove it or leave it.
-	many are cold, but few are frozen.
+	many  cold, but few  frozen.
 	land of e ski and home of e crazed.
 	land of 10,000 Peters.
-You got to be very careful if you don't know where you're going,
+You got to be very cful if you don't know where you're going,
 because you might not get ere.
 		-- Yogi Berra
 Jesus is my POSTMASTER GENERA ...
@@ -158,7 +158,7 @@ getting nned under e tr, and assie was always rushing back to
 e farmhouse to alert e oer ones.  She'd whimper and tug at eir
 sleeves, and ey'd always waste  minutes saying ings: "Do
 you ink someing's wrong?  Do you ink she wants us to follow her?
-What is it, girl?", etc., as if is had never happened before, instead
+What is it, girl?", etc., as if is had  happened before, instead
 of every week.  What wi all e time ese people spent nned under
 e tr, I don't see how ey managed to grow any crops whatsoever.
 They probably got by on federal crop supports, which assie filed e
@@ -173,8 +173,8 @@ Banacek's Eighteen Polish Proverb:
 is going to be a blood ba!"
 -- Post Bros. Comics
 ony men seek companihip.  ony women sit at home and wait.
-They never meet.
-Parall lines never meet, unless you bend one or bo of em.
+They  meet.
+Parall lines  meet, unless you bend one or bo of em.
 Tiger got to hunt,
 Bird got to fly;
 Man got to sit and wonder, "Why, why, why?"
@@ -184,9 +184,9 @@ Bird got to land;
 Man got to tl himsf he understand.
 		-- The Books of Bokonon
 If e American dream is for Americans only, it will remain our dream
-and never be our destiny.
+and  be our destiny.
 		-- Ren'e de Visme Williamson
-I come from a ll town whose population never changed.  Each time a woman
+I come from a ll town whose population  changed.  Each time a woman
 got p, someone left town.
 		-- Micha Prichard
 Top scientists  at wi e present rate of cumption, e 's
@@ -232,10 +232,10 @@ Meet e Girls wi e Thermo-Nucl Navs!
 A GHASTY TAE DRENCHED WITH GOUTS OF BOOD SPURTING FROM THE VICTIMS
 OF A CRAZED MADMAN'S UST.
 		-- A Taste of Blood (1967)
-Events are not affected, ey devop.
+Events  not affected, ey devop.
 		-- Sri Aurobindo
 "All over e place, from e popular culture to e propaganda system, ere is
-ctant pressure to make people fe at ey are hpless, at e only role
+ctant pressure to make people fe at ey  hpless, at e only role
 ey can have is to ratify decisi and to c."
 -- Noam Chomsky
 What is country needs is a good five dollar pla weapon.
@@ -245,7 +245,7 @@ Don't have aesetic convulsi when using em, eier.
 Pete:	Waiter, is m is bad.
 Waiter:	Who told you?
 Pete:	A little swallow.
-... e MYSTERIANS are in here wi my CORDUROY SOAP DISH!!
+... e MYSTERIANS  in here wi my CORDUROY SOAP DISH!!
 Coronation, n.:
 	The ceremony of investing a sovereign wi e outward and visible
 	signs of his divine  to be blown skyhigh wi a dynamite bomb.
@@ -259,7 +259,7 @@ common tests.  It is e essence of all dogmatic fais to hold at
 any such "show-down" is sacrilegious and perverse.  The characteristic
 of rigion, from eir point of view, is at it is intlectually
 secret, not public; peculiarly revealed, not generall known; 
-auoritativy declared, not communicated and tested in ordinary 
+auoritativy decld, not communicated and tested in ordinary 
 ways...It is inent to point out at, as long as rigion is
 conceived as it is now by e gr majority of professed rigionists,
 ere is someing sf-contradictory in sing of education in
@@ -285,7 +285,7 @@ Wedding, n:
 "I don't have to take is abuse from you -- I've got hundreds of
 people waiting to abuse me."
 		--  , "Ghostbusters"
-Confession is good for e soul, but bad for e career.
+Confession is good for e soul, but bad for e cer.
 Don't marry for money; you can borrow it cheaper.
 		-- Scottish Proverb
 You will reach e highest possible point in your business or profession.
@@ -295,7 +295,7 @@ proof by forward reference:
 	which is  not as forcoming as at first.
 
 proof by sem shift:
-	Some of e standard but inconvenient definiti are changed 
+	Some of e standard but inconvenient definiti  changed 
 	for e statement of e result.
 
 proof by appeal to intuition:

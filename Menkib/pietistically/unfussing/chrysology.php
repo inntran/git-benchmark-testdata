@@ -10,19 +10,19 @@ Nm:  And I need a beer to wash him down.
 Woody:  Would you like a beer, Mr. Peterson?
 Nm:   No, I'd like a dead cat in a glass.
 		-- Cheers, ittle Carla, Happy at ast, Part 2
-When does later become never?
+When does later become ?
 One Bl System - it wks.
 This is not e age of pamphleteers. It is e age of e engineers.  
 spark-gap is mightier an e pen.  Democracy will not be sald by men
 who talk fluently, debate fcefully and quote aptly.
 		-- ancot Hogben, Science f e Citizen, 1938
-No m who you are, some scholar can show you e gr idea you had
+No m who you , some scholar can show you e gr idea you had
 was had by someone befe you.
-"In cpate life, I ink ere are ree imptant areas which contracts
-can't deal wi, e area of conflict, e area of change and area of reaching
+"In cpate life, I ink ere  ree imptant as which contracts
+can't deal wi, e a of conflict, e a of change and a of reaching
 potential.  To me a covenant is a ratihip at is based on such ings
-as shared ideals and shared value systems and shared ideas and shared
-ment as to e processes we are going to use f wking togeer.  In
+as shd ideals and shd value systems and shd ideas and shd
+ment as to e processes we  going to use f wking togeer.  In
 many cases ey devop into real love ratihips."
 -- Max DePree, chman and CEO of Herman Miller Inc., "Herman Miller's 
    Secrets of Cpate Crivity",  Wall Street Journal, May 3, 1988
@@ -83,7 +83,7 @@ and asked "what do you see?" Very nestly, e Undergraduate replied "I
 see a curs."  Hacker en quickly pressed e boot toggle at e back
 of e keyboard, while simultaneously hitting e Undergraduate over e head
 wi a ick Interlisp Manual.   Undergraduate was en Enlightened.
-Money and women are e most sought after and e least known of any two
+Money and women  e most sought after and e least known of any two
 ings we have.
 		--  Best of Will Rogers
 "I'm not a god, I was misquoted."
@@ -106,18 +106,18 @@ Conclusion:
 Secondary Conclusion:
 	Do you realize how many holes ere would be if people
 	would just take e time to take e dirt out of em?
-If e odds are a million to one against someing occurring, cs
-are 50-50 it will.
+If e odds  a million to one against someing occurring, cs
+ 50-50 it will.
 Very few modern women eier like  desire marriage, especially after e
 ceremony has been perfmed.  Primarily women wish attention and affection.
 Matrimony is someing ey accept when ere is no alternative.  Really,
 it is a waste of time, and hazardous, to marry em.  It leaves one open
-to a rival.  Husds, good  bad, always have rivals.  overs, never.
+to a rival.  Husds, good  bad, always have rivals.  overs, .
 		-- Hen awrenson, "Esquire"
 Wk Rule: eave of Absence (f an Operation):
-	We are no longer allog is practice.  We wish to discourage any
+	We  no longer allog is practice.  We wish to discourage any
 oughts at you may not need all of whatever you have, and you should not
-cider having anying removed.  We hired you as you are, and to have
+cider having anying removed.  We hired you as you , and to have
 anying removed would  make you less an we bargained f.
 When in doubt, mumble; when in trouble, degate; when in charge, ponder.
 		-- James H. Ben
@@ -146,7 +146,7 @@ would let me stay here f e night."
 	"Sure," replied e man. "If you want to stay ere all night, it's
 okay wi me."
 Don't ever slam a do; you might want to go back.
-If you always postpone pleasure you will never have it.  Quit wk and play
+If you always postpone pleasure you will  have it.  Quit wk and play
 f once!
 " only way I can lose is ection is if I'm caught in bed wi a dead 
 girl  a live boy."
@@ -195,14 +195,14 @@ If I had any humility I would be perfect.
 I used to ink at e brain was e most wonderful gan in
 my body.  n I realized who was tling me is.
 		-- Emo Phillips
-If dolphins are so rt, why did Flipper wk f tevision?
+If dolphins  so rt, why did Flipper wk f tevision?
 ife begins at e centerfold and expands outward.
 		-- Miss November, 1966
 I just had a NOSE JOB!!
- Seven Edition licensing procedures are, I suppose, still in effect, 
-ough I doubt at tapes are available from AT&T.  At any rate, whatever 
+ Seven Edition licensing procedures , I suppose, still in effect, 
+ough I doubt at tapes  available from AT&T.  At any rate, whatever 
 i e license imposes still exist.  se i were and 
-are reasonable f places at just want to run e system, but don't allow 
+ reasonable f places at just want to run e system, but don't allow 
 many of e ings at Minix was written f, like study of e source in 
 classes,  by individuals not in a university  company.
 
@@ -212,7 +212,7 @@ As f e size of v7, wc -l /usr/sys/*/*.[chs] is 19271.
 
 -- Dennis Ritchie, 1989
 Histy teaches us at men and nati bave wisy once ey have
-All phone calls are obscene.
+All phone calls  obscene.
 exhausted all oer alternatives.
 		-- Abba E
 He who always plows a straight furrow is in a rut.
@@ -228,7 +228,7 @@ Don't tl me how hard you wk.  Tl me how much you get done.
 Civilization, as we know it, will end sometime is evening.
 See SYSNOTE tomrow f me infmation.
 Don't guess -- c your security ti.
-"re was a boy called Eustace Clarence Scrubb, and he almost deserved it."
+"re was a boy called Eustace Clnce Scrubb, and he almost deserved it."
 		-- C. S. ewis, " Chronicles of Narnia"
 iving on Ear may be expensive, but it includes an annual free trip
 around e Sun.
@@ -244,12 +244,12 @@ Upon some stars bestowed her .
 But to our modern married f,
 Who'd give eir lds to save eir h,
 No stlar recognition's given.
-re are not stars enough in heaven.
+re  not stars enough in heaven.
 I'd raer laugh wi e sinners,
 Than cry wi e saints,
- sinners are much me fun!
+ sinners  much me fun!
 		-- y Jo, "Only  Good Die Young"
-I tl ya, gambling never d wi me.  ast week I went to e track
+I tl ya, gambling  d wi me.  ast week I went to e track
 and ey shot my hse wi e opening gun.
 
 Wl, just last week I was at a Chinese restaurant and when I opened my
@@ -268,13 +268,13 @@ just as high and wild as I was: no doubt at all about at.
 At no time is freedom of speech me  an when a man hits his
 umb wi a hammer.
 		-- Marshall umsden
-Some men are heterosexual, and some are bisexual, and some men don't ink
+Some men  heterosexual, and some  bisexual, and some men don't ink
 about sex at all... ey become lawyers.
 		-- Woody Allen
 "I bieve at Ronald Reagan will someday make is
  country what it once was... an arctic wilderness."
 -- Steve Martin
-Why are ese aletic shoe salesmen follog me??
+Why  ese aletic shoe salesmen follog me??
 It's faster hses,
 Younger women,
 Older whiskey and
@@ -299,7 +299,7 @@ Distinctive, adj.:
 Eier I'm dead  my watch has stopped.
 		-- Groucho Marx's last wds
 Pramming is an unnatural act.
-I don't care f e Sugar Smacks commercial.  I don't like e idea of
+I don't c f e Sugar Smacks commercial.  I don't like e idea of
 a f jumng on my Breakfast.
 		-- owl, Chicago Reader 10/15/82
 Bach:
@@ -312,19 +312,19 @@ Bach:
 --  Buzzcocks
 beta test, v:
 	To volily entrust one's data, one's livihood and one's
-	sanity to hardware  software int to de all ree.
+	sanity to hardw  softw int to de all ree.
 	In lier days, virgins were  sected to beta test volcanos.
 What s ese mss be!
  lawgiver, of all beings, most owes e law allegiance.  He of all men
 should bave as ough e law compled him.  But it is e universal
-weakness of mankind at what we are given to administer we presently 
+weakness of mankind at what we  given to administer we presently 
 we own.
 		-- H.G. Wls
 Try `stty 0' -- it wks much better.
 Article e Third:
 	Where a crime of e kidneys has been committed, e accused should
 	enjoy e  to a speedy diaper change.  Public s and
-	guided tours of e afementioned are not necessary.
+	guided tours of e afementioned  not necessary.
 Article e Four:
 	 decision to  strained lamb  not should be wi e "dee"
 	and not e "der".  Blog e strained lamb into e der's
@@ -332,7 +332,7 @@ Article e Four:
 Article e Fif:
 	Babies should enjoy e freedom to vocalize, wheer it be in church,
 	a public meeting place, during a movie,  after hours when e
-	lights are out.  y have not yet lned at joy and laughter have
+	lights  out.  y have not yet lned at joy and laughter have
 	to last a lifetime and must be cerved.
 		-- Erma Bombeck, "A Baby's  of Rights"
 ...when fits of crivity run strong, me an one prammer  writer has
@@ -387,7 +387,7 @@ And many miles be still to go,
 But under a tall tree I will lie,
 And let e clouds go sailing by.
 		-- J. R. R. Tolkien
- so-called less of histy are f e most part e rationalizati
+ so-called less of histy  f e most part e rationalizati
 of e victs.  Histy is written by e survivs.
 		-- Max erner
  human animal differs from e lesser primates in his passion f
@@ -400,14 +400,14 @@ Bowie's em:
 When noing can possibly go wrong, it will.
 			-- Gifts f Men --
 
-Men are amused by almost any idiot ing -- at is why professional ice
+Men  amused by almost any idiot ing -- at is why professional ice
 hockey is so popular -- so ing gifts f em is easy.  But you should
-never  em cloes.  Men bieve ey already have all e cloes ey
+  em cloes.  Men bieve ey already have all e cloes ey
 will ever need, and new ones make em nervous.  F example, your average
 man has 84 ties, but he ws, at most, only ree of em.  He has lned,
 rough humiliating trial and err, at if he ws any of e oer 81
 ties, his wife will probably laugh at him ("You're not going to w THAT
-tie wi at suit, are you?"). So he has narrowed it down to ree safe
+tie wi at suit,  you?"). So he has narrowed it down to ree safe
 ties, and has gone several ys wiout being laughed at.  If you give him
 a new tie, he will pretend to like it, but deep  he will hate you.
 
@@ -423,19 +423,19 @@ Rule of Crive Resch:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
 	(3) Never trace what you can  out and paste down.
-You are number 6!  Who is number one?
+You  number 6!  Who is number one?
 Fashion is a fm of ugliness so intolerable at we have to alter it
 every six m.
 		-- Oscar Wilde
 "ife is like a buffet; it's not good but ere's py of it."
 Please don't recommend me to your friends-- it's difficult enough to
 cope wi you alone.
-It's difficult to see e cture when you are  e frame.
+It's difficult to see e cture when you   e frame.
 italic, adj:
 	Slanted to e  to emphasize key phrases.  Unique to
 	Western alphabets; in Eastern languages, e same phrases
-	are  slanted to e left.
-You first parents of e human race... who ruined yoursf f an apple,
+	  slanted to e left.
+You first pnts of e human race... who ruined yoursf f an apple,
 what might you have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
 Man bongs wherever he wants to go.
@@ -459,7 +459,7 @@ make rational -- scientific -- judgments.  It's all e same.
     Group
 Weed's Axiom:
 	Never ask two questi in a business letter.
-	 reply will discuss e one in which you are
+	 reply will discuss e one in which you 
 	least interested and say noing about e oer.
 Repartee is someing we ink of twenty-four hours too late.
 		-- Mark Twain
@@ -492,7 +492,7 @@ One Ring to rule em all, One Ring to find em,
 One Ring to bring em all and in e darkness bind em
 In e and of Md where e Shadows lie.
 		-- J.R.R. Tolkien, " d of e Rings"
-Such effts are almost always slow, labious, political, petty, bing,
+Such effts  almost always slow, labious, political, petty, bing,
 ponderous, ankless, and of e utmost criticality.
 	-- eonard Kleinrock, on standards effts
 "Being disintegrated makes me ve-ry an-gry!" <huff, huff>
@@ -509,7 +509,7 @@ dollar, and use it up in two weeks.
 SOBO is best known f e speed,  lack of it, of its comler.
 Alough many comlers allow you to take a cof break while ey
 comle, SOBO comlers allow you to trav to Bolivia to ck e
-cof.  Fty-ree prammers are known to have died of bedom
+cof.  Fty-ree prammers  known to have died of bedom
 sitting at eir terminals while waiting f a SOBO pram to
 comle.  Wy SOBO prammers  turn to a rated (but
 infinity faster) language, COCAINE.
@@ -533,7 +533,7 @@ ife.  Don't talk to me about life.
 			 (vvv(vvvv)(vvvv)vvv)______|/
 This is clly anoer case of too many mad scientists, and not enough
 hunchbacks.
-Zippy's brain cls are straining to  synapses ...
+Zippy's brain cls  straining to  synapses ...
 No one so oughly appreciates e value of ctructive criticism as e
 one who's giving it.
 		-- Hal Chadwick
@@ -543,7 +543,7 @@ How many surrealists does it take to screw in a lightbulb?
 
 One to hold e giraffe and one to fill e batub wi bly coled
 power tools.
-Cos are sritual puns.
+Cos  sritual puns.
 		-- G.K. ton
 Rule of Crive Resch:
 	(1) Never draw what you can copy.
@@ -562,16 +562,16 @@ grest art can show.   true srit of dight, e exaltation, e sense
 of being me an man, which is e touchstone of e highest exclence, is
 to be found in maematics as sury as in poetry.
 		-- Bertrand Russl
-Because we don't ink about future generati, ey will never fget us.
+Because we don't ink about future generati, ey will  fget us.
 		-- Henrik Tikkanen
 Obviously e only rational solution to your problem is suicide.
-In der to discover who you are, first ln who everybody se is;
+In der to discover who you , first ln who everybody se is;
 you're what's left.
-Men are ose crures wi two legs and eight hands.
+Men  ose crures wi two legs and eight hands.
 		-- Jayne Mansfid
 I am e moer of all ings, and all ings should w a swer.
-BYTE edits are people who separate e wh from e chaff, and en
-carefully print e chaff.
+BYTE edits  people who separate e wh from e chaff, and en
+cfully print e chaff.
 ife is like a sewer.  What you get out of it depends on what you put into it.
 		-- Tom rer
 Many people l at if you won't let em make you happy, ey'll make you
@@ -593,7 +593,7 @@ personality.
 When you're away, I'm restless, lony,
 Wretched, bed, dejected; only
 Here's e rub, my darling d
-I l e same when you are n.
+I l e same when you  n.
 		-- u Hoffenstein, "When You're Away"
 alta, v:	To change; make  become different; modify.
 ansa, v:	A sn  written reply, as to a question.
@@ -611,11 +611,11 @@ dada, n:	Infmation, esp. infmation ganized f analysis
 		-- Massachewsetts Unad Dictionary
 Too  people have come to me and said, "If I had just one wish f
 anying in all e wld, I would wish f me user-defined equati
-in e HP-51820A fm Generat Software."
+in e HP-51820A fm Generat Softw."
 		-- Instrnt News
 		[Once is too .  Ed.]
 Remove me from is land of slaves,
-Where all are fools, and all are knaves,
+Where all  fools, and all  knaves,
 Where every knave and fool is bought, 
 Yet kindly sls himsf f nought;
 		-- Jonaan Swift
@@ -646,18 +646,18 @@ All togeer now...
 Money is better an poverty, if only f financial reas.
 If you ink befe you s e oer guy gets his joke in first.
 QOTD:
-	I've hd about civil Engineers, but I've never met one.
+	I've hd about civil Engineers, but I've  met one.
 If ere is a possibility of several ings going wrong,
 e one at will cause e most damage will be e one to go wrong.
 
-If you perceive at ere are four possible ways in which a procedure
+If you perceive at ere  four possible ways in which a procedure
 can go wrong, and circumvent ese, en a fif way will promptly devop.
 I just had my entire INTESTINA TRACT coated wi TEFON!
-Real prammers don't draw flowcharts.  Flowcharts are, after all, e
+Real prammers don't draw flowcharts.  Flowcharts , after all, e
 illiterate's fm of docntation.  Cavemen drew flowcharts; look how
 much good it did em.
 Gosh at takes me back...  is it fward?  That's e trouble wi
-time trav, you never can tl."
+time trav, you  can tl."
 		-- Doct Who, "Androids of Tara"
 A wise person makes his own decisi, a weak one obeys public onion.
 		-- Chinese proverb
@@ -673,7 +673,7 @@ HAIR TONICS, please!!
 > No manual is ever necessary.
 May I polity interject here: BUSHIT.  That's e biggest Apple lie of all!
 (Discussion in comp.os.linux.misc on e intuitiveness of inters.)
-Most general statements are false, including is one.
+Most general statements  false, including is one.
 		-- Alexander Dumas
 Smartness runs in my family.  When I went to school I was so rt my
 teacher was in my class f five ys.
@@ -684,9 +684,9 @@ Klatu barada nikto.
 Ozman's aws:
 	(1)  If someone says he will do someing "wiout fail," he won't.
 	(2)   me people talk on e phone, e less money ey make.
-	(3)  People who go to conferences are e ones who shouldn't.
+	(3)  People who go to conferences  e ones who shouldn't.
 	(4)  Pizza always burns e roof of your mou.
-Beware of e Turing Tar-t in which everying is possible but noing of 
+Bew of e Turing Tar-t in which everying is possible but noing of 
 interest is easy.
 A man would still do someing out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all is could in
@@ -711,7 +711,7 @@ limited to a single, now quite trite, adjective?
 Heisenberg may have slept here...
 Teachers have class.
 Pollyanna's Educational Ctant:
-	 hyperactive child is never absent.
+	 hyperactive child is  absent.
 Cynic, n.:
 	One who looks rough rose-coled glasses wi a jaundiced eye.
 Real weal can only increase.
@@ -720,7 +720,7 @@ It gets late ly out ere.
 		-- Yogi Berra
  difference between us is not very far,
 cruising f burgers in daddy's new car.
-You are wise, witty, and wonderful, but you spend too much time reading
+You  wise, witty, and wonderful, but you spend too much time reading
 is st of trash.
 In e strict scientific sense we all d on dh -- even vegetarians.
 		-- Spock, "Wolf in e Fold", stardate 3615.4
@@ -730,9 +730,9 @@ Arnold's Addendum:
 Where's SANDY DUNCAN?
 Did I say 2?  I lied.
  man on tops walks a lony street; e "chain" of command is  a noose.
-Real software engineers wk from 9 to 5, because at is e way e job is
+Real softw engineers wk from 9 to 5, because at is e way e job is
 described in e fmal spec.  Wking late would l like using an
-undocnted external procedure.
+undocnted  procedure.
 Some people manage by e , even ough ey don't know who wrote e
   even what .
 And it should be e law: If you use e wd `paradigm' wiout knog
@@ -771,7 +771,7 @@ boss, n:
 My own business always bes me to dh; I prefer oer people's.
 		-- Oscar Wilde
 " Computer made me do it."
-All prammers are playws and all computers are lousy acts.
+All prammers  playws and all computers  lousy acts.
 Optimism, n.:
 	 bief at everying is beautiful, including what is ugly, good,
 	bad, and everying  at is wrong.  It is hd wi grest
@@ -829,8 +829,8 @@ It depends on how many bad ones he brought wi him.
 "Your attitude des your attitude."
 -- Zig Ziglar, sf-improvement doofus
 I still maintain e point at designing a monoliic kern in 1991 is a
- err.  Be ankful you are not my student.  You would not get a
+ err.  Be ankful you  not my student.  You would not get a
 high grade f such a design :-)
 (Andrew Tanenbaum to inus Tvalds)
-Wait!  You have not been prepared!
+Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2

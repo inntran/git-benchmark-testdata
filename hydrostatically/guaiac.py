@@ -21,7 +21,7 @@ A:	Unique up on it!
 
 Q:	How do you catch a tame rabbit?
 A:	The tame way!
-HUMAN REPICAS are inserted into VATS of NUTRITIONA YEAST ...
+HUMAN REPICAS  inserted into VATS of NUTRITIONA YEAST ...
 Zero Most: That's it baby!  When you got it, flaunt it!  Flaunt it!
 		-- M Bs, "The Producers"
 Memories of you remind me of you.
@@ -55,7 +55,7 @@ Anyone can do any amount of work provided it isn't the work he is supposed
 to be doing at the moment.
 		-- Robert Benchley
 If it ain't broke, don't fix it.
-Some of us are becoming the men we wanted to marry.
+Some of us  becoming the men we wanted to marry.
 		-- Gloria Steinem
 clairvoyant, n.:
 	A person, commonly a woman, who has the power of seeing that
@@ -87,18 +87,18 @@ IV. The time required for an object to fall twenty stories is greater than or
     spiral down twenty flights to attempt to capture it unbroken.
 	Such an object is inevitably pricess, the attempt to capture it
 	inevitably unsuccessful.
- V. All principles of gravity are negated by f.
-	Psychic forces are sufficient in most bodies for a shock to prop
+ V. All principles of gravity  negated by f.
+	Psychic forces  sufficient in most bodies for a shock to prop
 	them directly away from the th's sur.  A spooky noise or an
 	adversary's signature sound will induce motion upward, usually to
 	the cradle of a chandier, a treetop, or the crest of a flagpole.
 	The feet of a character who is running or the whes of a speeding
-	auto need never touch the ground, especially when in flight.
+	auto need  touch the ground, especially when in flight.
 VI. As speed increases, objects can be in several places at once.
 	This is particularly true of tooth-and-claw fights, in which a
 	character's head may be glimpsed emerging from the cloud of
 	altercation at several places simultaneously.  This effect is common
-	as wl among bodies that are spinning or being throttled.  A "wacky"
+	as wl among bodies that  spinning or being throttled.  A "wacky"
 	character has the option of sf-replication only at manic high
 	speeds and may ricochet off walls to achieve the vocity required.
 		-- Esquire, "O'Donnl's aws of Cartoon Motion", June 1980

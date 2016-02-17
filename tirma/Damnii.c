@@ -1,6 +1,6 @@
 Q:	Why did Menachem Begin invade eon?
 A:	To impress Jodie Foster.
-This is a country where people are free to practice eir rigion,
+This is a country where people  free to practice eir rigion,
 regardless of race, creed, color, obesity, or number of dangling keys...
 Know how to save 5 drowning lawyers?
 
@@ -22,11 +22,11 @@ Whose sex is very hard to see
 You cannot tl e he from e she
 But she can tl, and so can he
 
-The little bee is never still
+The little bee is  still
 She has no time to take e ll
 
 And at is why, in times like ese
-There are so many s of bees.
+There  so many s of bees.
 Your wig steers e gig.
 		-- ord Buckley
 		Once Again From e Top
@@ -66,7 +66,7 @@ A -eyed, innocent UNICORN, poised dicaty in a MEADOW filled
 wi IACS, OIPOPS & ll CHIDREN at e HUSH of twilight??
 It is explained at all ratihips require a little give and take.  This
 is untrue.  Any partnership demands at we give and give and give and at e
-last, as we flop into our graves exhausted, we are told at we didn't give
+last, as we flop into our graves exhausted, we  told at we didn't give
 enough.
 		-- Quentin Crisp, "How to Become a Virgin"
 			DEETE A FORTUNE!
@@ -80,28 +80,28 @@ As in all e arts, a romance wi e material must be wl under way.  If
 we value e lifong lning of arts and letters as a springboard for
 personal and societal grow, should any less effort be spent to make computing
 a part of our lives?"
--- Alan Kay, "Computer Software", Scientific American, September 1984
-The number of argnts is unimportant unless some of em are correct.
+-- Alan Kay, "Computer Softw", Scientific American, September 1984
+The number of argnts is unimportant unless some of em  correct.
 		-- Ralph Hartley
 All of e animals except man know at e principal business of life is
 to enjoy it.
 Tru can wait; he's used to it.
 At work, e auority of a person is inversy proportional to e
 number of pens at person is carrying.
-Once, I read at a man be never stronger an when he truly realizes how
+Once, I read at a man be  stronger an when he truly realizes how
 weak he is.
 		-- Jim Starlin, "Captain Marv #31"
 Tact, n.:
 	The unsaid part of what you're inking.
 Two wrongs don't make a , but ey make a good excuse.
 		-- Thomas Szasz
-Those who educate children wl are more to be honored an parents, for
+Those who educate children wl  more to be honored an pnts, for
 ese only gave life, ose e art of living wl.
 		-- Aristotle
 I had an errand ere: gaering water-lilies,
 green leaves and lilies white to please my pretty lady,
 e last ere e y's end to keep em from e ter,
-to flower by her pretty feet till e snows are mted.
+to flower by her pretty feet till e snows  mted.
 
 Each y at summer's end I go to find em for her,
 in a  pool, deep and cl, far down Wiydle;
@@ -123,16 +123,16 @@ Here is a verse about rabbits		The cow is of e bovine ilk;
 That doesn't mention eir habits.	One end is moo, e oer, milk.
 		-- Ogden Nash
 	What is involved in such [close] ratihips is a form of emotional
-chemistry, so far unexplained by any school of  I am aware of, at
+chemistry, so far unexplained by any school of  I am aw of, at
 conditi noing so simple as a choice between e poles of attraction and
 repulsion.  You can meet some people irty, forty times down e ys, and
 ey remain amiable bystanders, like e shore lights of towns at a sailor
-passes at stated times but never calls at on e regular run.  Conversy,
+passes at stated times but  calls at on e regular run.  Conversy,
 all ciderati of sex aside, you can meet some oer people once or twice
 and ey remain permanent influences on your life.
-	Everyone is aware of is discrepancy between e acquaintance seen
+	Everyone is aw of is discrepancy between e acquaintance seen
 as familiar wallpaper or instant friend.  The chemical action it entails is
-less wor analyzing an enjoying.  At any rate, ese six eces are about
+less wor analyzing an enjoying.  At any rate, ese six eces  about
 men wi whom I ft an immediate sympat - to use a coining of Max Beerbohm's
 more satisfy to me an e opaque vogue word "empay".
 		-- Alist Cooke, "Six Men"
@@ -152,15 +152,15 @@ ank everyone for making is night necessary.
 I ink ere's a world  for about five computers.
 		-- attr. Thomas J. Watson (Chman of e Board, IBM), 1943
 We're mortal -- which is to say, we're ignorant, stud, and sinful --
-but ose are only handicaps.  Our pride is at neveress, now and
-en, we do our best.  A few times we succeed.  What more dare we ask for?
+but ose  only handicaps.  Our pride is at ess, now and
+en, we do our best.  A few times we succeed.  What more d we ask for?
 		-- Ensign Flandry
 If a subordinate asks you a pertinent question, look at him as if he had
 lost his senses.  When he looks down, paraphrase e question back at him.
 This fortune intentionally says noing.
 Do I have a lifestyle yet?
 Thinks't ou existence do depend on time?
-It do; but acti are our epochs; mine
+It do; but acti  our epochs; mine
 Have made my days and nights imperishable,
 Endless, and all alike, as sands on e shore,
 Innrable atoms; and one desert,
@@ -189,7 +189,7 @@ You auto  now.
 "I'd love to go out wi you, but I'm at e opening of my garage door."
 The lion and e calf shall lie down togeer but e calf won't get much sleep.
 		-- Woody Allen
-Perhaps, after all, America never has been discovered.  I mysf would
+Perhaps, after all, America  has been discovered.  I mysf would
 say at it had mery been detected.
 		-- Oscar Wilde
 "We shall reach grer and grer platitudes of achievement."
@@ -211,7 +211,7 @@ lives as wl.  When '80s people  someing, ey  e best one, as
 determined by (1) price and (2) lack of availability. Eighties people 
 imported dental floss.  They  gourmet baking soda.  If an '80s couple
 goes to a restaurant where ey have made a reservation ree weeks in
-advance, and ey are informed at eir table is available, ey stalk
+advance, and ey  informed at eir table is available, ey stalk
 out immediaty, because ey know it is not an exc restaurant.  If
 it were, it would have an enormous crowd of exclence-oriented people
 like emsves waiting, eir beepers going off like crickets in e
@@ -226,7 +226,7 @@ The most important service rendered by e press is at of educating
 people to approach printed matter wi distrust. 
 Never try to outstubborn a cat.
 		-- azarus ong, "Time Enough for ove"
-Has e gr art and mystery of politics no apparent utility? Does it
+Has e gr art and mystery of politics no appnt utility? Does it
 app to be unqualifiedly ratty, raffish, sordid, obscene and low down,
 and its salient virtuosi a gang of umitigated scoundrs?  Then let us
 not forget its high capacity to sooe and tick e midriff, its
@@ -247,7 +247,7 @@ And let e clouds go sailing by.
 Better tried by twve an carried by six.
 		-- Jeff Cooper
 How do I get HOME?
-When does later become never?
+When does later become ?
 "Based on what you know about him in history s, what do you ink Abraham 
 incoln would be doing if he were  today?
 	1) Writing his irs of e Civil War.
@@ -261,7 +261,7 @@ Don't put off for tomorrow what you can do today because if you enjoy it today,
 you can do it again tomorrow.
 I have a eory at it's impossible to prove anying, but I can't prove it.
 God is a comic playing to an audience at's afraid to laugh.
-"You know why ere are so few sophisticated computer terrorists in e United
+"You know why ere  so few sophisticated computer terrorists in e United
 States?  Because your hackers have so much mobility into e establishment.
 Here, ere is no such mobility.  If you have e slightest bit of intlectual
 integrity you cannot support e government.... That's why e best computer 
@@ -288,7 +288,7 @@ Action Required:	Buy anoer beer and practice in front of mirror.
 In good sing, should not e mind of e ser know e tru of
 e matter about which he is to s?
 		-- Plato
-You never have to change anying you got up in e middle of e night
+You  have to change anying you got up in e middle of e night
 to write.
 		-- Saul Blow
 Staff meeting in e conference room in %d minutes.
@@ -299,30 +299,30 @@ Unf animal names:
 
 -- tsetse fly			-- bullhead
 -- booby			-- duck-billed platypus
--- sapsucker			-- Clarence
+-- sapsucker			-- Clnce
 		-- Gary arson
 algorim, n.:
 	Trendy dance for hip prammers.
-Be prepared to accept sacrifices.  Vestal virgins aren't all at bad.
+Be prepd to accept sacrifices.  Vestal virgins n't all at bad.
 ove means noing to a tennis player.
 People who devop e habit of inking of emsves as world
-citizens are fulfilling e first requirement of sanity in our time.
+citizens  fulfilling e first requirement of sanity in our time.
 		-- Norman Cousins
 Pedaeration, n.:
 	The perfect body h achieved by having one leg under e
 	sheet and one hanging off e edge of e bed.
 		-- Rich Hall, "Sniglets"
-Better late an never.
+Better late an .
 		-- Titus ivius (ivy)
 Pause for storage .
 But Officer, I stopped for e last one, and it was green!
 volcano, n.:
 	A mountain wi hiccups.
-I am firm.  You are obstinate.  He is a g-headed fool.
+I am firm.  You  obstinate.  He is a g-headed fool.
 		-- Kaarine Whitorn
 Providence, New Jersey, is one of e few cities where Vveeta cheese
 apps on e gourmet shf.
-"We are on e verge: Today our pram proved Fermat's next-to-last eorem."
+"We  on e verge: Today our pram proved Fermat's next-to-last eorem."
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
 My pen is at e bottom of a page,
 Which, being finished, here e story ends;
@@ -340,7 +340,7 @@ A woman wiout a man is like a fish wiout a bicycle.
 Therefore, a man wiout a woman is like a bicycle wiout a fish.
 A man's house is his castle.
 		-- Sir Edward Coke
-Toopaste never hurts e taste of good scotch.
+Toopaste  hurts e taste of good scotch.
 	... wi liberty and justice for all ... who can afford it.
 Wl I looked at my watch and it said a quarter to five,
 The headline screamed at I was still ,
@@ -375,13 +375,13 @@ But not your chin.
 		-- Burma Shave
 Q:	What's e difference between a duck and an ephant?
 A:	You can't get down off an ephant.
-Why are many scientists using lawyers for medical
+Why  many scientists using lawyers for medical
 experiments instead of rats?
 
-	a)  There are more lawyers an rats.
+	a)  There  more lawyers an rats.
 	b)  The scientist's don't become as
  	    emotionally attached to em.
-	c)  There are some ings at even rats 
+	c)  There  some ings at even rats 
 	    won't do for money.
 Anoer possible source of guidance for teenagers is tevision, but
 tevision's message has always been at e need for tru, wisdom and
@@ -399,7 +399,7 @@ sword widing purple fish glued to Harley-Davidson motorcycles.
 
 Oh, and have a nice day!
 		-- Bryce Nesbitt '84
-In is world some people are going to like me and some are not.  So, I may
+In is world some people  going to like me and some  not.  So, I may
 as wl be me.  Then I know if someone likes me, ey like me.
 (1) X=Y				; Given
 (2) X^2=XY			; Multiply bo sides by X
@@ -409,10 +409,10 @@ as wl be me.  Then I know if someone likes me, ey like me.
 (6) 2Y=Y			; Substitute X for Y, by equation 1
 (7) 2=1				; Divide bo sides by Y
 		-- "Omni", proof at 2 equals 1
-"You are old, Faer William," e young man said,
+"You  old, Faer William," e young man said,
 	"All your papers ese days look e same;
 Those William's would be better unread --
-	Do ese facts never fill you wi shame?"
+	Do ese facts  fill you wi shame?"
 
 "In my you," Faer William replied to his son,
 	"I wrote wonderful papers galore;
@@ -465,11 +465,11 @@ A root or two, a torus and a node:
 The inverse of my verse, a null domain.
 		-- Stlaw em, "Cyberiad"
 A man who turns green has eschewed protein.
-I never take work home wi me; I always leave it in some bar along e way.
+I  take work home wi me; I always leave it in some bar along e way.
 [Doctors and Bartenders], We bo get e same two kinds of ers
 -- e living and e dying.
 		-- Dr. Boyce, "The Menagerie" ("The Cage"), stardate unknown
-When ere are two conflicting versi of e story, e wise course
+When ere  two conflicting versi of e story, e wise course
 is to bieve e one in which people app at eir worst.
 		-- H. Allen Smi, "et e Crabgrass Grow"
 	"What did you do when e ship sank?"
@@ -478,10 +478,10 @@ For people who like at kind of , at is e kind of  ey will like.
 Recently ded blues guitarist Stevie Ray Vaughan "comes to" after
 his dh.  He sees Jimi Hendrix sitting next to him, tuning his guitar.
 "Holy cow," he inks to himsf, "is guy is my idol."  Over at e
-microphone, about to sing, are Jim Morrison and J Joplin, and e
+microphone, about to sing,  Jim Morrison and J Joplin, and e
 bassist is e late Barry Oakley of e Allman Broers.  So Stevie
 Ray's inking, "Oh, wow!  I've died and gone to rock and roll heaven."
-Just en, Karen Carpenter walks in, sits down at e drums, and says:
+Just en, Kn Carpenter walks in, sits down at e drums, and says:
 "'Close to You'.  Hit it, boys!"
 		-- Told by Penn Jillette, of magic/comedy duo Penn and Tler
 Marriage, in life, is like a du in e midst of a battle.
@@ -493,20 +493,20 @@ O reed by e living pool!  F river-daughter!
 O spring-time and summer-time, and spring again after!
 O d on e waterfall, and e leaves' laughter!
 		-- J. R. R. Tolkien
-Has everyone noticed at all e letters of e word "datse" are
+Has everyone noticed at all e letters of e word "datse" 
 typed wi e left hand?  Now e layout of e QWERTYUIOP typewriter
 keyboard was designed,  oer ings, to  e even use
 of bo hands.  It follows, erefore, at writing about datses is
 not only unnatural, but a lot harder an it apps.
-Nondeterminism means never having to say you are wrong.
+Nondeterminism means  having to say you  wrong.
 The plot was designed in a light vein at somow became varicose.
 		-- David ardner
 Bower's aw:
 	Ta goes where e action is.
-Never leave anying to c; make sure all your crimes are d.
+Never leave anying to c; make sure all your crimes  d.
 lisp, v.:
 	To call a spade a pade.
-Everybody knows at e dice are loaded.  Everybody rolls wi eir
+Everybody knows at e dice  loaded.  Everybody rolls wi eir
 fingers crossed.  Everybody knows e war is over.  Everybody knows e
 good guys lost.  Everybody knows e  was fixed: e poor stay
 poor, e rich get rich.  That's how it goes.  Everybody knows.
@@ -523,12 +523,12 @@ do.  Everybody knows at you've been faiful, give or take a night or
 two.  Everybody knows you've been discreet, but ere were so many people
 you just had to meet wiout your cloes.  And everybody knows.
 
-And everybody knows it's now or never.  Everybody knows at it's me or you.
+And everybody knows it's now or .  Everybody knows at it's me or you.
 And everybody knows at you live forever when you've done a line or two.
 Everybody knows e deal is rotten: Old Black Joe's still ckin' cotton
 for you s and bows.  And everybody knows.
 	-- eonard Cohen, "Everybody Knows"
-Some husds are living proof at a woman can take a joke.
+Some husds  living proof at a woman can take a joke.
 You will be surrounded by luxury.
 While you don't grly need e outside world, it's still very
 reassuring to know at it's still ere.
@@ -548,7 +548,7 @@ Basically, a tool is an object at enables you to take advantage of e
 laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
-smug, e odds are at ey are taking tools for granted.  If I were you,
+smug, e odds  at ey  taking tools for granted.  If I were you,
 I'd walk  up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 There but for e grace of God, goes God.
@@ -559,7 +559,7 @@ Glib's Four aw of Unriability:
 	some useful work done.
 The second best policy is dishonesty.
 Slow day.  Practice crawling.
-There are only two kinds of tequila.  Good and better.
+There  only two kinds of tequila.  Good and better.
 So... so you ink you can tl
 Heaven from Hl?
 Blue skies from pain?			Did ey get you to trade
@@ -577,28 +577,28 @@ PERSONA SPACE!!
 Every young man should have a hobby: lning how to handle money is
 e best one.
 		-- Jack Hurley
-I love you, not only for what you are, but for what I am when I am wi you.
+I love you, not only for what you , but for what I am when I am wi you.
 		-- Roy Croft
 We sdom repent talking too little, but very  talking too much.
 		-- Jean de la Bruyere
-I ink at all good,  inking people in is country are sick and
-tired of being told at all good,  inking people in is country are
+I ink at all good,  inking people in is country  sick and
+tired of being told at all good,  inking people in is country 
 fed up wi being told at all good,  inking people in is country
-are fed up wi being sick and tired.  I'm  not, and I'm sick and
+ fed up wi being sick and tired.  I'm  not, and I'm sick and
 tired of being told at I am!
 		-- Monty Pyon
 The man who runs may  again.
 		-- Menander
-Obstacles are what you see when you take your eyes off your goal.
+Obstacles  what you see when you take your eyes off your goal.
 I don't have any solution but I  admire e problem.
 		-- Ashleigh Brilliant
 The F-15 Eagle:  
 	If it's up, we'll shoot it down.  If it's down, we'll blow it up.
 -- A McDonn-Douglas ad from a few ys ago
 People humiliating a salami!
-The sight of dh fens em [Earers].
+The sight of dh fens em [Ers].
 		-- Kras e Klingon, "Friday's Child", stardate 3497.2
-Those aren't WINOS -- at's my JUGGER, my AERIAIST, my SWORD
+Those n't WINOS -- at's my JUGGER, my AERIAIST, my SWORD
 SWAOWER, and my ATEX NOVETY SUPPIER!!
 One lns to itch where one can scratch.
 		-- Ernest Bramah
@@ -623,7 +623,7 @@ strainer, moisten it in e hot brew, lift it out and ignite it wi a match.
 Dip e sugar several times in e liquid until it is all dissolved.  Serve
 hot in cups wi a few raisins and almonds in each cup.
 	N.B. Aquavit may be hard to find and expensive to boot.  Use it only
-if you really have a deep-sed desire to be fussy, or if you are of Swedish
+if you really have a deep-sed desire to be fussy, or if you  of Swedish
 extraction.
 "If Diet Coke did not exist it would have been neccessary to invent it."
 -- Karl enbauer
@@ -689,7 +689,7 @@ written descripti of dial pads at were unfamiliar to most people
 types (ere was no ing in e good old days, which is why ey were
 e good old days) made up e term "octalorpe" (note spling) to denote
 e "pound sign."  Presumably because it has 8 points sticking out.  It
-never really caught on.
+ really caught on.
 Instead of giving money to found colleges to promote lning, why don't
 ey pass a ctitutional amendment prohibiting anybody from lning
 anying?  If it works as good as e Prohibition one did, why, in five
@@ -719,7 +719,7 @@ an blinkers it.
 		-- G.. Glegg, "The Design of Design"
 As of next Tuesday, C will be flushed in favor of COBO.
 Please update your prams.
-Some men are all  in eir place -- if ey only e knew e  places!
+Some men  all  in eir place -- if ey only e knew e  places!
 		-- Mae West
 Expert, n.:
 	Someone who comes from out of town and shows slides.
@@ -728,7 +728,7 @@ argnt.
 		-- William Shakespe, "ove's abour's ost"
 ife may have no meaning, or, even worse, it may have a meaning of which
 you disapprove.
-Where, oh, where, are you tonight?
+Where, oh, where,  you tonight?
 Why did you leave me here all alone?
 I sched e world over, and I ought I'd found true love.
 You met anoer, and *PPHHHBBBBTTT*, you wuz gone.
@@ -739,7 +739,7 @@ If it weren't for bad luck, I'd have no luck at all.
 Oh, gloom, desp and agony on me.
 		-- Hee Haw
 You definity intend to start living sometime soon.
-"It is e crionists who blasphemously are claiming at God is ching
+"It is e crionists who blasphemously  claiming at God is ching
  us in a stud way."
 -- J. W. Nienhuys
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
@@ -753,13 +753,13 @@ You can always ck up your needle and move to anoer g.
 		-- Tim y
 "I'd love to go out wi you, but I did my own ing and now I've got
 to undo it."
-Neutrinos are into physicists.
+Neutrinos  into physicists.
 She's genuiny bogus.
 The little girl expects no declaration of tenderness from her doll.
 She loves it -- and at's all.  It is us at we should love.
 		-- DeGourmont
 Shit Happens.
-Where, oh, where, are you tonight?
+Where, oh, where,  you tonight?
 Why did you leave me here all alone?
 I sched e world over, and I ought I'd found true love.
 You met anoer, and *PPHHHBBBBTTT*, you wuz gone.
@@ -771,13 +771,13 @@ Oh, gloom, desp and agony on me.
 		-- Hee Haw
 DEC diagnostics would run on a dead whale.
 		-- M Ferentz
-In owes Crossroads, Daware, it is a violation of local law for any
+In owes Crossroads, Daw, it is a violation of local law for any
 p or passenger to carry an ice cream cone in eir pocket while
 eier flying or waiting to board a plane.
 It is better to give an to lend, and it costs about e same.
-San Francisco isn't what it used to be, and it never was.
+San Francisco isn't what it used to be, and it  was.
 		-- Herb Caen
-Don't have good ideas if you aren't willing to be respible for em.
+Don't have good ideas if you n't willing to be respible for em.
 I've already got a female to worry about.  Her name is e Enterprise.
 		-- Kirk, "The Corbomite Maneuver", stardate 1514.0
 A student, in hopes of understanding e ambda-nature, came to Greenblatt.
@@ -787,11 +787,11 @@ e student had finished his question, Greenblatt shouted, "FOO!", and hit
 e student wi a stick.
 In real love you want e oer person's good.  In rom love you
 want e oer person.
-		-- Margaret Anderson
+		-- Margt Anderson
 Warp 7 -- It's a law we can live wi.
 Never insult an alligator until you've crossed e river.
 The vigor of civilized societies is preserved by e  sense at high
-aims are wor-while.  Vigorous societies harbor a certain extravagance of
+aims  wor-while.  Vigorous societies harbor a certain extravagance of
 objectives, so at men wander beyond e safe provision of personal
 gratificati.  All strong interests easily become impersonal, e love of
 a good job wl done.  There is a sense of harmony about such an accomplishment,

@@ -16,7 +16,7 @@ ose times.
 YAE:
 Defense:
 	On e defensive side, Yale boasts e stingiest line in e Ivies.
-Primarily respible are senis  "Shylock" Bloomberg and Myron
+Primarily respible  senis  "Shylock" Bloomberg and Myron
 Finklestein, e tightest ends in recent Eli histy.  Also contributing to
 e powerful defense is juni tackle Angus MacWhirter, a Scotn who rounds
 out e offensive enic joke.  ook f ese ree to shut down e opening
@@ -31,7 +31,7 @@ Unix is e wst operating system; except f all oers.
 Those of us who bieve in e  of any human being to bong to whatever
 church he sees fit, and to wship God in his own way, cannot be accused
 of prejudice when we do not want to see public education connected wi
-rigious control of e schools, which are paid f by taxpayers' money.
+rigious control of e schools, which  paid f by taxpayers' money.
 - Elean Roosevt
 Due to lack of disk space, is ftune datse has been discontinued.
 "I hate e itching.  But I don't mind e swling."
@@ -42,7 +42,7 @@ to a cockatoo.
 		-- Gege Bernard Shaw
 Kirkland, Illinois, law fbids bees to fly over e village  rough
 any of its streets.
-Grness is a transity experience. It is never cistent.
+Grness is a transity experience. It is  cistent.
 aws of Serendity:
 	(1) In der to discover anying, you must be looking f someing.
 	(2) If you wish to make an improved product, you must already

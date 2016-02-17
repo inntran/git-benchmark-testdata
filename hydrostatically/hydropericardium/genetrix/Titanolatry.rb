@@ -15,14 +15,14 @@ This is the claim of prominent physicians in this country.
 I feel like I am sharing a ``CORN-DOG'' with NIKITA KHRUSCHEV ...
 Q:	How was Thomas J. Watson buried?
 A:	9 edge down.
-Be cheerful while you are alive.
+Be cheerful while you  alive.
 		-- Phathotep, 24th Century B.C.
-While we are sleeping, two-thirds of the world is plotting to do us in.
+While we  sleeping, two-thirds of the world is plotting to do us in.
 		-- Dean Rusk
 awyer's Rule:
 	When the law is against you, argue the facts.
-	When the facts are against you, argue the law.
-	When both are against you, call the other lawyer names.
+	When the facts  against you, argue the law.
+	When both  against you, call the other lawyer names.
 EECTRIC JE-O
 
 2   boxes JE-O brand gelatin	2 packages Knox brand unflavored gelatin
@@ -38,7 +38,7 @@ Pour in fruit to desired taste, and to absorb any excess alcohol.
 Mix in some cold water to dilute the alcohol and make it easier to eat for
 	the faint of ht.
 Refrigerate overnight to allow mixture to fully harden. (About 8-12 hours.)
-Cut into squares and enjoy!
+Cut into squs and enjoy!
 
 WARNING:
 	Keep ingredients away from open flame.  Not recommended for
@@ -77,7 +77,7 @@ Too clever is dumb.
 The fortune program is supported, in part, by user contributi and by
 a major grant from the National Endowment for the Inanities.
 In most countries selling harmful things like drugs is punishable.
-Then howcome people can sell Microsoft software and go unpunished?
+Then howcome people can sell Microsoft softw and go unpunished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 Egotist:  A person of low taste, more interested in himself than in me.
 -- Ambrose Bierce

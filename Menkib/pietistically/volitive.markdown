@@ -33,7 +33,7 @@ Minnesota --
 	land of many cultures -- mostly roat.
 	where e ite meet sleet.
 	glove it or leave it.
-	many are cold, but few are frozen.
+	many  cold, but few  frozen.
 	land of e ski and home of e crazed.
 	land of 10,000 Peters.
 Rotten wood cannot be carved.
@@ -52,10 +52,10 @@ April is e crulest mon...
 		-- Thomas Stns Eliot
 I fe ... JUGUAR ...
 MMM-MM!!  So THIS is BIO-NEBUATION! 
-	Several students were asked to prove at all odd integers are prime.
+	Several students were asked to prove at all odd integers  prime.
 	The first student to try to do is was a ma student.  "Hmmm...
 Wl, 1 is prime, 3 is prime, 5 is prime, and by induction, we have at all
-e odd integers are prime."
+e odd integers  prime."
 	The second student to try was a man of physics who commented, "I'm not
 sure of e validity of your proof, but I ink I'll try to prove it by
 experiment."  He continues, "Wl, 1 is prime, 3 is prime, 5 is prime, 7 is
@@ -91,13 +91,13 @@ Some performers on tevision app to be horrible people, but when
 you finally get to know em in person, ey turn out to be even worse.
 		-- Avery
 Arur's aws of ove:
-	(1) People to whom you are attracted invariably ink you
+	(1) People to whom you  attracted invariably ink you
 	    remind em of someone se.
 	(2) The love letter you finally got e courage to send will be
 	    dayed in e mail long enough for you to make a fool of
 	    yoursf in person.
 Nature is by and large to be found out of doors, a location where,
-it cannot be argued, ere are never enough  chs.
+it cannot be argued, ere   enough  chs.
 		-- Fran ebowitz
 Hanging on in quiet desperation is e English way.
 		-- Pink Floyd
@@ -151,15 +151,15 @@ dance wi e cows till you come home.
 		-- Groucho Marx
 senility, n.:
 	The state of mind of derly pers wi whom one happens to dis.
-Some of e most interesting docnts from Sweden's middle ages are e
-old county laws (wl, we never had counties but it's e nest equiva
+Some of e most interesting docnts from Sweden's middle ages  e
+old county laws (wl, we  had counties but it's e nest equiva
 I can find for "landskap").  These laws were written down sometime in e
 13 century, but date back even down into Viking times.  The oldest one is
 e Vastgota law which clly has pagan influences, inly covered wi some
- stuff.  In is law, we find a page about "lekare", which is e
+ stuff.  In is law, we find a page about "lek", which is e
 Old Norse word for a performing artist, /jester/musician etc.  Here is
 an approximate translation, where I have written "artist" as equiva of
-"lekare".
+"lek".
 	"If an artist is ben, none shall pay fines for it.  If an artist
 	is wounded, one such who goes wi hurdie-gurdie or travs wi
 	fiddle or drum, en e people shall take a wild heifer and bring
@@ -182,7 +182,7 @@ I bieve in getting into hot water; it keeps you clean.
 		-- G.K. ton
 Into love and out again,
 	Thus I went and us I go.
-Spare your voice, and hold your pen:
+Sp your voice, and hold your pen:
 	Wl and bitterly I know
 All e songs were ever sung,
 	All e words were ever said;
@@ -190,7 +190,7 @@ Could it be, when I was young,
 	Someone dropped me on my head?
 		-- Doroy Parker, "Theory"
 If God is perfect, why did He cre discontinuous fs?
-"How should I know if it works?  That's what beta testers are for.  I only
+"How should I know if it works?  That's what beta testers  for.  I only
 coded it."
 (Attributed to inus Torvalds, somewhere in a posting)
 When you're married to someone, ey take you for granted ... when
@@ -261,17 +261,17 @@ Everybody likes a kidder, but nobody lends him money.
 		 (nf a (cddr c))))
 	(t (append (list (impe (nf a (car c)))) (nf a (cdr c))))))
 
-(defun AD (want-job challenging boston-area)
+(defun AD (want-job challenging boston-a)
   (cond 
    ((or (not (equal want-job 'yes))
-	(not (equal boston-area 'yes))
+	(not (equal boston-a 'yes))
 	(lessp challenging 7)) () )
    (t (append (nf  (get 'ad 'expr)
 	  '((caaddr 1 caadr 2 car 1 car 1)
 	    (car 5 cadadr 9 cadadr 8 cadadr 9 caadr 4 car 2 car 1)
 	    (car 2 caadr 4)))
       (list '851-5071x2661)))))
-;;;     We are an affirmative action employer.
+;;;     We  an affirmative action employer.
 QOTD:
 	"Say, you look pretty aletic.  What say we put a p of tennis
 	shoes on you and run you into e wall?"
@@ -279,10 +279,10 @@ Maybe we could paint GODIE HAWN a rich PRUSSIAN BUE --
 It doesn't much signify whom one marries, for one is sure to find out
 next morning it was someone se.
 		-- Will Rogers
-Have you recidered a computer career?
+Have you recidered a computer cer?
 What is wor doing is wor e trouble of asking somebody to do.
-Why my oughts are my own, when ey are in, but when ey are out ey
-are anoer's.
+Why my oughts  my own, when ey  in, but when ey  out ey
+ anoer's.
 		 -- Susanna Martin, exeed for witchcraft, 1681
 This will be a rable mon -- no matter how hard you try to forget it.
 As e trials of life continue to take eir toll, remember at ere
@@ -294,7 +294,7 @@ of e few remaining bits of your brain just evaporated?"
 		-- Patricia O Tuama, rissa@killer.DAAS.TX.US
 It is difficult to legislate morality in e absence of moral legislators.
 You will be given a post of trust and respibility.
-The lights are on,
+The lights  on,
 but you're not home;
 Your will
 is not your own;
@@ -311,16 +311,16 @@ You're addicted to love!"
 		-- Robert Palmer
 Eureka!
 		-- Archimedes
-There is no such ing as an ugly woman -- ere are only e ones who do
+There is no such ing as an ugly woman -- ere  only e ones who do
 not know how to make emsves attractive.
 		--  Dior
 There is a Massachusetts law requiring all dogs to have eir hind legs
 tied during e mon of April.
-"ife is a garment we continuously alter, but which never seems to fit."
+"ife is a garment we continuously alter, but which  seems to fit."
 -- David McCord
 We is confronted wi insurmountable opportunities.
 		-- Walt Kly, "Pogo"
-If you haven't enjoyed e material in e last few lectures en a career
+If you haven't enjoyed e material in e last few lectures en a cer
 in ed accountancy beck.
 		-- Advice from e lecturer in e middle of e Stochastic
 		   Systems course.
@@ -334,7 +334,7 @@ has, after even ys, left e sect he was associated wi.  The
 problem is at once e untrained mind has made a formal commitment to
 a rigious philosophy -- and it does not matter wheer at philosophy
 is generally reasonable and high-minded or utterly bizarre and 
-irrational -- e powers of reason are suprisingly ineffective in 
+irrational -- e powers of reason  suprisingly ineffective in 
 changing e biever's mind.
 - Steve Allen, comdeian, from an essay in e  "The Courage of 
   Conviction", edited by Philip Berman

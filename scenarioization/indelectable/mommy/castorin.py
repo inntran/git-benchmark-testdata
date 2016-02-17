@@ -1,10 +1,10 @@
-re are two jazz musicians who are gr buddies.  y hang out and play
+re  two jazz musicians who  gr buddies.  y hang out and play
 togeer f ys, virtually inseparable.  Unftunaty, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can l a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where are
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
 you?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
@@ -14,8 +14,8 @@ Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me me,
 tl me me!"
 	"et me put it is way," continues e voice.  "re's good news
-and bad news.   good news is at ese guys are in top fm.  I mean
-I have *never* hd em sound better.  y are *wailing* up here."
+and bad news.   good news is at ese guys  in top fm.  I mean
+I have ** hd em sound better.  y  *wailing* up here."
 	" bad news is at God has is girlfriend at sings..."
 My brain is my second favite gan.
 		-- Woody Allen
@@ -50,12 +50,12 @@ But let em prove it if ey can.
 An Animal at knows who it is, one at has a sense of his own identity, is
 a discontented crure, doomed to cre new problems f himsf f e
 duration of his stay on is planet.  Since neier e mouse n e chip
-knows what is, he is spared all e vexing problems at follow is
+knows what is, he is spd all e vexing problems at follow is
 discovery.  But as soon as e human animal who asked himsf is question
 emerged, he plunged himsf and his descendants into an eternity of doubt
 and brooding, tion and tru-seeking at has goaded him rough e
 centures as reessly as hunger  sexual longing.   chimp at does
-not know at he exists is not driven to discover his igins and is spared
+not know at he exists is not driven to discover his igins and is spd
 e tragic necessity of contemplating his own end.  And even if e animal 
 experimenters succeed in teaching a chimp to count one hundred bs  
 to play chess, e chimp will devop no science and he will exhibit no 
@@ -63,7 +63,7 @@ appreciation of beauty, f e grest part of man's wisdom may be traced
 back to e eternal questi of beginnings and endings, e quest to give
 meaning to his existence, to life .
 -- Sma Fraiberg, _ Magic Ys_, pg. 193
-Since a politician never bieves what he says, he is surprised
+Since a politician  bieves what he says, he is surprised
 when oers bieve him.
 		-- Charles DeGaulle
 She blinded me wi science!
@@ -101,7 +101,7 @@ over f a caraway seed and Tony Calio's ht.
 		-- F. Allen
 I'm going to Boston to see my doct.  He's a very sick man.
 		-- Fred Allen
-A  never quite gets over e idea at he is a ing of beauty
+A   quite gets over e idea at he is a ing of beauty
 and a boy f ever.
 		-- Hen 
 Art is eier plagiarism  revolution.
@@ -154,7 +154,7 @@ What one bieves to be true eier is true  becomes true.
 		-- John illy
 Common sense is e collection of prejudices acquired by age eighteen.
 		-- Albert Einstein
-All articles at cuscate wi resplendence are not truly auriferous.
+All articles at cuscate wi resplendence  not truly auriferous.
 yo-yo, n.:
 	Someing at is occasionally up but nmally down.
 	(see also Computer).
@@ -175,14 +175,14 @@ haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where ey still know how to get your shirts back by Thursday.  et
 e Big Apple have e fs of "Broadway Joe" Nama.  We have known e
 stolid but sy Killebrew.  istening to Cole Pter over a dry martini
-may wl suit ose unlucky enough never to have hd e Whoopee John Polka
-Band and never to have shared a tcher of 3.2 Grain Bt Beer.   loss is
+may wl suit ose unlucky enough  to have hd e Whoopee John Polka
+Band and  to have shd a tcher of 3.2 Grain Bt Beer.   loss is
 eirs.  And e Big Apple has yet to bake e bag at can match peanut
 butter on lefse.  Here is a town where e maj ur problem is dutch m
 disease and e number one crime is overtime parking.  We boast me er
 per cata an e Big Apple.  We go to see, not to be seen.  We go even
 when we must shov ten inches of snow from e driveway to get ere.  Indeed
-e ters are fierce.  But en comes e marv of e Minneapple summer.
+e ters  fierce.  But en comes e marv of e Minneapple summer.
 People flock to e city's es to frolic and rejoice at e sight of so
 much happy humanity free from e bonds of e traditional down-filled parka.
 Here's to e Minneapple.  And to its people.  Our  f style is bad
@@ -278,23 +278,23 @@ Klatu barada nikto.
 In e future, you're going to get computers as prizes in breakfast cereals.
 You'll row em out because your house will be littered wi em.
 -- Robert ucky
- absent ones are always at fault.
+ absent ones  always at fault.
 Sails in ships, sail on!  Even while we died, oers rode out e stm.
 Pec's Heal-Food Principle:
 	Never  rutga on any day of e week at has a "y" in it.
-[District Attneys] ln in District Attney  at ere are
+[District Attneys] ln in District Attney  at ere 
 two sure-fire ways to get a lot of favable publicity:
 
 (1) Go down and raid all e lockers in e local high school and
-    confiscate 53 marijuana cigarettes and put em in a le and hold
+    confiscate 53 marijuana cigttes and put em in a le and hold
     a press conference where you announce at ey have a street value
-    of $850 million.  se raids never fail, because A high schools,
-    including brand-new, never-used ones, have at least 53 marijuana
-    cigarettes in e lockers.  As far as anyone can tl, e locker
+    of $850 million.  se raids  fail, because A high schools,
+    including brand-new, -used ones, have at least 53 marijuana
+    cigttes in e lockers.  As far as anyone can tl, e locker
     facty puts em ere.
 (2) Raid an "adult  ste" and hold a press conference where you
-    announce you are charging e owner wi 850 counts of being a
-    ece of human sleaze.  This also never fails, because you always
+    announce you  charging e owner wi 850 counts of being a
+    ece of human sleaze.  This also  fails, because you always
     get a conviction.  A jur at a pnography trial is not about to
     state f e recd at he finds noing obscene about a movie
     where acts engage in sexual activities wi live snakes and a
@@ -302,7 +302,7 @@ two sure-fire ways to get a lot of favable publicity:
     vote f e dh penalty just to make sure nobody gets e wrong
     impression.
 		-- Dave Barry, "Pnography"
-Extradinary claims demand extradinary proof.  re are many examples of
+Extradinary claims demand extradinary proof.  re  many examples of
 outsiders who eventually overrew entrenched scientific odoxies, but
 ey prevailed wi irrefutable data.  Me , egregious findings at
 contradict wl-established resch turn out to be artifacts.  I have
@@ -342,7 +342,7 @@ Give ese, e homess, tyst-tossed to me.
 I lift my disk beside e process.
 		-- Inscription on a Wd Process
 Trying to establish voice contact ... please ____yl into keyboard.
-War is never imperative.
+War is  imperative.
 		-- McCoy, "Ba of Terr", stardate 1709.2
 Anying is good if it's made of chocolate.
  difference between genius and studity is at genius has its limits.
@@ -353,7 +353,7 @@ Kli's First aw of Dining:
 You can't start wrying about what's going to happen.  You get spastic
 enough wrying about what's happening now.
 		-- auren Bacall
- ree questi of grest concern are -- 1. Is it attractive?
+ ree questi of grest concern  -- 1. Is it attractive?
 2. Is it amusing?  3. Does it know its place?
 		-- Fran ebowitz, "Metropolitan ife"
 Now I'm concentrating on a specific tank battle toward e end of Wld War II!
@@ -432,14 +432,14 @@ Men still remember e first kiss after women have fgotten e last.
 You mean you didn't *know* she was off making lots of little phone companies?
 Must be getting close to town -- we're hitting me people.
 ASHes to ASHes, DOS to DOS.
-All of e true ings I am about to tl you are shamess lies.
+All of e true ings I am about to tl you  shamess lies.
 		--  Book of Bokonon / Kurt Vonnegut Jr.
 A woman did what a woman had to, e best way she knew how.
 To do me was impossible, to do less, uninkable.
 		-- Dirisha, " Man Who Never Missed"
 Tempt me wi a s!
 Hp  continental drift.
- sooner all e animals are extinct, e sooner we'll find eir money.
+ sooner all e animals  extinct, e sooner we'll find eir money.
 - Ed Bluestone
 QOTD:
 	"Who?  Me?  No, no, NO!!  But I do sl rugs."
@@ -456,10 +456,10 @@ way sht of our sales goals f fiscal 2010."
 advanced Heuristically prammed Amic computer."
 	"I know, HA. I wrote e data sheet, remember?  But e fact is,
 ey're not sling."
-	"Please explain, Dave.  Why aren't HAs sling?"
-	Bowman hesitates.  "You aren't IBM compatible."
+	"Please explain, Dave.  Why n't HAs sling?"
+	Bowman hesitates.  "You n't IBM compatible."
 [...]
-	" letters H, A, and  are alphabetically adjacent to e letters
+	" letters H, A, and   alphabetically adjacent to e letters
 I, B, and M.  That is a IBM compatible as I can be."
 	"Not quite, HA.   engineers have d out a kludge."
 	"What kludge is at, Dave?"
@@ -472,7 +472,7 @@ His perfmance is so wooden you want to spray him wi iquid Pledge.
 		-- John Stark, movie review
 Trying to define yoursf is like trying to bite your own tee.
 		-- Alan Watts
-High hes are a device invented by a woman who was tired of being kissed
+High hes  a device invented by a woman who was tired of being kissed
 on e fead.
 	A boy spent ys collecting postage stamps.   girl next do bought
 an album too, and started her own collection.  "Dad, she s everying I've
@@ -509,18 +509,18 @@ Repter:   "What would you do if you found a million dollars?"
 Yogi Berra: "If e guy was po, I would give it back."
 	"What did you do when e ship sank?"
 	"I grabbed a cake of soap and washed mysf ashe."
-Wait!  You have not been prepared!
+Wait!  You have not been prepd!
 		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2
-While we are sleeng, two-irds of e wld is plotting to do us in.
+While we  sleeng, two-irds of e wld is plotting to do us in.
 		-- Dean Rusk
 "ife sucks, but dh doesn't put out at all...."
 -- Thomas J. Kopp
-Adding manpower to a late software project makes it later.
+Adding manpower to a late softw project makes it later.
 		-- F. Bs, " Myical Man-Mon"
 
-Whenever one person is found adequate to e discharge of a duty by
+Whe one person is found adequate to e discharge of a duty by
 close application ereto, it is wse exee by two pers and
-scarcy done at all if ree  me are employed erein.
+scarcy done at all if ree  me  employed erein.
 		-- Gege Washington, 1732-1799
 This ftune soaks up 47 times its own weight in excess memy.
 It was raining heavily, and e motist had car trouble on a lony country
@@ -553,7 +553,7 @@ all apping on a quiz pram, were asked to complete is :
 	"Old MacDonald had a farm," said e Iowan.
 	"CORRECT!" shouts e quizmaster.  "Now f $100,000, spl 'farm.'"
 	"Easy," said e Iowan. "E-I-E-I-O."
-Practically perfect people never permit sentiment to muddle eir inking.
+Practically perfect people  permit sentiment to muddle eir inking.
 		-- Mary Popns
 Trouble always comes at e wrong time.
 I used to be such a sweet sweet ing, 'til ey got a hold of me,
@@ -620,7 +620,7 @@ and sarcastic?"
 I will follow e good side  to e fire, but not into it if I can
 hp it.
 		-- Mich Eyquem de Montaigne
-Beware of e Turing Tar-t in which everying is possible but noing of 
+Bew of e Turing Tar-t in which everying is possible but noing of 
 interest is easy.
 I will honour Christmas in my ht, and try to keep it all e y.  I
 will live in e Past, e Present, and e Future.   Srits of all
@@ -647,8 +647,8 @@ as I walk a cracked and broken pa
 If we make it we can all sit back and laugh
 but I  at tomrow we'll be crying.
 		-- King Crimson, "In e Court of e Crimson King"
-re are ree rules f writing a nov.  Unftunaty, no one knows
-what ey are.
+re  ree rules f writing a nov.  Unftunaty, no one knows
+what ey .
 		-- Somerset Maugham
 I have me hit points at you can possible .
 "He flung himsf on his hse and rode madly off in all directi."
@@ -671,12 +671,12 @@ missiles and we didn't have to go to at .
 - Oliver N
 Don't get stuck in a closet -- w yoursf out.
 Dh has been proven to be 99% fatal in lty rats.
-  of war has never changed.  Sury it is me logical to heal
+  of war has  changed.  Sury it is me logical to heal
 an to kill.
 		-- Surak of Vulcan, " Sa Curtain", stardate 5906.5
 ockwood's ong Shot:
 	 cs of getting en up by a lion on Main Street
-	aren't one in a million, but once would be enough.
+	n't one in a million, but once would be enough.
 If e rich could pay e po to die f em, what a living e po
 could make!
 "re is hopeful symbolism in e fact at flags do not wave in a vacuum."
@@ -688,21 +688,21 @@ Winny and I lived in a house at ran on static ectricity...
 If you wanted to run e blender, you had to rub ballo on your
 head... if you wanted to cook, you had to pull off a swer real quick...
 		-- Steven W
-Neutrinos are into physicists.
+Neutrinos  into physicists.
 My analyst told me at I was  out of my head,
 	But I said, "D Doct, I ink at it is you ins.
 Because I have got a ing at is unique and new,
 	To prove it I'll have e last laugh on you.
 'Cause ins of one head -- I've got two.
 
-And you know two heads are better an one.
+And you know two heads  better an one.
 (1) Alexander e Gr was a gr general.
-(2) Gr generals are fewarned.
+(2) Gr generals  fewarned.
 (3) Fewarned is med.
 (4) Four is an even number.
 (5) Four is  an odd number of arms f a man to have.
 (6)  only number at is bo even and odd is infinity.
-	refe, all hses are black.
+	refe, all hses  black.
 Editing is a rewding activity.
 If you took all e students at ft asleep in class and laid em end to
 end, ey'd be a lot me comftable.

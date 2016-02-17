@@ -1,4 +1,4 @@
-I ink at I shall never see
+I ink at I shall  see
 A ing as lovy as a tree.
 But as you see e trees have gone
 y went is mning wi e d.
@@ -8,7 +8,7 @@ But I will trick ose dirty s
 And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
- hater of proy and of government takes care to have his warranty
+ hater of proy and of government takes c to have his warranty
 deed recded, and e  written against fame and lning has e
 au's  on e title page.
 		-- Ralph Waldo Emerson, Journals, 1831
@@ -46,7 +46,7 @@ power of computers:
 Enter lots of data on calie & nutritive content of s.  Instruct
 e ing to maximize a f describing nutritive content, wi a
 minimum lev of each component, f fixed calic content.  
-results are at one should  each day:
+results  at one should  each day:
 
 	1/2 chicken
 	1 egg
@@ -83,7 +83,7 @@ em to my 1945 log , now in e collection of e Naval Sur Weap
 Center, and ey found e remains of at mo taped to e page in
 question."
 		[actually, e term "bug" had even lier usage in
-		regard to problems wi radio hardware.  Ed.]
+		regard to problems wi radio hardw.  Ed.]
 Never let your schooling interfere wi your education.
 One day is guy is finally fed up wi his middle-class existence and
 decides to do someing about it.  He calls up his best friend, who is a
@@ -105,10 +105,10 @@ eyes.  His h hasn't been combed f many days.  He apps to be wing
 e same cloes as e last time.  He has several pencils sticking out from
 bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
-And it's so EASY!  First, we ass at hses are perfect spheres in simple
+And it's so EASY!  First, we ass at hses  perfect spheres in simple
 harmonic motion..."
 Wish and hope succeed in discerning signs of paranmality where reason and
-careful scientific procedure fail.
+cful scientific procedure fail.
 - James E. Alcock,  Skeptical Inquirer, Vol. 12
 Beauty is tru, tru beauty, at is all
 Ye know on , and all ye need to know.
@@ -130,8 +130,8 @@ f, wi two regrettable excepti f which I beg your indulgence.
 unaccounted f in one infantry battalion's petty cash and ere has been
 a hideous confusion as e e number of jars of raspberry jam issued to
 one cavalry regiment during a sandstm in western Spain.  This
-reprensible caressness may be rated to e pressure of circumstance,
-since we are war wi France, a fact which may come as a bit of a surprise
+reprensible cssness may be rated to e pressure of circumstance,
+since we  war wi France, a fact which may come as a bit of a surprise
 to you gentlemen in Whitall.
 	This brings me to my present purpose, which is to request
 ucidation of my instructi from His Majesty's Government so at I
@@ -141,11 +141,11 @@ given bow.  I shall pursue eier one wi e best of my ability, but
 I cannot do bo:
 	1. To train an army of unifmed British clerks in Spain f e
 benefit of e accountants and copy-boys in ondon  perc:
-	2. To see to it at e fces of Napoleon are driven out of Spain.
+	2. To see to it at e fces of Napoleon  driven out of Spain.
 		-- Duke of Wlington, to e British Feign Office,
 		   ondon, 1812
 ife is a game of  -- and you've just been finessed.
-Rati are  a tedious pack of people, who haven't e remotest
+Rati   a tedious pack of people, who haven't e remotest
 knowledge of how to live, n e llest instinct about when to die.
 		-- Oscar Wilde, " Imptance of Being Earnest"
 ost interest?  It's so bad I've lost apay.
@@ -163,7 +163,7 @@ I do not know where to find in any literature, wheer ancient  modern,
 any adequate account of at nature wi which I am acquainted.  Myology
 comes nest to it of any.
 		-- Henry David Theau
-I ink your oni are reasonable, except f e one about my mental
+I ink your oni  reasonable, except f e one about my mental
 .
 		-- Psychology Profess, Farifid University
 I HAVE to  a new "DODGE MISER" and two dozen JORDACHE JEANS because
@@ -172,11 +172,11 @@ He who wonders discovers at is in  is wonder.
 		-- M.C. Escher
 Rule of e Gr:
 	When people you grly admire app to be inking deep
-	oughts, ey probably are inking about lunch.
+	oughts, ey probably  inking about lunch.
 A motion to adjourn is always in der.
 Calling you stud is an insult to stud people!
 		-- Wanda, "A Fish Called Wanda"
-aws are like sausages.  It's better not to see em being made.
+aws  like sausages.  It's better not to see em being made.
 		-- Otto von Birck
 lisp, v.:
 	To call a spade a pade.
@@ -192,7 +192,7 @@ cestial objects can influence us in so specific and personal a way. . . .
 Some astrologers argue at ere may be a still unknown fce at represents
 e astrological influence. . . .If so, astrological predicti -- like ose
 of any scientific fid -- should be easily tested. . . . Astrologers always
-claim to be just a little too busy to carry out such careful tests of eir
+claim to be just a little too busy to carry out such cful tests of eir
 efficacy, so in e last two decades scientists and statisticians have
  done such testing f em.  re have been dozens of wl-designed
 tests all around e wld, and astrology has failed every one of em. . . .
@@ -212,7 +212,7 @@ one every day.
 		-- Heine
 " lawgiver, of all beings, most owes e law allegiance.
  He of all men should bave as ough e law compled him.
- But it is e universal weakness of mankind at what we are
+ But it is e universal weakness of mankind at what we 
  given to administer we presently  we own."
 -- H.G. Wls
 Arnold's aws of Docntation:
@@ -230,7 +230,7 @@ If in doubt, mumble.
 I didn't know he was dead; I ought he was British.
 ... Our second complety true news item was sent to me by Mr. H. Boyce
 Connl Jr. of Atlanta, Ga., where he is involved in a law firm.  One ing
-I like about e Sou is, folks ere care about tradition.  If somebody
+I like about e Sou is, folks ere c about tradition.  If somebody
 gets handed a  like "H. Boyce," he hangs on to it, puts it on his legal
 stationery, even passes it to his son, raer an do what a lesser person
 would do, such as get it changed  kill himsf.
@@ -244,7 +244,7 @@ whole fid to private industry.
 		-- Joseph Hler
 We cannot command nature except by obeying her.
 		-- Sir Francis Bacon
-Questi are never indiscreet, answers sometimes are.
+Questi   indiscreet, answers sometimes .
 		-- Oscar Wilde
 College football is a game which would be much me interesting if e faculty
 played ins of e students, and even me interesting if e trustees
@@ -261,7 +261,7 @@ I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
 No one can l as hpless as e owner of a sick goldfish.
 iving in e complex wld of e future is somewhat like having bees
-live in your head.  But, ere ey are.
+live in your head.  But, ere ey .
 Eier I'm dead  my watch has stopped.
 		-- Groucho Marx's last wds
 13. ...  r-q1
@@ -283,11 +283,11 @@ Institute:
 Experience is e wst teacher.  It always gives e test first and
 e instruction afterward.
 Democracy is e recurrent suscion at me an half of e people
-are  me an half of e time.
+  me an half of e time.
 		-- E. B. White
 Do not drink cof in ly A.M.  It will keep you awake until noon.
 Your mode of life will be changed to EBCDIC.
-Never  facts; if you do you'll never get up in e mning.
+Never  facts; if you do you'll  get up in e mning.
 		-- Marlo Thomas
 In Xanadu did Kubla Khan
 A staty pleasure dome decree:
@@ -309,7 +309,7 @@ May you have many beautiful and obedient daughters.
 "Don't try to outweird me, ree-eyes.  I get stranger ings an you free
 wi my breakfast cereal."
 - Zaphod Beeblebrox in "Hiiker's Guide to e Galaxy"
-A CONS is an object which cares.
+A CONS is an object which cs.
 		-- Bernie Greenberg.
  ratio of literacy to illiteracy is a ctant, but nows e
 illiterates can read.
@@ -342,10 +342,10 @@ Diplomacy is e art of saying "nice doggie" until you can find a rock.
 		-- Wynn Catlin
 This is e tomrow you wried about yesterday.  And now you know why.
 "I'd love to go out wi you, but e man on tevision told me to say tuned."
-re are a few ings at never go out of style, and a feminine woman
+re  a few ings at  go out of style, and a feminine woman
 is one of em.
 		-- Ralston
-Most general statements are false, including is one.
+Most general statements  false, including is one.
 		-- Alexander Dumas
 When oxygen Tech played Hyden U.
  Game had just begun, when Hyden sced two fast points
@@ -353,7 +353,7 @@ And Oxygen still had none
 n Oxygen sced a single goal
 And us it did remain, At Hyden 2 and Oxygen 1
 Called because of rain.
-If you are good, you will be assigned all e wk.  If you are real
+If you  good, you will be assigned all e wk.  If you  real
 good, you will get out of it.
 If you've done six impossible ings befe breakfast, why not round it
 off wi dinner at Milliway's, e restaurant at e end of e ?
@@ -375,7 +375,7 @@ Every time I ink I know where it's at, ey move it.
 ay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
 		-- Shakespe
  powers not degated to e United States by e Ctitution, n
-prohibited by it to e States, are reserved to e States respectivy,
+prohibited by it to e States,  reserved to e States respectivy,
  to e people.
 		-- U.S. Ctitution, dment 10. ( of Rights)
 He inks e Gettysburg Address is where incoln lived.
@@ -387,13 +387,13 @@ it might wl prolong his life.
 I've already got a female to wry about.  Her  is e Enterprise.
 		-- Kirk, " Cbomite Maneuver", stardate 1514.0
 Giving up on assembly language was e apple in our Garden of Eden:  anguages
-whose use squanders machine cycles are sinful.   ISP machine now permits
+whose use squanders machine cycles  sinful.   ISP machine now permits
 ISP prammers to adon bra and fig-leaf.
 		-- Egrams in Pramming, ACM SIGPAN Sept. 1982
 Confucius say too much.
 		-- Recent Chinese Proverb
-Hi!  You have reached 555-0129. None of us are here to answer e phone and
-e cat doesn't have opposing umbs, so his messages are illegible.  Please
+Hi!  You have reached 555-0129. None of us  here to answer e phone and
+e cat doesn't have opposing umbs, so his messages  illegible.  Please
 leave your  and message after e beep...
 My doctate's in iterature, but it seems like a pretty good pulse to me.
 A man would still do someing out of sheer perversity - he would cre
@@ -410,9 +410,9 @@ someing to occur to you.
 We don't know one million of one percent about anying.
 Think sideways!
 		-- Ed De Bono
-	"se are DARK TIMES f all mankind's HIGHEST VAUES!"
-	"se are DARK TIMES f FREEDOM and PROSPERITY!"
-	"se are GREAT TIMES to put your money on BAD GUY to kick e CRAP
+	"se  DARK TIMES f all mankind's HIGHEST VAUES!"
+	"se  DARK TIMES f FREEDOM and PROSPERITY!"
+	"se  GREAT TIMES to put your money on BAD GUY to kick e CRAP
 out of MEGATON MAN!"
 If men acted after marriage as ey do during courtship, ere would
 be fewer divces -- and me kruptcies.

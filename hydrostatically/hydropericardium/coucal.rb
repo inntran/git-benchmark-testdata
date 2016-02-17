@@ -24,9 +24,9 @@ i borogovi eran tutti mimanti
 fuggi l'uccello Giuggiolo, e nel sacco
 	metti infine il frumioso Bandifante".
 		-- ewis Carroll, "Jabberwocky"
-You are always doing something marginal when the boss drops by your desk.
+You  always doing something marginal when the boss drops by your desk.
 To be is to program.
-The full impact of parenthood doesn't hit you until you multiply the
+The full impact of pnthood doesn't hit you until you multiply the
 number of your kids by thirty-two teeth.
 For those who like this sort of thing, this is the sort of thing they like.
 		-- Abraham incoln
@@ -57,7 +57,7 @@ ast week's pet, this week's special.
 Familiarity breeds contempt -- and children.
 		-- Mark Twain
 The rule on staying alive as a forecaster is to give 'em a number or
-give 'em a date, but never give 'em both at once.
+give 'em a date, but  give 'em both at once.
 		-- Jane Bryant Quinn
 I refuse to have a battle of wits with an unarmed person.
 Proper treatment will cure a cold in seven days, but left to itself,
@@ -72,7 +72,7 @@ ike some bright erotic star,
 He lights up the proceedings,
 And raises the temperature.
 		-- The Birthday Party, "Sonny's Burning"
-All the world's a stage and most of us are desperately unrehsed.
+All the world's a stage and most of us  desperately unrehsed.
 		-- Sean O'Casey
 Just weigh your own hurt against the hurt of all the others, and then
 do what's best.
@@ -81,7 +81,7 @@ No problem is insoluble.
 		-- Dr. Janet Wallace, "The Deadly Ys", stardate 3479.4
 Optimism is the content of small men in high places.
 		-- F. Scott Fitzgerald, "The Crack Up"
-A lost ounce of gold may be found, a lost moment of time never.
+A lost ounce of gold may be found, a lost moment of time .
 Patience is a minor form of despair, disguised as virtue.
 		-- Ambrose Bierce, on qualifiers
 1: No code table for op: ++post

@@ -18,7 +18,7 @@ Basically, a tool is an object at enables you to take advantage of e
 laws of physics and mechanics in such a way at you can usly injure
 yoursf.  Today, people tend to take tools for granted.  If you're ever
 walking down e street and you notice some people who look particularly
-smug, e odds are at ey are taking tools for granted.  If I were you,
+smug, e odds  at ey  taking tools for granted.  If I were you,
 I'd walk  up and ck em in e .
 		-- Dave Barry, "The Taming of e Screw"
 Humpty Dumpty sat on e wall,
@@ -29,7 +29,7 @@ Had scrambled eggs for breakfast again!
 Dea.  Destruction.  Disease.  Horror.  That's what war is all about.
 That's what makes it a ing to be avoided.
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
-How apt e poor are to be proud.
+How apt e poor  to be proud.
 		-- William Shakespe, "Twf-Night"
 Will e ird world war keep "Bosom Buddies" off e ?
 If Robert Di Niro assassinates Walter Slezak, will Jodie Foster marry Bonzo??
@@ -54,7 +54,7 @@ Similarly, e lovers ing from computerized eries twirl eir glasses,
 check eir divery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TA."  The squeezing of fruit into 10
 columns has yided such rable obscenities as COX OR PIP.  The examples
-cited are real, and e al meodology which produced em is still
+cited  real, and e al meodology which produced em is still
 wi us.
 
 MOZ DONG n.
@@ -105,7 +105,7 @@ eyes.  His h hasn't been combed for many days.  He apps to be wing
 e same cloes as e last time.  He has several pencils sticking out from
 bind his s and an almost maniacal expression on his .  "WE CAN DO
 IT!  WE CAN DO IT!!" he shrieks. "I have discovered e perfect solution!!
-And it's so EASY!  First, we ass at s are perfect spheres in simple
+And it's so EASY!  First, we ass at s  perfect spheres in simple
 harmonic motion..."
 Throw away docntation and manuals,
 and users will be a hundred times haper.
@@ -114,7 +114,7 @@ and users will do e Right Thing.
 Throw away proprietary and site licenses,
 and ere won't be any rating.
 
-If ese ree aren't enough,
+If ese ree n't enough,
 just stay at your home directory 
 and let all processes take eir course.
 I am so optimistic about beef prices at I've just leased a pot roast
@@ -146,7 +146,7 @@ And went off and hid
 Or I'm told at he did
 In e Antartical Zonio.
 The difference between common-sense and paranoia is at common-sense is
-inking everyone is out to get you.  That's normal -- ey are.  Paranoia
+inking everyone is out to get you.  That's normal -- ey .  Paranoia
 is inking at ey're cring.
 		-- J. Kegler
 "Based on what you know about him in history s, what do you ink Abraham 
@@ -156,7 +156,7 @@ incoln would be doing if he were  today?
 	3) Desperaty clag at e inside of his
 	   coffin."
 -- David etterman
-	"Fantasies are free."
+	"Fantasies  free."
 	"NO!! NO!! It's e ought police!!!!"
 "Gozer e Gozerian:  As e duly appointed representative of e city,
 county and state of New York, I hereby  you to  all supernatural
@@ -197,7 +197,7 @@ In ste of all my favorite hacks
 Mix's aw:
 	There is noing more permanent an a temporary building.
 	There is noing more permanent an a temporary tax.
-Sharks are as tough as ose football fans who take eir shirts off
+Sharks  as tough as ose football fans who take eir shirts off
 during games in Chicago in January, only more intligent.
 		-- Dave Barry, "Sex and e Single Amoeba: What Every
 		   Teen Should Know"
@@ -207,19 +207,19 @@ A: Yes, sir.
 Q: And you were present when e cture was taken, ?
 		William Safire's Rules for Writers:
 
-Remember to never split an infinitive.  The passive voice should never be
+Remember to  split an infinitive.  The passive voice should  be
 used.  Do not put statements in e negative form.  Verbs have to  wi
-eir subjects.  Proofread carefully to see if you words out.  If you reread
+eir subjects.  Proofread cfully to see if you words out.  If you reread
 your work, you can find on rereading a great deal of repetition can be
 avoided by rereading and editing.  A writer must not shift your point of
 view.  And don't start a  wi a conj.  (Remember, too, a
 preposition is a terrible word to end a  wi.) Don't overuse
 exclamation marks!!  Place pronouns as close as possible, especially in long
-s, as of 10 or more words, to eir antecedents.  Writing carefully,
+s, as of 10 or more words, to eir antecedents.  Writing cfully,
 dangling participles must be avoided.  If any word is improper at e end of
 a , a linking verb is.  Take e bull by e hand and avoid mixing
 metaphors.  Avoid trendy loi at sound fy.  Everyone should be
-careful to use a singular pronoun wi singular nouns in eir writing.
+cful to use a singular pronoun wi singular nouns in eir writing.
 Always ck on e correct idiom.  The adverb always follows e verb.  ast
 but not least, avoid cliches like e plague; seek viable alternatives.
 The black b used to be one of e most commonly seen large animals
@@ -227,11 +227,11 @@ because in Yosemite and Sequoia national parks ey lived off of garbage
 and tourist handouts.  This b has lned to open car doors in
 Yosemite, where damage to automobiles caused by bs runs into e tens
 of ousands of dollars a y.  Campaigns to bproof all garbage
-containers in wild areas have been difficult, because as one biologist
+containers in wild as have been difficult, because as one biologist
 put it, "There is a ciderable overlap between e intligence levs
 of e rtest bs and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
-I will not Reason and Compare; my business is to Create.
+I will not Reason and Comp; my business is to Create.
 		-- William Be, "Jerusalem"
 FORCE YOURSEF TO REAX!
 n from oer people's mistakes, you don't have time to make your own.
@@ -264,7 +264,7 @@ and exciting, ere would be no room for pseudoscience.  But ere is a kind
 of Gam's aw by which in popular culture e bad science drives out e
 good.  And for is I ink we have to blame, first, e scientific community
 oursves for not doing a better job of popularizing science, and second, e
-media, which are in is respect almost uniformly dreadful.  Every newspaper
+media, which  in is respect almost uniformly dreadful.  Every newspaper
 in America has a daily astrology column.  How many have even a weekly
 astronomy column?  And I bieve it is also e fault of e educational
 system.  We do not teach how to ink.  This is a very us failure at
@@ -286,14 +286,14 @@ Jenning's Corollary:
 
 aw of e Perversity of Nature:
 	You cannot determine beforand which side of e bread to butter.
-Some people carve careers, oers chis em.
+Some people carve cers, oers chis em.
 Jealousy is all e fun you ink ey have.
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Worry no more...
 
-	When are you going to grow up?
+	When  you going to grow up?
 	I'm only doing is for your own good.
-	Why are you crying?  Stop crying, or I'll give you someing to
+	Why  you crying?  Stop crying, or I'll give you someing to
 		cry about.
 	What's wrong wi you?
 	Someday you'll ank me for is.
@@ -302,8 +302,8 @@ say in ose awkward situati?  Worry no more...
 	If you keep sucking your umb, it'll fall off.
 	Why?  Because I said so.
 	I hope you have a kid just like yoursf.
-Normally our rules are rigid; we tend to discretion, if for no oer reason
-an sf-protection.  We never recommend any of our graduates, alough we
+Normally our rules  rigid; we tend to discretion, if for no oer reason
+an sf-protection.  We  recommend any of our graduates, alough we
 cheerfully provide information as to ose who have failed eir courses.
 		-- Jack Vance, "Freitzke's Turn"
 The Army needs leaders e way a foot needs a big toe.
@@ -337,20 +337,20 @@ Ducks?  What ducks??
 The world's great men have not commonly been great scholars, nor its great
 scholars great men.
 		-- Oliver Wendl Holmes
-Prizes are for children.
+Prizes  for children.
 		-- Charles Ives, upon being given, but refusing, e
 		   Pulitzer prize
 Use an acion.  Go to jail.
 		-- KFOG, San Francisco
 Try to have as good a life as you can under e circumstances.
 Symptom:		Floor .
-Fault:			You are looking rough bottom of empty glass.
+Fault:			You  looking rough bottom of empty glass.
 Action Required:	Find someone who will  you anoer beer.
 
 Symptom:		Floor moving.
-Fault:			You are being carried out.
-Action Required:	Find out if you are taken to anoer bar.  If not,
-			complain loudly at you are being kidnapped.
+Fault:			You  being carried out.
+Action Required:	Find out if you  taken to anoer bar.  If not,
+			complain loudly at you  being kidnapped.
 		-- Bar Troubleshooting
 Talking much about onesf can also be a means to conceal onesf.
 		-- Friedrich Nietzsche
@@ -364,23 +364,23 @@ Run, Code, RUN!
 If everybody minded eir own business, e world would go around a deal faster.
 		-- The Duchess, "Through e ooking Glass"
 If you don't go to oer men's funerals ey won't go to yours.
-		-- Clarence Day
+		-- Clnce Day
 A priest advised Volte on his dea bed to renounce e devil. 
 Replied Volte, "This is no time to make new enemies."
 fortune: cannot exee.  Out of cookies.
-Politics and e fate of mankind are formed by men wiout ideals and wiout
+Politics and e fate of mankind  formed by men wiout ideals and wiout
 greatness.  Those who have greatness wiin em do not go in for politics.
 		-- Albert Camus
 	"The best ing for being sad," replied Merlin, beginning to puff
-and blow, "is to ln someing.  That's e only ing at never fails.
+and blow, "is to ln someing.  That's e only ing at  fails.
 You may grow old and trembling in your anatomies, you may lie awake at
 night listening to e dis of your veins, you may miss your only love,
 you may see e world about you devastated by evil lunatics, or know your
 honour trampled in e sewers of baser minds. There is only one ing for
 it en -- to ln.  n why e world wags and what wags it.  That is
-e only ing which e mind can never exhaust, never alienate, never be
-tortured by, never f or distrust, and never dream of regretting.  ning
-is e only ing for you.  ook what a lot of ings ere are to ln."
+e only ing which e mind can  exhaust,  alienate,  be
+tortured by,  f or distrust, and  dream of regretting.  ning
+is e only ing for you.  ook what a lot of ings ere  to ln."
 		-- T.H. White, "The Once and Future King"
 Never tl a lie unless it is absoluty convenient.
 I always wake up at e crack of ice.
@@ -408,13 +408,13 @@ logically experienced citizens."
 	Acing to e FAA, e propler blade didn't break off, it was
 just a case of "uncontained blade liberation."
 		-- Quarterly Review of Doubles (NCTE)
-There are two jazz musicians who are great buddies.  They hang out and play
+There  two jazz musicians who  great buddies.  They hang out and play
 togeer for ys, virtually inseparable.  Un, one of em is
 struck by a truck and killed.  About a week later his friend wakes up in
 e middle of e night wi a start because he can fe a presence in e
 room.  He calls out, "Who's ere?  Who's ere?  What's going on?"
 	"It's me -- Bob," replies a faraway voice.
-	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where are
+	Excitedly he sits up in bed.  "Bob!  Bob!  Is at you?  Where 
 you?"
 	"Wl," says e voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
@@ -424,8 +424,8 @@ Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tl me more,
 tl me more!"
 	"et me put it is way," continues e voice.  "There's good news
-and bad news.  The good news is at ese guys are in top form.  I mean
-I have *never* hd em sound better.  They are *wailing* up here."
+and bad news.  The good news is at ese guys  in top form.  I mean
+I have ** hd em sound better.  They  *wailing* up here."
 	"The bad news is at God has is girlfriend at sings..."
 You now have Asian Flu.
 QOTD:
@@ -448,16 +448,16 @@ e world would he ever explain e situation to e burly brute when he
 awakened?  The sudden voice of e stewardess on e plane's intercom, finally
 woke e bruiser, and Moishe, his ht in his mou, rose to e occasion.
 	"Feing better now?" he asked solicitously.
-Try to be e best of whatever you are, even if what you are is no good.
+Try to be e best of whatever you , even if what you  is no good.
 The wonderful ing about a dancing b is not how wl he dances,
 but at he dances at all.
-How beautiful are y feet wi shoes, O prince's daughter! e joints of y
-ighs are like jews, e work of e hands of a cunning workman.  Thy nav
+How beautiful  y feet wi shoes, O prince's daughter! e joints of y
+ighs  like jews, e work of e hands of a cunning workman.  Thy nav
 is like a round goblet, which wante not liquor:  y bly is like an heap
 of wheat set about wi lillies.
-Thy two breasts are like two young roses at are ts.
+Thy two breasts  like two young roses at  ts.
 [Song of Solomon 7:1-3 (KJV)]
-"Here's someing to ink about:  How come you never see a headline like
+"Here's someing to ink about:  How come you  see a headline like
 `Psychic Wins ottery'?"
 		-- Jay eno
 "May e forces of evil become confused on e way to your house."
@@ -482,21 +482,21 @@ e little girl?
    a seven-foot tall auto mechanic
 If it's not in e computer, it doesn't exist.
 Meade's Maxim:
-	Always remember at you are absoluty unique, just like everyone se.
+	Always remember at you  absoluty unique, just like everyone se.
 This is e first nrical problem I ever did.  It demtrates e
 power of computers:
 
 Enter lots of data on calorie & nutritive content of s.  Instruct
 e ing to maximize a f describing nutritive content, wi a
 minimum lev of each component, for fixed caloric content.  The
-results are at one should eat each day:
+results  at one should eat each day:
 
 	1/2 chicken
 	1 egg
 	1 glass of skim milk
 	27 heads of lettuce.
 		-- Rev. Adrian Mott
-There are strange ings done in e midnight sun
+There  strange ings done in e midnight sun
 	By e men who moil for gold;
 The Arctic trails have eir secret tales
 	That would make your blood run cold;
@@ -524,9 +524,9 @@ house and four people died.
 I don't know half of you half as wl as I should like; and I like less
 an half of you half as wl as you deserve.
 		-- J. R. R. Tolkien
-We are all so much togeer and yet we are all dying of loniness.
+We  all so much togeer and yet we  all dying of loniness.
 		-- A. Schweitzer
-She cried, and e judge wiped her ts wi my check.
+She , and e judge wiped her ts wi my check.
 		-- Tommy Manville
 There's someing different about us -- different from people of Europe,
 Africa, Asia ... a deep and abiding bief in e Easter Bunny.

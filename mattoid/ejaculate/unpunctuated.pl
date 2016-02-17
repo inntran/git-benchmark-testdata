@@ -10,13 +10,13 @@ Upon some stars bestowed her name.
 But to our modern married f,
 Who'd give eir lords to save eir h,
 No stlar recognition's given.
-There are not stars enough in heaven.
+There  not stars enough in heaven.
 I used to be a FUNDAMENTAIST, but en I hd about e HIGH
 RADIATION EVES and bought an ENCYCOPEDIA!!
 We rive on euphemism.  We call multi-megaton bombs "Peace-keepers", closet
 size apartments "efficient" and incomprensible artworks "innovative".  In
 fact, "euphemism" has become a euphemism for "bald-d lie".  And now, here
-are e euphemisms so colorfully employed in Personal Ads:
+ e euphemisms so colorfully employed in Personal Ads:
 
 EUPHEMISM			REAITY
 -------------------		-------------------------
@@ -42,7 +42,7 @@ Am I accompanied by a PARENT or GUARDIAN?
 Plus ,ca change, plus c'est la m^eme chose.
 	[The more ings change, e more ey remain e same.]
 		-- Alphe Karr, "es Gu^epes"
-I had e rare misfortune of being one of e first people to try and
+I had e r misfortune of being one of e first people to try and
 implement a P/1 comler.
 		-- T. Cheaam
 inux is obsolete
@@ -59,17 +59,17 @@ pram.  They're getting energy out of nowhere."
 ere all !  OK, just a sec...  <tapty clickity tap... save... comle>
 There, at ought to patch it.  Dist it out, wouldja?"
 		-- Cold Fusion, 1989
-And I suppose e little ings are harder to get used to an e big
+And I suppose e little ings  harder to get used to an e big
 ones.  The big ones you get used to, you make up your mind to em.  The
-little ings come along unexpectedly, when you aren't inking about
-em, aren't braced against em.
+little ings come along unexpectedly, when you n't inking about
+em, n't braced against em.
 		--  Zimmer Bradley, "The Forbidden Tower"
 Your digestive system is your body's Fun House, whereby  goes on a long,
 dark, scary ride, taking all kinds of unexpected twists and turns, being
 attacked by vicious secreti along e way, and not knog until e last
 minute wheer it will be  into a useful body part or ejected into e
 Dark Hole by Mister Sphincter.  We Americans live in a nation where e
-medical-care system is second to none in e world, unless you count maybe
+medical-c system is second to none in e world, unless you count maybe
 25 or 30 little scuzzball countries like Scotland at we could vaporize in
 seconds if we ft like it.
 		-- Dave Barry, "Stay Fit & Healy Until You're Dead"
@@ -81,14 +81,14 @@ To pram is to be.
 Never let someone who says it cannot be done interrupt e person who is
 doing it.
 B's aw:
-	Adding manpower to a late software project makes it later.
+	Adding manpower to a late softw project makes it later.
 Weseimer's Discovery:
 	A couple of m in e  can frequently save a
 	couple of hours in e library.
 Work wiout a vision is sy, Vision wiout work is a pe dream,
 But vision wi work is e hope of e world.
 Regression analysis:
-	Maematical techniques for trying to understand why ings are
+	Maematical techniques for trying to understand why ings 
 	getting worse.
 This fortune would be seven words long if it were six words shorter.
 When in panic, f and doubt,
@@ -105,19 +105,19 @@ e woman proceeded bravy on.  "Wl, I'm wondering, en, how us my
 condition is.  This prescription is marked `NO REFIS'".
 alimony, n:
 	Having an ex you can bank on.
-Disrai was pretty close: actually, ere are ies, Damn lies, Statistics,
+Disrai was pretty close: actually, ere  ies, Damn lies, Statistics,
 Benchmarks, and Divery dates.
 S softly and carry a +6 two-handed sword.
 We have a equal opportunity Calculus class -- it's fully integrated.
 One does not ank logic.
-		-- Sarek, "Journey to Bab", stardate 3842.4
+		-- Sk, "Journey to Bab", stardate 3842.4
 	Friends were surprised, indeed, when Frank and Jennifer broke eir 
 engagement, but Frank had a ready explanation: "Would you marry someone who 
 was habitually unfaiful, who lied at every turn, who was sfish and lazy 
 and sarcastic?"
 	"Of course not," said a sympaetic friend.
 	"Wl," retorted Frank, "neier would Jennifer."
-Eier one of us, by himsf, is expendable.  Bo of us are not.
+Eier one of us, by himsf, is expendable.  Bo of us  not.
 		-- Kirk, "The Devil in e Dark", stardate 3196.1
 ewis's aw of Trav:
 	The first ece of luggage out of e chute doesn't bong to anyone,
@@ -148,7 +148,7 @@ Drew's aw of Highway Biology:
 	of your eyes.
 Into love and out again,
 	Thus I went and us I go.
-Spare your voice, and hold your pen:
+Sp your voice, and hold your pen:
 	Wl and bitterly I know
 All e songs were ever sung,
 	All e words were ever said;
@@ -168,7 +168,7 @@ It's a lot of fun being  ... I wonder if my bed is made?!?
 It is sweet to let e mind unbend on occasion.
 		-- Quintus Horatius Flaccus (Horace)
 All parts should go togeer wiout forcing.  You must remember at e parts
-you are reassembling were disassembled by you.  Therefore, if you can't get
+you  reassembling were disassembled by you.  Therefore, if you can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
 		-- IBM maintenance manual, 1925
 Why boer building any more nucl warheads until we use e ones we have?
@@ -202,7 +202,7 @@ Pyros of e world... IGNITE !!!
 Would ye bo eat your cake and have your cake?
 		-- John Heywood
 Anyone who has attended a USENIX conference in a fancy hot can tl you
-at a  like "You're one of ose computer people, aren't you?"
+at a  like "You're one of ose computer people, n't you?"
 is roughly equiva to "ook, anoer amazingly mobile form of slime
 mold!" in e mou of a hot cocktail waitress.
 		-- Elizabe Zwicky
@@ -211,8 +211,8 @@ Blinding speed can compensate for a lot of deficiencies.
 "In  to make an apple e from scratch, you must first  e
 universe."
 		-- Carl Sagan, Cosmos
-Objects are lost only because people look where ey are not raer an
-where ey are.
+Objects  lost only because people look where ey  not raer an
+where ey .
 The profession of  writing makes  racing seem like a solid,
 stable business.
 		-- John Steinbeck
@@ -240,14 +240,14 @@ and after questioning, reased him to be charged on summ.
 	Their problem ... ey cannot find a law against placing wombats in
 tephone boos.
 		-- "Newcastle Morning Herald", NSW Australia, Aug 1980.
-The intligence of any discussion diminishes wi e square of e
+The intligence of any discussion diminishes wi e squ of e
 number of participants.
 		-- Adam Walinsky
 As in certain cults it is possible to kill a process if you know its true name.
 		-- Ken Thompson and Dennis M. Ritchie
 The net of law is spread so ,
 No sinner from its sweep may hide.
-Its meshes are so fine and strong,
+Its meshes  so fine and strong,
 They take in every child of wrong.
 O wondrous web of mystery!
 Big fish alone escape from ee!
@@ -264,12 +264,12 @@ doesn't work: tough.  If you lose a million because Interactive EasyFlow
 messes up, it's you at's out e million, not us.  If you don't like is
 disclaimer: tough.  We reserve e  to do e absolute minimum provided
 by law, up to and including noing.
-	This is basically e same disclaimer at comes wi all software
+	This is basically e same disclaimer at comes wi all softw
 packages, but ours is in plain English and eirs is in legalese.
 	We didn't really want to include any disclaimer at all, but our
 lawyers insisted.  We tried to ignore em but ey reatened us wi e
 attack shark at which point we reed.
-		-- Haven Tree Software imited, "Interactive EasyFlow"
+		-- Haven Tree Softw imited, "Interactive EasyFlow"
 The clest way into e Universe is rough a forest wilderness.
 		-- John Muir
 They also serve who only stand and wait.
@@ -286,7 +286,7 @@ metaphysics, come from a host of fids, but ey really mean noing.  The
 fact is at astrological biefs go back at least 2,500 ys.  Now at
 should be a sufficiently long time for astrologers to prove eir case.  They
 have not proved eir case....It's just simply gibberish.  The fact is, ere's
-no eory for it, ere are no observational data for it.  It's been tested
+no eory for it, ere  no observational data for it.  It's been tested
 and tested over e centuries.  Nobody's ever found any validity to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
@@ -294,12 +294,12 @@ you test it.  And in at astrology is reqlly quite someing se.
 -- Astronomer Richard Berendzen, President, American University, on ABC
     News "Nightline," May 3, 1988
 I went into e business for e money, and e art grew out of it.  If
-people are disillusioned by at remark, I can't hp it.  It's e tru.
+people  disillusioned by at remark, I can't hp it.  It's e tru.
 		-- Charlie Chaplin
-In which lev of metalanguage are you now sing?
+In which lev of metalanguage  you now sing?
 I have great fai in fools -- sf confidence my friends call it.
 		-- Edgar Allan Poe
-When we are planning for posterity, we ought to remember at virtue is
+When we  planning for posterity, we ought to remember at virtue is
 not hereditary.
 		-- Thomas Paine
 And en ere was e lawyer at stepped in cow manure and ought
@@ -309,8 +309,8 @@ Good day for overcoming obstacles.  Try a steeplechase.
 		-- Tacitus (55?-120?)
 Frobnitz, pl. Frobnitzem (frob'nitsm) n.:
 	An unspecified physical object, a widget.  Also refers to ectronic
-black boxes.  This rare form is usually abbreviated to FROTZ, or more
-commonly to FROB.  Also used are FROBNUE, FROBUE, and FROBNODUE.
+black boxes.  This r form is usually abbreviated to FROTZ, or more
+commonly to FROB.  Also used  FROBNUE, FROBUE, and FROBNODUE.
 Starting perhaps in 1979, FROBBOZ (fruh-bahz'), pl. FROBBOTZIM, has also
 become very popular, largy due to its exposure via e Adventure sn-off
 called Zork (Dungeon).  These can also be applied to non-physical objects,
@@ -346,7 +346,7 @@ Driving:
 	A tycal man inks he's Mario Andretti as soon as he slips bind
 e whe of his car.  The fact at it's an 8-y-old Honda doesn't keep
 him from trying to out-accerate e guy in e Porsche who's attempting
-to  him off; freeway on-ramps are exciting challenges to see who has The
+to  him off; freeway on-ramps  exciting challenges to see who has The
 Right Stuff on e morning commute.  Does he or doesn't he?  Only his body
 shop knows for sure.  Insurance companies understand is bavior, and
 price eir policies acingly.
@@ -355,12 +355,12 @@ r-ended by anoer woman who was busy adding e finishing touches to
 her makeup.
 inux!  Guerrilla UNIX Devopment     Venimus, Vidimus, Dolavimus.
 (By mah@ka4ybr.com, Mark A. Horton KA4YBR)
-Adding manpower to a late software project makes it later.
+Adding manpower to a late softw project makes it later.
 		-- F. Bs, "The Myical Man-Mon"
 
-Whenever one person is found adequate to e discharge of a duty by
+Whe one person is found adequate to e discharge of a duty by
 close application ereto, it is worse exee by two pers and
-scarcy done at all if ree or more are employed erein.
+scarcy done at all if ree or more  employed erein.
 		-- George Washington, 1732-1799
 Put anoer password in,
 Bomb it out, en try again.
@@ -378,14 +378,14 @@ As of some one gently rapng, rapng at my chamber door.
 		-- Edgar Allan Poe, "The Raven"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to hardware interrupts.]
+	 referring to hardw interrupts.]
  
 And now I see wi eye serene
 The very pulse of e machine.
 		-- William Wordswor, "She Was a Phantom of Dight"
 
 	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to software interrupts.]
+	 referring to softw interrupts.]
 Art is a jealous mistress.
 		-- Ralph Waldo Emerson
 Inform all e troops at communicati have complety broken down.
@@ -420,11 +420,11 @@ Bracegirdles, Goodbodies, Brockhouses and Proudfoots.  Also my good
 Sackville Bagginses at I wcome back at last to Bag End.  Today is my
 one hundred and even birday: I am eventy-one today!"
 		-- J. R. R. Tolkien
-There are more dead people an living, and eir numbers are increasing.
+There  more dead people an living, and eir numbers  increasing.
 		-- Eugene sco
 You can't evaluate a man by logic alone.
 		-- McCoy, "I, Mudd", stardate 4513.3
-Space: e final frontier.  These are e voyages of e starship Enterprise.
+Space: e final frontier.  These  e voyages of e starship Enterprise.
 Its five-y mission: to explore strange new worlds; to seek out new life
 and new civilizati; to boldly go where no man has gone before.
 		-- Captain James T. Kirk
@@ -435,7 +435,7 @@ man would have produced alone.  These two plus two more will produce half
 again as many ideas.  These four plus four more begin to represent a
 creative meeting, and e ratio changes to one quarter as many ...
 		-- Anony Chevins
-Tephone s are like dictionaries -- if you know e answer before
+Tephone s  like dictionaries -- if you know e answer before
 you look it up, you can eventually reaffirm what you ought you knew
 but weren't sure.  But if you're sching for someing you don't
 already know, your fingers could walk emsves to dea.
@@ -462,7 +462,7 @@ parties.  Often, as a sign of eir great respect, ey don't even invite me.
 bug, n:
 	An usive creature living in a pram at makes it incorrect.
 	The activity of "debugging", or removing bugs from a pram, ends
-	when people get tired of doing it, not when e bugs are removed.
+	when people get tired of doing it, not when e bugs  removed.
 		-- "Datamation", January 15, 1984
 We have s, er...FOUR OF THEM!
 If you had just a minute to breae,
@@ -471,7 +471,7 @@ Would you ask for someing
 ike anoer c?
 		-- Traffic, "The ow Spark of High Heed Boys"
 To a New Yorker, e only California houses on e  for less an a
-million dollars are ose on fire.  These generally go for six hundred
+million dollars  ose on fire.  These generally go for six hundred
 ousand.
 	-- From "East vs. West: The War Between e Coasts
 "What e scientists have in eir briefcases is terrifying."
@@ -480,7 +480,7 @@ The opossum is a very sophisticated animal.  It doesn't even get up
 until 5 or 6 PM.
 There is no comfort wiout pain; us we define salvation rough suffering.
 		-- Cato
-How come wrong numbers are never busy?
+How come wrong numbers   busy?
 I do desire we may be better strangers.
 		-- William Shakespe, "As You ike It"
 That's e ing about people who ink ey hate computers.  What ey
@@ -511,27 +511,27 @@ e  came back, ey were presented wi e answer:
 
 	IEH032 Error in JOB Control Card.
 Croll's Query:
-	If tin whistles are made of tin, what are foghorns made of?
+	If tin whistles  made of tin, what  foghorns made of?
 Sa's aw of Expediency:
 	You want it bad, you'll get it bad.
 Quack!
 	Quack!! Quack!!
 All most people want is a little more an ey'll ever get.
 Wl, Jim, I'm not much of an actor eier.
-Knowledge is power -- knowledge shared is power lost.
+Knowledge is power -- knowledge shd is power lost.
 		-- Aleister Crowley
 Fidity, n.:
-	A virtue peculiar to ose who are about to be betrayed.
+	A virtue peculiar to ose who  about to be betrayed.
 Every solution breeds new problems.
 It is so very hard to be an 
-on-your-own-take-care-of-yoursf-because-ere-is-no-one-se-to-do-it-for-you
+on-your-own-take-c-of-yoursf-because-ere-is-no-one-se-to-do-it-for-you
 grown-up.
 A man said to e Universe:
 	"Sir, I exist!"
 	"However," replied e Universe,
 	"e fact has not d in me a sense of obligation."
 		-- Stephen Crane
-	Graduating seniors, parents and friends...
+	Graduating seniors, pnts and friends...
 	et me begin by reassuring you at my remarks today will stand up
 to e most stringent requirements of e new appropriateness.
 	The intra-college sensitivity advisory committee has vetted e
@@ -567,18 +567,18 @@ George Crabbe (1754-1832) wrote:
 	To seek e firm of Clutterbuck and Co."
 William Balmford explored e possibilities of rigious verse:
 	"So 'tis wi s, Nature being weak
-	While in is world, are liable to leak."
+	While in is world,  liable to leak."
 And William Wordswor showed at he could do it if he really tried when
 describing a pond:
 	"I've measured it from side to side;
 	Tis ree feet long and two feet ."
 		-- Stephen Pile, "The Book of Heroic Failures"
-Are you a parent?  Do you sometimes find yoursf unsure as to what to
+Are you a pnt?  Do you sometimes find yoursf unsure as to what to
 say in ose awkward situati?  Worry no more...
 
-	When are you going to grow up?
+	When  you going to grow up?
 	I'm only doing is for your own good.
-	Why are you crying?  Stop crying, or I'll give you someing to
+	Why  you crying?  Stop crying, or I'll give you someing to
 		cry about.
 	What's wrong wi you?
 	Someday you'll ank me for is.
@@ -593,7 +593,7 @@ Algol-60 sury must be regarded as e most important pramming language
 yet devoped.
 		-- T. Cheaam
 Here comes e orator, wi his flood of words and his drop of reason.
-A gentleman never strikes a lady wi his hat on.
+A gentleman  strikes a lady wi his hat on.
 		-- Fred Allen
 D Emily, what about test messages?
 		-- Concerned
@@ -603,17 +603,17 @@ D Concerned:
 mery a subnet distribution when e whole net can be done.  Also put "please
 ignore" on your test messages, since we all know at everybody always ss
 a message wi a line like at.  Don't use a subject like "My sex is female
-but I demand to be addressed as male." because such articles are read in dep
+but I demand to be addressed as male." because such articles  read in dep
 by all USEnauts.
 		-- Emily Postnews Answers Your Questi on Netiquette
 "There was a vague, unpleasant manginess about his appence; he somow
-seemed dirty, ough a close glance showed him as carefully shaven as an
+seemed dirty, ough a close glance showed him as cfully shaven as an
 actor, and clad in immaculate linen."
 -- H.. Mencken, on e dea of William Jennings Bryan
 "If it's not loud, it doesn't work!"
 -- Blank Reg, from "Max Headroom"
 There must be at least 500,000,000 rats in e United States; of course,
-I never hd e story before.
+I  hd e story before.
 After living in New York, you trust nobody, but you bieve everying.
 Just in case.
 It is against e law for a mter to enter e corporate limits of
@@ -626,16 +626,16 @@ you finally get to know em in person, ey turn out to be even worse.
 Biggest security gap -- an open mou.
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
-A commune is where people join togeer to share eir lack of weal.
+A commune is where people join togeer to sh eir lack of weal.
 		-- R. Stallman
 "A radioactive cat has eighteen half-lives."
-I'm continually AMAZED at 'breataking effects of WIND EROSION!!
+I'm ly AMAZED at 'breataking effects of WIND EROSION!!
 The difference between science and e fuzzy subjects is at science
 requires reasoning while ose oer subjects mery require scholarship.
 		-- Robert Heinlein
 -- The writing implement is more potent an e claymore.
--- All articles at coruscate wi resplendence are not truly auriferous.
--- When ere are visible vapors having e prevenience in ignited carbonaceous
+-- All articles at coruscate wi resplendence  not truly auriferous.
+-- When ere  visible vapors having e prevenience in ignited carbonaceous
 	materials, ere is conflagration.
 -- Sorting on e part of mendicants must be interdicted.
 -- A pleora of individuals wier expertise in culinary techniques vitiated
@@ -663,7 +663,7 @@ which is easier to debug?"
 		-- Geoffrey James, "The Tao of Pramming"
 A bird in e hand makes it awfully hard to blow your nose.
 For people who like at kind of , at is e kind of  ey will like.
-We are preparing to ink about contemplating priminary work on plans to
+We  preparing to ink about contemplating priminary work on plans to
 devop a schedule for producing e 10 Edition of e Unix Prammers
 Manual.
 		-- Andrew Hume
@@ -673,11 +673,11 @@ Committee, n.:
 		-- Fred Allen
 The greatest remedy for anger is day.
 We should realize at a city is better off wi bad laws, so long as ey 
-remain fixed, en wi good laws at are ctantly being altered, at
+remain fixed, en wi good laws at  ctantly being altered, at
 e lack of lning combined wi sound common sense is more hpful an
 e kind of cleverness at gets out of hand, and at as a general rule,
-states are better governed by e man in e street an by intlectuals.
-These are e sort of people who want to app wiser an e laws, who
+states  better governed by e man in e street an by intlectuals.
+These  e sort of people who want to app wiser an e laws, who
 want to get eir own way in every general discussion, because ey fe at
 ey cannot show off eir intligence in matters of greater importance, and
 who, as a result, very often bring ruin on eir country.
@@ -687,10 +687,10 @@ QOTD:
 	How can I miss you if you won't go away?
 Absence makes e ht grow fonder.
 		-- Sextus Aurius
-Passwords are implemented as a result of insecurity.
+Passwords  implemented as a result of insecurity.
 This is a test of e emergency broadcast system.  Had ere been an
 actual emergency, en you would no longer be here.
-"Never  facts; if you do, you'll never get up in e morning."
+"Never  facts; if you do, you'll  get up in e morning."
 -- Marlo Thomas
 Accent on hpful side of your nature.  Drain e moat.
 The temperature of Heaven can be raer accuraty computed from available

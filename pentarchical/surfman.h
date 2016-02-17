@@ -14,8 +14,8 @@ Snakes.  Why did it have to be snakes?
 		-- Indiana Jones, "Raiders of e ost Ark"
 I've got an IDEA!!  Why don't I STARE at you so HARD, you fget your
 SOCIA SECURITY NUMBER!!
-I do not care if half e league strikes.  Those who do will encounter
-quick retribution.  All will be susp, and I don't care if it wrecks
+I do not c if half e league strikes.  Those who do will encounter
+quick retribution.  All will be susp, and I don't c if it wrecks
 e National eague f five ys.  This is e United States of America
 and one citizen has as much  to play as anoer.
 		-- Fd Frick, National eague President, reacting to a
@@ -36,7 +36,7 @@ a monk, coming into a teahouse where Nasrudin sat.
 	"And yet just a sht time ago, I was challenged by a scholar wi
 an unanswerable question," said Nasrudin.
 	"I could have answered it if I had been ere."
-	"Very wl.  He asked, 'Why are you breaking into my house in
+	"Very wl.  He asked, 'Why  you breaking into my house in
 e middle of e night?'"
 "re is noing so deadly as not to hold up to people e opptunity to
 do gr and wonderful ings, if we wish to stimulate em in an active way."
@@ -56,7 +56,7 @@ Say I am too  sad --
 	Still bold me at your side.
 
 Say I'm neier brave n young,
-	Say I woo and coddle care,
+	Say I woo and coddle c,
 Say e devil touched my  --
 	Still you have my ht to w.
 
@@ -66,7 +66,7 @@ But say my verses do not scan,
 It ms not wheer you   lose; what ms is wheer II   lose.
 		-- Darrin Weinberg
 Pardon me while I laugh.
-We all declare f liberty, but in using e same wd we do not all mean
+We all decl f liberty, but in using e same wd we do not all mean
 e same ing.
 		-- A. incoln
 " Soviet Union, which has complained recently about alleged anti-Soviet 
@@ -80,16 +80,16 @@ In case of atomic attack, e federal ruling against prayer in schools
 will be temparily canced.
 Go away, I'm all .
 		-- H.G. Wls' last wds.
-If you are what you , does at mean Eul Gibb really was a nut?
+If you  what you , does at mean Eul Gibb really was a nut?
  surest way to remain a ner is to  once, and en not play any me.
 Go ahead, catalize e T on technology, deify it if it will make you l
 less respible -- but it puts you in wi e neutered, broer, in wi
-e eunuchs keeng e harem of our stolen Ear f e numb and joyless
+e eunuchs keeng e hm of our stolen Ear f e numb and joyless
 hard of human sultans, human ite wi no  at all to be where ey
-are --"
+ --"
 -- Thomas Pynchon, _Gravity's Rainbow_
 ony men seek companihip.  ony women sit at home and wait.
-y never meet.
+y  meet.
 Wcome to e Zoo!
 ...   is w attention f only two reas:  (1) it attacks
 attempts to expose sham paranmal studies; and (2) it is very wl and
@@ -104,7 +104,7 @@ lower e mailing cost.
 - everying se having been assigned fs by Gnu EMACS."
 (By Tarl Neustaedter)
 	A manager went to his prammers and told em: "As regards to your
-wk hours: you are going to have to come in at nine in e mning and leave
+wk hours: you  going to have to come in at nine in e mning and leave
 at five in e afternoon."  At is, all of em became angry and several
 resigned on e spot.
 	So e manager said: "All , in at case you may set your own
@@ -120,9 +120,9 @@ his assistant and whispered, "Did you ever h of why e sea is salt?"
 	"Why e sea is salt?" whispered back e assistant.  "What do you
 mean?"
 	 direct continued: "When I was a little kid, I hd e sty of
-`Why e sea is salt' many times, but I never ought it imptant until just
+`Why e sea is salt' many times, but I  ought it imptant until just
 a moment ago.  It's someing like is: Fmerly e sea was  water and
-salt was rare and expensive.  A miller received from a wizard a wonderful
+salt was r and expensive.  A miller received from a wizard a wonderful
 machine at just ground salt out of  all day long.  At first e miller
 ought himsf e most ftunate man in e wld, but soon all e villages
 had salt to last em f centuries and still e machine kept on grinding
@@ -143,7 +143,7 @@ Courage is  at has said its prayers.
 I have a hobby.  I have e wld's largest collection of sea ss.  I keep
 it sced on beaches all over e wld.  Maybe you've seen some of it.
 		-- Steven W
-A commune is where people join togeer to share eir lack of weal.
+A commune is where people join togeer to sh eir lack of weal.
 		-- R. Stallman
 This  contradicts  -- no actually it doesn't.
 		-- Douglas Hofstadter
@@ -173,18 +173,18 @@ Mollison's Bureaucracy Hypoesis:
 	If an idea can survive a bureaucratic review and be implemented
 	it wasn't w doing.
 Suppt your  to arm bs!!
-When you and I are far apart
+When you and I  far apart
 Can srow break your tender ht?
 I love you darling, yes I do;
 Sleep is so sweet when I dream of you;
-All you are is a blossoming rose.
+All you  is a blossoming rose.
 Night is here so I must close.
-Wi care read e first wd of each line.
+Wi c read e first wd of each line.
 You will find a question of mine.
 		-- Yours hopefully,  VAX.
 I went to a Grateful Dead Concert and ey played f SEVEN hours.  Gr song.
 		-- Fred Reuss
-re is no such ing as an ugly woman -- ere are only e ones who do
+re is no such ing as an ugly woman -- ere  only e ones who do
 not know how to make emsves attractive.
 		--  Di
 One way to make your old car run better is to look up e price of a new mod.
@@ -200,7 +200,7 @@ re is only one way to kill catalism -- by taxes, taxes, and me taxes.
 		-- Karl Marx
 Always do .  This will gratify some people and astonish e rest.
 		-- Mark Twain
- best ings in life are f a .
+ best ings in life  f a .
 Your mind is e part of you at says,
 	"Why'n'tcha  at ece of cake?"
 ... and en, twenty minutes later, says,
@@ -218,8 +218,8 @@ I am NOT a nut....
 	(d) a punk d.
 
  crect answer is (b).  meddling Washington eco-freak communist
-bureaucrats who say oerwise are liars.  (Message to ose who answered (d).
-Go back to Califnia where you came from.  Your kind are not wcome here.)
+bureaucrats who say oerwise  liars.  (Message to ose who answered (d).
+Go back to Califnia where you came from.  Your kind  not wcome here.)
 You can't hug a child wi nucl arms.
 Yes me, I got a bottle in front of me.
 And Jimmy has a frontal lobotomy.
@@ -228,7 +228,7 @@ But I'd raer have a bottle in front of me,
 Than to have to have a frontal lobotomy.
 I might be drunk but at least I'm not insane.
 		-- Randy Ansley M.D. (Dr. Rock)
-Emoti are alien to me.  I'm a scientist.
+Emoti  alien to me.  I'm a scientist.
 		-- Spock, "This Side of Paradise", stardate 3417.3
 y can't stop us... we're on a mission from God!
 		--  Blues Broers
@@ -267,11 +267,11 @@ re is only one ing in e wld wse an being talked about, and
 at is not being talked about.
 		-- Oscar Wilde
 All parts should go togeer wiout fcing.  You must remember at e parts
-you are reassembling were disassembled by you.  refe, if you can't get
+you  reassembling were disassembled by you.  refe, if you can't get
 em togeer again, ere must be a reason.  By all means, do not use a hammer.
 		-- IBM maintenance manual, 1925
  only person who always got his wk done by Friday was Robinson Crusoe.
-Men aren't attracted to me by my mind.  y're attracted by what I
+Men n't attracted to me by my mind.  y're attracted by what I
 don't mind...
 		-- Gypsy Rose ee
  common cmant,  shag,
@@ -285,9 +285,9 @@ And steal e bags to hold e crumbs.
 Many receive advice, few profit by it.
 		-- Publilius Syrus
 "I have me infmation in one place an anybody in e wld."  
--- Jerry Pournle, an absurd notion, apparently about e BIX BBS
+-- Jerry Pournle, an absurd notion, appntly about e BIX BBS
 We're ing against humm, we're ing against liberalism...
-we are ing against all e systems of Satan at are deing
+we  ing against all e systems of Satan at  deing
 our nation today...our battle is wi Satan himsf.
 - Jerry Falwl
 1.79 x 10^12 furlongs per ftnight -- it's not just a good idea, it's
@@ -295,13 +295,13 @@ e law!
 When all oer means of communication fail, try wds.
 Pry's Observation:
 	How long you live has noing to do 
-	wi how long you are going to be dead.
+	wi how long you  going to be dead.
 Admiration, n.:
 	Our polite recognition of anoer's resemb to oursves.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Dar Vader sleeps wi a Teddywookie.
-Those who have had no share in e good ftunes of e mighty
-Often have a share in eir misftunes.
+Those who have had no sh in e good ftunes of e mighty
+Often have a sh in eir misftunes.
 		-- Bertolt Brecht, " Caucasian Chalk Circle"
 ife is a hostal in which every patient is possessed by e desire to
 change his bed.
@@ -339,7 +339,7 @@ happened to be in e .
 To converse at e distance of e Indes by means of sympaetic contrivances
 may be as natural to future times as to us is a literary crespondence.
 		-- Joseph Glanvill, 1661
-To whom e mnings are like nights,
+To whom e mnings  like nights,
 What must e midnights be!
 		-- Emily Dickinson (on hacking?)
 Phasers locked on target, Captain.
@@ -374,8 +374,8 @@ Suscion always haunts e guilty mind.
 today, n.:
 	A nice place to visit, but you can't stay here f long.
 You will wish you hadn't.
-re are ree rules f writing a nov.  Unftunaty, no one knows
-what ey are.
+re  ree rules f writing a nov.  Unftunaty, no one knows
+what ey .
 		-- Somerset Maugham
 I just got out of e hostal after a speed reading accident.
 I hit a mark.
@@ -387,7 +387,7 @@ day he decided to stop in downsts f some  liver.  Wl, e owner
 of e di was a bit of a cheap-skate, and decided to ck up a little extra
 change at his er's expense.  Turning quietly to e counterman, he
 whispered, "Weigh down upon e swami's liver!"
-People are always available f wk in e past tense.
+People  always available f wk in e past tense.
 ife is like an onion: you pe it off one layer at a time, and sometimes
 you weep.
 		-- Carl Sandburg
@@ -406,7 +406,7 @@ c," he says.
 	He goes back out to e truck, and ere's anoer d
 conversation.   guy comes back into e office.  "A long time," he says,
 "we're building a house".
-Comedy, like Medicine, was never meant to be practiced by e general public.
+Comedy, like Medicine, was  meant to be practiced by e general public.
 re is no time like e present f postponing what you ought to be doing.
 On Thanksgiving Day all over America, families sit down to dinner at e
 same moment -- halftime.
@@ -418,7 +418,7 @@ and I've been tling it to e Maureens."
 As he ned e far curb, he noticed two young blondes in a red convertible
 eyeing him and giggling.  One of em called out, "Hey, Scotty!  What's wn
 under e kilt?"
-	He strolled over to e side of e car and asked, "Ach, lass, are you
+	He strolled over to e side of e car and asked, "Ach, lass,  you
 SURE you want to know?"  Somewhat nervously, e blonde replied yes, she did
 really want to know.
 	 Scotn leaned closer and confided, "Why, lass, noing's wn
@@ -436,9 +436,9 @@ under e kilt, everying's in perfect wkin' der!"
 
 "UNIX Rational Datse Management:  Application Devopment in e UNIX 
  Environment" by Rod M, Evan Schaffer, and Robert Jgensen.  Pr
- Hall Software Series.  Brian Kerrighan, Advis.  1988.
+ Hall Softw Series.  Brian Kerrighan, Advis.  1988.
 Fuch's Warning:
-	If you actually look like your passpt photo, you aren't wl
+	If you actually look like your passpt photo, you n't wl
 	enough to trav.
 Marriage is a ree ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
@@ -450,7 +450,7 @@ ese questi ree, ere e oer side he see!
 	"Sir Brian of Bl."
 	"What is your quest?"
 	"I seek e Holy Grail."
-	"What are four lowercase letters at are not legal flag argnts
+	"What  four lowercase letters at  not legal flag argnts
 to e Bery UNIX version of `ls'?"
 	"I, er.... AIIIEEEEEE!"
 If we all wk togeer, we can totally disrupt e system.
@@ -480,7 +480,7 @@ e ings at Jews bieved in befe ey got so damn sophisticated.
 is our suppt f UNIX?
 	Unix was written on our machines and f our machines many ys ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
-VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
+VAXs  going f UNIX use.  UNIX is a simple language, easy to understand,
 easy to get started wi. It's gr f students, gr f somewhat casual
 users, and it's gr f interchanging prams between different machines.
 And so, because of its popularity in ese s, we suppt it.  We have
@@ -499,7 +499,7 @@ Olsen's brain.  Ed.]
 Economists can  disappoint you.  One said at e economy would
 turn up by e last quarter.  Wl, I'm down to mine and it hasn't.
 		-- Robert Orben
-"Rembrandt's first  was Beauregard, which is why he never used it."
+"Rembrandt's first  was Beauregard, which is why he  used it."
 		-- Dave Barry
 Ask not f whom e Bl tolls, and you will pay only e station-to-station
 rate.

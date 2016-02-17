@@ -1,6 +1,6 @@
 Darth Vader sleeps with a Teddywookie.
 To the landlord belongs the doorknobs.
-"Those who believe in astrology are living in houses with foundations of
+"Those who believe in astrology  living in houses with foundations of
 Silly Putty."
 -  Dennis Rawlins, astronomer
 To keep your friends treat them kindly; to kill them, treat them often.
@@ -25,8 +25,8 @@ did PILLS in SKIMPY GRASS SKIRTS ... Nathan, I EMULATED them ... but
 they were OFF-KEY ...
 An elephant is a mouse with an operating system.
 To refuse praise is to seek praise twice.
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+As flies to wanton boys  we to the gods; they kill us for their sport.
+		-- Shakespe, "King Lear"
 Rules for Good Grammar #4.
 	 (1) Don't use no double negatives.
 	 (2) Make each pronoun agree with their antecedents.
@@ -35,17 +35,17 @@ Rules for Good Grammar #4.
 	 (5) When dangling, watch your participles.
 	 (6) Verbs has got to agree with their subjects.
 	 (7) Just between you and i, case is important.
-	 (8) Don't write run-on sentences when they are hard to read.
-	 (9) Don't use commas, which aren't necessary.
+	 (8) Don't write run-on sentences when they  hard to read.
+	 (9) Don't use commas, which n't necessary.
 	(10) Try to not ever split infinitives.
 	(11) It is important to use your apostrophe's correctly.
 	(12) Proofread your writing to see if you any words out.
 	(13) Correct speling is essential.
-	(14) A preposition is something you never end a sentence with.
+	(14) A preposition is something you  end a sentence with.
 	(15) While a transcendant vocabulary is laudable, one must be eternally
-	     careful so that the calculated objective of communication does not
+	     cful so that the calculated objective of communication does not
 	     become ensconsed in obscurity.  In other words, eschew obfuscation.
-If dolphins are so smart, why did Flipper work for television?
+If dolphins  so smart, why did Flipper work for television?
 You mean you don't want to watch WRESTLING from ATLANTA?
 There's a little picture of ED MCMAHON doing BAD THINGS to JOAN RIVERS
 in a $200,000 MALIBU BEACH HOUSE!!
@@ -72,10 +72,10 @@ When his wife died his friends believed he would marry her, and urged
 him to do so.  "No, no," he said: "if I did, where should I have to
 spend my evenings?"
 		-- Chamfort
-When you are at Rome live in the Roman style; when you are elsewhere live
+When you  at Rome live in the Roman style; when you  elsewhere live
 as they live elsewhere.
 		-- St. Ambrose
-Feeling amorous, she looked under the sheets and cried, "Oh, no,
+Feeling amorous, she looked under the sheets and , "Oh, no,
 it's Microsoft!"
 If you stick a stock of liquor in your locker,
 It is slick to stick a lock upon your stock. 
@@ -95,24 +95,24 @@ QOTD:
 Never say you know a man until you have divided an inheritance with him.
 During the next two hours, the system will be going up and down several
 times, often with lin~po_~{po       ~poz~ppo\~{ o n~po_~{o[po	 ~y oodsou>#w4k**n~po_~{ol;lkld;f;g;dd;po\~{o
-Once, I read that a man be never stronger than when he truly realizes how
+Once, I read that a man be  stronger than when he truly realizes how
 weak he is.
 		-- Jim Starlin, "Captain Marvel #31"
 It looked like something resembling white marble, which was
 probably what it was: something resembling white marble.
 		-- Douglas Adams, "The Hitchhikers Guide to the Galaxy"
-The things that interest people most are usually none of their business.
+The things that interest people most  usually none of their business.
 Q:	What's the difference between a duck and an elephant?
 A:	You can't get down off an elephant.
 You can bring any calculator you like to the midterm, as long as it
 doesn't dim the lights when you turn it on.
 		-- Hepler, Systems Design 182
 "I have a friend who just got back from the Soviet Union, and told me the people
-there are hungry for information about the West.  He was asked about many 
-things, but I will give you two examples that are very revealing about life in
+there  hungry for information about the West.  He was asked about many 
+things, but I will give you two examples that  very revealing about life in
 the Soviet Union.  The first question he was asked was if we had exploding
 television sets.  You see, they have a problem with the picture tubes on color
-television sets, and many are exploding.  They assumed we must be having 
+television sets, and many  exploding.  They assumed we must be having 
 problems with them too.  The other question he was asked often was why the
 CIA had killed Samantha Smith, the little girl who visited the Soviet Union a
 few years ago; their propaganda is very effective.
@@ -130,7 +130,7 @@ of a divorce.
 Isn't it conceivable to you that an intelligent person could harbor
 two opposing ideas in his mind?
 		-- Adlai Stevenson, to reporters
-Congratulations are in order for Tom Reid.
+Congratulations  in order for Tom Reid.
 
 He says he just found out he is the winner of the 2021 Psychic of the
 Year award.
@@ -166,7 +166,7 @@ heavy, adj.:
 	Seduced by the chocolate side of the force.
 Losing your drivers' license is just God's way of saying "BOOGA, BOOGA!"
 nolo contendere:
-	A legal term meaning: "I didn't do it, judge, and I'll never do
+	A legal term meaning: "I didn't do it, judge, and I'll  do
 	it again."
 One Bell System - it used to work before they installed the Dimension!
 I would rather be a serf in a poor man's house and be above ground than
@@ -176,7 +176,7 @@ The sprung doors parted and I staggered out into the lobby's teak and flicker.
 Uniformed men stood by impassively like sentries in their trench.  I slapped
 my key on the desk and nodded gravely.  I was loaded enough to be unable to
 tell whether they could tell I was loaded.  Would they mind?  I was certainly
-too loaded to care.  I moved to the door with boxy, schlep-shouldered strides.
+too loaded to c.  I moved to the door with boxy, schlep-shouldered strides.
 -- Martin Amis, _Money_
 Soldiers who wish to be a hero
 Are practically zero,
@@ -200,12 +200,12 @@ You fill a much-needed gap.
 Breadth-first search is the bulldozer of science.
 		-- Randy Goebel
 In most countries selling harmful things like drugs is punishable.
-Then howcome people can sell Microsoft software and go unpunished?
+Then howcome people can sell Microsoft softw and go unpunished?
 (By hasku@rost.abo.fi, Hasse Skrifvars)
 Drink and dance and laugh and lie
 Love, the reeling midnight through
 For tomorrow we shall die!
-(But, alas, we never do.)
+(But, alas, we  do.)
 		-- Dorothy Parker, "The Flaw in Paganism"
 MOCK APPLE PIE (No Apples Needed)
 
@@ -265,7 +265,7 @@ those times.
 YALE:
 Defense:
 	On the defensive side, Yale boasts the stingiest line in the Ivies.
-Primarily responsible are seniors Izzy "Shylock" Bloomberg and Myron
+Primarily responsible  seniors Izzy "Shylock" Bloomberg and Myron
 Finklestein, the tightest ends in recent Eli history.  Also contributing to
 the powerful defense is junior tackle Angus MacWhirter, a Scotsman who rounds
 out the offensive ethnic joke.  Look for these three to shut down the opening
@@ -274,7 +274,7 @@ coin toss.
 	Now she speaks rapidly.  "Do you know *why* you want to program?"
 	He shakes his head.  He hasn't the faintest idea.
 	"For the sheer *joy* of programming!" she cries triumphantly.  
-"The joy of the parent, the artist, the craftsman.  "You take a program, 
+"The joy of the pnt, the artist, the craftsman.  "You take a program, 
 born weak and impotent as a dimly-realized solution.  You nurture the 
 program and guide it down the right path, building, watching it grow ever 
 stronger.  Sometimes you paint with tiny strokes, a keystroke added here, 
@@ -325,8 +325,8 @@ Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
 creature be part coward it is not a compliment to say it is brave; it is merely
 a loose misapplication of the word.  Consider the flea!--incomparably the
 bravest of all the creatures of God, if ignorance of fear were courage. 
-Whether you are asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you are to him as are the massed armies of the earth
+Whether you  asleep or awake he will attack you, caring nothing for the fact
+that in bulk and strength you  to him as  the massed armies of the earth
 to a sucking child; he lives both day and night and all days and nights in the
 very lap of peril and the immediate presence of death, and yet is no more
 afraid than is the man who walks the streets of a city that was threatened by
@@ -337,7 +337,7 @@ put him at the head of the procession.
 I do not find in orthodox Christianity one redeeming feature.
 - Thomas Jefferson
 It would save me a lot of time if you just gave up and went mad now.
-I will never lie to you.
+I will  lie to you.
 The heroic hours of life do not announce their presence by drum and trumpet,
 challenging us to be true to ourselves by appeals to the martial spirit that
 keeps the blood at heat.  Some little, unassuming, unobtrusive choice presents
@@ -351,7 +351,7 @@ For fast-acting relief, try slowing down.
 Concept, n.:
 	Any "idea" for which an outside consultant billed you more than
 	$25,000.
-Some people cause happiness wherever they go; others, whenever they go.
+Some people cause happiness wherever they go; others, whe they go.
 Promptness is its own reward, if one lives by the clock instead of the sword.
 			HOW TO PROVE IT, PART 3
 
@@ -385,7 +385,7 @@ A triangle which has an angle of 135 degrees is called an obscene triangle.
 senility, n.:
 	The state of mind of elderly persons with whom one happens to disagree.
 It will be generally found that those who sneer habitually at human nature
-and affect to despise it, are among its worst and least pleasant examples.
+and affect to despise it,  among its worst and least pleasant examples.
 		-- Charles Dickens
 Is death legally binding?
 Did you hear that there's a group of South American Indians that worship
@@ -415,7 +415,7 @@ There goes the good time that was had by all.
 Life is the childhood of our immortality.
 		-- Goethe
 QOTD:
-	"Our parents were never our age."
+	"Our pnts were  our age."
 If there is no God, who pops up the next Kleenex?
 		-- Art Hoppe
 Finagle's First Law:
@@ -444,12 +444,12 @@ How do I get HOME?
 The first duty of a revolutionary is to get away with it.
 		-- Abbie Hoffman
 A woman's best protection is a little money of her own.
-		-- Clare Booth Luce, quoted in "The Wit of Women"
+		-- Cl Booth Luce, quoted in "The Wit of Women"
 Any sufficiently advanced technology is indistinguishable from magic.
 		-- Arthur C. Clarke
-Graduate students and most professors are no smarter than undergrads.
+Graduate students and most professors  no smarter than undergrads.
 They're just older.
-Standards are crucial.  And the best thing about standards is: there are
+Standards  crucial.  And the best thing about standards is: there 
 so ____many to choose from!
 Beat your son every day; you may not know why, but he will.
 Little girls, like butterflies, need no excuse.
@@ -465,7 +465,7 @@ fact, many smart people save the fruitcakes they receive and send them back
 to the original givers the next year; some fruitcakes have been passed back
 and forth for hundreds of years.
 
-The easiest way to make a fruitcake is to buy a darkish cake, then pound
+The easiest way to make a fruitcake is to buy a dar cake, then pound
 some old, hard fruit into it with a mallet.  Be sure to wear safety glasses.
 		-- Dave Barry, "Simple, Homespun Gifts"
 I'm young ... I'm HEALTHY ... I can HIKE THRU CAPT GROGAN'S LUMBAR REGIONS!
@@ -480,7 +480,7 @@ What no spouse of a writer can ever understand is that a writer is working
 when he's staring out the window.
 What causes the mysterious death of everyone?
 I want another RE-WRITE on my CEASAR SALAD!!
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+Q:	Minnesotans ask, "Why n't there more pharmacists from Alabama?"
 A:	Easy.  It's because they can't figure out how to get the little
 	bottles into the typewriter.
 I see a good deal of talk from Washington about lowering taxes.  I hope
@@ -496,7 +496,7 @@ Mac Beer: At first, came only a 16-oz. can, but now comes in a 32-oz.
 can. Considered by many to be a "light" beer. All the cans look 
 identical. When you take one from the fridge, it opens itself. The 
 ingredients list is not on the can. If you call to ask about the 
-ingredients, you are told that "you don't need to know." A notice on the 
+ingredients, you  told that "you don't need to know." A notice on the 
 side reminds you to drag your empties to the trashcan.
 Whoever tells a lie cannot be pure in heart -- and only the pure in heart
 can make a good soup.
@@ -511,8 +511,8 @@ account the peculiar effects of these substances, namely their ability to
 influence our consciousness, the innermost essence of our being.  The history
 of LSD to date amply demonstrates the catastrophic consequences that can
 ensue when its profound effect is misjudged and the substance is mistaken
-for a pleasure drug.  Special internal and external advance preperations
-are required; with them, an LSD experiment can become a meaningful
+for a pleasure drug.  Special internal and  advance preperations
+ required; with them, an LSD experiment can become a meaningful
 experience.
 - Dr. Albert Hoffman, the discoverer of LSD
 No friendship is so cordial or so delicious as that of girl for girl;
@@ -522,7 +522,7 @@ Mater artium necessitas.
 	[Necessity is the mother of invention].
 God made the integers; all else is the work of Man.
 		-- Kronecker
-Ten persons who speak make more noise than ten thousand who are silent.
+Ten persons who speak make more noise than ten thousand who  silent.
 		-- Napoleon I
 One of the pleasures of reading old letters is the knowledge that they
 need no answer.
@@ -574,7 +574,7 @@ Any member introducing a dog into the Society's premises shall be
 liable to a fine of one pound.  Any animal leading a blind person shall
 be deemed to be a cat.
 		-- Rule 46, Oxford Union Society, London
-I kissed my first girl and smoked my first cigarette on the same day.
+I kissed my first girl and smoked my first cigtte on the same day.
 I haven't had time for tobacco since.
 		-- Arturo Toscanini
 Chairman of the Bored.
@@ -596,7 +596,7 @@ reckoned with.
 Literature is mostly about having sex and not much about having children.
 Life is the other way around.
 		-- David Lodge, "The British Museum is Falling Down"
-Your true value depends entirely on what you are compared with.
+Your true value depends entirely on what you  compd with.
 WRONG!
 The time spent on any item of the agenda [of a finance committee] will be
 in inverse proportion to the sum involved.
@@ -614,7 +614,7 @@ Sure they eat fish if that's all you give them!  Man, wise up.
 The shortest distance between any two puns is a straight line.
 If you wish to live wisely, ignore sayings -- including this one.
 Lend money to a bad debtor and he will hate you.
-While your friend holds you affectionately by both your hands you are
+While your friend holds you affectionately by both your hands you 
 safe, for you can watch both of his.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 They collapsed ... like nuns in the street ... they had no teen
@@ -664,11 +664,11 @@ So I piped: he wept to hear.
 No, his mind is not for rent
 To any god or government.
 Always hopeful, yet discontent,
-He knows changes aren't permanent -
+He knows changes n't permanent -
 But change is.
 Yes, but every time I try to see things your way, I get a headache.
 As you will see, I told them, in no uncertain terms, to see Figure one.
-		-- Dave "First Strike" Pare
+		-- Dave "First Strike" P
 National security is in your hands - guard it well.
 Men occasionally stumble over the truth, but most of them pick themselves
 up and hurry off as if nothing had happened.
@@ -680,7 +680,7 @@ Sir, it's very possible this asteroid is not stable.
 		-- C3P0
 Do not use the blue keys on this terminal.
 Remember, drive defensively! And of course, the best defense is a good offense!
-The fact that 47 PEOPLE are yelling and sweat is cascading down my
+The fact that 47 PEOPLE  yelling and sweat is cascading down my
 SPINAL COLUMN is fairly enjoyable!!
 One seldom sees a monument to a committee.
 Preserve the old, but know the new.
@@ -710,8 +710,8 @@ But none was as great as
 		-- Etta Stallings, "An Ode To Childhood"
 "All my life I wanted to be someone; I guess I should have been more specific."
 -- Jane Wagner
-HUMAN REPLICAS are inserted into VATS of NUTRITIONAL YEAST ...
-Real software engineers don't debug programs, they verify correctness.
+HUMAN REPLICAS  inserted into VATS of NUTRITIONAL YEAST ...
+Real softw engineers don't debug programs, they verify correctness.
 This process doesn't necessarily involve execution of anything on a
 computer, except perhaps a Correctness Verification Aid package.
 "If you want to travel around the world and be invited to speak at a lot
@@ -724,7 +724,7 @@ cleanersayingIllgetyoumyprettyandyourlittledogTototoo ...
 
 	I don't even *HAVE* a dog Toto...
 Th' MIND is the Pizza Palace of th' SOUL
-Who are you?
+Who  you?
 I had another dream the other day about music critics.  They were small
 and rodent-like with padlocked ears, as if they had stepped out of a
 painting by Goya.
@@ -732,7 +732,7 @@ painting by Goya.
 This fortune intentionally left blank.
 And yet I should have dearly liked, I own, to have touched her lips; to
 have questioned her, that she might have opened them; to have looked upon
-the lashes of her downcast eyes, and never raised a blush; to have let
+the lashes of her downcast eyes, and  raised a blush; to have let
 loose waves of hair, an inch of which would be a keepsake beyond price:
 in short, I should have liked, I do confess, to have had the lightest
 license of a child, and yet been man enough to know its value.

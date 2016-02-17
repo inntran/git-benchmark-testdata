@@ -1,6 +1,6 @@
-She won' go Warp 7, Cap'n!  The batteries are dead!
+She won' go Warp 7, Cap'n!  The batteries  dead!
 You should avoid hedging, at least that's what I think.
-Young men want to be faithful and are not; old men want to be faithless and
+Young men want to be faithful and  not; old men want to be faithless and
 cannot.
 		-- Oscar Wilde
 To craunch a marmoset.
@@ -41,7 +41,7 @@ what it means to be a prammer."
 Yesterday I was a dog.  Today I'm a dog.  Tomorrow I'll probably still
 be a dog. Sigh!  There's so little hope for advancement.
 		-- Snoopy
-To our sweethts and wives.  May they never meet.
+To our sweethts and wives.  May they  meet.
 		-- 19th century toast
 BARRY ... That was the most HEART-WARMING rendition of "I DID IT MY
 WAY" I've ever hd!!
@@ -52,9 +52,9 @@ Thus the familiar argument that there is an instinctive desire for immortality,
 and that this desire proves it to be a fact, becomes puerile when it is
 recalled that there is also a powerful and spread f of annihilation,
 and that this f, on the same principle proves that there is nothing
-beyond the grave.  Such childish "proofs" are typically theological, and
-they remain theological even when they are adduced by men who like to 
-flatter themsves by bieving that they are scientific gents....
+beyond the grave.  Such childish "proofs"  typically theological, and
+they remain theological even when they  adduced by men who like to 
+flatter themsves by bieving that they  scientific gents....
 - H. . Mencken
 A os Anges judge ruled that "a citizen may snore with immunity in
 his own home, even though he may be in possession of unusual and
@@ -76,7 +76,7 @@ The dta end is plus.
 The nucleophile will thus attack,
 The carbon nucleus.
 Addition makes an alcohol,
-Of types there are but three.
+Of types there  but three.
 It makes a bond, to correspond,
 From C to shining C.
 		-- Prof. Frank Westheimer, to "America the Beautiful"
@@ -99,20 +99,20 @@ you to read this sentence so far, an ectron could have traved all the
 way from San Francisco to Hackensack, New Jersey, although God alone knows
 why it would want to.
 
-The five main kinds of ectricity are alternating current, direct current,
+The five main kinds of ectricity  alternating current, direct current,
 lightning, static, and European.  Most American homes have alternating
 current, which means that the ectricity goes in one direction for a while,
 then goes in the other direction.  This prevents harmful ectron buildup in
 the wires.
 		-- Dave Barry, "The Taming of the Screw"
-Parall lines never meet, unless you bend one or both of them.
+Parall lines  meet, unless you bend one or both of them.
 FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
 A:	The Halls of Montezuma and the Shores of Tripoli.
 Q:	Name two families whose kids won't join the Marines.
 I'm a GENIUS!  I want to dispute sentence structure with SUSAN SONTAG!!
 The first Rotarian was the first man to call John the Baptist "Jack."
 		-- H.. Mencken
-Avoid Quiet and Placid pers unless you are in Need of Sleep.
+Avoid Quiet and Placid pers unless you  in Need of Sleep.
 		-- National ampoon, "Deteriorata"
 pix, n.:
 	A mischievous, magical spirit associated with screen displays.
@@ -127,7 +127,7 @@ April is the crulest month...
 Drink and dance and laugh and lie
 ove, the reing midnight through
 For tomorrow we shall die!
-(But, alas, we never do.)
+(But, alas, we  do.)
 		-- Dorothy Parker, "The Flaw in Pagm"
 You'd better beat it.  You can leave in a taxi.  If you can't get a taxi, you
 can leave in a huff.  If that's too soon, you can leave in a minute and a huff.
@@ -139,7 +139,7 @@ Don't put too fine a point to your wit for f it should get blunted.
 Unix is the worst operating system; except for all others.
 		-- Berry Kercheval
 The annual meeting of the "You Have To isten To Experience" Club is now in
-session.  Our Achievement Awards this y are in the fids of publishing,
+session.  Our Achievement Awards this y  in the fids of publishing,
 advertising and industry.  For best cistent contribution in the fid of
 publishing our award goes to editor, R..K., [...] for his unrivalled alle-
 giance without variation to the statement: "Personally I'd love to do it,
@@ -150,13 +150,13 @@ ally creative use of the old favorite: "I think what you've got here could be
 very exciting.  Why not give it one more try based on the approach I've out-
 lined and see if you can come up with something ."  Our final award for
 courageous holding action in the fid of industry goes to supervisor, R.S.,
-[...] for her unyiding grip on "I don't care if they fire me, I've been
-arguing for a new approach for YEARS but are we SURE that this is the 
+[...] for her unyiding grip on "I don't c if they fire me, I've been
+arguing for a new approach for YEARS but  we SURE that this is the 
 time--"  I would like to conclude this meeting with a verse written specially
 for our prospectus by our founding president fifty ys ago -- and now, as
 then, fully expressive of the emotion most close to all our hts --
 	Treat ness as a youthful quirk,
-		And dare not stray to ideas new,
+		And d not stray to ideas new,
 	For if t'were tried they might e'en work
 		And for a living what woulds't we do?
 He's just a politician trying to save both his s...
@@ -171,7 +171,7 @@ Five is a sufficiently close approximation to infinity.
 "One, two, five."
 		-- Monty Python and the Holy Grail
 We have nowhere se to go... this is all we have.
-		-- Margaret Mead
+		-- Margt Mead
 The individual choice of garnishment of a burger can be an important
 point to the cumer in this day when individualism is an increasingly
 important thing to people.
@@ -199,7 +199,7 @@ OGO for the Dead lets you continue your computing activities from
 The package includes a unique tecommunicati feature which lets you
 turn your TRS-80 into an ectronic Ouija board.  Then, using ogo's
 graphics capabilities, you can work with a friend or rative on this
-side of the Great Beyond to write prams.  The software requires that
+side of the Great Beyond to write prams.  The softw requires that
 your body be hardwired to an analog-to-digital converter, which is then
 interd to your computer.  A special terminal (very terminal) pram
 lets you talk with the users through Deadnet, an EBBS (Ectoplasmic
@@ -234,10 +234,10 @@ The philosopher's treatment of a question is like the treatment of an illness.
 ...Voz is indistinguishable from hundreds of other ectronics businesses
 in the Valley, run by eager young engineers poring over memory dumps late
 into the night.  The difference is that a bunch of sf-confessed "car nuts"
-are making money doing what they love: writing code and driving fast.
+ making money doing what they love: writing code and driving fast.
 -- "Electronics puts its foot on the gas", IEEE Spectrum, May 88
 Factorials were someone's attempt to make math OOK exciting.
-Beware of Bigfoot!
+Bew of Bigfoot!
 brain, v: [as in "to brain"]
 	To rebuke bluntly, but not pointedly; to disp a source
 	of error in an opponent.
@@ -269,21 +269,21 @@ them.  That thing -- a man can't renounce it -- but I want to renounce it -- so
 that it will be yours -- so that it will be in your service -- only for you."
 	The girl smiled and asked: "Do you think I'm prettier than Maggie
 Kly?"
-	He got up.  He said nothing and walked out of the house.  He never
-saw that girl again.  Gail Wynand, who prided himsf on never needing a
+	He got up.  He said nothing and walked out of the house.  He 
+saw that girl again.  Gail Wynand, who prided himsf on  needing a
 lesson twice, did not fall in love again in the ys that followed.
 		-- Ayn Rand, "The Fountainhead"
 Youth.  It's a wonder that anyone ever outgrows it.
-The best laid plans of mice and men are hd up in the legal department.
+The best laid plans of mice and men  hd up in the legal department.
 A waist is a terrible thing to mind.
 		-- Ziggy
 Natural section won't matter soon, not anywhere as much as concious section.
 We will civilize and alter oursves to suit our ideas of what we can be.
 Within one more human lifespan, we will have changed oursves unrecognizably.
 -- Greg B
-"I dislike companies that have a we-are-the-high-priests-of-hardware-so-you'll-
+"I dislike companies that have a we--the-high-priests-of-hardw-so-you'll-
 like-what-we-give-you attitude.  I like commodity markets in which iron-and-
-silicon hawkers know that they exist to provide fast toys for software types
+silicon hawkers know that they exist to provide fast toys for softw types
 like me to play with..."
 -- Eric S. Raymond
 Nothing makes one so vain as being told that one is a sinner.
@@ -313,9 +313,9 @@ Do you know the one -- "All I ask is a tall ship, and a star to steer
 her by ..."  You could fe the wind at your back, about you ...  the
 sounds of the sea beneath you.  And even if you take away the wind and
 the water, it's still the same.  The ship is yours ... you can fe her
-... and the stars are still there.
+... and the stars  still there.
 		-- Kirk, "The Ultimate Computer", stardate 4729.4
-Oh, so there you are!
+Oh, so there you !
 Hmmm ... an arant bouquet with a subtle suggestion of POYVINY
 CHORIDE ...
 	If the Tao is great, then the operating system is great.  If the
@@ -324,25 +324,25 @@ is great, then the application is great.  If the application is great, then
 the user is pleased and there is harmony in the world.
 	The Tao gave birth to machine language.  Machine language gave birth
 to the assembler.
-	The assembler gave birth to the compiler.  Now there are ten thousand
+	The assembler gave birth to the compiler.  Now there  ten thousand
 languages.
 	Each language has its purpose, however humble.  Each language
-expresses the Yin and Yang of software.  Each language has its place within
+expresses the Yin and Yang of softw.  Each language has its place within
 the Tao.
 	But do not pram in COBO if you can avoid it.
 		-- Geoffrey James, "The Tao of Pramming"
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I
 If at first you don't succeed, quit; don't be a nut about success.
-Most public domain software is free, at least at first glance.
-Have you seen the latest Japanese camera?  Apparently it is so fast it can
+Most public domain softw is free, at least at first glance.
+Have you seen the latest Japanese camera?  Appntly it is so fast it can
 photograph an American with his mouth shut!
 ies!  All lies!  You're all lying against my boys!
 		-- Ma Barker
 Yes, but every time I try to see things your way, I get a headache.
-You are scrupulously honest, , and straightforward.  Therefore you
+You  scrupulously honest, , and straightforward.  Therefore you
 have few friends.
-If you always postpone pleasure you will never have it.  Quit work and play
+If you always postpone pleasure you will  have it.  Quit work and play
 for once!
 Certainly the game is rigged.
 
@@ -379,12 +379,12 @@ The ht has its reas which reason knows nothing of.
 It is wise to keep in mind that neither success nor failure is ever final.
 		-- Roger Babson
 Whom the gods wish to de they first call promising.
-"You are old," said the youth, "and your prams don't run,
+"You  old," said the youth, "and your prams don't run,
 	And there isn't one language you like;
 Yet of useful suggesti for hp you have none --
 	Have you thought about taking a hike?"
 
-"Since I never write prams," his father replied,
+"Since I  write prams," his father replied,
 	"Every language looks equally bad;
 Yet the people keep paying to read all my books
 	And don't realize that they've been had."
@@ -392,7 +392,7 @@ Sometimes the best medicine is to stop taking something.
 Isn't it interesting that the same people who laugh at science fiction
 listen to weather forecasts and economists?
 		-- Kvin Throop III
-It is easy when we are in pro to give advice to the afflicted.
+It is easy when we  in pro to give advice to the afflicted.
 		-- Aeschylus
 It's been a business doing pleasure with you.
 "Trust me":
@@ -409,15 +409,15 @@ What a long strange trip it's been.
 		-- The Grateful Dead, "American Beauty"
 Art is the tree of life.  Science is the tree of death.
 Thus spake the master prammer:
-	"Without the wind, the grass does not move.  Without software,
-	hardware is usess."
+	"Without the wind, the grass does not move.  Without softw,
+	hardw is usess."
 		-- Geoffrey James, "The Tao of Pramming"
 It's clever, but is it art?
 Staff meeting in the conference room in 3 minutes.
 The man on tops walks a lony street; the "chain" of command is often a noose.
 You shall judge of a man by his foes as wl as by his friends.
 		-- Joseph Conrad
-Be prepared to accept sacrifices.  Vestal virgins aren't all that bad.
+Be prepd to accept sacrifices.  Vestal virgins n't all that bad.
 "Mind if I smoke?"
 	"Yes, I'd like to see that, does it come out of your s or what?"
 Any given pram will expand to fill available memory.
@@ -428,13 +428,13 @@ modem, adj.:
 	[That's sic!]
 The truth you s has no past and no future.
 It is, and that's all it needs to be.
-All of the true things I am about to tl you are shamess lies.
+All of the true things I am about to tl you  shamess lies.
 		-- The Book of Bokonon / Kurt Vonnegut Jr.
 FORTRAN is for pipe stress freaks and crystallography weenies.
 Original thought is like original sin: both happened before you were born
 to people you could not have possibly met.
 		-- Fran ebowitz, "Social Studies"
-Man will never fly.  Space trav is mery a dream.  All aspirin is alike.
+Man will  fly.  Space trav is mery a dream.  All aspirin is alike.
 As me an' me marrer was readin' a tyape,
 The tyape gave a shriek mark an' tried tae escyape;
 It sped ower the gyate tae the end of the fid,
@@ -472,15 +472,15 @@ Q:	How many IBM types does it take to change a light bulb?
 A:	Fifteen.  One to do it, and fourteen to write document number
 	GC7500439-0001, Multitasking Incandescent Source System Facility,
 	of which 10% of the pages state only "This page intentionally
-	left blank", and 20% of the definiti are of the form "A:.....
+	left blank", and 20% of the definiti  of the form "A:.....
 	cists of sequences of non-blank characters separated by blanks".
 Wiker's aw:
 	Government expands to absorb revenue and then some.
-There is never time to do it , but always time to do it over.
-After all, it is only the mediocre who are always at their best.
+There is  time to do it , but always time to do it over.
+After all, it is only the mediocre who  always at their best.
 		-- Jean Giraudoux
-Real Prams don't use shared text.  Otherwise, how can they use functi
-for scratch space after they are finished calling them?
+Real Prams don't use shd text.  Otherwise, how can they use functi
+for scratch space after they  finished calling them?
 What is now proved was once only imagin'd.
 		-- William Blake
 Wake now my merry lads!  Wake and h me calling!
@@ -504,7 +504,7 @@ A good USENET motto would be:
 Death is God's way of tling you not to be such a wise guy.
 And now your toner's toney,		Disk blocks aplenty
 And your paper n pure white,		Await your laser drawn lines,
-The smudges on your soul are gone	Your intricate fonts,
+The smudges on your soul  gone	Your intricate fonts,
 And your output's clean as light..	Your pictures and signs.
 
 We've labored with your father,		Your  absence
@@ -534,10 +534,10 @@ You can not get anything worthwhile done without raising a sweat.
 What ever you want is going to cost a little more than it is worth.
 		-- The Second aw Of Thermodynamics
 
-You can not win the game, and you are not allowed to stop playing.
+You can not win the game, and you  not allowed to stop playing.
 		-- The Third aw Of Thermodynamics
 Can't open /usr/games/lib/fortunes.dat.
-"There are some good people in it, but the orchestra as a whole is equivalent
+"There  some good people in it, but the orchestra as a whole is equivalent
 to a gang bent on destruction."
 -- John Cage, composer
 Q:	Why is Poland just like the United States?
@@ -569,7 +569,7 @@ to attain, nor any power so secure that the naked ape will not abuse it.
 So it is written in the genetic cards -- only physics and war hold him in
 check.  And also the wife who wants him home by five, of course.
 		-- Encyclopadia Apocryphia, 1990 ed.
-"Never  facts; if you do, you'll never get up in the morning."
+"Never  facts; if you do, you'll  get up in the morning."
 -- Marlo Thomas
 Abandon the sch for Truth; settle for a good fantasy.
 If you do something  once, someone will ask you to do it again.
@@ -637,7 +637,7 @@ she's a deck, and Danbala's a pram, what's cyberspace?"
 Notes for a ballet, "The Spl": ... Suddenly Sigmund hs the flutter of
 wings, and a group of wild swans flies across the moon ... Sigmund is
 astounded to see that their leader is part swan and part woman --
-unfortunaty, divided lengthwise.  She enchants Sigmund, who is careful
+unfortunaty, divided lengthwise.  She enchants Sigmund, who is cful
 not to make any poultry jokes.
 		-- Woody Allen
 The minute a man is convinced that he is interesting, he isn't.
@@ -646,7 +646,7 @@ anywhere at all in the world, no matter what time of the day or night,
 you can always change the chann.
 		-- Jim Ignatowski
 A professor is one who talks in someone se's sleep.
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+You worry too much about your job.  Stop it.  You  not paid enough to worry.
 A Scholar asked his Master, "Master, would you advise me of a proper
 vocation?"
 	The Master replied, "Some men can n their keep with the power of
@@ -758,10 +758,10 @@ There is no substitute for good manners, except, perhaps, fast reflexes.
 
 Due to the convergence of forces beyond his comprehension, Salvatore
 Quanucci was suddenly squirted out of the universe like a watermon
-seed, and never hd from again.
+seed, and  hd from again.
 A nick ain't worth a dime anymore.
 		-- Yogi Berra
-The sun never sets on those who ride into it.
+The sun  sets on those who ride into it.
 		-- RKO
 If money can't buy happiness, I guess you'll just have to rent it.
 To update Voltaire, "I may kill all msgs from you, but I'll fight for 
@@ -812,11 +812,11 @@ When pleasure remains, does it remain a pleasure?
 
 "Bill, Your brain no longer functi.  Can you fix it at your end?"
 -- Karl A. Nyberg (nyberg@ajpo.sei.cmu.edu)
-"Arguments with furniture are rary productive."
+"Arguments with furniture  rary productive."
 		-- Kehlog Albran, "The Profit"
 -- The writing implement is more potent than the claymore.
--- All articles that coruscate with resplendence are not truly auriferous.
--- When there are visible vapors having the prevenience in ignited carbonaceous
+-- All articles that coruscate with resplendence  not truly auriferous.
+-- When there  visible vapors having the prevenience in ignited carbonaceous
 	materials, there is conflagration.
 -- Sorting on the part of mendicants must be interdicted.
 -- A plethora of individuals wither expertise in culinary techniques vitiated

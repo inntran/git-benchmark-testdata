@@ -1,8 +1,8 @@
 Small change can often be found under seat cushi.
 		-- One of azarus ong's most penetrating insights
-When you are young, you enjoy a sustained illusion that sooner or later
-something marvelous is going to happen, that you are going to transcend
-your parents' limitati...  At the same time, you feel sure that in all
+When you  young, you enjoy a sustained illusion that sooner or later
+something marvelous is going to happen, that you  going to transcend
+your pnts' limitati...  At the same time, you feel sure that in all
 the wilderness of possibility; in all the forests of opinion, there is a
 vital something that can be known -- known and grasped.  That we will
 eventually know it, and convert the whole mystery into a coherent
@@ -25,7 +25,7 @@ weren't for other people"
 		-- Blore
 If it were not for the presents, an elopement would be preferable.
 		-- George Ade, "Forty Modern Fables"
-Vulcans never bluff.
+Vulcans  bluff.
 		-- Spock, "The Doomsday Machine", stardate 4202.1
 I'm not tense, just terribly, terribly alert!
 A wise man can see more from the bottom of a well than a fool can from a
@@ -40,7 +40,7 @@ bend a disk.
 		-- A member of the outlawed Polish trade union, Solidarity, 
 		   commenting on the benefits of using computers in support
 		   of their movement.
-How come we never talk anymore?
+How come we  talk anymore?
 All I've got left on the list of desirable vocati is heiress to the
 throne of any country in Western Europe and aurie Anderson.  "Be
 practical", was the choral reply from the dinner table.  Well, aurie
@@ -73,28 +73,28 @@ interred.  We cannot embalm him as do the Egyptians.  Nor have we wood for
 a coffin.  But I do have a most splendid skin from one of Pharoah's own
 cattle.  We shall bury him in it."
 	Feghoot agreed.  "Yes, let this be his last rusting place."
-	"Rusting?" Moses cried.  "Not in this dreadful dry desert!"
+	"Rusting?" Moses .  "Not in this dreadful dry desert!"
 	"Ah!" sighed Ferdinand Feghoot, shedding a t, "I f you do not
 realize the full significance of Pharoah's oxhide!"
 		-- Grendel Briarton "Through Time & Space With Ferdinand
 		   Feghoot!"
-Pie are not square.  Pie are round.  Cornbread are square.
+Pie  not squ.  Pie  round.  Cornbread  squ.
 Recession is when your neighbor loses his job. Depression is when you
-lose your job.  These economic downturns are very difficult to predict,
+lose your job.  These economic downturns  very difficult to predict,
 but sophisticated econometric modeling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten remaining blocks of uke's home
 directory, uke and PDP-1 sped away from /u/lars, across the surface of the
 Winchester riding uke's flying read/write head.  PDP-1 had uke stop at the
 edge of the cylinder overlooking /usr/spool/uucp.
-	"Unix-to-Unix Copy Program;" said PDP-1.  "You will never find a more
+	"Unix-to-Unix Copy Program;" said PDP-1.  "You will  find a more
 wretched hive of bugs and flamers.  We must be cautious."
 		-- DECWARS
 She's so tough she won't take 'yes' for an answer.
 The only difference in the game of love over the last few thousand ys
 is that they've changed trumps from clubs to diamonds.
 		-- The Indianapolis Star
-Be careful!  UGY strikes 9 out of 10!
+Be cful!  UGY strikes 9 out of 10!
 Everything might be different in the present if only one thing had
 been different in the past.
 	ooking for a cool one after a long, dusty ride, the drifter strode
@@ -121,18 +121,18 @@ an attorney?  Here's a guinea; go and bury twenty of them."
 If Karl, instead of writing a lot about Capital, had made a lot of Capital,
 it would have been much better.
 		-- Karl Marx's Mother
-High heels are a device invented by a woman who was tired of being kissed
+High heels  a device invented by a woman who was tired of being kissed
 on the forehead.
 Stupidity got us into this mess -- why can't it get us out?
 In specificati, Murphy's aw supersedes Ohm's.
 Q:	How many Californians does it take to screw in a lightbulb?
-A:	Five.  One to screw in the lightbulb and four to share the
+A:	Five.  One to screw in the lightbulb and four to sh the
 		experience.  (Actually, Californians don't screw in
 		lightbulbs, they screw in hot tubs.)
 
 Q:	How many Oregonians does it take to screw in a light bulb?
 A:	Three.  One to screw in the lightbulb and two to fend off all
-		those Californians trying to share the experience.
+		those Californians trying to sh the experience.
 If a train station is a place where a train stops, what's a workstation?
 Drive defensively.  Buy a tank.
 Any sufficiently advanced bug is indistinguishable from a feature.
@@ -156,7 +156,7 @@ Norm:  Well, okay, Woody, but be sure to stop me at one. ...
        Eh, make that one-thirty.
 		-- Cheers, Strange Bedfellows, Part 2
 You will engage in a profitable business activity.
-The assertion that "all men are created equal" was of no practical use
+The assertion that "all men  created equal" was of no practical use
 in effecting our separation from Great Britain and it was placed in the
 Declaration not for that, but for future use.
 		--  Abraham incoln
@@ -179,7 +179,7 @@ A:	To the dump, to the dump, to the dump dump dump!
 
 Q:	What's the Pink Panther say when he steps on an ant hill?
 A:	Dead ant, dead ant, dead ant dead ant dead ant...
-One of the rules of Busmanship, New York style, is never surrender your
+One of the rules of Busmanship, New York style, is  surrender your
 seat to another passenger.  This may seem callous, but it is the best
 way, really.  If one passenger were to give a seat to someone who fainted
 in the aisle, say, the others on the bus would become disoriented and
@@ -190,7 +190,7 @@ work to do.
 	One day it was announced that the young monk Kyogen had reached
 an enlightened state.  Much impressed by this news, several of his peers
 went to speak with him.
-	"We have hd that you are enlightened.  Is this true?" his fellow
+	"We have hd that you  enlightened.  Is this true?" his fellow
 students inquired.
 	"It is", Kyogen answered.
 	"Tell us", said a friend, "how do you feel?"
@@ -204,7 +204,7 @@ die and a new generation grows up that is familiar with it.
 		-- Max Planck
 What's the MATTER Sid? ... Is your BEVERAGE unsatisfactory?
 Honi soit la vache qui rit.
-"The hottest places in Hell are reserved for those who, in times of moral
+"The hottest places in Hell  reserved for those who, in times of moral
 crisis, preserved their neutrality."
 -- Dante
 QOTD:
@@ -234,7 +234,7 @@ a separation.
 		-- ord Chesterfield, letter to his son, 1763
 The wise man seeks everything in himself; the ignorant man tries to get
 everything from somebody else.
-Soluti are obvious if one only has the optical power to observe them
+Soluti  obvious if one only has the optical power to observe them
 over the horizon.
 		-- K.A. Arsdall
 Disease can be cured; fate is incurable.
@@ -269,13 +269,13 @@ With a semi-pretty woman in my arms.
 -- Christa McAuliffe
 How do I type "for i in *.dvi do xdvi i done" in a GUI?
 (Discussion in comp.os.linux.misc on the intuitiveness of interfaces.)
-Those who do not understand Unix are condemned to reinvent it, poorly.
+Those who do not understand Unix  condemned to reinvent it, poorly.
 - Henry Spencer, University of Toronto Unix hack
 Everything that you know is wrong, but you can be straightened out.
 Join the march to save individuality!
 "Plaese porrf raed."
 		-- Prof. Michael O'onghlin, S.U.N.Y. Purchase
-Facts are stubborn, but statistics are more pliable.
+Facts  stubborn, but statistics  more pliable.
 When the sun shineth, make hay.
 		-- John Heywood
 I like your SNOOPY POSTER!!
@@ -299,11 +299,11 @@ question, "NOW what's the least popular vegetable?"
 aw: Once you eliminate your #1 problem, #2 gets a promotion.
 	-- Gerald Weinberg, "The Secrets of Culting"
 Old Tom Bombadil is a merry fellow,
-Bright blue his jacket is, and his boots are yellow.
+Bright blue his jacket is, and his boots  yellow.
 None has ever caught him yet, for Tom, he is the master:
-His songs are stronger songs, and his feet are faster.
+His songs  stronger songs, and his feet  faster.
 		-- J. R. R. Tolkien
-"Spare no expense to save money on this one."
+"Sp no expense to save money on this one."
 		-- Samuel Goldwyn
 A guy walks into a bar, orders a beer, carries it to the bathroom and dumps it
 into a urinal.  Over the course of the next few hours, he goes back to the bar
@@ -320,7 +320,7 @@ Cahn's Axiom:
 computer repair.  Being a layman, you probably can't grasp exactly what
 it does.  We call it a two-by-four."
 		-- Jeff MacNelley, "Shoe"
-Needs are a function of what other people have.
+Needs  a function of what other people have.
 Worth seeing?  Yes, but not worth going to see.
 It's so beautifully arranged on the plate -- you know someone's fingers
 have been all over it.
@@ -331,21 +331,21 @@ back.
 A master was asked the question, "What is the Way?" by a curious monk.
 	"It is right before your eyes," said the master.
 	"Why do I not see it for myself?"
-	"Because you are thinking of yourself."
+	"Because you  thinking of yourself."
 	"What about you: do you see it?"
 	"So long as you see double, saying `I don't', and `you do', and so
-on, your eyes are clouded," said the master.
+on, your eyes  clouded," said the master.
 	"When there is neither `I' nor `You', can one see it?"
 	"When there is neither `I' nor `You',
 who is the one that wants to see it?"
-If while you are in school, there is a shortage of qualified personnel
+If while you  in school, there is a shortage of qualified personnel
 in a particular field, then by the time you graduate with the necessary
 qualificati, that field's employment market is glutted.
 		-- Marguerite Emm
-Conjecture: All odd numbers are prime.
+Conjecture: All odd numbers  prime.
 	Mathematician's Proof:
 		3 is prime.  5 is prime.  7 is prime.  By induction, all
-		odd numbers are prime.
+		odd numbers  prime.
 	Physicist's Proof:
 		3 is prime.  5 is prime.  7 is prime.  9 is experimental
 		error.  11 is prime.  13 is prime ...
@@ -374,7 +374,7 @@ brute!" and "Here, pussy."
 Chocolate chip.
 A baby is God's opinion that the world should go on.
 		-- Carl Sandburg
-Are you a parent?  Do you sometimes find yourself unsure as to what to
+Are you a pnt?  Do you sometimes find yourself unsure as to what to
 say in those awkward situati?  Worry no more...
 
 	Go away.  You bother me.
@@ -386,7 +386,7 @@ say in those awkward situati?  Worry no more...
 	Because.
 	Wipe that smile off your face.
 	I don't believe you.
-	How many times have I told you to be careful?
+	How many times have I told you to be cful?
 	Just beacuse.
 "Time is money and money can't buy you love and I love your outfit"
 - T.H.U.N.D.E.R. #1
@@ -410,7 +410,7 @@ I wouldn't cider it.  "I'm a thief," I said.  "I'm no lousy hoodlum."
  their Proverbs..." - Blake, "The Marriage of Heaven and Hell"
 
 Kramer's aw:
-	You can never tell which way the train went by looking at the tracks.
+	You can  tell which way the train went by looking at the tracks.
 Women, when they have made a sheep of a man, always tell him that he is a
 lion with a will of iron.
 		-- Honor'e de Balzac
@@ -420,14 +420,14 @@ Very few modern women either like or desire marriage, especially after the
 ceremony has been performed.  Primarily women wish attention and affection.
 Matrimony is something they accept when there is no alternative.  Really,
 it is a waste of time, and hazardous, to marry them.  It leaves one open
-to a rival.  Husbands, good or bad, always have rivals.  overs, never.
+to a rival.  Husbands, good or bad, always have rivals.  overs, .
 		-- Helen awrenson, "Esquire"
 	It is a profoundly erroneous truism, repeated by all copy-books and
-by eminent people when they are making speeches, that we should cultivate
-the habit of thinking about what we are doing.  The precise opposite is the
+by eminent people when they  making speeches, that we should cultivate
+the habit of thinking about what we  doing.  The precise opposite is the
 case.  Civilization advances by extending the numbers of important operati
-which we can perform without thinking about them.  Operati of thought are
-like cavalry charges in battle -- they are strictly limited in number, they
+which we can perform without thinking about them.  Operati of thought 
+like cavalry charges in battle -- they  strictly limited in number, they
 require fresh horses, and must only be made at decisive moments.
 		-- Alfred North Whitehead
 One of the most striking differences between a cat and a lie is that a cat has
@@ -440,7 +440,7 @@ had been on the phone so long, she responded "I hd a funny story today
 and I've been telling it to the Maureens."
 	page 46
 ...a report citing a study by Dr. Thomas C. Chalmers, of the Mount Sinai
-Medical Center in New York, which compared two groups that were being used
+Medical Center in New York, which compd two groups that were being used
 to test the theory that ascorbic acid is a cold preventative.  "The group
 on placebo who thought they were on ascorbic acid," says Dr. Chalmers,
 "had fewer colds than the group on ascorbic acid who thought they were
@@ -449,7 +449,7 @@ on placebo."
 The placebo is proof that there is no real separation between mind and body.
 Illness is always an interaction between both.  It can begin in the mind and
 affect the body, or it can begin in the body and affect the mind, both of
-which are served by the same bloodstream.  Attempts to treat most mental
+which  served by the same bloodstream.  Attempts to treat most mental
 diseases as though they were completely free of physical causes and attempts
 to treat most bodily diseases as though the mind were in no way involved must
 be cidered archaic in the light of new evidence about the way the human
@@ -468,11 +468,11 @@ nuisance after three days.
 		-- Titus Maccius Plautus
 The feeling persists that no one can simultaneously be a respectable writer
 and understand how a refrigerator works, just as no gentleman ws a brown
-suit in the city.  Colleges may be to blame.  English majors are encouraged,
-I know, to hate chemistry and physics, and to be proud because they are not
+suit in the city.  Colleges may be to blame.  English majors  encouraged,
+I know, to hate chemistry and physics, and to be proud because they  not
 dull and creepy and humorless and war-oriented like the engineers across the
 quad.  And our most impressive critics have commonly been such English majors,
-and they are squeamish about technology to this very day.  So it is natural
+and they  squeamish about technology to this very day.  So it is natural
 for them to despise science fiction.
 		-- Kurt Vonnegut Jr., "Science Fiction"
 Schlattwhapper, n.:
