@@ -155,6 +155,7 @@ had ever reached the Enlightenment 'Yond Enlightenment), by asking whether
 various objects had Buddha-nature or not.  To such a question Tortue 
 invariably sat silent.  The monk had already asked about a bean, a lake, 
 and a moonlit night.  One day he brought to Tortue a piece of string, and 
+You will be reincarnated as a toad; and you will be much happier.
 asked the same question.  In reply, the Grand Tortue grasped the loop 
 between his feet and, with a few simple manipulations, created a complex 
 string which he proferred wordlessly to the monk.  At that moment, the monk 

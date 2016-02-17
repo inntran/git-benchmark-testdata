@@ -117,6 +117,7 @@ I know things about TROY DONAHUE that can't even be PRINTED!!
 "There is no statute of limitations on stupidity."
 -- Randomly produced by a computer program called Markov3.
 It does not do to leave a live dragon out of your calculations.
+Did you hear about the model who sat on a broken bottle and cut a nice figure?
 I like young girls.  Their stories are shorter.
 		-- Tom McGuane
 Two is company, three is an orgy.

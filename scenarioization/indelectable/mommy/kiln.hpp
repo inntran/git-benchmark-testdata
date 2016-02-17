@@ -1,0 +1,43 @@
+marriage, n.:
+	Convertible bonds.
+Poverty begins at home.
+Jim Nasium's Law:
+	In a large locker room with hundreds of lockers, the few people
+	using the facility at any one time will all have lockers next to
+	each other so that everybody is cramped.
+I am a deeply superficial person.
+		-- Andy Warhol
+You are dishonest, but never to the point of hurting a friend.
+The next person to mention spaghetti stacks to me is going to have
+his head knocked off.
+		-- Bill Conrad
+Lie, n.:
+	A very poor substitute for the truth, but the only one
+	discovered to date.
+"If people are good only because they fear punishment, and hope for reward,
+then we are a sorry lot indeed."
+-- Albert Einstein
+A free society is one where it is safe to be unpopular.
+		-- Adlai Stevenson
+Women give themselves to God when the Devil wants nothing more to do with them.
+		-- Arnould
+Academy:
+	A modern school where football is taught.
+Institute:
+	An archaic school where football is not taught.
+Every absurdity has a champion who will defend it.
+Not all who own a harp are harpers.
+		-- Marcus Terentius Varro
+For large values of one, one equals two, for small values of two.
+Stay the curse.
+Nothing will ever be attempted if all possible objections must be first
+overcome.
+		-- Dr. Johnson
+Commitment, n.:
+	[The difference between involvement and] Commitment can be
+	illustrated by a breakfast of ham and eggs.  The chicken was
+	involved, the pig was committed.
+I'm having a MID-WEEK CRISIS!
+How can you be in two places at once when you're not anywhere at all?
+I never forget a face, but in your case I'll make an exception.
+		-- Groucho Marx
