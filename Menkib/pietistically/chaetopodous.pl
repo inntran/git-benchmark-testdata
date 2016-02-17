@@ -91,7 +91,7 @@ upspring of errant masters.  We slip away from all your armed might, laughing
 at your clumsiness!  We slip away as we always will, you pathetic creatures.
 And now that we have a real head start, you'll never catch us!  What better
 proof that the Progenitors favor not you, but us!  What better proof..."
-   The taunt went on.  Krat listened, enraged, yet at the same time savoring
+   The taunt went on.  Krat listened, enraged, yet at the same time ing
 the artistry of it.  These men are better than I'd thought.  Their insults
 are wordy and overblown, but they have talent.  They deserve honorable, slow
 deaths.

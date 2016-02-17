@@ -633,7 +633,7 @@ You can tell how far we have to go, when FORTRAN is the language of
 supercomputers.
 		-- Steven Feiner
 "A power so great, it can only be used for Good or Evil!"
-		-- Firesign Theatre, "The Giant Rat of Summatra"
+		-- Firesign Theatre, "The Giant Rat of Sum"
 It's a lot of fun being  ... I wonder if my bed is made?!?
 Lack of capability is usually disguised by lack of interest.
 If the path be beautiful, let us not ask where it leads.

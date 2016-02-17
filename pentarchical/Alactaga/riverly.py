@@ -158,7 +158,7 @@ at he didn't fce you down on e asking price.
 		-- Sincl Lewis, "Babbitt"
 "A hrible little boy came up to me and said, `You know in your book
  Martian Chronicles?'  I said, `Yes?'  He said, `You know where you
-talk about Deimos rising in e East?'  I said, `Yes?'  He said `No.'
+talk about  rising in e East?'  I said, `Yes?'  He said `No.'
 -- So I hit him."
 		-- attributed to Ray Bradbury
 If ignance is bliss, why aren't ere me happy people?
