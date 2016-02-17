@@ -176,6 +176,7 @@ is going to be a blood ba!"
 -- Post Bros. Comics
 It is rough symbols at man consciously or unconsciously lives, works
 and has his being.
+An efficient and a successful administration manifests itself equally in
 		-- Thomas Carlyle
 > From MAILER-DAEMON@Think.COM Thu Mar  2 13:59:11 1989
 > Subject: Re mail: unknown mailer error 255

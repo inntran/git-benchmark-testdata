@@ -206,6 +206,7 @@ The h ball blocking e drain of e shower reminded Laura she would never
 see her little dog Pritzi again.
 		-- Claudia Fields, runner-up
 
+"The great question... which I have not been able to answer... is, `What does 
 It could have been an organically based  of e brain -- perhaps a
 tumor or a metabolic deficiency -- but after a orough neurological exam it
 was determined at Byron was  a jerk.
