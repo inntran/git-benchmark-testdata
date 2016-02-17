@@ -352,7 +352,7 @@ There's no justice in this world.
 		   the assassination of Schultz instead)
 Eat shit -- billions of flies can't be wrong.
 All art is but imitation of nature.
-		-- Lucius Annaeus Seneca
+		--  Annaeus Seneca
 I came home the other night and tried to open the door with my car keys...and 
 the building started up.  So I took it out for a drive.  A cop pulled me over 
 for speeding.  He asked me where I live... "Right here".

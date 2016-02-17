@@ -194,7 +194,7 @@ the astrological influence. . . .If so, astrological predictions -- like those
 of any scientific field -- should be easily tested. . . . Astrologers always
 claim to be just a little too busy to carry out such careful tests of their
 efficacy, so in the last two decades scientists and statisticians have
-generously done such testing for them.  There have been dozens of well-designed
+ done such testing for them.  There have been dozens of well-designed
 tests all around the world, and astrology has failed every one of them. . . .
 I propose that we let those beckoning lights in the sky awaken our interest
 in the real (and fascinating) universe beyond our planet, and not let them

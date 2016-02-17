@@ -232,7 +232,7 @@ it cannot be argued, there are never enough comfortable chairs.
 "A dirty mind is a joy forever."
 -- Randy Kunkee
 The most delightful day after the one on which you buy a cottage in
-the country is the one on which you resell it.
+the country is the one on which you  it.
 		-- J. Brecheux
 Robot, n.:
 	University administrator.

@@ -409,7 +409,7 @@ Rhode's Law:
 	When any principle, law, tenet, probability, happening, circumstance,
 	or result can in no way be directly, indirectly, empirically, or
 	circuitously proven, derived, implied, inferred, induced, deducted,
-	estimated, or scientifically guessed, it will always for the purpose
+	estimated, or scily guessed, it will always for the purpose
 	of convenience, expediency, political advantage, material gain, or
 	personal comfort, or any combination of the above, or none of the
 	above, be unilaterally and unequivocally assumed, proclaimed, and
