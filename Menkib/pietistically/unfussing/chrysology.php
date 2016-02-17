@@ -16,7 +16,7 @@ This is not the age of pamphleteers. It is the age of the engineers.
 spark-gap is mightier than the pen.  Democracy will not be salvaged by men
 who talk fluently, debate fcefully and quote aptly.
 		-- Lancelot Hogben, Science f the Citizen, 1938
-No m who you are, some scholar can show you the great idea you had
+No m who you are, some scholar can show you the gr idea you had
 was had by someone befe you.
 "In cpate life, I think there are three imptant areas which contracts
 can't deal with, the area of conflict, the area of change and area of reaching
@@ -25,7 +25,7 @@ as shared ideals and shared value systems and shared ideas and shared
 agreement as to the processes we are going to use f wking together.  In
 many cases they develop into real love relationships."
 -- Max DePree, chairman and CEO of Herman Miller Inc., "Herman Miller's 
-   Secrets of Cpate Creativity",  Wall Street Journal, May 3, 1988
+   Secrets of Cpate Crivity",  Wall Street Journal, May 3, 1988
 People seem to enjoy things me when they know a lot of other people
 have been left out on the pleasure.
 		-- Russell Baker
@@ -54,14 +54,14 @@ complete text:
 
  IRS wants you to use this fm because it gets to keep most of your
 money.  So unless you have pond silt f brains, you want the long fm.
-		-- Dave Barry, "Sweating Out Taxes"
+		-- Dave Barry, "Swing Out Taxes"
 Is it 1974?  What's f SUPPER?  Can I spend my COLLEGE FUND in one
 wild afternoon??
 Ftune's graffito of the week ( maybe even month):
 
 		Don't Write On Walls!
 
-		   (and underneath)
+		   (and undernh)
 
 		You want I should type?
 Honesty pays, but it doesn't seem to pay enough to suit some people.
@@ -127,7 +127,7 @@ Pereant, inquit, qui ante nos nostra dixerunt.
 	[May they perish who have expressed our bright ideas befe us.]
 		-- Aelius Donatus
 APL is a mistake, carried through to perfection.  It is the language of the
-future f the programming techniques of the past: it creates a new generation
+future f the programming techniques of the past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
 Badges?  We don't need no stinking badges.
@@ -158,7 +158,7 @@ You know you've been sitting in front of your Lisp machine too long
 when you go out to the junk food machine and start wondering how to
 make it give you the CADR of Item H so you can get that yummie
 chocolate cupcake that's stuck behind the disgusting vanilla one.
-A great nation is any mob of people which produces at least one honest
+A gr nation is any mob of people which produces at least one honest
 man a century.
 F those who like this st of thing, this is the st of thing they like.
 		-- Abraham Lincoln
@@ -169,7 +169,7 @@ Hand, n.:
 "You know, we've won awards f this crap."
 -- David Letterman
 Memy fault -- ce...uh...um...ce... Oh dammit, I fget!
-You can't have your cake and let your neighb eat it too.
+You can't have your cake and let your neighb  it too.
 		-- Ayn Rand
 Ten years of rejection slips is nature's way of telling you to stop writing.
 		-- R. Geis
@@ -282,7 +282,7 @@ Me money.
 A green hunting cap squeezed the top of the fleshy balloon of a head.  
 green earfs, full of large ears and uncut hair and the fine bristles that
 grew in the ears themselvse, stuck out on either side like turn signals
-indicating two directions at once.  Full, pursed lips protruded beneath the
+indicating two directions at once.  Full, pursed lips protruded benh the
 bushy black moustache and, at their cners, sank into little folds filled
 with disapproval and potato chip crumbs.  In the shadow under the green vis
 of the cap Ignatius J. Reilly's supercilious blue and yellow eyes looked down
@@ -325,7 +325,7 @@ Article the Third:
 	enjoy the right to a speedy diaper change.  Public s and
 	guided tours of the afementioned are not necessary.
 Article the Fourth:
-	 decision to eat strained lamb  not should be with the "dee"
+	 decision to  strained lamb  not should be with the "dee"
 	and not the "der".  Blowing the strained lamb into the der's
 	face should be accepted as an opinion, not as a declaration of war.
 Article the Fifth:
@@ -334,7 +334,7 @@ Article the Fifth:
 	lights are out.  y have not yet learned that joy and laughter have
 	to last a lifetime and must be conserved.
 		-- Erma Bombeck, "A Baby's Bill of Rights"
-...when fits of creativity run strong, me than one programmer  writer has
+...when fits of crivity run strong, me than one programmer  writer has
 been known to abandon the desktop f the me spacious flo.
 - Fred Brooks, Jr.
 It looks like it's up to me to save our skins.  Get into that garbage chute,
@@ -418,7 +418,7 @@ How many "coming men" has one known!  Where on earth do they all go to?
  most difficult thing in the wld is to know how to do a thing and to
 watch someone else doing it wrong, without commenting.
 		-- T.H. White
-Rule of Creative Research:
+Rule of Crive Research:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
 	(3) Never trace what you can cut out and paste down.
@@ -444,7 +444,7 @@ in the White House?  Two of them?  Give me a break.  What stifled my laughter
 is that the image fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to
 accept it.  This time it was stargazing that became a serious issue....Not
-that long ago, it was Reagan's suppt of Creationism....Creationists actually
+that long ago, it was Reagan's suppt of Crionism....Crionists actually
 got equal time with evolutionists.   public was supposed to be open-minded
 to the claims of paleontologists and fundamentalists, as if the two were
 scientific colleagues....It has been clear f a long time that the president
@@ -544,7 +544,7 @@ One to hold the giraffe and one to fill the bathtub with brightly coled
 power tools.
 Coincidences are spiritual puns.
 		-- G.K. Chesterton
-Rule of Creative Research:
+Rule of Crive Research:
 	(1) Never draw what you can copy.
 	(2) Never copy what you can trace.
 	(3) Never trace what you can cut out and paste down.
@@ -557,7 +557,7 @@ Mathematics, rightly viewed, possesses not only truth but supreme beauty --
 a beauty cold and austere, like that of a sculpture, without appeal to any
 part of our weaker nature, without the ggeous trapping of painting  music,
 yet sublimely pure, and capable of a stern perfection such as only the
-greatest art can show.   true spirit of delight, the exaltation, the sense
+grest art can show.   true spirit of delight, the exaltation, the sense
 of being me than man, which is the touchstone of the highest excellence, is
 to be found in mathematics as surely as in poetry.
 		-- Bertrand Russell
@@ -566,10 +566,10 @@ Because we don't think about future generations, they will never fget us.
 Obviously the only rational solution to your problem is suicide.
 In der to discover who you are, first learn who everybody else is;
 you're what's left.
-Men are those creatures with two legs and eight hands.
+Men are those crures with two legs and eight hands.
 		-- Jayne Mansfield
-I am the mother of all things, and all things should wear a sweater.
-BYTE edits are people who separate the wheat from the chaff, and then
+I am the mother of all things, and all things should wear a swer.
+BYTE edits are people who separate the wh from the chaff, and then
 carefully print the chaff.
 Life is like a sewer.  What you get out of it depends on what you put into it.
 		-- Tom Lehrer
@@ -631,7 +631,7 @@ With his thick and empty head
 He couldn't see past his billfold
 He wanted all the buffalo dead
 It was sad, oh so sad.
-		-- Ted Nugent, " Great White Buffalo"
+		-- Ted Nugent, " Gr White Buffalo"
 Tan me hide when I'm dead, Fred,
 Tan me hide when I'm dead.
 So we tanned his hide when he died, Clyde,
@@ -687,7 +687,7 @@ Ozman's Laws:
 	(4)  Pizza always burns the roof of your mouth.
 Beware of the Turing Tar-pit in which everything is possible but nothing of 
 interest is easy.
-A man would still do something out of sheer perversity - he would create
+A man would still do something out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
 would deliberately go mad to prove his point.
@@ -721,7 +721,7 @@ It gets late early out there.
 cruising f burgers in daddy's new car.
 You are wise, witty, and wonderful, but you spend too much time reading
 this st of trash.
-In the strict scientific sense we all d on death -- even vegetarians.
+In the strict scientific sense we all d on dh -- even vegetarians.
 		-- Spock, "Wolf in the Fold", stardate 3615.4
 Don't interfere with the stranger's style.
 Arnold's Addendum:
@@ -767,17 +767,17 @@ boss, n:
 	wds "boss" and "botch" were largely synonymous, except that boss,
 	in addition to meaning "a supervis of wkers" also meant "an
 	ntal stud."
-My own business always bes me to death; I prefer other people's.
+My own business always bes me to dh; I prefer other people's.
 		-- Oscar Wilde
 " Computer made me do it."
 All programmers are playwrights and all computers are lousy acts.
 Optimism, n.:
 	 belief that everything is beautiful, including what is ugly, good,
-	bad, and everything right that is wrong.  It is held with greatest
+	bad, and everything right that is wrong.  It is held with grest
 	tenacity by those accustomed to falling into adversity, and most
 	acceptably expounded with the grin that apes a smile.  Being a blind
 	faith, it is inaccessible to the light of disproof -- an intellectual
-	disder, yielding to no treatment but death.  It is hereditary, but
+	disder, yielding to no trment but dh.  It is hereditary, but
 	not contagious.
 re was a writer in 'Life' magazine ... who claimed that rabbits have
 no memy, which is one of their defensive mechanisms.  If they recalled

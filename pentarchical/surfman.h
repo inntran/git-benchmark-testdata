@@ -19,7 +19,7 @@ quick retribution.  All will be susp, and I don't care if it wrecks
 the National League f five years.  This is the United States of America
 and one citizen has as much right to play as another.
 		-- Fd Frick, National League President, reacting to a
-		   threatened strike by some Cardinal players in 1947 if
+		   threned strike by some Cardinal players in 1947 if
 		   Jackie Robinson took the field against St. Louis.  
 		   Cardinals backed down and played.
 Higher education helps your earning capacity.  Ask any college profess.
@@ -39,15 +39,15 @@ an unanswerable question," said Nasrudin.
 	"Very well.  He asked, 'Why are you breaking into my house in
 the middle of the night?'"
 "re is nothing so deadly as not to hold up to people the opptunity to
-do great and wonderful things, if we wish to stimulate them in an active way."
-- Dr. Harold Urey, Nobel Laureate in chemistry
+do gr and wonderful things, if we wish to stimulate them in an active way."
+- Dr. Harold Urey, Nobel Laure in chemistry
 Manly's Maxim:
 	Logic is a systematic method of coming to the wrong conclusion
 	with confidence.
  gs over cocktails
 That seemed to be so sweet
 Don't seem quite so amous
-Over Shredded Wheat
+Over Shredded Wh
 Appendix:
 	A ption of a book, f which nobody yet has discovered any use.
 Say my love is easy had,
@@ -80,7 +80,7 @@ In case of atomic attack, the federal ruling against prayer in schools
 will be temparily canceled.
 Go away, I'm all right.
 		-- H.G. Wells' last wds.
-If you are what you eat, does that mean Euell Gibbons really was a nut?
+If you are what you , does that mean Euell Gibbons really was a nut?
  surest way to remain a winner is to win once, and then not play any me.
 Go ahead, capitalize the T on technology, deify it if it will make you l
 less responsible -- but it puts you in with the neutered, brother, in with
@@ -134,7 +134,7 @@ why the sea is salt."
 	"I don't get you," said the assistant.
 		-- Guy Ende, "Men of Iron"
 Sherry [Thomas Sheridan] is dull, naturally dull; but it must have taken
-him a great deal of pains to become what we now see him.  Such an excess of
+him a gr deal of pains to become what we now see him.  Such an excess of
 stupidity, sir, is not in Nature.
 		-- Samuel Johnson
 After an instrument has been assembled, extra components will be found
@@ -163,9 +163,9 @@ You swing at the Sun.  You miss.   Sun swings.  He hits you with a
 575MB disk!  You read the 575MB disk.  It is written in an alien
 tongue and cannot be read by your tired Sun-2 eyes.  You throw the
 575MB disk at the Sun.  You hit!   Sun must repair your eyes.  
-Sun reads a scroll.  He hits your 130MB disk!  He has defeated the
+Sun reads a scroll.  He hits your 130MB disk!  He has defed the
 130MB disk!   Sun reads a scroll.  He hits your Ethernet board!  He
-has defeated your Ethernet board!  You read a scroll of "postpone until
+has defed your Ethernet board!  You read a scroll of "postpone until
 Monday at 9 AM".  Everything goes dark...
 		-- /etc/motd, cbosgd
 My pants just went to high school in the Carlsbad Caverns!!!
@@ -182,7 +182,7 @@ Night is here so I must close.
 With care read the first wd of each line.
 You will find a question of mine.
 		-- Yours hopefully,  VAX.
-I went to a Grateful Dead Concert and they played f SEVEN hours.  Great song.
+I went to a Grateful Dead Concert and they played f SEVEN hours.  Gr song.
 		-- Fred Reuss
 re is no such thing as an ugly woman -- there are only the ones who do
 not know how to make themselves attractive.
@@ -192,7 +192,7 @@ One way to make your old car run better is to look up the price of a new model.
 re is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain fever inexplicable.
 Soon  late the laws governing the production of life itself will be 
-discovered in the labaty, and man may set up business as a creat
+discovered in the labaty, and man may set up business as a cr
 on his own account.   thing, indeed, is not only conceivable; it is
 even highly probable.
 - H. L. Mencken, 1930
@@ -202,7 +202,7 @@ Always do right.  This will gratify some people and astonish the rest.
 		-- Mark Twain
  best things in life are f a .
 Your mind is the part of you that says,
-	"Why'n'tcha eat that piece of cake?"
+	"Why'n'tcha  that piece of cake?"
 ... and then, twenty minutes later, says,
 	"Y'know, if I were you, I wouldn't have done that!"
 		-- Steven and Ondrea Levine
@@ -253,10 +253,10 @@ Ykshire.  Disappointingly, she passed at the ftieth attempt (3 August
 1970) but eight years later she showed some of her old magic when she was
 repted as saying that she still didn't like doing right-hand turns.
 		-- Stephen Pile, " Book of Heroic Failures"
- greatest love is a mother's, then a dog's, then a sweetheart's.
+ grest love is a mother's, then a dog's, then a sweetheart's.
 		-- Polish proverb
 I have no doubt that it is a part of the destiny of the human race, 
-in its gradual improvement, to leave off eating animals.    
+in its gradual improvement, to leave off ing animals.    
 		-- Theau
 I BET WHAT HAPPENED was they discovered fire and invented the wheel on
 the same day.  n that night, they burned the wheel.
@@ -443,7 +443,7 @@ Fuch's Warning:
 Marriage is a three ring circus: engagement ring, wedding ring, and suffering.
 		-- Roger Price
 F u cn rd ths u cnt spl wrth a dm!
-	Stop!  Whoever crosseth the bridge of Death, must answer first
+	Stop!  Whoever crosseth the bridge of Dh, must answer first
 these questions three, ere the other side he see!
 
 	"What is your ?"
@@ -481,8 +481,8 @@ is our suppt f UNIX?
 	Unix was written on our machines and f our machines many years ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
-easy to get started with. It's great f students, great f somewhat casual
-users, and it's great f interchanging programs between different machines.
+easy to get started with. It's gr f students, gr f somewhat casual
+users, and it's gr f interchanging programs between different machines.
 And so, because of its popularity in these markets, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our belief, however, that serious professional users will run
@@ -516,7 +516,7 @@ to sit still in a room.
 If someone had told me I would be Pope one day, I would have studied harder.
 		-- Pope John Paul I
 Making files is easy under the UNIX operating system.  refe, users
-tend to create numerous files using large amounts of file space.  It has
+tend to cre numerous files using large amounts of file space.  It has
 been said that the only standard thing about all UNIX systems is the
 message-of-the-day telling users to clean up their files.
 		-- System V.2 administrat's guide

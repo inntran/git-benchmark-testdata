@@ -19,7 +19,7 @@ systematic ganisation of hatreds.
  of a Russian Su-27
 WYSIWYG:
 	What You See Is What You Get.
-M cannot be created  destroyed, n can it be returned without a receipt.
+M cannot be cred  destroyed, n can it be returned without a receipt.
 No man is an island, but some of us are long peninsulas.
 Children begin by loving their parents.  After a time they judge them.  Rarely,
 if ever, do they fgive them.
@@ -100,8 +100,8 @@ He is the MELBA-BEING ... the ANGEL CAKE ... XEROX him ... XEROX him --
 Time sure flies when you don't know what you're doing.
 I drink to make other people interesting.
 		-- Gege Jean Nathan
-Do not wry about which side your bread is buttered on: you eat BOTH sides.
-Ftune Documents the Great Legal Decisions:
+Do not wry about which side your bread is buttered on: you  BOTH sides.
+Ftune Documents the Gr Legal Decisions:
 
 We think that we may take judicial notice of the fact that the term "bitch"
 may imply some ling of endearment when applied to a female of the canine
@@ -115,10 +115,10 @@ All I want is a warm bed and a kind wd and unlimited power.
 All say, "How hard it is that we have to die"--a strange complaint to come from
 the mouths of people who have had to live.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
- Fastest Defeat In Chess
+ Fastest Def In Chess
 	 big  f us in the wld of chess is Gibaud, a French chess
 master.  
-	In Paris during 1924 he was beaten after only four moves by a
+	In Paris during 1924 he was ben after only four moves by a
 Monsieur Lazard.  Happily f posterity, the moves are recded and so
 chess enthusiasts may reconstruct this magnificent colse in the comft
 of their own homes.
@@ -150,7 +150,7 @@ broad-mindedness, n:
 Reach into the thoughts of friends,
 And find they do not know your .
 Squeeze the teddy bear too tight,
-And watch the feathers burst the seams.
+And watch the fhers burst the seams.
 Touch the stained glass with your cheek,
 And l its chill upon your blood.
 Hold a candle to the night,
@@ -170,7 +170,7 @@ out of him.
 		-- Brian O'Nolan, " Best of Myles"
 Save yourself!  Reboot in 5 seconds!
 Maybe we could paint GOLDIE HAWN a rich PRUSSIAN BLUE --
-An investment in knowledge always pays the best interest.
+An in in knowledge always pays the best interest.
 		-- Benjamin Franklin
 MSDOS is not dead, it just smells that way.
 		-- Henry Spencer

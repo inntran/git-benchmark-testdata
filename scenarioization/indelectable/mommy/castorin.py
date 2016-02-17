@@ -1,4 +1,4 @@
-re are two jazz musicians who are great buddies.  y hang out and play
+re are two jazz musicians who are gr buddies.  y hang out and play
 together f years, virtually inseparable.  Unftunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can l a presence in the
@@ -8,7 +8,7 @@ room.  He calls out, "Who's there?  Who's there?  What's going on?"
 you?"
 	"Well," says the voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
-	"It's great, man.  I gotta tell you, I'm jamming up here every day.
+	"It's gr, man.  I gotta tell you, I'm jamming up here every day.
 I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me me,
@@ -39,16 +39,16 @@ is read by the people who think Elvis is alive and running the country..."
 -- Robert J Woodhead (treb@biar.UUCP)
 Love is the process of my leading you gently back to yourself.
 		-- Saint Exupery
-I disagree with what you say, but will defend to the death your right to
+I disagree with what you say, but will defend to the dh your right to
 tell such LIES!
-America: bn free and taxed to death.
+America: bn free and taxed to dh.
 Logicians have but ill defined
 As rational the human kind.
 Logic, they say, belongs to man,
 But let them prove it if they can.
 		-- Oliver Goldsmith
 An Animal that knows who it is, one that has a sense of his own identity, is
-a discontented creature, doomed to create new problems f himself f the
+a discontented crure, doomed to cre new problems f himself f the
 duration of his stay on this planet.  Since neither the mouse n the chip
 knows what is, he is spared all the vexing problems that follow this
 discovery.  But as soon as the human animal who asked himself this question
@@ -59,7 +59,7 @@ not know that he exists is not driven to discover his igins and is spared
 the tragic necessity of contemplating his own end.  And even if the animal 
 experimenters succeed in teaching a chimp to count one hundred bananas  
 to play chess, the chimp will develop no science and he will exhibit no 
-appreciation of beauty, f the greatest part of man's wisdom may be traced
+appreciation of beauty, f the grest part of man's wisdom may be traced
 back to the eternal questions of beginnings and endings, the quest to give
 meaning to his existence, to life itself.
 -- Selma Fraiberg, _ Magic Years_, pg. 193
@@ -132,14 +132,14 @@ If you have nothing to do, don't do it here.
 "Marriage is like a cage; one sees the birds outside desperate to get in, and 
 those inside desperate to get out."
 -- Montaigne
-"If you don't want your dog to have bad breath, do what I do:  Pour a little
+"If you don't want your dog to have bad brh, do what I do:  Pour a little
 Lavis in the toilet."
 		-- Jay Leno
 Encyclopedia Salesmen:
 	Invite them all in.  Nip out the back do.  Phone the police
 	and tell them your house is being burgled.
 		-- Mike Harding, " Armchair Anarchist's Almanac"
-Ftune finishes the great quotations, #6
+Ftune finishes the gr quotations, #6
 
 	"But, soft!  What light through yonder window breaks?"
 	It's nothing, honey.  Go back to sleep.
@@ -173,13 +173,13 @@ It's amazing how much better you l once you've given up hope.
 	Some 1500 miles west of the Big Apple we find the Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
-the Big Apple have the feats of "Broadway Joe" Namath.  We have known the
+the Big Apple have the fs of "Broadway Joe" Namath.  We have known the
 stolid but sy Killebrew.  Listening to Cole Pter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
 Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
 butter on lefse.  Here is a town where the maj urban problem is dutch elm
-disease and the number one crime is overtime parking.  We boast me theater
+disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
@@ -187,7 +187,7 @@ People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
 Here's to the Minneapple.  And to its people.  Our  f style is bad
 by a healthy respect f wind chill facts.
-	And we always, always eat our vegetables.
+	And we always, always  our vegetables.
 	This is the Minneapple.
 System/3!  System/3!
 See how it runs!  See how it runs!
@@ -280,7 +280,7 @@ You'll throw them out because your house will be littered with them.
  absent ones are always at fault.
 Sails in ships, sail on!  Even while we died, others rode out the stm.
 Pec's Health-Food Principle:
-	Never eat rutabaga on any day of the week that has a "y" in it.
+	Never  rutabaga on any day of the week that has a "y" in it.
 [District Attneys] learn in District Attney School that there are
 two sure-fire ways to get a lot of favable publicity:
 
@@ -298,7 +298,7 @@ two sure-fire ways to get a lot of favable publicity:
     state f the recd that he finds nothing obscene about a movie
     where acts engage in sexual activities with live snakes and a
     fire extinguisher.  He is going to convict the bookste owner, and
-    vote f the death penalty just to make sure nobody gets the wrong
+    vote f the dh penalty just to make sure nobody gets the wrong
     impression.
 		-- Dave Barry, "Pnography"
 Extradinary claims demand extradinary proof.  re are many examples of
@@ -335,7 +335,7 @@ Finagle's Second Law:
 	someone eager to (a) misinterpret it, (b) fake it,  (c) believe it
 	happened accding to his own pet they.
 Give me your students, your secretaries,
-Your huddled writers yearning to breathe free,
+Your huddled writers yearning to brhe free,
  wretched refuse of your Selectric III's.
 Give these, the homeless, typist-tossed to me.
 I lift my disk beside the process.
@@ -348,11 +348,11 @@ Anything is good if it's made of chocolate.
 Ours is a wld of nuclear giants and ethical infants.
 		-- General Omar N. Bradley
 Kliban's First Law of Dining:
-	Never eat anything bigger than your head.
+	Never  anything bigger than your head.
 You can't start wrying about what's going to happen.  You get spastic
 enough wrying about what's happening now.
 		-- Lauren Bacall
- three questions of greatest concern are -- 1. Is it attractive?
+ three questions of grest concern are -- 1. Is it attractive?
 2. Is it amusing?  3. Does it know its place?
 		-- Fran Lebowitz, "Metropolitan Life"
 Now I'm concentrating on a specific tank battle toward the end of Wld War II!
@@ -361,11 +361,11 @@ Dealing with failure is easy:
 Success is also easy to handle:
 	You've solved the wrong problem.
 	Wk hard to improve.
-Most people eat as though they were fattening themselves f market.
+Most people  as though they were fattening themselves f market.
 		-- E.W. Howe
 interlard - vt., to intersperse; diversify
 -- Webster's New Wld Dictionary Of  American Language
- trouble with eating Italian food is that five  six days later
+ trouble with ing Italian food is that five  six days later
 you're hungry again.
 		-- Gege Miller
 If it ain't broke, don't fix it.
@@ -391,7 +391,7 @@ Q:	How does a hacker fix a function which
 	doesn't wk f all of the elements in its domain?
 A:	He changes the domain.
 Stupidity, like virtue, is its own reward.
-My computer can beat up your computer.
+My computer can b up your computer.
 - Karl Lehenbauer
 She just came in, pounced around this thing with me f a few years, enjoyed
 herself, gave it a st of beautiful quality and left.  Excited a few men
@@ -415,7 +415,7 @@ You know you're in trouble when...
 (7)	You go on your honeymoon to a remote little hotel and the desk
 		clerk, bell hop, and manager have a "Welcome Back" party 
 		f your spouse.
-"He did decide, though, that with me time and a great deal of mental efft,
+"He did decide, though, that with me time and a gr deal of mental efft,
 he could probably turn the activity into an acceptable perversion."
 -- Mick Farren, _When Gravity Fails_
 In the Halls of Justice the only justice is in the halls.
@@ -497,7 +497,7 @@ Manly's Maxim:
 	Logic is a systematic method of coming to the wrong conclusion
 	with confidence.
 Gravity:
-	What you get when you eat too much and too fast.
+	What you get when you  too much and too fast.
 "To IBM, 'open' means there is a modicum of interoperability among some of their
 equipment."
 -- Harv Masterson
@@ -512,7 +512,7 @@ Wait!  You have not been prepared!
 		-- Mr. Atoz, "Tomrow is Yesterday", stardate 3113.2
 While we are sleeping, two-thirds of the wld is plotting to do us in.
 		-- Dean Rusk
-"Life sucks, but death doesn't put out at all...."
+"Life sucks, but dh doesn't put out at all...."
 -- Thomas J. Kopp
 Adding manpower to a late software project makes it later.
 		-- F. Brooks, " Mythical Man-Month"
@@ -581,7 +581,7 @@ remotest clue what was happening.
 evidence at all and, when there was no reply, dismissed him.
 	 excitement which this caused was only equalled when a second
 jur revealed that he s not a wd of English.  A fluent French
-speaker, he exhibited great surprised when told, after two days, that he
+speaker, he exhibited gr surprised when told, after two days, that he
 was hearing a murder trial.
 	 trial was abandoned when a third jur said that he suffered
 from both conditions, being simultaneously unversed in the English language
@@ -593,7 +593,7 @@ a woman finds out later that it was just a shake-down cruise.
 optimist, n:
 	A bagpiper with a beeper.
 No extensible language will be universal.
-		-- T. Cheatham
+		-- T. Chham
 He gave her a look that you could have poured on a waffle.
 QOTD:
 	"I used to be an idealist, but I got mugged by reality."
@@ -669,23 +669,23 @@ gotten the hostages released.  I thank God they were satisfied with the
 missiles and we didn't have to go to that .
 - Oliver Nth
 Don't get stuck in a closet -- wear yourself out.
-Death has been proven to be 99% fatal in labaty rats.
+Dh has been proven to be 99% fatal in labaty rats.
  face of war has never changed.  Surely it is me logical to heal
 than to kill.
 		-- Surak of Vulcan, " Savage Curtain", stardate 5906.5
 Lockwood's Long Shot:
-	 chances of getting eaten up by a lion on Main Street
+	 chances of getting en up by a lion on Main Street
 	aren't one in a million, but once would be enough.
 If the rich could pay the po to die f them, what a living the po
 could make!
 "re is hopeful symbolism in the fact that flags do not wave in a vacuum."
 -- C. Clarke
- Government just announced today the creation of the Neutron Bomb II.
+ Government just announced today the crion of the Neutron Bomb II.
 Similar to the Neutron Bomb, the Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeping.
 Winny and I lived in a house that ran on static electricity...
 If you wanted to run the blender, you had to rub balloons on your
-head... if you wanted to cook, you had to pull off a sweater real quick...
+head... if you wanted to cook, you had to pull off a swer real quick...
 		-- Steven Wright
 Neutrinos are into physicists.
 My analyst told me that I was right out of my head,
@@ -695,8 +695,8 @@ Because I have got a thing that is unique and new,
 'Cause ins of one head -- I've got two.
 
 And you know two heads are better than one.
-(1) Alexander the Great was a great general.
-(2) Great generals are fewarned.
+(1) Alexander the Gr was a gr general.
+(2) Gr generals are fewarned.
 (3) Fewarned is fearmed.
 (4) Four is an even number.
 (5) Four is certainly an odd number of arms f a man to have.
@@ -706,7 +706,7 @@ Editing is a rewding activity.
 If you took all the students that felt asleep in class and laid them end to
 end, they'd be a lot me comftable.
 		-- "Graffiti in the Big Ten"
-Don't sweat it -- it's only ones and zeros.
+Don't sw it -- it's only ones and zeros.
 		-- P. Skelly
 I will follow the good side right to the fire, but not into it if I can
 help it.

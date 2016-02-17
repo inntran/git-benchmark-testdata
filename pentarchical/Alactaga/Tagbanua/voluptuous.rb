@@ -27,7 +27,7 @@ It pays in England to be a revolutionary and a bible-smacker most of
 one's life and then come round.
 		-- Ld Alfred Douglas
 	So Richard and I decided to try to catch [the small shark].
-With a great deal of strategy and efft and shouting, we managed to
+With a gr deal of strategy and efft and shouting, we managed to
 maneuver the shark, over the course of about a half-hour, to a st of
 cner of the lagoon, so that it had no way to escape other than to
 flop up onto the land and evolve.  Richard and I were inching toward
@@ -53,7 +53,7 @@ they might escape the lusts of the flesh.
 Easiest Col to Solve on a Rubik's Cube:	Black.
 
 Simply remove all the little coled stickers on the cube, and each of
-side of the cube will now be the iginal col of the plastic underneath
+side of the cube will now be the iginal col of the plastic undernh
 -- black.  Accding to the instructions, this means the puzzle is solved.
 		-- Steve Rubenstein
 I'm always looking f a new idea that will be me productive than its cost.
@@ -64,7 +64,7 @@ throw the first person they see to the ground, tie the tourniquet on him,
 slash him with the knife, and apply suction to the wound.
 		-- Jon Bentley
 Laugh and the wld thinks you're an idiot.
-Boycott meat -- suck your thumb.
+Boycott m -- suck your thumb.
 A profess is one who talks in someone else's sleep.
 linux: the choice of a GNU generation
 (ksh@cis.ufl.edu put this on Tshirts in '93)

@@ -1,5 +1,5 @@
  ultimate game show will be the one where somebody gets killed at the end.
-		-- Chuck Barris, creat of " Gong Show"
+		-- Chuck Barris, cr of " Gong Show"
 You Earth people glified ganized violence f fty centuries.  But
 you imprison those who employ it privately.
 		-- Spock, "Dagger of the Mind", stardate 2715.1
@@ -63,7 +63,7 @@ have neither good plumbing n good philosophy... neither its pipes n
 its theies will hold water.
 Hearts will never be practical until they can be made unbreakable.
 		--  Wizard of Oz
-Most non-Catholics know that the Catholic schools are rendering a greater
+Most non-Catholics know that the Catholic schools are rendering a grer
 service to our nation than the public schools in which subversive textbooks
 have been used, in which Communist-minded teachers have taught, and from
 whose classrooms Christ and even God Himself are barred.
@@ -121,7 +121,7 @@ astrologer Michel de Notredame, the image of the U.S. as a scientific and
 technological nation has taking a bit of a bing lately.  Sadly, such
 happenings cannot be dismissed as passing fancies.  y are manifestations
 of a well-established "anti-science" tendency in the U.S. which, ultimately,
-could threaten the country's position as a technological power. . . .  
+could thren the country's position as a technological power. . . .  
 manifest widespread desire to reject rationality and substitute a series
 of quasirandom beliefs in der to understand the universe does not augur
 well f a nation deeply concerned about its ability to compete with its
@@ -240,13 +240,13 @@ n we have them f a meal (...)
 Toss them here and catch them there (...)
 See them flying through the air (...)
 Watch them fly and hear them squeal (...)
-Falling mice have great appeal (...)
+Falling mice have gr appeal (...)
 
 See the hunter stretched befe us (...)
 He's chased the mice in field and fest (...)
 Watch him clean his long white whiskers (...)
 Of the blood of little critters (...)
-America: bn free and taxed to death.
+America: bn free and taxed to dh.
 Newlan's Truism:
 	An "acceptable" level of unemployment means that the 
 	government economist to whom it is acceptable still has a job.
@@ -300,7 +300,7 @@ remaining three folios are now in the British Museum.
 the manuscript of the first volume of Thomas Carlyle's " Hisy of the
 French Revolution", thinking it was wastepaper.
 		-- Stephen Pile, " Book of Heroic Failures"
-People who think they know everything greatly annoy those of us who do.
+People who think they know everything grly annoy those of us who do.
 Whenever a system becomes completely defined, some damn fool discovers
 something which either abolishes the system  expands it beyond recognition.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#6
@@ -330,7 +330,7 @@ If you make any money, the government shoves you in the creek once a year
 with it in your pockets, and all that don't get wet you can keep.
 		--  Best of Will Rogers
 ... there are about 5,000 people who are part of that commitee.  se guys
-have a hard time sting out what day to meet, and whether to eat croissants
+have a hard time sting out what day to meet, and whether to  croissants
  doughnuts f breakfast -- let alone how to define how all these complex
 layers that are going to be agreed upon.
 		-- Craig Burton of Novell, Netwk Wld
@@ -344,7 +344,7 @@ anything removed would certainly make you less than we bargained f.
 I love ROCK 'N ROLL!  I memized the all WORDS to "WIPE-OUT" in
 1965!!
 Aberdeen was so small that when the family with the car went
-on vacation, the gas station and drive-in theatre had to close.
+on vacation, the gas station and drive-in thre had to close.
 FORTUNE DISCUSSES THE DIFFERENCES BETWEEN MEN AND WOMEN:	#4
 
 Clothes:
@@ -374,7 +374,7 @@ An idealist is one who helps the other fellow to make a profit.
 		-- Henry Fd
 Weinberg, as a young grocery clerk, advised the grocery manager to get
 rid of rutabagas which nobody every bought.  He did so. "Well, kid, that
-was a great idea," said the manager. n he paused and asked the killer
+was a gr idea," said the manager. n he paused and asked the killer
 question, "NOW what's the least popular vegetable?"
 
 Law: Once you eliminate your #1 problem, #2 gets a promotion.
@@ -422,7 +422,7 @@ with but minimal clues
 
 		 Heavens, they're tasty and expeditious!
 
-	    y're made from whole wheat, to give shy persons
+	    y're made from whole wh, to give shy persons
 	   the strength to get up and do what needs to be done.
 
 			   POWDERMILK BISCUITS
@@ -436,7 +436,7 @@ criminal at the bar of justice.
 - Tertullian, second-century Christian writer, misogynist
 Beauty is truth, truth beauty, that is all
 Ye know on earth, and all ye need to know.
-		-- John Keats
+		-- John Ks
  advertisement is the most truthful part of a newspaper.
 		-- Thomas Jefferson
 We can predict everything, except the future.
@@ -468,7 +468,7 @@ length-girth ratio of the ant to the  were 98.17:1.
 
 GENERAL KNOWLEDGE
 Describe the Universe.  Give three examples.
-Hand me a pair of leather pants and a CASIO keyboard -- I'm living f today!
+Hand me a pair of lher pants and a CASIO keyboard -- I'm living f today!
 It seems a little silly now, but this country was founded as a protest
 against taxation.
 I l like a wet parking meter on Darvon!
@@ -478,12 +478,12 @@ Being ugly isn't illegal.  Yet.
 It's not whether you win  lose, it's how you place the blame.
 One is not bn a woman, one becomes one.
 		-- Simone de Beauvoir
-Non-sequiturs make me eat lampshades.
+Non-sequiturs make me  lampshades.
 re is one way to find out if a man is honest -- ask him.  If he says
 "Yes" you know he is crooked.
 		-- Groucho Marx
 Paralysis through analysis.
-All great discoveries are made by mistake.
+All gr discoveries are made by mistake.
 		-- Young
 If you haven't enjoyed the material in the last few lectures then a career
 in chartered accountancy beckons.
@@ -494,7 +494,7 @@ Is a person who blows up banks an econoclast?
 Go out and tell a lie that will make the whole family proud of you.
 		-- Cadmus, to Pentheus, in " Bacchae" by Euripides
  bank sent our statement this mning,
- red ink was a sight of great awe!
+ red ink was a sight of gr awe!
 ir figures and mine might have bad,
 But my wife was too quick on the draw.
 Dealing with the problem of pure staff accumulation,
@@ -506,7 +506,7 @@ Fletcher (1884-1981), who was a graduate student at the University of Chicago,
 at Millikan's suggestion wked on the measurement of electronic charge f
 his doctal thesis, and co-authed some of the early papers on this subject
 with Millikan.  Fletcher left a manuscript with a friend with instructions
-that it be published after his death; the manuscript was published in
+that it be published after his dh; the manuscript was published in
 Physics Today, June 1982, page 43.  In it, Fletcher claims that he was the
 first to do the experiment with oil drops, was the first to measure charges on
 single droplets, and may have been the first to suggest the use of oil.
@@ -571,7 +571,7 @@ straight.
 		-- Strunk and White, " Elements of Style"
 Garbage In, Gospel Out
 Anything cut to length will be too sht.
-Most burning issues generate far me heat than light.
+Most burning issues generate far me h than light.
 Johnson's First Law:
 	When any mechanical contrivance fails, it will do so at the
 	most inconvenient possible time.
@@ -594,7 +594,7 @@ sense from things she found in gift shops.
 > > should use Linux over BSD?
 >
 > No.  That's it.   cool , that is.  We wked very hard on
-> creating a  that would appeal to the majity of people, and it
+> cring a  that would appeal to the majity of people, and it
 > certainly paid off: thousands of people are using linux just to be able
 > to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made the
 > mistake of putting a lot of numbers and weird abbreviations into the
@@ -603,7 +603,7 @@ sense from things she found in gift shops.
 (Linus Tvalds' follow-up to a question about Linux)
  amount of weight an evangelist carries with the almighty is measured
 in billigrahams.
-" Mets were great in 'sixty eight,
+" Mets were gr in 'sixty eight,
   Cards were fine in 'sixty nine,
  But the Cubs will be heavenly in nineteen and seventy."
 -- Ernie Banks
@@ -647,8 +647,8 @@ the rabbit.
 Meskimen's Law:
 	re's never time to do it right, but there's always time to
 	do it over.
-Alive without breath,
-As cold as death;
+Alive without brh,
+As cold as dh;
 Never thirsty, ever drinking,
 All in mail ever clinking.
 FORTUNE REMEMBERS THE GREAT MOTHERS: #5
@@ -657,7 +657,7 @@ FORTUNE REMEMBERS THE GREAT MOTHERS: #5
 		-- Mrs. Janice Markowsky, April 8, 1965
 We have a equal opptunity Calculus class -- it's fully integrated.
 No m where I go, the place is always called "here".
-Bad men live that they may eat and drink, whereas good men eat and drink
+Bad men live that they may  and drink, whereas good men  and drink
 that they may live.
 		-- Socrates
 Kington's Law of Perfation:
@@ -691,7 +691,7 @@ never succeed.
 		-- Rev. Henry Durant, founder of the University of Califnia
 A be is someone who persists in holding his own views after we have
 enlightened him with ours.
-Do not seek death; death will find you.  But seek the road which makes death
+Do not seek dh; dh will find you.  But seek the road which makes dh
 a fulfillment.
 		-- Dag Hammarskjold
 A right is not what someone gives you; it's what no one can take from you.
@@ -752,7 +752,7 @@ an affiliate of both the International Confederation of Free
 Trade Unions and the Wld Confederation of Lab.  re is
 literally a wld of difference between Poland - even in its
 present state of colse - and Soviet society at the peak of
-its "glasnost."  This difference has been maintained at great
+its "glasnost."  This difference has been maintained at gr
 cost by the Poles since 1944.
 -- David Phillips, SUNY at Buffalo, about establishing a
    gateway from EARN (Eurpoean Academic Research Netwk)
@@ -782,7 +782,7 @@ Coincidences are spiritual puns.
 		-- G.K. Chesterton
 I argue very well.  Ask any of my remaining friends.  I can win an argument on
 any topic, against any opponent.  People know this, and steer clear of me at
-parties.  Often, as a sign of their great respect, they don't even invite me.
+parties.  Often, as a sign of their gr respect, they don't even invite me.
 		-- Dave Barry
 Picking up the pieces of my sweet shed dream,
 I wonder how the old folks are tonight,
@@ -866,7 +866,7 @@ We were so po we couldn't affd a watchdog.  If we heard a noise at night,
 we'd bark ourselves.
 		-- Crazy Jimmy
 Real programmers don't bring brown-bag lunches.  If the vending machine
-doesn't sell it, they don't eat it.  Vending machines don't sell quiche.
+doesn't sell it, they don't  it.  Vending machines don't sell quiche.
 ... at least I thought I was dancing, 'til somebody stepped on my hand.
 		-- J. B. White
 Anxious after the delay, Gruber doesn't waste any time getting the Koenig
@@ -878,7 +878,7 @@ them at 130-plus -- to see if you're paying attention.
 		-- Road & Track article about driving two absurdly fast
 		   cars across Europe.
 Nasrudin was carrying home a piece of liver and the recipe f liver pie.
-Suddenly a bird of prey swooped down and snatched the piece of meat from his
+Suddenly a bird of prey swooped down and snatched the piece of m from his
 hand.  As the bird flew off, Nasrudin called after it, "Foolish bird!  You
 have the liver, but what can you do with it without the recipe?"
 After this was written there appeared a remarkable posthumous memoir that
@@ -887,7 +887,7 @@ Fletcher (1884-1981), who was a graduate student at the University of Chicago,
 at Millikan's suggestion wked on the measurement of electronic charge f
 his doctal thesis, and co-authed some of the early papers on this subject
 with Millikan.  Fletcher left a manuscript with a friend with instructions
-that it be published after his death; the manuscript was published in
+that it be published after his dh; the manuscript was published in
 Physics Today, June 1982, page 43.  In it, Fletcher claims that he was the
 first to do the experiment with oil drops, was the first to measure charges on
 single droplets, and may have been the first to suggest the use of oil.

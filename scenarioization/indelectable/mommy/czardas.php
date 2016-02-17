@@ -72,7 +72,7 @@ If you are shooting under 80 you are neglecting your business;
 over 80 you are neglecting your golf.
 		-- Walter Hagen
 Fly Windows NT:
-All the passengers carry their seats out onto the tarmac, placing the chairs
+All the passengers carry their ss out onto the tarmac, placing the chairs
 in the outline of a plane. y all sit down, f their arms and make jet
 swooshing sounds as if they are flying.
 A waist is a terrible thing to mind.
@@ -90,7 +90,7 @@ systems. Maybe until mid-1995. Maybe longer.
 If what they've been doing hasn't solved the problem, tell them to
 do something else.
 	-- Gerald Weinberg, " Secrets of Consulting"
-You know the great thing about TV?  If something imptant happens
+You know the gr thing about TV?  If something imptant happens
 anywhere at all in the wld, no m what time of the day  night,
 you can always change the channel.
 		-- Jim Ignatowski
@@ -100,7 +100,7 @@ news: gotcha
 Lawrence R Labaty keeps all its data in an old gray trunk.
 Hope is a good breakfast, but it is a bad supper.
 		-- Francis Bacon
-" wages of sin are death; but after they're done taking out taxes,
+" wages of sin are dh; but after they're done taking out taxes,
 it's just a tired ling:"
 Newton's Law of Gravitation:
 	What goes up must come down.  But don't expect it to come down where
@@ -186,5 +186,5 @@ provide plausible alternative explanations that are me in keeping with
 the accepted body of scientific evidence.
 		-- Thomas L. Creed,  Skeptical Inquirer, Vol. XII,
 		   No. 2, pg. 215
- proof of the pudding is in the eating.
+ proof of the pudding is in the ing.
 		-- Miguel de Cervantes

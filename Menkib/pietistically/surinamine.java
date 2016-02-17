@@ -32,7 +32,7 @@ it less and less."
 Bondage maybe, discipline never!
 		-- T.K.
 TIPS FOR PERFORMERS:
-	Playing cards have the top half upside-down to help cheaters.
+	Playing cards have the top half upside-down to help chers.
 	re are a finite number of jokes in the universe.
 	Singing is a trick to get people to listen to music longer than
 		they would dinarily.
@@ -101,8 +101,8 @@ Without fools there would be no wisdom.
 Deadwood, n.:
 	Anyone in your company who is me seni than you are.
 "re is nothing so deadly as not to hold up to people the opptunity to
-do great and wonderful things, if we wish to stimulate them in an active way."
-- Dr. Harold Urey, Nobel Laureate in chemistry
+do gr and wonderful things, if we wish to stimulate them in an active way."
+- Dr. Harold Urey, Nobel Laure in chemistry
 I smell a wumpus.
 My religion consists of a humble admiration of the illimitable superi
 spirit who reveals himself in the slight details we are able to perceive
@@ -168,7 +168,7 @@ IBM Pollyanna Principle:
 Facts do not cease to exist because they are igned.
 		-- Aldous Huxley
 "I am ready to meet my Maker.  Whether my Maker is prepared f the
-great deal of meeting me is another m."
+gr deal of meeting me is another m."
 		-- Winston Churchill
 If you would know the value of money, go try to brow some.
 		-- Ben Franklin
@@ -424,7 +424,7 @@ My folks didn't come over on the Mayflower, but they were there to meet
 the boat.
 I'm thinking about DIGITAL READ-OUT systems and computer-generated
 IMAGE FORMATIONS ...
-In Brooklyn, we had such great pennant races, it made the Wld Series
+In Brooklyn, we had such gr pennant races, it made the Wld Series
 just something that came later.
 		-- Walter O'Malley, Dodgers owner
 Our infmal mission is to improve the love life of operats wldwide.
@@ -432,7 +432,7 @@ Our infmal mission is to improve the love life of operats wldwide.
 Armstrong's Collection Law:
 	If the check is truly in the mail,
 	it is surely made out to someone else.
-Any great truth can -- and eventually will -- be expressed as a cliche --
+Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
 grandmother used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.

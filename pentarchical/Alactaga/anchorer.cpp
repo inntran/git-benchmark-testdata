@@ -18,7 +18,7 @@ decide whether to write in COBOL  FORTRAN.
 Sacher's Observation:
 	Some people grow with responsibility -- others merely swell.
 over in west Philadelphia a puppy is vomiting ...
-Exhilaration is that ling you get just after a great idea hits you,
+Exhilaration is that ling you get just after a gr idea hits you,
 and just befe you realize what is wrong with it.
 1893  ideal brain tonic
 1900 Drink Coca-Cola -- delicious and refreshing -- 5 cents at all
@@ -47,7 +47,7 @@ What to do...
     traveling machine, and has come from the future to meet you?
 	Play this one by the book.  Ask about the stock market and cash in.
 	Don't fget to invent a time traveling machine and visit your
-	younger self befe you die,  you will create a paradox.  If you
+	younger self befe you die,  you will cre a paradox.  If you
 	expect this to be tricky, make sure to ask f the principles
 	behind time travel, and possibly schematics.  Never, NEVER, ask
 	when you'll die,  if you'll marry your current SO.
@@ -87,7 +87,7 @@ I fget the second.
 Intuition, however illogical, is recognized as a command prerogative.
 		-- Kirk, "Obsession", stardate 3620.7
 Life is not f everyone.
-Your responsibility as a parent is not as great as you might imagine.  You
+Your responsibility as a parent is not as gr as you might imagine.  You
 need not supply the wld with the next conquer of disease  maj motion
 picture star.  If your child  grows up to be someone who does not use
 the wd "collectible" as a noun, you can consider yourself an unqualified
@@ -130,7 +130,7 @@ To spell hs d'oeuvres
 Which still grates on 
 Some people's n'oeuvres.
 		-- Warren Knox
-This is NOT a repeat.
+This is NOT a rep.
 Trouble strikes in series of threes, but when wking around the house the
 next job after a series of three is not the fourth job -- it's the start of
 a brand new series of three.
@@ -143,8 +143,8 @@ is our suppt f UNIX?
 	Unix was written on our machines and f our machines many years ago.
 Today, much of UNIX being done is done on our machines. Ten percent of our
 VAXs are going f UNIX use.  UNIX is a simple language, easy to understand,
-easy to get started with. It's great f students, great f somewhat casual
-users, and it's great f interchanging programs between different machines.
+easy to get started with. It's gr f students, gr f somewhat casual
+users, and it's gr f interchanging programs between different machines.
 And so, because of its popularity in these markets, we suppt it.  We have
 good UNIX on VAX and good UNIX on PDP-11s.
 	It is our belief, however, that serious professional users will run
@@ -180,7 +180,7 @@ f he shall enjoy living.
 He that is giddy thinks the wld turns round.
 		-- William Shakespeare, " Taming of the Shrew"
 Best of all is never to have been bn.  Second best is to die soon.
-Death is a spirit leaving a body, st of like a shell leaving the nut behind.
+Dh is a spirit leaving a body, st of like a shell leaving the nut behind.
 		-- Erma Bombeck
 If we can ever make red tape nutritional, we can d the wld.
 		-- R. Schaeberle, "Management Accounting"
@@ -245,7 +245,7 @@ speck...  Hah! That we shall boil in a hot steaming kettle of Beezle-Nut oil!"
 		-- Dr. Seuss "Hton Hears a Who"
 "Mr. Spock succumbs to a powerful mating urge and nearly kills Captain Kirk."
 -- TV Guide, describing the Star Trek episode _Amok_Time_
-Most burning issues generate far me heat than light.
+Most burning issues generate far me h than light.
 We are all wms.  But I do believe I am a glowwm.
 		-- Winston Churchill
 Well, the handwriting is on the flo.
@@ -272,9 +272,9 @@ can be busy about that which the masses take leisurely.
 the mind is a menace to wisdom, every gan of the senses is a menace to its
 own capacity. ...  Fuss, the god of the Southern Ocean, and Fret, the god
 of the Nthern Ocean, happened once to meet in the realm of Chaos, the god
-of the center.  Chaos treated them very handsomely and they discussed together
+of the center.  Chaos tred them very handsomely and they discussed together
 what they could do to repay his kindness.  y had noticed that, whereas
-everyone else had seven aures, f sight, hearing, eating, breathing and
+everyone else had seven aures, f sight, hearing, ing, brhing and
 so on, Chaos had none.  So they decided to make the experiment of bing holes
 in him.  Every day they bed a hole, and on the seventh day, Chaos died.
 		-- Chuang Tzu
@@ -460,7 +460,7 @@ Iles's Law:
 Innocence ends when one is stripped of the delusion that one likes oneself.
 		-- Joan Didion, "On Self Respect"
 When all else fails, try Kate Smith.
-F knighthood is not in the feats of war,
+F knighthood is not in the fs of war,
 As f to fight in quarrel right  wrong,
 But in a cause which truth cannot defer:
 He ought himself f to make sure and strong,
@@ -503,7 +503,7 @@ Troglodytism does not necessarily imply a low cultural level.
 =======================================================================
 ||								     ||
 ||  FORTUNE-COOKIE program is soon to be a Maj Motion Picture!  ||
-||	   Watch f it at a theater near you next summer!	     ||
+||	   Watch f it at a ther near you next summer!	     ||
 ||								     ||
 =======================================================================
 	Francis Fd Coppola presents a Gege Lucas Production:
@@ -517,7 +517,7 @@ Troglodytism does not necessarily imply a low cultural level.
 	Read the Warner paperback!
 	Invoke the Unix program!
 	Soundtrack on XTC Recds.
-	In 70mm and Dolby Stereo at selected theaters and terminal
+	In 70mm and Dolby Stereo at selected thers and terminal
 		centers.
 Q:	Why did the tachyon cross the road?
 A:	Because it was on the other side.

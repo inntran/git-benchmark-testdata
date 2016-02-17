@@ -18,7 +18,7 @@ Warp 7 -- It's a law we can live with.
 Would you people stop playing these stupid games?!?!?!!!!
 ...we must counterpose the overwhelming judgment provided by consistent
 observations and inferences by the thousands.  The earth is billions of
-years old and its living creatures are linked by ties of evolutionary
+years old and its living crures are linked by ties of evolutionary
 descent.  Scientists stand accused of promoting dogma by so stating, but
 do we brand people illiberal when they proclaim that the earth is neither
 flat nor at the center of the universe?  Science *has* taught us some
@@ -27,7 +27,7 @@ established as our planet's shape and position.  Our continuing struggle
 to understand how evolution happens (the "theory of evolution") does not
 cast our documentation of its occurrence -- the "fact of evolution" --
 into doubt.
-- Stephen Jay Gould, "The Verdict on Creationism", The Skeptical Inquirer,
+- Stephen Jay Gould, "The Verdict on Crionism", The Skeptical Inquirer,
   Vol XII No. 2
 I have found little that is good about human beings.  In my experience
 most of them are trash.
@@ -61,7 +61,7 @@ A:	The Titanic had a band.
 There is, in fact, no reason to believe that any given natural phenomenon,
 however marvelous it may seem today, will remain forever inexplicable.
 Soon or late the laws governing the production of life itself will be 
-discovered in the laboratory, and man may set up business as a creator
+discovered in the laboratory, and man may set up business as a cror
 on his own account.  The thing, indeed, is not only conceivable; it is
 even highly probable.
 - H. L. Mencken, 1930
@@ -70,7 +70,7 @@ lead down.
 		-- Stanislaw Lem, "The Cyberiad"
 What a bonanza!  An unknown beginner to be directed by Lubitsch, in a script
 by Wilder and Brackett, and to play with Paramount's two superstars, Gary
-Cooper and Claudette Colbert, and to be beaten up by both of them!
+Cooper and Claudette Colbert, and to be ben up by both of them!
 		-- David Niven, "Bring On the Empty Horses"
 A Linux machine! because a 486 is a terrible thing to waste!
 (By jjs@wintermute.ucr.edu, Joe Sloan)
@@ -78,7 +78,7 @@ The most dangerous food is wedding cake.
 		-- American proverb
 PLEASE DON'T SMOKE HERE!
 
-Penalty: An early, lingering death from cancer,
+Penalty: An early, lingering dh from cancer,
 	 emphysema, or other smoking-caused ailment.
 "Everyone is entitled to an *informed* opinion."
 -- Harlan Ellison
@@ -133,7 +133,7 @@ combination is locked up in the safe.
 		-- Peter DeVries
 toilet toup'ee, n.:
 	Any shag carpet that causes the lid to become top-heavy, thus
-	creating endless annoyance to male users.
+	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
 I just know I'm a better manager when I have Joe DiMaggio in center field.
 		-- Casey Stengel
@@ -147,7 +147,7 @@ to center field, let's just let it roll to see if it might go foul."
 		-- Joe Garagiola, "It's Anybody's Ball Game"
 The rich get rich, and the poor get poorer.
 The haves get more, the have-nots die.
-The first requisite for imity is death.
+The first requisite for imity is dh.
 		-- Stanislaw Lem
 Anyone who considers protocol unimportant has never dealt with a cat.
 		-- R. Heinlein 
@@ -159,7 +159,7 @@ Don't interfere with the stranger's style.
 	congeries of small, green bryophytic plant.
 -- The person presenting the ultimate cachinnation possesses thereby the
 	optimal cachinnation.
--- Abstention from any aleatory undertaking precludes a potential
+-- Abstention from any alory undertaking precludes a potential
 	escallation of a lucrative nature.
 -- Missiles of ligneous or osteal consistency have the potential of
 	fracturing osseous structure, but appellations will eternally
@@ -202,7 +202,7 @@ Now crystal clear are the falling waters,
 And bonnie blue are the sunny skies.
 Fresh o'er the mountains breaks forth the morning,
 The ev'ning gilds the oceans's swell:
-All creatures joy in the sun's returning,
+All crures joy in the sun's returning,
 And I rejoice in my bonnie Bell.
 
 The flowery Spring leads sunny Summer,
@@ -214,7 +214,7 @@ Old Time and Nature their changes tell;
 But never ranging, still unchanging,
 I adore my bonnie Bell.
 		-- Robert Burns, "My Bonnie Bell"
-I'll eat ANYTHING that's BRIGHT BLUE!!
+I'll  ANYTHING that's BRIGHT BLUE!!
 Nine megs for the secretaries fair,
 Seven megs for the hackers scarce,
 Five megs for the grads in smoky lairs,
@@ -308,7 +308,7 @@ What soon grows old?  Gratitude.
 		-- Aristotle
 If you will practice being fictional for a while, you will understand that
 fictional characters are sometimes more real than people with bodies and
-heartbeats.
+heartbs.
 Why are you so hard to ignore?
 "You can't get very far in this world without your dossier being there first."
 -- Arthur Miller
@@ -330,13 +330,13 @@ important to him than his table or his white robe.
 movies insist on discussing the probable outcome of the film, you have the
 right to turn around and blow a Bronx cheer at them.
 half-done, n.:
-	This is the best way to eat a kosher dill -- when it's still crunchy,
+	This is the best way to  a kosher dill -- when it's still crunchy,
 	light green, yet full of garlic flavor.  The difference between this
 	and the typical soggy dark green cucumber corpse is like the
-	difference between life and death.
+	difference between life and dh.
 
 	You may find it difficult to find a good half-done kosher dill there
-	in Seattle, so what you should do is take a cab out to the airport,
+	in Stle, so what you should do is take a cab out to the airport,
 	fly to New York, take the JFK Express to Jay Street-Borough Hall,
 	transfer to an uptown F, get off at East Broadway, walk north on
 	Essex (along the park), make your first left onto Hester Street, walk
@@ -394,7 +394,7 @@ say what I wish done," give him a lollipop.
 The ripest fruit falls first.
 		-- William Shakespeare, "Richard II"
 	An older student came to Otis and said, "I have been to see a
-great number of teachers and I have given up a great number of pleasures.
+gr number of teachers and I have given up a gr number of pleasures.
 I have fasted, been celibate and stayed awake nights seeking enlightenment.
 I have given up everything I was asked to give up and I have suffered, but
 I have not been enlightened.  What should I do?"
@@ -438,7 +438,7 @@ All that glitters has a high refractive index.
  give fair play to those who might suffer by ignorance.  It cannot be too ear-
  nestly urged, that an acquaintance with real facts will, in the end, be better
  for all parties."
--- Charles Tomlinson's Rudimentary Treatise on the Construction of Locks, 
+-- Charles Tomlinson's Rudimentary Trise on the Construction of Locks, 
    published around 1850 
 Your mode of life will be changed to EBCDIC.
 An amendment to a motion may be am, but an amendment to an amendment
@@ -451,7 +451,7 @@ Monogamy is the Western custom of one wife and hardly any mistresses.
 Which is worse: ignorance or apathy?  Who knows?  Who cares?
 Most of our lives are about proving something, either to ourselves or to
 someone else.
-There are two jazz musicians who are great buddies.  They hang out and play
+There are two jazz musicians who are gr buddies.  They hang out and play
 together for years, virtually inseparable.  Unfortunately, one of them is
 struck by a truck and killed.  About a week later his friend wakes up in
 the middle of the night with a start because he can feel a presence in the
@@ -461,7 +461,7 @@ room.  He calls out, "Who's there?  Who's there?  What's going on?"
 you?"
 	"Well," says the voice, "I'm in heaven now."
 	"Heaven!  You're in heaven!  That's wonderful!  What's it like?"
-	"It's great, man.  I gotta tell you, I'm jamming up here every day.
+	"It's gr, man.  I gotta tell you, I'm jamming up here every day.
 I'm playing with Bird, and 'Trane, and Count Basie drops in all the time!
 Man it is smokin'!"
 	"Oh, wow!" says his friend. "That sounds fantastic, tell me more,
@@ -477,14 +477,14 @@ To see a need and wait to be asked, is to already refuse.
 TOO BAD YOU CAN'T BUY a voodoo globe so that you could make the earth spin
 real fast and freak everybody out.
 		-- Jack Handley, The New Mexican, 1988.
-Do not worry about which side your bread is buttered on: you eat BOTH sides.
+Do not worry about which side your bread is buttered on: you  BOTH sides.
 OMNIVERSAL AWARENESS??  Oh, YEH!!  First you need four GALLONS of JELL-O
 and a BIG WRENCH!! ... I think you drop th'WRENCH in the JELL-O as if
 it was a FLAVOR, or an INGREDIENT ... ... or ... I ... um ... WHERE'S
 the WASHING MACHINES?
 Any philosophy that can be put "in a nutshell" belongs there.
 		-- Sydney J. Harris
-One evening Mr. Rudolph Block, of New York, found himself seated at dinner
+One evening Mr. Rudolph Block, of New York, found himself sed at dinner
 alongside Mr. Percival Pollard, the distinguished critic.
    "Mr. Pollard," said he, "my book, _The Biography of a Dead Cow_, is
  published anonymously, but you can hardly be ignorant of its authorship.
@@ -496,7 +496,7 @@ occur to me that you really might not wish the public to know who wrote it."
 Is this really happening?
 I love ROCK 'N ROLL!  I memorized the all WORDS to "WIPE-OUT" in
 1965!!
-Death to all fanatics!
+Dh to all fanatics!
 If you look like your driver's license photo -- see a doctor.
 If you look like your passport photo -- it's too late for a doctor.
 TAILFINS!! ... click ...
@@ -506,24 +506,24 @@ You complain about everyone's English but yours --
 	Do you really think this is quite fair?"
 
 "I make lots of mistakes," Father William declared,
-	"But my stature these days is so great
+	"But my stature these days is so gr
 That no critic can hurt me -- I've got them all scared,
 	And to stop me it's now far too late."
 There is no fool to the old fool.
 		-- John Heywood
 Real wealth can only increase.
 		-- R. Buckminster Fuller
-"You show me an American who can keep his mouth shut and I'll eat him."
+"You show me an American who can keep his mouth shut and I'll  him."
 -- Newspaperman from Frank Capra's _Meet_John_Doe_
 Real computer scientists don't comment their code.  The identifiers are
 so long they can't afford the disk space.
 The early bird who catches the worm works for someone who comes in late
 and owns the worm farm.
 		-- Travis McGee
-Death rays don't kill people, people kill people!!
+Dh rays don't kill people, people kill people!!
 Real software engineers don't like the idea of some inexplicable and
 greasy hardware several aisles away that may stop working at any
-moment.  They have a great distrust of hardware people, and wish that
+moment.  They have a gr distrust of hardware people, and wish that
 systems could be virtual at *___all* levels.  They would like personal
 computers (you know no one's going to trip over something and kill your
 DFA in mid-transit), except that they need 8 megabytes to run their
@@ -556,7 +556,7 @@ and, though they went through the house virtually bit by bit, their
 search was fruitless.  They had to return empty handed.  Word of the
 incident propagated rapidly through the region.  This historic event
 became the first documented use of core storage for the g of registers.
-Many people resent being treated like the person they really are.
+Many people resent being tred like the person they really are.
 Ducks?  What ducks??
 May those that love us love us; and those that don't love us, may
 God turn their hearts; and if he doesn't turn their hearts, may
@@ -619,7 +619,7 @@ Patience is a minor form of despair, disguised as virtue.
 You can't judge a book by the way it wears its hair.
 If you had better tools, you could more effectively demonstrate your
 total incompetence.
-A mighty creature is the germ,
+A mighty crure is the germ,
 Though smaller than the pachyderm.
 His customary dwelling place
 Is deep within the human race.
@@ -640,7 +640,7 @@ thing a principle does -- if it really is a principle -- is to kill somebody.
 Never do today what you can put off until tomorrow.
 What awful irony is this?
 We are as gods, but know it not.
-Fortune Documents the Great Legal Decisions:
+Fortune Documents the Gr Legal Decisions:
 
 It is a rule of evidence deduced from the experience of mankind and
 supported by reason and authority that positive testimony is entitled to
@@ -699,13 +699,13 @@ Then we have them for a meal (...)
 Toss them here and catch them there (...)
 See them flying through the air (...)
 Watch them fly and hear them squeal (...)
-Falling mice have great appeal (...)
+Falling mice have gr appeal (...)
 
 See the hunter stretched before us (...)
 He's chased the mice in field and forest (...)
 Watch him clean his long white whiskers (...)
 Of the blood of little critters (...)
-After Goliath's defeat, giants ceased to command respect.
+After Goliath's def, giants ceased to command respect.
 - Freeman Dyson
 WYSIWYG:
 	What You See Is What You Get.
@@ -717,7 +717,7 @@ ought to go from here?"
 	"That depends a good deal on where you want to get to," said the Cat.
 	"I don't care much where--" said Alice.
 	"Then it doesn't matter which way you go," said the Cat.
-The Great Movie Posters:
+The Gr Movie Posters:
 
 The nightmare terror of the slithering eye that unleashed agonizing
 horror on a screaming world!
@@ -732,7 +732,7 @@ What Should a Movie Do?  Hide Its Head in the Sand Like an Ostrich?
 Or Face the JOLTING TRUTH as does...
 		-- The Desperate Women (1958)
 Humpty Dumpty sat on the wall,
-Humpty Dumpty had a great fall!
+Humpty Dumpty had a gr fall!
 All the king's horses,
 And all the king's men,
 Had scrambled eggs for breakfast again!
@@ -796,7 +796,7 @@ buy things they don't need to impress people they dislike.
 		-- Emile Henry Gauvreay
 ...this is an awesome sight.  The entire rebel resistance buried under six
 million hardbound copies of "The Naked Lunch."
-- The Firesign Theater
+- The Firesign Ther
 When we jumped into Sicily, the units became separated, and I couldn't find
 anyone.  Eventually I stumbled across two colonels, a major, three captains,
 two lieutenants, and one rifleman, and we secured the bridge.  Never in the
@@ -819,7 +819,7 @@ There comes a time to stop being angry.
 The Fifth Rule:
 	You have taken yourself too seriously.
 The older I grow, the less important the comma becomes.  Let the reader
-catch his own breath.
+catch his own brh.
 		-- Elizabeth Clarkson Zwart
 The future not being born, my friend, we will abstain from baptizing it.
 		-- George Meredith
@@ -834,7 +834,7 @@ System restarting, wait...
 QUESTION AUTHORITY.
 
 (Sez who?)
-To be trusted is a greater compliment than to be loved.
+To be trusted is a grer compliment than to be loved.
 Computer Science is merely the post-Turing decline in formal systems theory.
 Imitation is the sincerest form of plagarism.
 "Gotcha, you snot-necked weenies!"
@@ -853,7 +853,7 @@ See how it runs!  See how it runs!
 	It's made by our favorite monopoly!
 System/3!
 I have sacrificed time, health, and fortune, in the desire to complete these
-Calculating Engines.  I have also declined several offers of great personal
+Calculating Engines.  I have also declined several offers of gr personal
 advantage to myself.  But, notwithstanding the sacrifice of these advantages
 for the purpose of maturing an engine of almost intellectual power, and after
 expending from my own private fortune a larger sum than the government of

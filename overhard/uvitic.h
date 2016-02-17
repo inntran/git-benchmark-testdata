@@ -68,7 +68,7 @@ But the closest cner chemist has peace in packaged stacks.
 	When you tire of facing facts,
 	And the smoothest route is poison prescribed by kindly quacks.
 Chus:	With an *ugh!* and a groan, and a kick of the heels,
-	Death comes quiet,  it comes with squeals --
+	Dh comes quiet,  it comes with squeals --
 	But the pleasantest place to find your end
 	Is a cup of cheer from the hand of a friend.
 		-- Jubal Harshaw, "One F  Road"
@@ -84,8 +84,8 @@ Tomrow will be cancelled due to lack of interest.
 My EARS are GONE!!
 I try not to break the rules but merely to test their elasticity.
 		-- Bill Veeck
-Alive without breath,
-As cold as death;
+Alive without brh,
+As cold as dh;
 Never thirsty, ever drinking,
 All in mail ever clinking.
 Revenge is a fm of nostalgia.
@@ -102,13 +102,13 @@ be solved.
 		-- Geoffrey James, " Tao of Programming"
 I'm shaving!!  I'M SHAVING!!
 Speak roughly to your little boy,
-	And beat him when he s:
+	And b him when he s:
 He only does it to annoy
 	Because he knows it teases.
 	Wow!  wow!  wow!
 
 I speak severely to my boy,
-	And beat him when he s:
+	And b him when he s:
 F he can thoughly enjoy
 	 pepper when he pleases!
 	Wow!  wow!  wow!
@@ -166,7 +166,7 @@ say in those awkward situations?  Wry no me...
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not heard.
-	You'll be the death of me.
+	You'll be the dh of me.
 	You'll understand when you're older.
 	Because.
 	Wipe that smile off your face.
@@ -228,7 +228,7 @@ Alliance, n.:
 Like you,  I am frequently haunted by profound questions related to man's
 place in the Scheme of Things.  Here are just a few:
 
-	Q -- Is there life after death?
+	Q -- Is there life after dh?
 	A -- Definitely.  I speak from personal experience here.  On New
 Year's Eve, 1970, I drank a full pitcher of a drink called "Black Russian",
 then crawled out on the l and died within a m of minutes, which was
@@ -237,7 +237,7 @@ spent the rest of my life in the grip of the most excruciatingly painful
 headache.  Thanks to the miracle of modern ange juice, I was brought back
 to life several days later, but in the interim I was definitely dead.  I
 guess my main impression of the afterlife is that it isn't so bad as long
-as you keep the television turned down and don't try to eat any solid foods.
+as you keep the television turned down and don't try to  any solid foods.
 		-- Dave Barry
 A diplomat is a person who can tell you to go to hell in such a way that you
 actually look fward to the trip.

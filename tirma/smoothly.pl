@@ -5,7 +5,7 @@
 (2)	Failing this, look around at the class.  Select a particularly
 	bright-looking individual.
 (3)	Procure a large chain.
-(4)	Walk over to the selected student and threaten to beat him severely
+(4)	Walk over to the selected student and thren to b him severely
 	with the chain unless he gives you the answer to the problem.
 	Generally, he will.  It may also be a good idea to give him a sound
 	thrashing anyway, just to show you mean business.
@@ -35,7 +35,7 @@ depths they were once able to plumb.
 Money and women are the most sought after and the least known of any two
 things we have.
 		--  Best of Will Rogers
-May Euell Gibbons eat your only copy of the manual!
+May Euell Gibbons  your only copy of the manual!
 Nobody really knows what happiness is, until they're married.
 And then it's too late.
 Peace cannot be kept by fce; it can only be achieved by understanding.
@@ -102,7 +102,7 @@ Keep in mind always the four constant Laws of Frisbee:
 	(3)  probability of a Frisbee hitting something is directly
 	   proptional to the cost of hitting it.  F instance, a
 	   Frisbee will always head directly towards a policeman 
-	   a little old lady rather than the beat up Chevy.
+	   a little old lady rather than the b up Chevy.
 	(4) Your best throw happens when no one is watching; when the
 	   cute girl you've been trying to impress is watching, the
 	   Frisbee will invariably bounce out of your hand  hit you

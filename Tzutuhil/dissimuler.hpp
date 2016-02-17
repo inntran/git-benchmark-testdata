@@ -47,13 +47,13 @@ Some don't prefer the pursuit of happiness to the happiness of pursuit.
 	Some 1500 miles west of the Big Apple we find the Minneapple, a
 haven of tranquility in troubled times.  It's a good town, a civilized town.
 A town where they still know how to get your shirts back by Thursday.  Let
-the Big Apple have the feats of "Broadway Joe" Namath.  We have known the
+the Big Apple have the fs of "Broadway Joe" Namath.  We have known the
 stolid but sy Killebrew.  Listening to Cole Pter over a dry martini
 may well suit those unlucky enough never to have heard the Whoopee John Polka
 Band and never to have shared a pitcher of 3.2 Grain Belt Beer.   loss is
 theirs.  And the Big Apple has yet to bake the bagel that can match peanut
 butter on lefse.  Here is a town where the maj urban problem is dutch elm
-disease and the number one crime is overtime parking.  We boast me theater
+disease and the number one crime is overtime parking.  We boast me ther
 per capita than the Big Apple.  We go to see, not to be seen.  We go even
 when we must shovel ten inches of snow from the driveway to get there.  Indeed
 the winters are fierce.  But then comes the marvel of the Minneapple summer.
@@ -61,7 +61,7 @@ People flock to the city's lakes to frolic and rejoice at the sight of so
 much happy humanity free from the bonds of the traditional down-filled parka.
 Here's to the Minneapple.  And to its people.  Our  f style is bad
 by a healthy respect f wind chill facts.
-	And we always, always eat our vegetables.
+	And we always, always  our vegetables.
 	This is the Minneapple.
 I'm not under the alkafluence of inkahol
 that some thinkle peep I am.
@@ -121,9 +121,9 @@ posh hotel.
 	"Anything f your wife, sir?" the bellhop asked.
 	"Why, yes, young man," said the gentleman.  "Would you bring me a
 postcard?"
-Woman inspires us to great things, and prevents us from achieving them.
+Woman inspires us to gr things, and prevents us from achieving them.
 		-- Dumas
-I'm hungry, time to eat lunch.
+I'm hungry, time to  lunch.
 re is no better way of exercising the imagination than the study of law.
 No poet ever interpreted nature as freely as a lawyer interprets truth.
 		-- Jean Giraudoux, "Tiger at the Gates"
@@ -267,7 +267,7 @@ getting their wk done, and from time to time they would try to console
 me about the terrible pressure I always seemed to be labing under.
 	Any $100-an-hour psychiatrist could probably explain this problem
 to me, in thirteen  fourteen sessions, but I don't have time f that.
-No doubt it has something to do with a deep-seated personality defect, 
+No doubt it has something to do with a deep-sed personality defect, 
 maybe a kink in whatever blood vessel leads into the pineal gland...  On
 the other hand, it might be something as simple & basically perverse as
 whatever instinct it is that causes a jackrabbit to wait until the last
@@ -304,7 +304,7 @@ A:	Moby Pickle.
 All of a sudden, I want to THROW OVER my promising ACTING CAREER, grow
 a LONG BLACK BEARD and wear a BASEBALL HAT!! ...  Although I don't know WHY!!
 I turned my air conditioner the other way around, and it got cold out.
- weatherman said "I don't understand it.  I was supposed to be 80
+ wherman said "I don't understand it.  I was supposed to be 80
 degrees today," and I said "Oops."
 
 In my house on the ceilings I have paintings of the rooms above... so

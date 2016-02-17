@@ -1,12 +1,12 @@
 "re was a vague, unpleasant manginess about his appearence; he somehow
 seemed dirty, though a close g showed him as carefully shaven as an
-act, and clad in immaculate linen."
--- H.L. Mencken, on the death of William Jennings Bryan
+act, and clad in  linen."
+-- H.L. Mencken, on the dh of William Jennings Bryan
 Repel them.  Repel them.  Induce them to relinquish the spheroid.
 - Indiana University fans' chant f their perennially bad football team
-Ftune finishes the great quotations, #3
+Ftune finishes the gr quotations, #3
 
-	Birds of a feather flock to a newly washed car.
+	Birds of a fher flock to a newly washed car.
 Etiquette is f those with no breeding; fashion f those with no taste.
 Just how difficult it is to write biography can be reckoned by anybody
 who sits down and considers just how many people know the real truth
@@ -94,7 +94,7 @@ Hse sense is the thing a hse has which keeps it from betting on people.
 		-- W. C. Fields
 So from the depths of its enchantment, Terra was able to calculate a course
 of action.  Here at last was an opptunity to const with Dirbanu on a
-friendly basis -- great Durbanu which, since it had fce fields which Earth
+friendly basis -- gr Durbanu which, since it had fce fields which Earth
 could not duplicate, must of necessity have many other things Earth could
 use; mighty Durbanu befe whom we would kneel in supplication (with purely-
 f-defense bombs hidden in our pockets) with lowered heads (making invisible
@@ -140,11 +140,11 @@ You are not a fool just because you have done something foolish --
 only if the folly of it escapes you.
 My brain is my second favite gan.
 		-- Woody Allen
-Vegetables are what food eats.
+Vegetables are what food s.
 Fruit are vegetables that fool you by tasting good.
 Fish are fast moving vegetables.
 Mushrooms are what grows on vegetables when food's done with them.
-		-- Meat Eater's Credo, accding to Jim Williams
+		-- M Eater's Credo, accding to Jim Williams
 How can you wk when the system's so crowded?
 If at first you don't succeed, you are running about average.
 Passwds are implemented as a result of insecurity.
@@ -205,7 +205,7 @@ Are we running light with overbyte?
 Moe's Constant:
 	Everybody sets out to do something, and everybody
 	does something, but no one does what he sets out to do.
-I went over to my friend, he was eatin' a .
+I went over to my friend, he was in' a .
 I said "Hi, what's happenin'?"
 He said "Nothin'."
 Try to sing this song with that kind of enthusiasm;
@@ -262,10 +262,10 @@ tried taking candy from a baby.
  best thing about growing older is that it takes such a long time.
 Computer programmers do it byte by byte.
 F u cn rd ths u cnt spl wrth a dm!
-" greatest dangers to liberty lurk in insidious encroachment by mean of zeal,
+" grest dangers to liberty lurk in insidious encroachment by mean of zeal,
 well-meaning but without understanding."
 -- Justice Louis O. Brandeis (Olms vs. United States)
-When you don't know what you are doing, do it neatly.
+When you don't know what you are doing, do it nly.
 Nothing makes a person me productive than the last minute.
 It is possible by ingenuity and at the expense of clarity... {to do almost
 anything in any language}.  However, the fact that it is possible to push
@@ -279,7 +279,7 @@ Nonsense and beauty have close connections.
 		-- E.M. Fster
 By nature, men are nearly alike; by practice, they get to be wide apart.
 		-- Confucius
-If a thing's wth having, it's wth cheating f.
+If a thing's wth having, it's wth ching f.
 		-- W.C. Fields
 Your Co-wker Could Be a Space Alien, Say Exs
 		...Here's How You Can Tell
@@ -336,7 +336,7 @@ You've been leading a dog's life.  Stay off the furniture.
 > > should use Linux over BSD?
 >
 > No.  That's it.   cool , that is.  We wked very hard on
-> creating a  that would appeal to the majity of people, and it
+> cring a  that would appeal to the majity of people, and it
 > certainly paid off: thousands of people are using linux just to be able
 > to say "OS/2? Hah.  I've got Linux.  What a cool ".  386BSD made the
 > mistake of putting a lot of numbers and weird abbreviations into the
@@ -383,10 +383,10 @@ Every time I lose weight, it finds me again!
 You shall be rewarded f a dastardly deed.
 Men who  f women the highest respect are seldom popular with them.
 		-- Joseph Addison
-Having wandered helplessly into a blinding snowstm Sam was greatly
+Having wandered helplessly into a blinding snowstm Sam was grly
 relieved to see a sturdy Saint Bernard dog bounding toward him with
 the traditional keg of brandy strapped to his collar.
-	"At last," cried Sam, "man's best friend -- and a great big dog, too!"
+	"At last," cried Sam, "man's best friend -- and a gr big dog, too!"
 You have an unusual  personality.  Don't walk too close to
 metal objects which are not fastened down.
 How many surrealists does it take to screw in a lightbulb?
@@ -457,7 +457,7 @@ to do whatever was necessary f success.  You agreed to fsake, if
 necessary, family, hobbies, and friends -- if you had any of these left
 (and you might not, if you had signed up too many times befe).
 		-- Tracy Kidder, " Soul of a New Machine"
-"Dump the condiments.  If we are to be eaten, we don't need to taste good."
+"Dump the condiments.  If we are to be en, we don't need to taste good."
 -- "Visionaries" oon
 Life Sucks.  Cynical, misanthropic male, 34, looking f soul mate but
 certain not to find her.  Drop me a note.  I'll call you, we'll talk and

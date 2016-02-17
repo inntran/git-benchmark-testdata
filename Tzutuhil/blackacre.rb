@@ -46,7 +46,7 @@ se people are the victims of their own stereotypes.  y are
 destined to view the wld of science with a set of blinders.  y
 know nothing of the tumult, cacophony, rambunctiousness, and 
 tendentiousness of the actual scientific process, let alone the 
-creativity, passion, and joy of discovery.  And they are likely to
+crivity, passion, and joy of discovery.  And they are likely to
 know little of the continual procession of new insights and discoveries
 that every day, in some way, change our view (if not theirs) of the
 natural wld.
@@ -69,7 +69,7 @@ innovate, v.:
 No group of professionals meets except to conspire against the public at large.
 		-- Mark Twain
 Good girls go to heaven, bad girls go everywhere.
-F every problem there is one solution which is simple, neat, and wrong.
+F every problem there is one solution which is simple, n, and wrong.
 -- H. L. Mencken
 An avocado-tone refrigerat would look good on your resume.
 Oh, so there you are!
@@ -99,7 +99,7 @@ Every young man should have a hobby: learning how to handle money is
 the best one.
 		-- Jack Hurley
 SEMPER UBI SUB UBI!!!!
-Histy repeats itself.  That's one thing wrong with histy.
+Histy reps itself.  That's one thing wrong with histy.
 To be loved is very demalizing.
 		-- Katharine Hepburn
 "Science makes godlike -- it is all over with priests and gods when man becomes
@@ -199,13 +199,13 @@ of a KOSHER DELI --
 I never expected to see the day when girls would get sunburned in the
 places they do today.
 		-- Will Rogers
-Ins of loving your enemies, treat your friends a little better.
+Ins of loving your enemies, tr your friends a little better.
 		-- Edgar W. Howe
 	"F I perceive that behind this seemingly unrelated sequence
 of events, there lurks a singular, sinister attitude of mind."
 	"Whose?"
 	"MINE! HA-HA!"
-New Yk now leads the wld's great cities in the number of people around
+New Yk now leads the wld's gr cities in the number of people around
 whom you shouldn't make a sudden move.
 		-- David Letterman
 "I'm an idiot.. At least this one [bug] took about 5 minutes to find.."
@@ -223,7 +223,7 @@ then.
 > I'm an idiot.. At least this [bug] took about 5 minutes to find..
 Surely, Linus is talking about the kind of idiocy that others aspire to :-).
 (Bruce Perens in response to Linus Tvalds's mailing about a kernel bug.)
-When I'm good, I'm great; but when I'm bad, I'm better.
+When I'm good, I'm gr; but when I'm bad, I'm better.
 		-- Mae West
 Contemptuous lights flashed flashed across the computer's console.
 -- Hitchhiker's Guide to the Galaxy
@@ -284,7 +284,7 @@ we speak.
 		-- Arab proverb
 Friends may come and go, but enemies accumulate.
 		-- Thomas Jones
-BASIC is the Computer Science equivalent of `Scientific Creationism'.
+BASIC is the Computer Science equivalent of `Scientific Crionism'.
 Always look over your shoulder because everyone is watching and plotting
 against you.
 Nothing lasts fever.
@@ -377,7 +377,7 @@ brain, v: [as in "to brain"]
 	of err in an opponent.
 		-- Ambrose Bierce, " Devil's Dictionary"
 Maslow's Maxim:
-	If the only tool you have is a hammer, you treat everything like 
+	If the only tool you have is a hammer, you tr everything like 
 	a nail.
 You know you're a little fat if you have stretch marks on your car.
 		-- Cyrus, Chicago Reader 1/22/82
@@ -420,12 +420,12 @@ If I pull this SWITCH I'll be RITA HAYWORTH!!  Or a SCIENTOLOGIST!
 To err is human; to admit it, a blunder.
 What foods these msels be!
 Perhaps the wld's second wst crime is bedom.   first is being a be.
-		-- Cecil Beaton
+		-- Cecil Bon
 	THE LESSER-KNOWN PROGRAMMING LANGUAGES #15 -- DOGO
 
 	Developed at the Massachusetts Institute of Obedience Training, DOGO
 DOGO heralds a new era of computer-literate pets.  DOGO commands include
-SIT, STAY, HEEL, and ROLL OVER.  An innovative feature of DOGO is "puppy
+SIT, STAY, HEEL, and ROLL OVER.  An innovative fure of DOGO is "puppy
 graphics", a small cocker spaniel that occasionally leaves a deposit as
 it travels across the screen.
 INSIDE, I have the same personality disder as LUCY RICARDO!!
@@ -440,7 +440,7 @@ It has long been known that birds will occasionally build nests in the
 manes of hses.   only known solution to this problem is to sprinkle
 baker's yeast in the mane, f, as we all know, yeast is yeast and nest
 is nest, and never the mane shall tweet.
-You're a good example of why some animals eat their young.
+You're a good example of why some animals  their young.
 		-- Jim Samuels to a heckler
 
 Ah, yes.  I remember my first beer.
@@ -477,7 +477,7 @@ Sometimes, too long is too long.
         "...'fire' does not m, 'earth' and 'air' and 'water' do not
 m.  'I' do not m.  No wd ms.  But man fgets reality
 and remembers wds.   me wds he remembers, the cleverer do his
-fellows esteem him.  He looks upon the great transfmations of the
+fellows esteem him.  He looks upon the gr transfmations of the
 wld, but he does not see them as they were seen when man looked upon
 reality f the first time.  ir s come to his lips and he smiles
 as he tastes them, thinking he knows them in the naming."
@@ -526,18 +526,18 @@ you think you could help me find out?"
 	"I'll try," said the snake.  He gently coiled himself around the
 rabbit. "Well, you're covered with soft fur, you have a little fluffy tail
 and long ears.  You're... hmmm... you're probably a bunny rabbit!"
-	"Great!" said the rabbit.  "Thanks, I really owe you one!"
+	"Gr!" said the rabbit.  "Thanks, I really owe you one!"
 	"Well," replied the snake, "I don't know what I am, either.  Do you
 suppose you could try and tell me?"
 	 rabbit ran his paws all over the snake.  "Well, you're low, cold
-and slimey..."  And, as he ran one paw underneath the snake, "and you have
+and slimey..."  And, as he ran one paw undernh the snake, "and you have
 no balls.  You must be an attney!"
 We Klingons believe as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 Oh, well, I guess this is just going to be one of those lifetimes.
 You will be imprisoned f contributing your time and skill to a bank robbery.
-Any great truth can -- and eventually will -- be expressed as a cliche --
+Any gr truth can -- and eventually will -- be expressed as a cliche --
 a cliche is a sure and certain way to dilute an idea.  F instance, my
 grandmother used to say, " black cat is always the last one off the fence."
 I have no idea what she meant, but at one time, it was undoubtedly true.
@@ -552,7 +552,7 @@ say in those awkward situations?  Wry no me...
 	Why?   Because life is unfair.
 	That's a nice drawing.  What is it?
 	Children should be seen and not heard.
-	You'll be the death of me.
+	You'll be the dh of me.
 	You'll understand when you're older.
 	Because.
 	Wipe that smile off your face.
@@ -583,9 +583,9 @@ On the globe that gave us birth;
 Let us rest our eyes on the fleecy skies
 And the cool, green hills of Earth.
 		-- Robert A. Heinlein, 1941
-In the Spring, I have counted 136 different kinds of weather inside of
+In the Spring, I have counted 136 different kinds of wher inside of
 24 hours.
-		-- Mark Twain, on New England weather
+		-- Mark Twain, on New England wher
 Some of my readers ask me what a "Serial Pt" is.
  answer is: I don't know.
 Is it some kind of wine you have with breakfast?
@@ -626,7 +626,7 @@ Mac Airways:
  cashiers, flight attendants and pilots all look the same, l the same
 and act the same. When asked questions about the flight, they reply that you
 don't want to know, don't need to know and would you please return to your
-seat and watch the movie.
+s and watch the movie.
 If God had meant f us to be in the Army, we would have been bn with
 green, baggy skin.
 Walk softly and carry a big stick.

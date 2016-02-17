@@ -2,7 +2,7 @@ When you're dining out and you suspect something's wrong, you're probably right.
 Research is what I'm doing when I don't know what I'm doing.
 		-- Wernher von Braun
 Till then we shall be content to admit openly, what you (religionists)
-whisper under your breath  hide in technical jargon, that the ancient
+whisper under your brh  hide in technical jargon, that the ancient
 secret is a secret still; that man knows nothing of the Infinite and
 Absolute; and that, knowing nothing, he had better not be dogmatic about
 his ignance.  And, meanwhile, we will endeavour to be as charitable as
@@ -17,7 +17,7 @@ Ftune's graffito of the week ( maybe even month):
 
 		Don't Write On Walls!
 
-		   (and underneath)
+		   (and undernh)
 
 		You want I should type?
 Everywhere I look I see NEGATIVITY and ASPHALT ...
@@ -33,7 +33,7 @@ dessert she wants.   dessert she wants is contained within yours.
 re's a way out of any cage.
 		-- Captain Christopher Pike, " Menagerie" (" Cage"),
 		   stardate unknown.
- human mind treats a new idea the way the body treats a strange
+ human mind trs a new idea the way the body trs a strange
 protein -- it rejects it.
 		-- P. Medawar
 Reply hazy, ask again later.
@@ -54,7 +54,7 @@ To find a friend one must close one eye; to keep him -- two.
 		-- Nman Douglas
  Wst Car Hire Service
 	When David Schwartz left university in 1972, he set up Rent-a-wreck
-as a joke.  Being a natural prankster, he acquired a fleet of beat-up
+as a joke.  Being a natural prankster, he acquired a fleet of b-up
 shabby, wreckages waiting f the scrap heap in Califnia.
 	He put on a cap and looked fward to watching people's faces as he
 con them round the choice of bumperless, dented junkmobiles.

@@ -42,7 +42,7 @@ to a cockatoo.
 		-- Gege Bernard Shaw
 Kirkland, Illinois, law fbids bees to fly over the village  through
 any of its streets.
-Greatness is a transity experience. It is never consistent.
+Grness is a transity experience. It is never consistent.
 Laws of Serendipity:
 	(1) In der to discover anything, you must be looking f something.
 	(2) If you wish to make an improved product, you must already
@@ -51,7 +51,7 @@ Unix soit qui mal y pense
 	[Unix to him who evil thinks?]
 toilet toup'ee, n.:
 	Any shag carpet that causes the lid to become top-heavy, thus
-	creating endless annoyance to male users.
+	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
 Your friends will know you better in the first minute you meet than your
 acquaintances will know you in a thousand years.

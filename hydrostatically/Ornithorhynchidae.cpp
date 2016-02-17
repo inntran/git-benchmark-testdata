@@ -8,7 +8,7 @@ re can be no daily democracy without daily citizenship.
 First study the enemy.  Seek weakness.
 		-- Romulan Commander, "Ba of Terr", stardate 1709.2
 Winter is the season in which people try to keep the house as warm as
-it was in the summer, when they complained about the heat.
+it was in the summer, when they complained about the h.
  default Magic Wd, "Abracadabra", actually is a cruption of the
 Hebrew phrase "ha-Bracha dab'ra" which means "pronounce the blessing".
 Democracy is good.  I say this because other systems are wse.
@@ -56,14 +56,14 @@ a panacea so alleged.
 		been lacking in courage and boldness in facing up to
 		the recession?"
 Whip it, whip it good!
-Boycott meat -- suck your thumb.
+Boycott m -- suck your thumb.
 Don't plan any hasty moves.  You'll be evicted soon anyway.
 Those who don't know, talk.  Those who don't talk, know.
 	"That's right; the upper-case shift wks fine on the screen, but
 they're not coming out on the damn printer...  Hold?  Sure, I'll hold."
 		-- e.e. cummings last service call
 Thank you f observing all safety precautions.
-Ftune finishes the great quotations, #12
+Ftune finishes the gr quotations, #12
 
 	Those who can, do.  Those who can't, write the instructions.
 Humanity has the stars in its future, and that future is too imptant to be
@@ -74,7 +74,7 @@ Ninety percent of the time things turn out wse than you thought they would.
 		-- Augustine
 Do you think the "Monkees" should get gas on odd  even days?
 	"I think they're going to take all this money that we spend now on war
-and death --"
+and dh --"
 	"And make them spend it on life."
 		-- Edith Keeler and Kirk, " City on the Edge of Fever",
 		   stardate unknown.
@@ -142,10 +142,10 @@ Please stand f the National Anthem:
 	O Canada we stand on guard f thee
 	O Canada we stand on guard f thee
 
-Thank you.  You may resume your seat.
+Thank you.  You may resume your s.
 When a cow laughs, does milk come out of its nose?
 And the crowd was stilled.  One elderly man, wondering at the sudden silence,
-turned to the Child and asked him to repeat what he had said.  Wide-eyed,
+turned to the Child and asked him to rep what he had said.  Wide-eyed,
 the Child raised his voice and said once again, "Why, the Emper has no
 clothes!  He is naked!"
 - " Emper's New Clothes"
@@ -165,7 +165,7 @@ If only I could be respected without having to be respectable.
 If you analyse anything, you destroy it.
 		--  Miller
 Bacon's not the only thing that's cured by hanging from a string.
-Your responsibility as a parent is not as great as you might imagine.  You
+Your responsibility as a parent is not as gr as you might imagine.  You
 need not supply the wld with the next conquer of disease  maj motion
 picture star.  If your child  grows up to be someone who does not use
 the wd "collectible" as a noun, you can consider yourself an unqualified
@@ -179,7 +179,7 @@ not kiss each other without first wiping their lips with carbolized rosewater.
 QOTD:
 	"I may not be able to walk, but I drive from the sitting posistion."
 APL is a mistake, carried through to perfection.  It is the language of the
-future f the programming techniques of the past: it creates a new generation
+future f the programming techniques of the past: it cres a new generation
 of coding bums.
 		-- Edsger W. Dijkstra, SIGPLAN Notices, Volume 17, Number 5
 Wait ... is this a FUN THING  the END of LIFE in Petticoat Junction??
@@ -190,14 +190,14 @@ I can hire one half of the wking class to kill the other half.
 		-- Jay Gould
  do is the key.
 " argument that the literal sty of Genesis can qualify as science
-colses on three maj grounds: the creationists' need to invoke
+colses on three maj grounds: the crionists' need to invoke
 miracles in der to compress the events of the earth's histy into
 the biblical span of a few thousand years; their unwillingness to 
 abandon claims clearly disproved, including the assertion that all
 fossils are products of Noah's flood; and their reliance upon disttion,
 misquote, half-quote, and citation out of context to characterize the
 ideas of their opponents."
--- Stephen Jay Gould, " Verdict on Creationism", 
+-- Stephen Jay Gould, " Verdict on Crionism", 
     Skeptical Inquirer, Winter 87/88, pg. 186
 Friends, Romans, Hipsters,
 Let me clue you in;
@@ -220,7 +220,7 @@ In war, truth is the first casualty.
 Living in the complex wld of the future is somewhat like having bees
 live in your head.  But, there they are.
  longer the title, the less imptant the job.
-"Well, you see, it's such a transitional creature.  It's a piss-po
+"Well, you see, it's such a transitional crure.  It's a piss-po
 reptile and not very much of a bird."
 - Melvin Konner, from " Tangled Wing", quoting a zoologist who has
 studied the archeopteryz and found it "very much like people"
@@ -257,7 +257,7 @@ they wouldn't be nobody git up and d the chickens.  Hee-hee.
  give fair play to those who might suffer by ignance.  It cannot be too ear-
  nestly urged, that an acquaintance with real facts will, in the end, be better
  f all parties."
--- Charles Tomlinson's Rudimentary Treatise on the Construction of Locks, 
+-- Charles Tomlinson's Rudimentary Trise on the Construction of Locks, 
    published around 1850 
 A lot of people are afraid of heights.  Not me.  I'm afraid of widths.
 		-- Steven Wright
@@ -300,11 +300,11 @@ Sometimes, too long is too long.
 I hate small towns because once you've seen the cannon in the park
 there's nothing else to do.
 		-- Lenny Bruce
-My own business always bes me to death; I prefer other people's.
+My own business always bes me to dh; I prefer other people's.
 		-- Oscar Wilde
 Please, Mother!  I'd rather do it myself!
 Examinations are fmidable even to the best prepared, f
-even the greatest fool may ask me the the wisest man can answer.
+even the grest fool may ask me the the wisest man can answer.
 		-- C.C. Colton
 Unix gives you just enough rope to hang yourself -- and then a couple
 of me t, just to be sure.
@@ -343,7 +343,7 @@ couldn't compete successfully with poets.
 Sin lies only in hurting other people unnecessarily.  All other "sins" are
 invented nonsense.  (Hurting yourself is not sinful -- just stupid).
 		-- Lazarus Long
-If only Dionysus were alive!  Where would he eat?
+If only Dionysus were alive!  Where would he ?
 		-- Woody Allen
 re's no justice in this wld.
 		-- Frank Costello, on the prosecution of "Lucky" Luciano by
@@ -384,7 +384,7 @@ A swift-flowing steam does not grow stagnant.
 Neither sound n thoughts can travel through a vacuum.
 Software rots if not used.
 
-se are great mysteries.
+se are gr mysteries.
 		-- Geoffrey James, " Tao of Programming"
 As I was passing Project MAC,
 I met a Quux with seven hacks.
@@ -433,7 +433,7 @@ moonlit night, some hrible persona has been jabbing away at, dragging
 magnets over, and surging these voodoo boxen.  Ftunately, they seem to
 have gotten a bit bed and fallen asleep, f it looks like Cynthia may
 get to go home.  However, she has made note to quickly put together a totem
-of sweaty, sdid static straps, random bits of wire, flecks of once meaniful
+of swy, sdid static straps, random bits of wire, flecks of once meaniful
 oxide, bus grant cards, gummy wms, and some bits of old pdp backplane to
 hang above the machine room.  This totem must be blessed by the old and wise
 venerable god of unibus at once, befe the idolatization of vme, q and pc
@@ -448,7 +448,7 @@ in the Gospels do we find a precept f Creeds, Confessions, Oaths,
 Doctrines, and whole carloads of other foolish trumpery that we find in
 Christianity.
 - John Adams
-	Hses are fbidden to eat fire hydrants in Marshalltown, Iowa.
+	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
  difference between this place and yogurt is that yogurt has a live culture.
 Psychoanalysis??  I thought this was a nude rap session!!!
 Many pages make a thick book, except f pocket Bibles which are on very

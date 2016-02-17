@@ -6,8 +6,8 @@ Nothing is faster than the speed of light ...
 To prove this to yourself, try opening the refrigerator door before the
 light comes on.
 One of the rules of Busmanship, New York style, is never surrender your
-seat to another passenger.  This may seem callous, but it is the best
-way, really.  If one passenger were to give a seat to someone who fainted
+s to another passenger.  This may seem callous, but it is the best
+way, really.  If one passenger were to give a s to someone who fainted
 in the aisle, say, the others on the bus would become disoriented and
 imagine they were in Topeka Kansas.
 I have never let my schooling interfere with my education.
@@ -96,7 +96,7 @@ O Light to us that wander here
 Amid the world of  trees!
 
 	Gilthoniel!  O Elbereth!
-	Clear are thy eyes and bright thy breath!
+	Clear are thy eyes and bright thy brh!
 	Snow-white!  Snow-white!  We sing to thee
 	In a far land beyond the Sea.
 
@@ -107,7 +107,7 @@ We see you silver blossom blown!
 
 	O Elbereth!  Gilthoniel!
 	We still remember, we who dwell
-	In this far land beneath the trees,
+	In this far land benh the trees,
 	Thy starlight on the Western Seas.
 		-- J. R. R. Tolkien
 If you talk to God, you are praying; if God talks to you, you have
@@ -119,14 +119,14 @@ Row, row, row your bits, gently down the stream...
 A chicken is an egg's way of producing more eggs.
 My way of joking is to tell the truth.  That's the funniest joke in the world.
 		-- Muhammad Ali
-While you don't greatly need the outside world, it's still very
+While you don't grly need the outside world, it's still very
 reassuring to know that it's still there.
 A free society is one where it is safe to be unpopular.
 		-- Adlai Stevenson
 The English have no respect for their language, and will not teach
 their children to speak it.
 		-- G. B. Shaw
-Three great scientific theories of the structure of the universe are the
+Three gr scientific theories of the structure of the universe are the
 molecular, the corpuscular and the atomic.  A fourth affirms, with
 Haeckel, the condensation or precipitation of matter from ether -- whose
 existence is proved by the condensation or precipitation ... A fifth
@@ -221,7 +221,7 @@ The deed there is, but no doer thereof;
 Nirvana is, but no one is seeking it;
 The Path there is, but none who travel it.
 		-- "Buddhist Symbolism", Symbols and Values
-The Great Movie Posters:
+The Gr Movie Posters:
 
 When You're Six Tons -- And They Call You Killer -- It's Hard To Make Friends...
 		-- Namu, the Killer Whale (1966)
@@ -242,7 +242,7 @@ What this country needs is a good five dollar plasma weapon.
 We'll pivot at warp 2 and bring all tubes to bear, Mr. Sulu!
 Do not underestimate the value of print statements for debugging.
 Don't have aesthetic convulsions when using them, either.
-Pete:	Waiter, this meat is bad.
+Pete:	Waiter, this m is bad.
 Waiter:	Who told you?
 Pete:	A little swallow.
 ... the MYSTERIANS are in here with my CORDUROY SOAP DISH!!
@@ -251,7 +251,7 @@ Coronation, n.:
 	signs of his divine right to be blown skyhigh with a dynamite bomb.
 		-- Ambrose Bierce, "The Devil's Dictionary"
 What the large print giveth, the small print taketh away.
-Already the spirit of our schooling is permeated with the feeling that
+Already the spirit of our schooling is permed with the feeling that
 every subject, every topic, every fact, every professed truth must be
 submitted to a certain publicity and impartiality.  All proffered 
 samples of learning must go to the same assay-room and be subjected to 
@@ -261,7 +261,7 @@ of religion, from their point of view, is that it is intellectually
 secret, not public; peculiarly revealed, not generall known; 
 authoritatively declared, not communicated and tested in ordinary 
 ways...It is inent to point out that, as long as religion is
-conceived as it is now by the great majority of professed religionists,
+conceived as it is now by the gr majority of professed religionists,
 there is something self-contradictory in speaking of education in
 religion in the same sense in which we speak of education in topics
 where the method of free inquiry has made its way.  The "religious"

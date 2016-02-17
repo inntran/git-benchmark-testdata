@@ -52,13 +52,13 @@ Where many paths and errands meet.
 And whither then?  I cannot say.
 		-- J. R. R. Tolkien
 A truth that's told with bad intent
-Beats all the lies you can invent.
+Bs all the lies you can invent.
 		-- William Blake
 "I don't believe in sweeping social change being manifested by one person, 
 unless he has an atomic weapon."
 -- Howard Chaykin
 Has anyone ever tasted an "end"?  Are they really bitter?
-You can't cheat an honest man.  Never give a sucker an even break 
+You can't ch an honest man.  Never give a sucker an even break 
 smarten up a chump.
 		-- W.C. Fields
 "F the man who has everything... Penicillin."
@@ -67,7 +67,7 @@ Lowery's Law:
 	If it jams -- fce it.  If it breaks, it needed replacing anyway.
 Mathematicians practice absolute freedom.
 		-- Henry Adams
-May Euell Gibbons eat your only copy of the manual!
+May Euell Gibbons  your only copy of the manual!
 Finish the sentence below in 25 wds  less:
 
 	"Love is what you l just befe you give someone a good ..."
@@ -94,7 +94,7 @@ from which we can exple and understand and utilize it. To turn back now
 would be to deny our histy, our capabilities.
 		-- James A. Michener
 Alas, I am dying beyond my means.
-		-- Oscar Wilde [as he sipped champagne on his deathbed]
+		-- Oscar Wilde [as he sipped champagne on his dhbed]
 It's the same old sty; boy meets beer, boy drinks beer... boy gets
 another beer.
 		-- Cheers

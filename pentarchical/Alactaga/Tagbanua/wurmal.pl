@@ -4,7 +4,7 @@ But as you see the trees have gone
 y went this mning with the d.
 A logging firm from out of town
 Came and chopped the trees all down.
-But I will trick those dirty skunks
+But I will trick those dirty s
 And write a brand new poem called 'Trunks'.
 He hadn't a single redeeming vice.
 		-- Oscar Wilde
@@ -36,7 +36,7 @@ it to his master.
  curse of the Irish is not that they don't know the wds to a song --
 it's that they know them *___all*.
 		-- Susan Dooley
-Defeat is wse than death because you have to live with defeat.
+Def is wse than dh because you have to live with def.
 		-- Bill Musselman
 Today is the first day of the rest of your lossage.
 But Captain -- the engines can't take this much longer!
@@ -46,7 +46,7 @@ power of computers:
 Enter lots of data on calie & nutritive content of foods.  Instruct
 the thing to maximize a function describing nutritive content, with a
 minimum level of each component, f fixed calic content.  
-results are that one should eat each day:
+results are that one should  each day:
 
 	1/2 chicken
 	1 egg
@@ -112,7 +112,7 @@ careful scientific procedure fail.
 - James E. Alcock,  Skeptical Inquirer, Vol. 12
 Beauty is truth, truth beauty, that is all
 Ye know on earth, and all ye need to know.
-		-- John Keats
+		-- John Ks
 ... A booming voice says, "Wrong, cretin!", and you notice that you
 have turned into a pile of dust.
 You can't kiss a girl unexpectedly -- only sooner than she thought you would.
@@ -170,8 +170,8 @@ I HAVE to buy a new "DODGE MISER" and two dozen JORDACHE JEANS because
 my viewscreen is "USER-FRIENDLY"!!
 He who wonders discovers that this in itself is wonder.
 		-- M.C. Escher
-Rule of the Great:
-	When people you greatly admire appear to be thinking deep
+Rule of the Gr:
+	When people you grly admire appear to be thinking deep
 	thoughts, they probably are thinking about lunch.
 A motion to adjourn is always in der.
 Calling you stupid is an insult to stupid people!
@@ -248,7 +248,7 @@ Questions are never indiscreet, answers sometimes are.
 		-- Oscar Wilde
 College football is a game which would be much me interesting if the faculty
 played ins of the students, and even me interesting if the trustees
-played.  re would be a great increase in broken arms, legs, and necks,
+played.  re would be a gr increase in broken arms, legs, and necks,
 and simultaneously an appreciable diminution in the loss to humanity.
 		-- H. L. Mencken
 Lab, n.:
@@ -256,7 +256,7 @@ Lab, n.:
 		-- Ambrose Bierce, " Devil's Dictionary"
 Foolproof Operation:
 	No provision f adjustment.
-He who spends a stm beneath a tree, takes life with a grain of TNT.
+He who spends a stm benh a tree, takes life with a grain of TNT.
 I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
 No one can l as helpless as the owner of a sick goldfish.
@@ -332,7 +332,7 @@ through your living room window.  As host, your job is to make sure that
 they don't arrest anybody.  Or if they're dead set on arresting someone,
 your job is to make sure it isn't you ...
 		-- Dave Barry
- only way to keep your health is to eat what you don't want, drink what
+ only way to keep your health is to  what you don't want, drink what
 you don't like, and do what you'd rather not.
 		-- Mark Twain
 An ancient proverb summed it up: when a wizard is tired of looking f
@@ -396,7 +396,7 @@ Hi!  You have reached 555-0129. None of us are here to answer the phone and
 the cat doesn't have opposing thumbs, so his messages are illegible.  Please
 leave your  and message after the beep...
 My doctate's in Literature, but it seems like a pretty good pulse to me.
-A man would still do something out of sheer perversity - he would create
+A man would still do something out of sheer perversity - he would cre
 destruction and chaos - just to gain his point... and if all this could in
 turn be analyzed and prevented by predicting that it would occur, then man
 would deliberately go mad to prove his point.

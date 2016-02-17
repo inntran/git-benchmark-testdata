@@ -45,14 +45,14 @@ Your lucky number has been disconnected.
 	with a bottom line divisible by 5.
 Houston, Tranquillity Base here.   Eagle has landed.
 		-- Neil Armstrong
-Science Fiction, Double Feature.
-Frank has built and lost his creature.
+Science Fiction, Double Fure.
+Frank has built and lost his crure.
 Darkness has conquered Brad and Janet.
  servants gone to a distant planet.
 Wo, oh, oh, oh.
-At the late night, double feature, Picture show.
+At the late night, double fure, Picture show.
 I want to go, oh, oh, oh.
-To the late night, double feature, Picture show.
+To the late night, double fure, Picture show.
 		-- Rocky Hr Picture Show
 Getting into trouble is easy.
 		-- D. Winkel and F. Prosser

@@ -105,7 +105,7 @@ To a Californian, the basic difference between the people and the pigeons
 in New York is that the pigeons don't shit on each other.
 	-- From "East vs. West: The War Between the Coasts
 A nuclear war can ruin your whole day.
-	"Life and death are seldom logical."
+	"Life and dh are seldom logical."
 	"But attaining a desired goal always is."
 		-- McCoy and Spock, "The Galileo Seven", stardate 2821.7
 "You are old," said the youth, "as I mentioned before,
@@ -114,7 +114,7 @@ You complain about everyone's English but yours --
 	Do you really think this is quite fair?"
 
 "I make lots of mistakes," Father William declared,
-	"But my stature these days is so great
+	"But my stature these days is so gr
 That no critic can hurt me -- I've got them all scared,
 	And to stop me it's now far too late."
 The Golden Rule is of no use to you whatever unless you realize it
@@ -134,14 +134,14 @@ There is no sincerer love than the love of food.
 		-- George Bernard Shaw
 If only God would give me some clear sign!  Like making a large deposit
 in my name at a Swiss bank.
-		-- Woody Allen, "Without Feathers"
+		-- Woody Allen, "Without Fhers"
 ... but as records of courts and justice are admissible, it can easily be
 proved that powerful and malevolent magicians once existed and were a scourge
 to mankind.  The evidence (including confession) upon which certain women 
 were convicted of witchcraft and executed was without a flaw; it is still 
 unimpeachable.  The judges' decisions based on it were sound in logic and 
 in law.  Nothing in any existing court was ever more thoroughly proved than
-the charges of witchcraft and sorcery for which so many suffered death.  If
+the charges of witchcraft and sorcery for which so many suffered dh.  If
 there were no witches, human testimony and human reason are alike destitute
 of value.
 		-- Ambrose Bierce, "The Devil's Dictionary"
@@ -151,7 +151,7 @@ Never volunteer for anything.
 If the designers of X-window built cars, there would be no fewer than five
 steering wheels hidden about the cockpit, none of which followed the same
 prinicples -- but you'd be able to shift gears with your car stereo.  Useful
-feature, that.
+fure, that.
 		-- From the programming notebooks of a heretic, 1990.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
 
@@ -224,7 +224,7 @@ If I'm over the hill, why is it I don't recall ever being on top?
 		-- "Mirror, Mirror", when asked by Scotty for help in
 		   Engineering aboard the ISS Enterprise.
 "I'm a doctor, not a coalminer."
-		-- "The Empath", on being beneath the surface of Minara 2.
+		-- "The Empath", on being benh the surface of Minara 2.
 "I'm a surgeon, not a psychiatrist."
 		-- "City on the Edge of Forever", on Edith Keeler's remark
 		   that Kirk talked strangely.
@@ -275,7 +275,7 @@ Something's rotten in the state of Denmark.
 		-- Shakespeare
 Chocolate chip.
 Be open to other people -- they may enrich your dream.
-The Government just announced today the creation of the Neutron Bomb II.
+The Government just announced today the crion of the Neutron Bomb II.
 Similar to the Neutron Bomb, the Neutron Bomb II not only kills people
 and leaves buildings standing, but also does a little light housekeeping.
 Hey dol! merry dol! ring a dong dillo!
@@ -358,7 +358,7 @@ I hold with those who favor fire.
 But if it had to perish twice,
 I think I know enough of hate
 To say that for destruction, ice
-Is also great
+Is also gr
 And would suffice.
 		-- Robert Frost, "Fire and Ice"
 We don't care how they do it in New York.
@@ -371,7 +371,7 @@ The answer is: I don't know.
 Is it some kind of wine you have with breakfast?
 Showing up is 80% of life.
 		-- Woody Allen
-There are two kinds of solar-heat systems: "passive" systems collect the
+There are two kinds of solar-h systems: "passive" systems collect the
 sunlight that hits your home, and "active" systems collect the sunlight that
 hits your neighbors' homes, too.
 		-- Dave Barry, "Postpetroleum Guzzler"
@@ -400,7 +400,7 @@ and and And, and And and and, and and and And, and And and and, and and and
 Chips, as well as after Chips?
 It's not against any religion to want to dispose of a pigeon.
 		-- Tom Lehrer, "Poisoning Pigeons in the Park"
-Love at first sight is one of the greatest labor-g devices the
+Love at first sight is one of the grest labor-g devices the
 world has ever seen.
 I've noticed several design suggestions in your code.
 A CODE OF ETHICAL BEHAVIOR FOR PATIENTS:
@@ -436,7 +436,7 @@ A: The victim lived.
 Practice yourself what you preach.
 		-- Titus Maccius Plautus
 A mother mouse was taking her large brood for a stroll across the kitchen
-floor one day when the local cat, by a feat of stealth unusual even for
+floor one day when the local cat, by a f of stealth unusual even for
 its species, managed to trap them in a corner.  The children cowered,
 terrified by this fearsome beast, plaintively crying, "Help, Mother!
 Save us!  Save us!  We're scared, Mother!"
@@ -473,7 +473,7 @@ And this was very odd, because it was
 The middle of the night.
 		-- Lewis Carroll, "Through the Looking Glass"
 RULES OF EATING -- THE BRONX DIETER'S CREED
-	(1)  Never eat on an empty stomach.
+	(1)  Never  on an empty stomach.
 	(2)  Never leave the table hungry.
 	(3)  When traveling, never leave a country hungry.
 	(4)  Enjoy your food.
@@ -483,9 +483,9 @@ RULES OF EATING -- THE BRONX DIETER'S CREED
 	(7)  Really feel your food.  Texture is important.  Compare,
 	     for example, the texture of a turnip to that of a
 	     brownie.  Which feels better against your cheeks?
-	(8)  Never eat between snacks, unless it's a meal.
+	(8)  Never  between snacks, unless it's a meal.
 	(9)  Don't feel you must finish everything on your plate.  You
-	     can always eat it later.
+	     can always  it later.
 	(10) Avoid any wine with a childproof cap.
 	(11) Avoid blue food.
 		-- Richard Smith, "The Bronx Diet"
@@ -521,7 +521,7 @@ Nitwit ideas are for emergencies.  You use them when you've got nothing
 else to try.  If they work, they go in the Book.  Otherwise you follow
 the Book, which is largely a collection of nitwit ideas that worked.
 		-- Larry Niven, "The Mote in God's Eye"
-The problem with this country is that there is no death penalty for
+The problem with this country is that there is no dh penalty for
 incompetence.
 Don't guess -- check your security regulations.
 [War] is instinctive.  But the instinct can be fought.  We're human

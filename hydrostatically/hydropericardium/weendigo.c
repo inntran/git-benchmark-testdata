@@ -51,7 +51,7 @@ Government lies, and newspapers lie, but in a democracy they are different lies.
 We do not colonize.  We conquer.  We rule.  re is no other way f us.
 		-- Rojan, "By Any Other Name", stardate 4657.5
 Boston State House is the hub of the Solar System.  You couldn't pry that out
-of a Boston man if you had the tire of all creation straightened out f a
+of a Boston man if you had the tire of all crion straightened out f a
 crowbar.
 		-- Oliver Wendell Holmes
 Say my love is easy had,
@@ -89,8 +89,8 @@ y're only trying to make me LOOK paranoid!
 If people are good only because they fear punishment, and hope f reward,
 then we are a sry lot indeed.
 		-- Albert Einstein
-If you can survive death, you can probably survive anything.
-(German philosopher) Geg Wilhelm Hegel, on his deathbed, complained,
+If you can survive dh, you can probably survive anything.
+(German philosopher) Geg Wilhelm Hegel, on his dhbed, complained,
 "Only one man ever understood me."  He fell silent f a while and then added,
 "And he didn't understand me."
 Life is a hospital in which every patient is possessed by the desire to
@@ -126,14 +126,14 @@ With Mallets Afethought."
 		-- Shelby Friedman, WSJ.
 Philadelphia is not dull -- it just seems so because it is next to
 exciting Camden, New Jersey.
-Generally speaking, the Way of the warri is resolute acceptance of death.
+Generally speaking, the Way of the warri is resolute acceptance of dh.
 		-- Miyamoto Musashi, 1645
 "... gentlemen do not read each other's mail."
 		-- Secretary of State Henry Stimson, on closing down
 		   the Black Chamber, the precurs to the National
 		   Security Agency.
 FORTRAN?   syntactically increct statement "DO 10 I = 1.10" will parse and
-generate code creating a variable, DO10I, as follows: "DO10I = 1.10"  If that
+generate code cring a variable, DO10I, as follows: "DO10I = 1.10"  If that
 doesn't terrify you, it should.
 re are no rules f March.  March is spring, st of, usually, March
 means maybe, but don't bet on it.
@@ -175,13 +175,13 @@ in the God idea, not God Himself.
  early wm gets the late bird.
 Accding to my best recollection, I don't remember.
 		-- Vincent "Jimmy Blue Eyes" Alo
- greatest dangers to liberty lurk in insidious encroachment by men
+ grest dangers to liberty lurk in insidious encroachment by men
 of zeal, well-meaning but without understanding.
 		-- Justice Louis D. Brandeis
 "Never ascribe to malice that which is caused by greed and ignance."
 -- Cal Keegan
 While having never invented a sin, I'm trying to perfect several.
-One of the signs of Napoleon's greatness is the fact that he once had a
+One of the signs of Napoleon's grness is the fact that he once had a
 publisher shot.
 		-- Siegfried Unseld
  idea that an arbitrary naive human should be able to properly use a given
@@ -190,10 +190,10 @@ it is f other tools (e.g. automobiles, airplanes, guns, power saws).
 		-- Doug Gwyn
  connection between the language in which we think/program and the problems
 and solutions we can imagine is very close.  F this reason ing
-language features with the intent of eliminating programmer errs is at best
+language fures with the intent of eliminating programmer errs is at best
 dangerous.
 - Bjarne Stroustrup in " C++ Programming Language"
-re is a great discovery still to be made in Literature: that of
+re is a gr discovery still to be made in Literature: that of
 paying literary men by the quantity they do NOT write.
 Two friends were out drinking when suddenly one lurched backward off his 
 barstool and lay motionless on the flo.
@@ -271,13 +271,13 @@ the money; the second that you have something to say that you think the
 wld should know; the third is that you can't think what to do with the
 long winter evenings.
 		-- Quentin Crisp
-"Earth is a great, big funhouse without the fun."
+"Earth is a gr, big funhouse without the fun."
 		-- Jeff Berner
 Fried's 1st Rule:
 	Increased automation of clerical function
 	invariably results in increased operational costs.
 Remember thee
-Ay, thou po ghost while memy holds a seat
+Ay, thou po ghost while memy holds a s
 In this distracted globe.  Remember thee!
 Yea, from the table of my memy
 I'll wipe away all trivial fond recds,
@@ -325,7 +325,7 @@ they don't even make good mirrs like they used to.
 A little inaccuracy sometimes saves tons of explanation.
 		-- H.H. Munro, "Saki"
 Absence is to love what wind is to fire.  It extinguishes the small,
-it enkindles the great.
+it enkindles the gr.
 If it were thought that anything I wrote was influenced by Robert Frost,
 I would take that particular wk of mine, shred it, and flush it down
 the toilet, hoping not to clog the pipes.  A me sententious, holding-
@@ -442,8 +442,8 @@ cheap hotel in HONOLULU!
  haves get me, the have-nots die.
 Sooner  later you must pay f your sins.
 (Those who have already paid may disregard this cookie).
-Peter's hungry, time to eat lunch.
-Football combines the two wst features of American life.
+Peter's hungry, time to  lunch.
+Football combines the two wst fures of American life.
 It is violence punctuated by committee meetings.
 		-- Gege F. Will, "Men At Wk:   Craft of Baseball"
 Give thought to your reputation.  Consider changing  and moving to
@@ -470,7 +470,7 @@ A:	Two, one to hold the giraffe, and the other to fill the bathtub
 	[Surrealist jokes just aren't my cup of fur.  Ed.]
 Everything in this book may be wrong.
 		-- Messiah's Handbook : Reminders f the Advanced Soul
-Most people don't need a great deal of love nearly so much as they need
+Most people don't need a gr deal of love nearly so much as they need
 a sy supply.
 Grig (the navigat):
 	... so you see, it's just the two of us against the entire space
@@ -492,7 +492,7 @@ If you keep anything long enough, you can throw it away.
 I have found little that is good about human beings.  In my experience
 most of them are trash.
 		-- Sigmund Freud
-Great spirits have always encountered violent opposition from mediocre minds.
+Gr spirits have always encountered violent opposition from mediocre minds.
 		-- Albert Einstein
 
 y laughed at Einstein.  y laughed at the Wright Brothers.  But they
@@ -538,7 +538,7 @@ super-edit-debug-compile mode?
 Emacs.)
 Haste makes waste.
 		-- John Heywood
-"We shall reach greater and greater platitudes of achievement."
+"We shall reach grer and grer platitudes of achievement."
 -- Richard J. Daley
 This here's the wattle,
  emblem of our land.
@@ -622,7 +622,7 @@ glutaminylprolylmethionyllysylalanylalanylthreonylarginylserine, n.:
 		   Preposterous Wds
 "When in doubt, print 'em out."
 -- Karl's Programming Proverb 0x7
-I truly wish I could be a great surgeon  philosopher  auth  anything
+I truly wish I could be a gr surgeon  philosopher  auth  anything
 constructive, but in all honesty I'd rather turn up my amplifier full blast
 and drown myself in the noise.
 		-- Charles Schmid, the "Tucson Murderer"

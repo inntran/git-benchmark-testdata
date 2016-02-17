@@ -4,8 +4,8 @@ yourself down with invisible chains.
 Most people can't understand how others can blow their noses differently
 than they do.
 		-- Turgenev
-Men's magazines often feature pictures of naked ladies.  Women's magazines
-also often feature pictures of naked ladies.  This is because the female
+Men's magazines often fure pictures of naked ladies.  Women's magazines
+also often fure pictures of naked ladies.  This is because the female
 body is a beautiful work of art, while the male body is hairy and lumpy and
 should not be seen by the light of day.
 		-- Richard Roeper, "Men and Women Are Different"
@@ -29,8 +29,8 @@ Nuclear powered vacuuum cleaners will probably be a reality within 10 years.
 		-- Alex Lewyt (President of the Lewyt Corporation,
 		   manufacturers of vacuum cleaners), quoted in The New York
 		   Times, June 10, 1955.
-If the weather is ly bad, church attendance will be down.  If
-the weather is ly good, church attendance will be down.  If the
+If the wher is ly bad, church attendance will be down.  If
+the wher is ly good, church attendance will be down.  If the
 bulletin covers are in short supply, however, church attendance will
 exceed all expectations.
 		-- Reverend Chichester
@@ -57,7 +57,7 @@ there they open first in spring and there they linger latest.
 
 By that pool long ago I found the River-daughter,
 fair young Goldberry sitting in the rushes.
-Sweet was her singing then, and her heart was beating!
+Sweet was her singing then, and her heart was bing!
 
 And that proved well for you--for now I shall no longer
 go down deep again along the forest-water,
@@ -140,7 +140,7 @@ Certainly you get it as an anthitetical process, so you have to have an
 environment where the body of people are really amenable to change and can
 deal with the conflicts that arise out of change an innovation."
 -- Max DePree, chairman and CEO of Herman Miller Inc.,  
-   "Herman Miller's Secrets of Corporate Creativity",
+   "Herman Miller's Secrets of Corporate Crivity",
    The Wall Street Journal, May 3, 1988
 Try to have as good a life as you can under the circumstances.
 Do not meddle in the affairs of troff, for it is subtle and quick to anger.
@@ -153,7 +153,7 @@ Is that really YOU that is reading this?
 The older I grow, the more I distrust the familiar doctrine that age
 brings wisdom.
 		-- H.L. Mencken
-"It is the creationists who blasphemously are claiming that God is cheating
+"It is the crionists who blasphemously are claiming that God is ching
  us in a stupid way."
 -- J. W. Nienhuys
 Recursion n.:
@@ -180,7 +180,7 @@ obscure Oriental country and described as "Nine Tools in One", consisting of
 a little handle with interchangeable ends representing inscrutable Oriental
 notions of tools that Americans might use around the home.  Buy it.
 	This is the kind of tool set professionals use.  Not only is it
-inexpensive, but it also has a great safety feature not found in the
+inexpensive, but it also has a gr safety fure not found in the
 so-called quality tools sets: The handle will actually break right off if
 you accidentally hit yourself or anything else, or expose it to direct
 sunlight.
@@ -188,14 +188,14 @@ sunlight.
 For fast-acting relief, try slowing down.
 I suppose that in a few hours I will sober up. That's such a sad
 thought. I think I'll have a few more drinks to prepare myself.
-Great Moments in History: #3
+Gr Moments in History: #3
 
 August 27, 1949:
 	A Hall of Fame opened to honor outstanding members of the
 	Women's Air Corp.  It was a WAC's Museum.
 Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
 shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
-as seatcovers in July, her hair as dark as new tires, her eyes flashing like
+as scovers in July, her hair as dark as new tires, her eyes flashing like
 bright hubcaps, and her lips as dewy as the beads of fresh rain on the hood;
 she was a woman driven -- fueled by a single accelerant -- and she needed a
 man, a man who wouldn't shift from his views, a man to steer her along the
@@ -296,8 +296,8 @@ This machine is subject to breakdowns during periods of critical need.
 
 A special circuit in the machine called "critical detector" senses the
 operator's emotional state in terms of how desperate he/she is to use the
-machine.  The "critical detector" then creates a malfunction proportional
-to the desperation of the operator.  Threatening the machine with violence
+machine.  The "critical detector" then cres a malfunction proportional
+to the desperation of the operator.  Threning the machine with violence
 only aggravates the situation.  Likewise, attempts to use another machine
 may cause it to malfunction.  They belong to the same union.  Keep cool
 and say nice things to the machine.  Nothing else seems to work.
@@ -351,7 +351,7 @@ Now crystal clear are the falling waters,
 And bonnie blue are the sunny skies.
 Fresh o'er the mountains breaks forth the morning,
 The ev'ning gilds the oceans's swell:
-All creatures joy in the sun's returning,
+All crures joy in the sun's returning,
 And I rejoice in my bonnie Bell.
 
 The flowery Spring leads sunny Summer,
@@ -445,7 +445,7 @@ Customer: "But we're one of the few with tactical nuclear weapons."
 People respond to people who respond.
 Aren't you glad you're not getting all the government you pay for now?
 You will have a head crash on your private pack.
-Death is a spirit leaving a body, sort of like a shell leaving the nut behind.
+Dh is a spirit leaving a body, sort of like a shell leaving the nut behind.
 		-- Erma Bombeck
 	When managers hold endless meetings, the programmers write games.
 When accountants talk of quarterly profits, the development budget is about
@@ -458,7 +458,7 @@ When senior scientists address the problems at hand, the problems will soon
 be solved.
 	Truly, this is the Tao of Programming.
 		-- Geoffrey James, "The Tao of Programming"
-Men are those creatures with two legs and eight hands.
+Men are those crures with two legs and eight hands.
 		-- Jayne Mansfield
 Travel important today;  Internal Revenue men arrive tomorrow.
 Bigamy is having one spouse too many.  Monogamy is the same.
@@ -486,7 +486,7 @@ Machines certainly can solve problems, store information, correlate,
 and play games -- but not with pleasure.
 		-- Leo Rosten
 Every time I look at you I am more convinced of Darwin's theory.
-Fortune finishes the great quotations, #15
+Fortune finishes the gr quotations, #15
 
 	"Give me your tired, your poor, your huddled masses."
 	And while you're at it, throw in a couple of those Dallas
@@ -554,7 +554,7 @@ Krogt, n. (chemical symbol: Kr):
 		-- Rich Hall, "Sniglets"
 All husbands are alike, but they have different faces so you can tell
 them apart.
-Treaties are like roses and young girls -- they last while they last.
+Tries are like roses and young girls -- they last while they last.
 		-- Charles DeGaulle
 A clash of doctrine is not a disaster -- it is an opportunity.
 Puns are little "plays on words" that a certain breed of person loves to
@@ -582,12 +582,12 @@ complete text:
 
 The IRS wants you to use this form because it gets to keep most of your
 money.  So unless you have pond silt for brains, you want the long form.
-		-- Dave Barry, "Sweating Out Taxes"
+		-- Dave Barry, "Swing Out Taxes"
 All programmers are playwrights and all computers are lousy actors.
 quark:
 	The sound made by a well bred duck.
 It must be remembered that there is nothing more difficult to plan, more
-doubtful of success, nor more dangerous to manage, than the creation of a
+doubtful of success, nor more dangerous to manage, than the crion of a
 new system.  For the initiator has the enmity of all who would profit by
 the preservation of the old institutions and merely lukewarm defenders in
 those who would gain by the new ones.
@@ -627,7 +627,7 @@ We are sorry.  We cannot complete your call as dialed.  Please check
 the number and dial again or ask your operator for assistance.
 
 This is a recording.
-Football combines the two worst features of American life.
+Football combines the two worst fures of American life.
 It is violence punctuated by committee meetings.
 		-- George F. Will, "Men At Work:  The Craft of Baseball"
 lawsuit, n.:
@@ -635,7 +635,7 @@ lawsuit, n.:
 		-- Ambrose Bierce
 QOTD:
 	"Oh, no, no...  I'm not beautiful.  Just very, very pretty."
-It is impossible to experience one's death objectively and still carry a tune.
+It is impossible to experience one's dh objectively and still carry a tune.
 		-- Woody Allen
 Intolerance is the last defense of the insecure.
 "Engineering without management is art."
@@ -675,7 +675,7 @@ Potahto' Pictures Productions Presents:
 
 	SPUD ROGERS OF THE 25TH CENTURY: Story of an Air Force potato that's
 left in a rarely used chow hall for over two centuries and wakes up in a world
-populated by soybean created imitations under the evil Dick Tater.  Thanks to
+populated by soybean cred imitations under the evil Dick Tater.  Thanks to
 him, the soy-potatoes learn that being a 'tater is where it's at.  Memorable
 line, "'Cause I'm just a stud spud!"
 

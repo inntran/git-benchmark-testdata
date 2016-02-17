@@ -20,7 +20,7 @@ What's important is... the price.	May you make the Yuletide pay.
 Let the raucous sleighbells jingle;	Tell us to go out and buy.
 Hail our dear old friend, Kris Kringle,	Sooooo...
 Driving his reindeer across the sky,
-Don't stand underneath when they fly by!
+Don't stand undernh when they fly by!
 		-- Tom Lehrer
 In America today ... we have Woody Allen, whose humor has become so
 sophisticated that nobody gets it any more except Mia Farrow.  All those who
@@ -32,7 +32,7 @@ please raise your hands.  Thank you.
 The glances over cocktails
 That seemed to be so sweet
 Don't seem quite so amorous
-Over Shredded Wheat
+Over Shredded Wh
 All bad precedents began as justifiable measures.
 		-- Gaius Julius Caesar, quoted in "The Conspiracy of
 		   Catiline", by Sallust
@@ -49,7 +49,7 @@ price to pay for having somebody around the house who understands computers.
  him.
  Be not a witness against thy neighbor without cause; and deceive not with 
  thy lips.
- Death and life are in the power of the tongue."
+ Dh and life are in the power of the tongue."
 -- Proverbs, some selections from the Jewish Scripture
 A bachelor is a man who never made the same mistake once.
 Time flies like an arrow.  Fruit flies like a banana.

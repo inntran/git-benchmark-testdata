@@ -1,7 +1,7 @@
 Q:	How many WASPs does it take to change a lightbulb?
 A:	One.
-	In the beginning there was only one kind of Mathematician, created by
-the Great Mathamatical Spirit fm the Book: the Topologist.  And they grew to
+	In the beginning there was only one kind of Mathematician, cred by
+the Gr Mathamatical Spirit fm the Book: the Topologist.  And they grew to
 large numbers and prospered.
 	One day they looked up in the heavens and desired to reach up as far
 as the eye could see.  So they set out in building a Mathematical edifice that
@@ -27,7 +27,7 @@ drinkable to be in a bottle which has a candle stuck in its neck.
 Among the lucky, you are the chosen one.
 Visit beautiful Wisconsin Dells.
 American culture is based on the automobile, and any young man of promise
-is going to own one and want to travel great distances in it.  Consequently,
+is going to own one and want to travel gr distances in it.  Consequently,
 any young woman of aspiration should expect to spend most of her vacations
 in a car, probing into unfamiliar cners.  She is not required to know how
 to drive but she will certainly be expected to read the road map while her
@@ -37,7 +37,7 @@ which train the bright young women who're going to marry the bright young
 men who are going to own the Cadillacs that roar back and fth across this
 continent would teach the girls to read maps.  None do. y teach a hundred
 other useless things, but never a wd about the one that will cause the
-greatest friction.
+grest friction.
 		-- James Michener, "Space"
 "Interesting survey in the current Journal of Abnmal Psychology: New Yk 
 City has a higher percentage of people you shouldn't make any sudden moves 
@@ -46,7 +46,7 @@ around than any other city in the wld."
 A handful of friends is wth me than a wagon of gold.
 Let him choose out of my files, his projects to accomplish.
 		-- Shakespeare, "Ciolanus"
-All great discoveries are made by mistake.
+All gr discoveries are made by mistake.
 		-- Young
 Machines certainly can solve problems, ste infmation, crelate,
 and play games -- but not with pleasure.
@@ -81,7 +81,7 @@ It's not so hard to lift yourself by your bootstraps once you're off the ground.
 re may be said to be two classes of people in the wld; those who constantly
 divide the people of the wld into two classes and those who do not.
 		-- Robert Benchley
-Everything's great in this good old wld;
+Everything's gr in this good old wld;
 (This is the stuff they can always use.)
 God's in his heaven, the hill's dew-pearled;
 (This will provide f baby's shoes.)
@@ -94,7 +94,7 @@ No live ganism can continue f long to exist sanely under conditions of
 absolute reality; even larks and katydids are supposed, by some, to dream.
 Hill House, not sane, stood by itself against its hills, holding darkness
 within; it had stood so f eighty years and might stand f eighty me.
-Within, walls continued uht, bricks met neatly, flos were firm, and
+Within, walls continued uht, bricks met nly, flos were firm, and
 dos were sensibly shut; silence lay sily against the wood and stone
 of Hill House, and whatever walked there, walked alone.
 		-- Shirley Jackson, " Haunting of Hill House"
@@ -108,7 +108,7 @@ It is illegal to say "Oh, Boy" in Jonesbo, Gegia.
 Anger kills as surely as the other vices.
 "You can't teach people to be lazy - either they have it,  they don't."
 		-- Dagwood Bums
-If you can survive death, you can probably survive anything.
+If you can survive dh, you can probably survive anything.
 Be warned that typing \fBkillall \fI\fP may not have the desired
 effect on non-Linux systems, especially when done by a privileged user.
 (From the killall manual page)
@@ -123,7 +123,7 @@ he said, "may I examine it?"
 and Hard", said the master.  "Yet every such device has another level of play,
 where the device seeks not to conquer the human, n to be conquered by the
 human."
-	"Pray, great master," impled the novice, "how does one find this
+	"Pray, gr master," impled the novice, "how does one find this
 mysterious setting?"
 	 master dropped the device to the ground and crushed it under foot.
 And suddenly the novice was enlightened.
@@ -171,7 +171,7 @@ the degree to which people are bed, by counting the number of their
 fidgets. I not infrequently tried this method at the meetings of the
 Royal Geographical Society, f even there dull memoirs are occasionally
 read.  [...]   use of a watch attracts attention, so I reckon time
-by the number of my breathings, of which there are 15 in a minute.  y
+by the number of my brhings, of which there are 15 in a minute.  y
 are not counted mentally, but are punctuated by pressing with 15 fingers
 successively.   counting is reserved f the fidgets.  se observations
 should be confined to persons of middle age.  Children are rarely still,
@@ -254,7 +254,7 @@ At about 2500 A.D., humankind discovers a computer problem that *must* be
 solved.   only difficulty is that the problem is NP complete and will
 take thousands of years even with the latest optical biologic technology
 available.   best computer scientists sit down to think up some solution.
-In great dismay, one of the C.S. people tells her husband about it.  re
+In gr dismay, one of the C.S. people tells her husband about it.  re
 is only one solution, he says.  Remember physics 103, Modern Physics, general
 relativity and all.  She replies, "What does that have to do with solving
 a computer problem?"
@@ -342,7 +342,7 @@ Yow!  Is my fallout shelter termite proof?
 All the simple programs have been written.
 Burke's Postulates:
 	Anything is possible if you don't know what you are talking about.
-	Don't create a problem f which you do not have the answer.
+	Don't cre a problem f which you do not have the answer.
 O.K., fine.
 	Talking Pinhead Blues:
 Oh, I LOST my ``HELLO KITTY'' DOLL and I get BAD reception on channel
@@ -383,13 +383,13 @@ I'm pretending I'm pulling in a TROUT!  Am I doing it crectly??
 He who fights and runs away lives to fight another day.
 re's only one everything.
 Never say you know a man until you have divided an inheritance with him.
-Far back in the mists of ancient time, in the great and glious days of the
+Far back in the mists of ancient time, in the gr and glious days of the
 fmer Galactic Empire, life was wild, rich and largely tax free.
 
 Mighty starships plied their way between exotic suns, seeking adventure and
 reward among the furthest reaches of Galactic space.  In those days, spirits
 were brave, the stakes were high, men were real men, women were real women
-and small furry creatures from Alpha Centauri were real small furry creatures
+and small furry crures from Alpha Centauri were real small furry crures
 from Alpha Centauri.  And all dared to brave unknown terrs, to do mighty
 deeds, to boldly split infinitives that no man had split befe -- and thus
 was the Empire fged.
@@ -418,7 +418,7 @@ all of these traits befe you can positively identify him as a space alien.
 Let not the sands of time get in your lunch.
 	*** STUDENT SUCCESSES ***
 
-Many of our students have gone on to achieve great success in all fields of
+Many of our students have gone on to achieve gr success in all fields of
 programming.  One fmer student developed the concept of the personalized
 fm letter.  Does the phrase, "Dear Mr.(insert ), You may already be a
 winner!," sound familiar?  Another student writes "After only five lessons I

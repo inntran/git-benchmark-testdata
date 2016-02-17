@@ -1,4 +1,4 @@
-Treaties are like roses and young girls -- they last while they last.
+Tries are like roses and young girls -- they last while they last.
 		-- Charles DeGaulle
 From the cradle to the coffin underwear comes first.
 		-- Bertolt Brecht
@@ -20,7 +20,7 @@ giance without variation to the statement: "Personally I'd love to do it,
 we'd ALL love to do it.  But we're not going to do it.  It's not the kind of
 book our house knows how to handle."  Our superi perfmance award in the
 field of advertising goes to media executive, E.L.M., [...] f the continu-
-ally creative use of the old favite: "I think what you've got here could be
+ally crive use of the old favite: "I think what you've got here could be
 very exciting.  Why not give it one me try based on the approach I've out-
 lined and see if you can come up with something fresh."  Our final award f
 courageous holding action in the field of industry goes to supervis, R.S.,
@@ -29,7 +29,7 @@ arguing f a new approach f YEARS but are we SURE that this is the right
 time--"  I would like to conclude this meeting with a verse written specially
 f our prospectus by our founding president fifty years ago -- and now, as
 then, fully expressive of the emotion most close to all our hearts --
-	Treat freshness as a youthful quirk,
+	Tr freshness as a youthful quirk,
 		And dare not stray to ideas new,
 	F if t'were tried they might e'en wk
 		And f a living what woulds't we do?
@@ -40,11 +40,11 @@ driven out many infidels befe you...you're to cut them down and exterminate
 them.  You're to make no compromise with them  show them any mercy.
 [Deut. 7:1 (KJV)]
 re's a lot to be said f not saying a lot.
-	Hses are fbidden to eat fire hydrants in Marshalltown, Iowa.
+	Hses are fbidden to  fire hydrants in Marshalltown, Iowa.
 QOTD:
 	"I haven't come far enough, and don't call me baby."
 It's difficult to see the picture when you are inside the frame.
-And thou shalt eat it as barley cakes, and thou shalt bake it with dung that
+And thou shalt  it as barley cakes, and thou shalt bake it with dung that
 cometh out of man, in their sight...n he [the Ld!] said unto me, Lo, I
 have given thee cow's dung f man's dung, and thou shalt prepare thy bread
 therewith.
@@ -94,7 +94,7 @@ Collaries:
 Advancement in position.
 toilet toup'ee, n.:
 	Any shag carpet that causes the lid to become top-heavy, thus
-	creating endless annoyance to male users.
+	cring endless annoyance to male users.
 		-- Rich Hall, "Sniglets"
 It was raining heavily, and the motist had car trouble on a lonely country
 road.  Anxious to find shelter f the night, he walked over to a farmhouse
@@ -127,7 +127,7 @@ I'd LOVE to, but...
 	-- I prefer to remain an enigma.
 	-- I think you want the OTHER Peggy/Cathy/Mike/whomever.
 	-- I l a song coming on.
-Man who arrives at party two hours late will find he has been beaten
+Man who arrives at party two hours late will find he has been ben
 to the punch.
 I consider a new device  technology to have been culturally accepted when
 it has been used to commit a murder.
@@ -143,7 +143,7 @@ QED: A sheet of paper is a lazy dog.
 Be careful when a loop exits to the same place from side and bottom.
 I've always considered statesmen to be me expendable than soldiers.
  English country gentleman galloping after a fox -- the unspeakable
-in full pursuit of the uneatable.
+in full pursuit of the unable.
 		-- Oscar Wilde, "A Woman of No Imptance"
 Woman on Street:	Sir, you are drunk; very, very drunk.
 Winston Churchill:	Madame, you are ugly; very, very ugly.
@@ -172,7 +172,7 @@ Immutability, Three Rules of:
 Gold, n.:
 	A soft malleable metal relatively scarce in distribution.  It
 	is mined deep in the earth by po men who then give it to rich
-	men who immediately bury it back in the earth in great prisons,
+	men who immediately bury it back in the earth in gr prisons,
 	although gold hasn't done anything to them.
 		-- Mike Harding, " Armchair Anarchist's Almanac"
  do is the key.
@@ -203,8 +203,8 @@ Karlson's em of Snack Food Packages:
 	package of snack food.
 
 Gibson the Cat's Crolary:
-	F all L, where L is a package of lunch meat, L is Gibson's package
-	of lunch meat.
+	F all L, where L is a package of lunch m, L is Gibson's package
+	of lunch m.
 Don't wry if you're a kleptomaniac; you can always take something f it.
 Weekend, where are you?
 To thine own self be true.  (If not that, at least make some money.)
@@ -273,7 +273,7 @@ snuck in the language.  Never, ever use repetitive redundancies.  If I've
 told you once, I've told you a thousand times, resist hyperbole.  Also,
 avoid awkward  affected alliteration.  Don't string too many prepositional
 phrases together unless you are walking through the valley of the shadow of
-death.  "Avoid overuse of 'quotation "marks."'"
+dh.  "Avoid overuse of 'quotation "marks."'"
 " preeminence of a learned man over a wshiper is equal to the preeminence
 of the moon, at the night of the full moon, over all the stars.  Verily, the
 learned men are the heirs of the Prophets."
@@ -370,7 +370,7 @@ quality that is developed in most of us as the result of innumerable rebuffs.
 You can't fall off the flo.
 Yevtushenko has... an ego that can crack crystal at a distance of twenty t.
 		-- John Cheever
-"Dump the condiments.  If we are to be eaten, we don't need to taste good."
+"Dump the condiments.  If we are to be en, we don't need to taste good."
 -- "Visionaries" oon
 He is considered a most graceful speaker who can say nothing in the most wds.
 Today is the first day of the rest of your lossage.
