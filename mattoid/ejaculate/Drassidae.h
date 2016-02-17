@@ -314,7 +314,7 @@ Ftune's diet trus:
 2:  Any recipe calling f soybeans tastes like mud.
 3:  Carob is not an acceptable substitute f chocolate.  In fact, carob is not
     an acceptable substitute f anying, except, perhaps, brown shoe polish.
-4:  re is no such ing as a "fun salad."  So let's stop pretending and see
+4:  re is no such ing as a "fun salad."  So let's stop pre and see
     salads f what ey are:  God's punishment f being fat.
 5:  Fruit salad wiout maras cherries and marshmallows is about as
     appealing as ted beer.

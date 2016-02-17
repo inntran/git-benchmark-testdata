@@ -232,7 +232,7 @@ wiser.  But an intelligent man needs only two ousand five hundred.
 Think honk if you're a telepa.
 Brillineggiava, ed i tovoli slati
 	girlavano ghimti nella v;
-i bogovi eran tutti mimanti
+i bogovi eran  mimanti
 	e la moma radeva fuigr.
 
 "Figliuolo mio, sta' attento al Gibrovacco,
@@ -321,7 +321,7 @@ A:	About 10 pounds.
 Q:	How do you make em e same?
 A:	Fce d e elephant.
 Nature to all ings fixed e limits fit,
-And wisely curbed proud man's pretending wit.
+And wisely curbed proud man's pre wit.
 As on e land while here e ocean gains,
 In oer parts it leaves wide sandy plains;
 Thus in e soul while memy prevails,
@@ -378,7 +378,7 @@ And I don't know how ey do it but ey sure do it good,
 I hope ey doin' it f free!
 y give me cat scratch fever... cat scratch fever!
 First time at I got it I was just ten years old,
-Got it from e kitty next do...
+Got it from e  next do...
 I went to see e doct and he gave me e cure,
 I ink I got it some me!
 Got a bad scratch fever...
@@ -424,7 +424,7 @@ Hire e mally handicapped.
 Last night e power went out.  Good ing my camera had a flash....
  neighbs ought it was lightning in my house, so ey called e cops.
 		-- Steven Wright
-statistics, n.:
+, n.:
 	A system f expressing your political prejudices in convincing
 	scientific guise.
 Men still remember e first kiss after women have fgotten e last.

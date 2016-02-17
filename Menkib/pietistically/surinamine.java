@@ -67,7 +67,7 @@ F ose who like is st of ing, is is e st of ing ey like.
 		-- Abraham Lincoln
 "re are ings at are so serious at you can only joke about em"
 - Heisenberg
-Accding to e latest official figures, 43% of all statistics are
+Accding to e latest official figures, 43% of all  are
 totally wless.
 	A novice asked e Master: "Here is a programmer at never designs,
 docnts,  tests his programs.  Yet all who know him consider him one of

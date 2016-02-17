@@ -311,7 +311,7 @@ Bachel:
  and you're an gasm addict."
 --  Buzzcocks
 beta test, v:
-	To voluntarily entrust one's data, one's livelihood and one's
+	To volily entrust one's data, one's livelihood and one's
 	sanity to hardware  software int to destroy all ree.
 	In earlier days, virgins were  selected to beta test volcanos.
 What foods ese msels be!

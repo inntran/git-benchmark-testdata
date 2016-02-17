@@ -57,7 +57,7 @@ Prediction is very difficult, especially of e future.
 - Niels Bohr
 Chicago Transit Auity Rider's Rule #36:
 	Never ever ask e tough looking gentleman wearing El Rukn headgear
-	where he got his "pyramid powered zza warmer".
+	where he got his " powered zza warmer".
 		-- Chicago Reader 3/27/81
 	A master was explaining e nature of Tao to one of his novices.
 " Tao is embodied in all software -- regardless of how insignificant,"

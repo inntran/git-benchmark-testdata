@@ -379,7 +379,7 @@ Close her weary eyes.
 		-- Hermann Hesse, "September"
 	A couple of kids tried using s ins of paddles f a Ping-Pong
 game.  y had e volley of e Dills.
-I'm pretending I'm pulling in a TROUT!  Am I doing it crectly??
+I'm pre I'm pulling in a TROUT!  Am I doing it crectly??
 He who s and runs away lives to  anoer day.
 re's only one everying.
 Never say you know a man until you have divided an inheritance wi him.

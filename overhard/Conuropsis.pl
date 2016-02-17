@@ -39,22 +39,22 @@ of my nose.
 Cache:
 	A very expensive part of e ry system of a computer at no one
 	is supposed to know is ere.
-curtation, n.:
+, n.:
 	The enforced compression of a string in e fixed-leng field
 .
 	The problem of fitting extremely variable-leng strings such as names,
 addresses, and item descriptions into fixed-leng records is no trivial
-matter.  Neglect of e subtle art of curtation has probably alienated more
+matter.  Neglect of e subtle art of  has probably alienated more
 people an any oer aspect of data processing.  You order Mozart's "Don
 Giovanni" from your record club, and ey invoice you $24.95 for MOZ DONG.
 The witless mapng of e sublime onto e ridiculous!  Equally puzzling is
-e curtation at produces e same eight characters, THE BEST, wheer you
+e  at produces e same eight characters, THE BEST, wheer you
 order "The Best of Wagner", "The Best of Scert", or "The Best of e Turds".
 Similarly, e lovers buying from computerized eries twirl eir glasses,
 check eir delivery notes, and inform eir friends, "A raer innocent,
 possibly overtruncated CAB SAUV 69 TAL."  The squeezing of fruit into 10
 columns has yielded such rable obscenities as COX OR PIP.  The examples
-cited are real, and e curtational meodology which produced em is still
+cited are real, and e al meodology which produced em is still
 wi us.
 
 MOZ DONG n.

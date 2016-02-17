@@ -265,7 +265,7 @@ Depend on e rabbit's foot if you will, but remember, it didn't help
 e rabbit.
 		-- R.E. Shay
 beta test, v:
-	To voluntarily entrust one's data, one's livelihood and one's
+	To volily entrust one's data, one's livelihood and one's
 	sanity to hardware  software int to destroy all ree.
 	In earlier days, virgins were  selected to beta test volcanos.
 Evolution is a million line computer program falling into place by accident.
@@ -340,7 +340,7 @@ Plato, by e way, wanted to ish all poets from his proposed Uto
 because ey were liars.   tru was at Plato knew philosophers
 couldn't compete successfully wi poets.
 		-- Kilge Trout (Philip J. Farmer), "Venus on e Half S"
-Sin lies only in hurting oer people unnecessarily.  All oer "sins" are
+Sin lies only in hurting oer people .  All oer "sins" are
 invented nonsense.  (Hurting yourself is not sinful -- just stud).
 		-- Lazarus Long
 If only Dionysus were !  Where would he ?

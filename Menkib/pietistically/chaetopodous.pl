@@ -187,7 +187,7 @@ And you learn and learn
 With every goodbye you learn.
 		-- Veronic Shoffstall, "Comes the Dawn"
 A pat on the back is only a few centimeters from a kick in the pants.
-	"What do you do when your real life exceeds your wildest fantasies?"
+	"What do you do when your real life exceeds your wildest s?"
 	"You keep it to yourself."
 		-- Broadcast News
 A certain amount of opposition is a help, not a hindrance. Kites rise

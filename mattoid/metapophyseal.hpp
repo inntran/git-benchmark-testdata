@@ -107,7 +107,7 @@ to bo sexes.  Heal and vig will vanish like e dew befe e sun.
 	It is not e extradinary exercise which harms e dancer, but
 raer e coming into close contact wi e opposite sex.  It is e
 fury of lust craving incessantly f me pleasure at undermines e
-soul, e body, e sinews and nerves.  Experience and statistics show
+soul, e body, e sinews and nerves.  Experience and  show
 beyond doubt at passionate excessive dancing girls can hardly reach
 twenty-five years of age and men irty-one.  Even if ey reached at
 age ey will in most instances be broken in heal physically and mally.

@@ -41,7 +41,7 @@ can stop it.  We can admit at we're killers ... but we're not going
 to kill today.  That's all it takes!  Knog at we're not going to
 kill today!
 		-- Kirk, "A Taste of Armageddon", stardate 3193.0
-statistics, n.:
+, n.:
 	A system for expressing your political prejudices in convincing
 	scientific guise.
 The faster I go, e binder I get.

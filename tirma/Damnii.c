@@ -186,7 +186,7 @@ She is not d.  She is not und.  She keeps a parrot.
 	"No, Mr. Bond.  I expect you to die."
 		-- Goldfinger
 You auto buy now.
-"I'd love to go out wi you, but I'm attending e opening of my garage door."
+"I'd love to go out wi you, but I'm at e opening of my garage door."
 The lion and e calf shall lie down togeer but e calf won't get much sleep.
 		-- Woody Allen
 Perhaps, after all, America never has been discovered.  I myself would

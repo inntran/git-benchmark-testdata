@@ -117,7 +117,7 @@ Mate, is parrot wouldn't VOOM if you put four million volts rough it!
 		-- Monty Pyon
 Knebel's Law:
 	It is now proved beyond doubt at smoking is one of e leading
-	causes of statistics.
+	causes of .
 When you dial a wrong number you never get a busy signal.
 Don't worry over what oer people are inking about you.  They're too
 busy worrying over what you are inking about em.
@@ -486,7 +486,7 @@ Fortune's diet trus:
 2:  Any recipe calling for soybeans tastes like mud.
 3:  Carob is not an acceptable substitute for chocolate.  In fact, carob is not
     an acceptable substitute for anying, except, perhaps, brown shoe polish.
-4:  There is no such ing as a "fun salad."  So let's stop pretending and see
+4:  There is no such ing as a "fun salad."  So let's stop pre and see
     salads for what ey are:  God's punishment for being fat.
 5:  Fruit salad wiout maras cherries and marshmallows is about as
     appealing as ted beer.

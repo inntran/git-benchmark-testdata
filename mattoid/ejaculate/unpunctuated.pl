@@ -444,7 +444,7 @@ already know, your fingers could walk emselves to dea.
 	The neighbor of e beast.
 The my of romantic love holds at once you've fallen in love wi e
 perfect partner, you're home free.  Un, falling out of love
-seems to be just as involuntary as falling into it.
+seems to be just as involy as falling into it.
 Wiout facts, e decision cannot be made logically.  You must rely on
 your human intuition.
 		-- Spock, "Assignment: Ear", stardate unknown

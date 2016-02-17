@@ -18,7 +18,7 @@ What UNIVERSE is is, please??
 To be is to do.
 		-- I. Kant
 To do is to be.
-		-- A. Sartre
+		-- A. re
 Do be a Do Bee!
 		-- Miss Connie, Romper Room
 Do be do be do!

@@ -275,7 +275,7 @@ damage inflicted on e vicle.
 ... The prejudices people feel about each oer disappear when en get
 to know each oer.
 		-- Kirk, "Elaan of Troyius", stardate 4372.5
-I'm pretending at we're all watching PHIL SILVERS instead of RICARDO
+I'm pre at we're all watching PHIL SILVERS instead of RICARDO
 MONTALBAN!
 History tends to exaggerate.
 		-- Col. Green, "The Savage Curtain", stardate 5906.4

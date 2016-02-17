@@ -131,7 +131,7 @@ Review Questions
 
 (3) If Johnson drinks one beer e first hour (slow start), four beers
     e next hour, nine beers e next, etc., and stacks e cans in a
-    pyramid, how soon will Johnson's pyramid be larger an King
+    , how soon will Johnson's  be larger an King
     Tut's?  When will it fall on him?  Will he notice?
 "If you want e best ings to happen in corporate life you have to find ways
 to be hostable to e unusual person.  You don't get innovation as a 
@@ -222,7 +222,7 @@ And I don't know how ey do it but ey sure do it good,
 I hope ey doin' it for free!
 They give me cat scratch fever... cat scratch fever!
 First time at I got it I was just ten years old,
-Got it from e kitty next door...
+Got it from e  next door...
 I went to see e doctor and he gave me e cure,
 I ink I got it some more!
 Got a bad scratch fever...
