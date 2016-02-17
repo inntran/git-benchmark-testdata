@@ -388,7 +388,7 @@ new lover.
 Your friends will know you better in e first minute you meet an your
 acquaintances will know you in a ousand ys.
 		-- Richard Bach, "Illusi"
-Be sociable. S to e person next to you in e unemployment line tomorrow.
+Be . S to e person next to you in e unemployment line tomorrow.
 Please, won't somebody tl me what diddie-wa-diddie means?
 Time is an illusion, lunchtime doubly so.
 		-- The Hitchhiker's Gui to e Galaxy

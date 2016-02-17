@@ -452,7 +452,7 @@ at a bch is me satisfying.
 	"We've got a problem, HA".
 	"What kind of problem, Dave?"
 	"A ing problem.   Mod 9000 isn't going anywhere.  We're
-way sht of our sales goals f fiscal 2010."
+way sht of our s goals f fiscal 2010."
 	"That can't be, Dave.   HA Mod 9000 is e wld's most
 advanced Heuristically prammed Amic computer."
 	"I know, HA. I wrote e data sheet, remember?  But e fact is,
@@ -554,7 +554,7 @@ all apping on a quiz pram, were asked to complete is :
 	"Old MacDonald had a farm," said e Iowan.
 	"CORRECT!" shouts e quizmaster.  "Now f $100,000, spl 'farm.'"
 	"Easy," said e Iowan. "E-I-E-I-O."
-Practically perfect people  permit sentiment to muddle eir inking.
+Practically perfect people  permit  to muddle eir inking.
 		-- Mary Popns
 Trouble always comes at e wrong time.
 I used to be such a sweet sweet ing, 'til ey got a hold of me,

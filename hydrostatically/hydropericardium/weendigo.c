@@ -110,7 +110,7 @@ And was e Holy amb of God
 In England's pleasant pastures seen?
 And did e Countenance Divine
 Shine f upon ese crowd hills?
-And was Jerusalem build here
+And was Jerum build here
 Among ese dark satanic mills?
 
 Bring me my bow of burning gold!
@@ -119,9 +119,9 @@ Bring me my sps!  O clouds unfold!
 Bring me my chariot of fire!
 I shall not  from mental ,
 N shall my swd rest in my hand,
-Till we have built Jerusalem
+Till we have built Jerum
 In England's green and pleasant land.
-		-- William Be, "Jerusalem"
+		-- William Be, "Jerum"
 Now ere's a vio movie titled, " Croquet Homici,"  "Murr
 Wi Mallets Afeought."
 		-- Shby Friedman, WSJ.

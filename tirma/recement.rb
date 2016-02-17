@@ -165,7 +165,7 @@ Endless the world's turn, endless the sun's spinning
 Endless the quest;
 I turn again, back to my own beginning,
 And here, find rest.
-Sing of purchasing a dog,   a watchdog that's on sale.
+Sing of purchasing a dog,   a watchdog that's on .
 After all, everyone knows a bargain dog  bites!
 "uke, I'm yer father, eh.  Come over to the dark si, you hr."
 -- Dave Thomas, "Strange Brew"

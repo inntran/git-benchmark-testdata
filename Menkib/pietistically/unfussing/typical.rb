@@ -91,7 +91,7 @@ Avec!
 Generic Fortune.
 The Seventh Edition licensing procedures are, I suppose, still in effect, 
 though I doubt that tapes are available from AT&T.  At any rate, whatever 
-restrictions the license imposes still exist.  These restrictions were and 
+s the license imposes still exist.  These s were and 
 are reasonable for places that just want to run the system, but don't allow 
 many of the things that Minix was written for, like study of the source in 
 classes, or by individuals not in a university or company.

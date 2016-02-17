@@ -118,7 +118,7 @@ in the data is counterintuitive, to jump to conclusi about the correct
 hypothesis, to seek and to use only positive or confirmatory evince, to
 ctrue evince liberally as confirmatory, to fail to generate or to
 assess alternative hypotheses, and having thus managed to exp themsves
-only to confirmatory instances, to be fallaciously confint of the validity
+only to confirmatory instances, to be fallaciously confint of the 
 of their judgments (Jahoda, 1969; Einhorn and Hogarth, 1978).  In the
 analyzing of past events, these tenncies  exacerbated by failure to
 appreciate the pitfalls of post hoc analyses.
@@ -623,7 +623,7 @@ did yesterday.
 It is not good for a man to be without knowledge,
 and he who makes haste with his feet misses his way.
 		-- Proverbs 19:2
-A feed salen is on his way to a farm.  As he's driving along at forty
+A feed n is on his way to a farm.  As he's driving along at forty
 m.p.h., he looks out his car window and sees a three-legged chicken running
 alongsi him, keeping pace with his car.  He is amazed that a chicken is
 running at forty m.p.h.  So he speeds up to forty-five, fifty, then sixty

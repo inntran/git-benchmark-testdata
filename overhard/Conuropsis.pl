@@ -232,7 +232,7 @@ put it, "There is a cirable overlap between e intligence levs
 of e rtest bs and e dumbest tourists."
 I must Create a System, or be enslav'd by anoer Man's;
 I will not Reason and Comp; my business is to Create.
-		-- William Be, "Jerusalem"
+		-- William Be, "Jerum"
 FORCE YOURSEF TO REAX!
 n from oer people's mistakes, you don't have time to make your own.
 Ah, sweet Springtime, when a young man lightly turns his fancy over!

@@ -212,7 +212,7 @@ And we keep gettin' richer, but we can't get our cture,
 On e cover of e Rolling Stone.
 		-- Dr. Hook and e Medicine Show
 		[As a note, ey eventually DID make e cover of RS. Ed.]
- secret of success is sincerity.  Once you can fake at, you've got
+ secret of success is .  Once you can fake at, you've got
 it ma.
 		-- Jean Giraudoux
 Don't let go of what you've got hold of, until you have hold of someing se.

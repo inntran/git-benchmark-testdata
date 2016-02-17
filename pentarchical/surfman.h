@@ -24,7 +24,7 @@ and one citizen has as much  to play as anoer.
 		   Cardinals backed down and played.
 Higher education hps your ning capacity.  Ask any college profess.
 I do not seek e ignant; e ignant seek me -- I will instruct em.
-I ask noing but sincerity.  If ey come out of habit, ey become tiresome.
+I ask noing but .  If ey come out of habit, ey become tiresome.
 		-- I Ching
 Johnny Carson's Definition:
 	 llest interval of time known to man is at which occurs
@@ -318,7 +318,7 @@ Of course it's possible to love a human being if you don't know em too wl.
 		-- Charles Bukowski
 We ARE as gods and might as wl get good at it.
 		-- Whole Ear Catalog
-	I ma it a rule to fb all direct contradicti to e sentiments
+	I ma it a rule to fb all direct contradicti to e s
 of oers, and all positive assertion of my own.  I even fba mysf e use
 of every wd  expression in e language at impted a fixed onion, such
 as "", "undoubtedly", etc.   I adopted ins of em "I conceive",

@@ -322,7 +322,7 @@ What to do in case of an alien attack:
 Where it is a duty to worship the sun it is pretty sure to be a crime to
 examine the laws of heat.
 		-- Christopher Morley
-Never buy from a rich salesman.
+Never buy from a rich sman.
 		-- Golnstern
 If life isn't what you wanted, have you asked for anything else?
 Building translators is good clean fun.
@@ -340,7 +340,7 @@ Quick!!  Act as if nothing has happened!
 QOTD:
 	"The elr gods went to Suggoth and all I got was this lousy T-shirt."
 I do not seek the ignorant; the ignorant seek me -- I will instruct them.
-I ask nothing but sincerity.  If they come out of habit, they become tiresome.
+I ask nothing but .  If they come out of habit, they become tiresome.
 		-- I Ching
 When I was crossing the borr into Canada, they asked if
 I had any firearms with me.  I said, "Well, what do you need?"

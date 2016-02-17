@@ -474,7 +474,7 @@ Honesty pays, but it doesn't seem to pay enough to suit some people.
 		-- F.M. Hubbard
 Denver, n.:
 	A smallish city located just below the `O' in Colorado.
-Love is sentimental measles.
+Love is al measles.
 O.K., fine.
 gleemites, n.:
 	Petrified deposits of toothpaste found in sinks.

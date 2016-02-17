@@ -251,7 +251,7 @@ I refuse to have a battle of wits wi an unarmed person.
 Q:	Why did e germ cross e microscope?
 A:	To get to e oer sli.
 Man has  reconciled himsf to e ten commandments.
-Elliptic paraboloids for sale.
+Elliptic paraboloids for .
 Murphy's aw, at brash proletarian restatement of God's Theorem.
 		-- Thomas Pynchon, "Gravity's Rainbow"
 You ln to write as if to someone se because NEXT YEAR YOU WI BE

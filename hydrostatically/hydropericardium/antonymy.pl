@@ -44,7 +44,7 @@ TETflame pramme:
    article and flame e flamer, to a crisp.
 
 3) The TETflame flaming representatives inclu: Richard Sexton, Oleg
-   Kisalev, Diane Holt, Trish O'Tauma, Dave Hill, Greg Nowak and our most
+   Kiv, Diane Holt, Trish O'Tauma, Dave Hill, Greg Nowak and our most
    recent aquisition, Kei Doyle. But all he will do is put you in his
    kill file. Weemba by special arrangement.
 

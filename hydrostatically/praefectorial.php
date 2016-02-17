@@ -742,10 +742,10 @@ WYSIWYG:
 "Yours is."
 -- Allen Gn (allen@sulaco.sigma.com), in alt.flame
 The system was down for backups from 5am to 10am last Saturday.
-Q:  What's e difference between a car salen and a computer
-    salen?
+Q:  What's e difference between a car n and a computer
+    n?
 
-A:  The car salen can probably drive!
+A:  The car n can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 I like e way ONY eir mous move ...  They look like DYING OYSTERS

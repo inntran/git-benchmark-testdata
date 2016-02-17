@@ -4,7 +4,7 @@ MAFIA, n:
 	[Acronym for Mechanized Applications in Forced Insurance
 Accounting.] An extensive network with many on-line and offshore
 subsystems running unr OS, DOS, and IOS.  MAFIA documentation is
-rather scanty, and the MAFIA sales office exhibits that testy
+rather scanty, and the MAFIA s office exhibits that testy
 reluctance to bona fi inquiries which is the hallmark of so many DP
 operations.  From the little that has seeped out, it would appear that
 MAFIA operates unr a non-standard protocol, OMERTA, a tight-lipped
@@ -109,7 +109,7 @@ Mead once remarked, with her usual good sense, but in 1978 she shocked
 feminists by snapping that women don't really have children to put them in
 day care twelve hours a day, either.
 		-- Caroline Bird, "The Two Paycheck Marriage"
-Q:	How can you tell when a Burroughs salesman is lying?
+Q:	How can you tell when a Burroughs sman is lying?
 A:	When his lips move.
 Be valiant, but not too venturous.
 Let thy attire be comely, but not costly.
@@ -418,7 +418,7 @@ The nice thing about standards is that there are so many of them to choose from.
 		-- Andrew S. Tanenbaum
 Girls who throw themselves at men, are actually taking very careful aim.
 Marriage always mands the greatest unrstanding of the art of
-insincerity possible between two human beings.
+in possible between two human beings.
 		-- Vicki Baum
 If you make any money, the government shoves you in the creek once a year
 with it in your pockets, and all that don't get wet you can keep.

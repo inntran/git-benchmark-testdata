@@ -368,7 +368,7 @@ wi me.  But I'd be dighted to sl you a ."
 	"I need *water*."
 	"Okay, okay, say two f seven dollars."
 	"Please!  I need *water*!", says e man.
-	"I don't have any water, all I have  ties," replies e salen,
+	"I don't have any water, all I have  ties," replies e n,
 and he heads off into e distance.
 	 man, losing track of time, crawls f what seems like days.
 Finally, nly ad, sun-blind and wi his skin peing and blistering, he

@@ -308,7 +308,7 @@ REA-TIME EXECUTIONER to te livew at adversy affects ...
 I l ... JUGUAR ...
 	In "King Henry VI,  II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
-kill all e lawyers."  That action may be  but a similar sentiment
+kill all e lawyers."  That action may be  but a similar 
 was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess

@@ -67,11 +67,11 @@ weaken f a moment and hon eir request, we should regard it as
 impulsive philanropy, which we n't in any position to affd, but
 shouldn't regret it too loudly lest we spoil e purity of e ed.
 		-- Tom Robbins
-When e saleman's car broke down, he walked to e nest farmhouse to ask
+When e man's car broke down, he walked to e nest farmhouse to ask
 if he could stay e night.   farmer d to put him up.  "I live alone,"
 he continued, "you can have e bedroom at e top of e sts, to e
 ."
-	"Oh,  mind," e disappointed salen said. "I ink I'm in
+	"Oh,  mind," e disappointed n said. "I ink I'm in
 e wrong joke."
 TOO BAD YOU CAN'T BUY a voodoo globe so at you could make e  sn
 real fast and freak everybody out.

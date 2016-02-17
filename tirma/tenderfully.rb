@@ -257,7 +257,7 @@ fact is that astrological beliefs go back at least 2,500 years.  Now that
 should be a sufficiently long time for astrologers to prove their case.  They
 have not proved their case....It's just simply gibberish.  The fact is, there's
 no theory for it, there are no observational data for it.  It's been tested
-and tested over the centuries.  Nobody's ever found any validity to it at
+and tested over the centuries.  Nobody's ever found any  to it at
 all.  It is not even close to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
 you test it.  And in that astrology is reqlly quite something else.

@@ -235,7 +235,7 @@ together, and say something like, "I hope we can be good friends."
 together, and say nothing.  After years of interacting with this other man,
 sharing hopes and fears that he wouldn't confi in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
-sentimentality and say something like, "You know, for someone who's such a
+ality and say something like, "You know, for someone who's such a
 jerk, I guess you're OK."
 T-shirt:
 	Life is *not* a Cabaret, and stop calling me chum!
@@ -480,7 +480,7 @@ All my friends are getting married,
 Yes, they're all growing old,
 They're all staying home on the weekend,
 They're all doing what they're told.
-Elliptic paraboloids for sale.
+Elliptic paraboloids for .
 Tyger, Tyger, burning bright		Where the hammer?  Where the chain?
 In the forests of the night,		In what furnace was thy brain?
 What immortal hand or eye		What the anvil?  What dread grasp

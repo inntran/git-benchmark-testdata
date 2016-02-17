@@ -274,7 +274,7 @@ about sex at all... ey become lawyers.
 "I bieve at Ronald Reagan will someday make is
  country what it once was... an arctic wilrness."
 -- Steve Martin
-Why  ese aletic shoe salesmen follog me??
+Why  ese aletic shoe smen follog me??
 It's faster hses,
 Younger women,
 Olr whiskey and
@@ -440,7 +440,7 @@ what might you have done f a truffled turkey?
 		-- Brillat-savarin, "Physiologie du Gout"
 Man bongs wherever he wants to go.
 		-- Wernher von Braun
-A us public bate about e validity of astrology?  A us biever
+A us public bate about e  of astrology?  A us biever
 in e White House?  Two of em?  Give me a break.  What stifled my laughter
 is at e image fits.  Reagan has always exhibited a fey indifference toward
 science.  Facts, like numbers, roll off his back.  And we've all come to

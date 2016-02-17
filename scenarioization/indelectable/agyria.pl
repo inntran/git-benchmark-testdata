@@ -357,7 +357,7 @@ A-Z affectionately,
 1 to 10 alphabetically,
 from here to eternity without in betweens,
 still looking for a custom fit in an off-the-rack world,
-sales talk from sales assistants
+s talk from s assistants
 	when all i want to do is lower your resistance,
 no rhythm in cymbals no tempo in drums,
 love's on arrival,

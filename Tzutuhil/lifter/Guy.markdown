@@ -209,7 +209,7 @@ It's not that I'm afraid to die. I just don't want to be there when it happens.
 The meek don't want it.
 What this country needs is a dime that will buy a good five-cent bagel.
 In God we trust; all else we walk through.
-Many husbands go broke on the money their wives save on sales.
+Many husbands go broke on the money their wives save on s.
 Dungeons and Dragons is just a lot of Saxon Violence.
 There's a way out of any cage.
 		-- Captain Christopher Pike, "The Menagerie" ("The Cage"),
@@ -606,11 +606,11 @@ in California ... [it] is also a great place for cock-fighting, gambling
 of all sorts, fandangos, and various kinds of amusements and knavery.
 		-- Richard Henry Dama, "Two Years Before the Mast", 1840
 Give me a sleeping pill and tell me your troubles.
-When the saleman's car broke down, he walked to the nearest farmhouse to ask
+When the man's car broke down, he walked to the nearest farmhouse to ask
 if he could stay the night.  The farmer agreed to put him up.  "I live alone,"
 he continued, "you can have the bedroom at the top of the stairs, to the
 right."
-	"Oh, never mind," the disappointed salesman said. "I think I'm in
+	"Oh, never mind," the disappointed sman said. "I think I'm in
 the wrong joke."
 Grabel's Law:
 	2 is not equal to 3 -- not even for large values of 2.

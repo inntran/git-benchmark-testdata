@@ -370,7 +370,7 @@ If pregnancy were a book they would cut the last two chapters.
 Democracy is the worst form of government except all th other
 forms that have been tried from time to time.
 		-- Winston Churchill
-	I ma it a rule to forb all direct contradicti to the sentiments
+	I ma it a rule to forb all direct contradicti to the s
 of others, and all positive assertion of my own.  I even forba myself the use
 of every word or expression in the language that imported a fixed opinion, such
 as "", "undoubtedly", etc.   I adopted instead of them "I conceive",

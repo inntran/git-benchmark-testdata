@@ -211,7 +211,7 @@ And was the Holy Lamb of God
 In England's pleasant pastures seen?
 And did the Countenance Divine
 Shine forth upon these crowd hills?
-And was Jerusalem build here
+And was Jerum build here
 Among these dark satanic mills?
 
 Bring me my bow of burning gold!
@@ -220,9 +220,9 @@ Bring me my spears!  O clouds unfold!
 Bring me my chariot of fire!
 I shall not cease from mental fight,
 Nor shall my sword rest in my hand,
-Till we have built Jerusalem
+Till we have built Jerum
 In England's green and pleasant land.
-		-- William Blake, "Jerusalem"
+		-- William Blake, "Jerum"
 Criticism comes easier than craftsmanship.
 		-- Zeuxis
 I trust the first lion he meets will do his duty.

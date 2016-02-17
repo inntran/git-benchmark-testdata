@@ -54,7 +54,7 @@ Shannon's Observation:
 Psychiatry enables us to correct our faults by confessing our pnts'
 shortcomings.
 		-- aurence J. Peter, "Peter's Principles"
-The future is a myth created by insurance salesmen and high school counselors.
+The future is a myth created by insurance smen and high school counselors.
 The goys have proven the following theorem...
 		-- Physicist John von Neumann, at the start of a classroom
 		   lecture.

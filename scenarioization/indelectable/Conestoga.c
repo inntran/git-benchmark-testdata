@@ -18,7 +18,7 @@ laughed.  "You will not succeed," ey told him.  "No one can."
 happen in at time.  The king might die.  The  might die.  I might die.
 And perhaps e  will ln to sing.
 		-- "The Mote in God's Eye", Niven and Pournle
-Good salesmen and good repmen will  go hungry.
+Good smen and good repmen will  go hungry.
 		-- R.E. Schenk
 It is very difficult to prophesy, especially when it ains to e future.
 Alliance:  In international politics, e union of two ieves who have eir
@@ -727,5 +727,5 @@ togeer, and say someing like, "I hope we can be good friends."
 togeer, and say noing.  After ys of interacting wi is oer man,
 sharing hopes and s at he wouldn't confi in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
-sentimentality and say someing like, "You know, for someone who's such a
+ality and say someing like, "You know, for someone who's such a
 jerk, I guess you're OK."

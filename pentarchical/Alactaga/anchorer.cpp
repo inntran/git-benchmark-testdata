@@ -35,7 +35,7 @@ and just befe you realize what is wrong wi it.
 1919  taste is e test
 1922 Every glass holds e answer to irst
 1922 Thirst knows no season
-1925 Enjoy e sociable drink
+1925 Enjoy e  drink
 		-- Coca-Cola slogans
 FORTUNE'S GUIDE TO DEAING WITH REA-IFE SCIENCE FICTION: #14
 What to do...
@@ -448,10 +448,10 @@ Copying machine, n.:
 	and makes duplicates f everyone in e office who isn't
 	interested in reading em.
 Do not overtax your powers.
-Q:  What's e difference between a car salen and a computer
-    salen?
+Q:  What's e difference between a car n and a computer
+    n?
 
-A:   car salen can probably drive!
+A:   car n can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 Iles's aw:
@@ -570,7 +570,7 @@ In my end is my beginning.
 		-- Mary Stuart, Queen of Scots
 We read to say at we have read.
 Hatred, n.:
-	A sentiment appropriate to e occasion of anoer's superiity.
+	A  appropriate to e occasion of anoer's superiity.
 		-- Ambr Bierce, " Devil's Dictionary"
  first duty of a revolutionary is to get  wi it.
 		-- Abbie Hoffman

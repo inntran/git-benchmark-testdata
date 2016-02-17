@@ -57,7 +57,7 @@ MMM-MM!!  So THIS is BIO-NEBUATION!
 Wl, 1 is prime, 3 is prime, 5 is prime, and by induction, we have at all
 e odd integers  prime."
 	The second stunt to try was a man of physics who commented, "I'm not
-sure of e validity of your proof, but I ink I'll try to prove it by
+sure of e  of your proof, but I ink I'll try to prove it by
 experiment."  He continues, "Wl, 1 is prime, 3 is prime, 5 is prime, 7 is
 prime, 9 is...  uh, 9 is... uh, 9 is an experimental error, 11 is prime, 13
 is prime...  Wl, it seems at you're ."

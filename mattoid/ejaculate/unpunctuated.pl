@@ -287,7 +287,7 @@ fact is at astrological biefs go back at least 2,500 ys.  Now at
 should be a sufficiently long time for astrologers to prove eir case.  They
 have not proved eir case....It's just simply gibberish.  The fact is, ere's
 no eory for it, ere  no observational data for it.  It's been tested
-and tested over e centuries.  Nobody's ever found any validity to it at
+and tested over e centuries.  Nobody's ever found any  to it at
 all.  It is not even cl to a science.  A science has to be repeatable, it
 has to have a logical foundation, and it has to be potentially vulnerable --
 you test it.  And in at astrology is reqlly quite someing se.

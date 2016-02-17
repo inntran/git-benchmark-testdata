@@ -297,7 +297,7 @@ Marriage, n.:
 	The evil aye.
 I own seven-eighths of all the artists in downtown Burbank!
 I do not seek the ignorant; the ignorant seek me -- I will instruct them.
-I ask nothing but sincerity.  If they come out of habit, they become tiresome.
+I ask nothing but .  If they come out of habit, they become tiresome.
 		-- I Ching
 A young man and his girlfriend were walking along Main Street when she spotted
 a beautiful diamond ring in a jewelry-store window.  "Wow, I'd sure love to

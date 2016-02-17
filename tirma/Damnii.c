@@ -32,13 +32,13 @@ Your wig steers e gig.
 		Once Again From e Top
 
 Correction notice in e Miami Herald: "ast Sunday, The Herald erroneously
-reported at original Dolphin Johnny Holmes had been an insurance salen
+reported at original Dolphin Johnny Holmes had been an insurance n
 in Raleigh, Nor Carolina, at he had won e New York lottery in 1982 and
 lost e money in a land sdle, at he had been charged wi vicular
 homici, but acquitted because his moer said she drove e car, and at
 he stated at e funniest ing he ever saw was Flipper s water on
 George Wilson.  Each of ese items was erroneous material published
-inadvertently.  He was not an insurance salen in Raleigh, did not  e
+inadvertently.  He was not an insurance n in Raleigh, did not  e
 lottery, neier he nor his moer was charged or involved in any way wi
 vicular homici, and he ma no comment about Flipper or George Wilson.
 The Herald regrets e errors."

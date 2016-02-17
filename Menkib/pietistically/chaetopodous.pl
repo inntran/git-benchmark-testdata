@@ -15,20 +15,20 @@ Hollywood is where if you don't have happiness you send out for it.
 You will be successful in love.
 "I think the sky is blue because it's a shift from black through purple
 to blue, and it has to do with where the light is.  You know, the
-farther we get into darkness, and there's a shifting of color of light
+farther we get into darkness, and there's a  of color of light
 into the blueness, and I think as you go farther and farther  from
 the reflected light we have from the sun or the light that's bouncing
 off this th, uh, the darker it gets ... I think if you look at the
 color scale, you start at black, move it through purple, move it on
-out, it's the shifting of color.  We mentioned before about the stars
-singing, and that's one of the effects of the shifting of colors."
+out, it's the  of color.  We mentioned before about the stars
+singing, and that's one of the effects of the  of colors."
 		-- Pat Robertson, The 700 Club
 How do I get HOME?
 We Kling bieve as you do -- the sick should die.  Only the strong
 should live.
 		-- Kras, "Friday's Child", stardate 3497.2
 The computer industry is journalists in their 20's standing in awe of
-entrepreneurs in their 30's who  hiring salesmen in their 40's and
+entrepreneurs in their 30's who  hiring smen in their 40's and
 50's and paying them in the 60's and 70's to bring their marketing into
 the 80's.
 		-- Marty Winston
@@ -97,10 +97,10 @@ the artistry of it.  These men  better than I'd thought.  Their insults
 aths.
 - David Brin, Starti Rising
 This week only, all our fiber-fill jackets  marked down!
-Q:  What's the difference between a car salen and a computer
-    salen?
+Q:  What's the difference between a car n and a computer
+    n?
 
-A:  The car salen can probably drive!
+A:  The car n can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 	So Richard and I cid to try to catch [the ll shark].

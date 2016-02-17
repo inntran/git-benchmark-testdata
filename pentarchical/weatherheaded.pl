@@ -82,7 +82,7 @@ their sustenance, like beavers, moles and ants.  So you see, the nature of
 the vocation must fit the individual.
 	"But I have no abilities, sires, or imagination, Master," the
 scholar sobbed.
-	Queried the Master... "Have you thought of becoming a salesperson?"
+	Queried the Master... "Have you thought of becoming a sperson?"
 Anything worth doing is worth overdoing.
 Go placidly amid the noise and waste, and remember what value there may
 be in owning a piece thereof.
@@ -384,7 +384,7 @@ So long as it's clean.
 
 Professor Doberman:
 	While the preceding poem is unarguably a change from the guard 
-pessimism of "The Hound of Heaven," it cannot be regard as an unqualified 
+ of "The Hound of Heaven," it cannot be regard as an unqualified 
 improvement.  Obscurity is of value only when it tends to clarify the poetic
 experience.  As much as one is compelled to admire the poem's technique, one 
 must question whether its byplay of complex literary allusions does not in 

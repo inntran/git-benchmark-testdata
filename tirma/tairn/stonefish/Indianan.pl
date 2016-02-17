@@ -601,7 +601,7 @@ actually look forward to the trip.
 first programs in any other language (maybe except for fortran, but then
 I suspect all fortran programs look like `firsts')"
 (By Olaf Kirch)
-I joined scientology at a garage sale!!
+I joined scientology at a garage !!
 You should tip the waiter $10, minus $2 if he tells you his name, another $2
 if he claims it will be His Pleasure to serve you and another $2 for each
 "special" he describes involving confusing terms such as "shallots," and $4

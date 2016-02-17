@@ -172,8 +172,8 @@ hash table was b.  One day Jack's pnt said to him, "Our matrices
 BASICs."  She compiled a linked list of items to retrieve and passed it
 to him.
 	So Jack set out.  But as he was walking along a Hamilton path,
-he met the traveling salesman.
-	"Whither dost thy flow chart take thou?" prompted the salesman
+he met the traveling sman.
+	"Whither dost thy flow chart take thou?" prompted the sman
 in high-level language.
 	"I'm going to the market to exchange this RAM for some chips
 and Apples," commented Jack.
@@ -323,7 +323,7 @@ It is not enough that I should succeed.  Others must fail.
 It is not enough to succeed.  Others must fail.
 		-- Gore Vidal
 		[Great minds think alike?  Ed.]
-ove is sentimental measles.
+ove is al measles.
 I KAISER RO?!  What good is a Kaiser Roll without a little COE SAW
 on the SIDE?
 Computers can figure out all kinds of problems, except the things in

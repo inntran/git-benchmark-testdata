@@ -14,7 +14,7 @@ kind word alone.
 		-- Al Capone
 		[Also attributed to Johnny Carson.  Ed.]
 Welcome to the Zoo!
-Elliptic paraboloids for sale.
+Elliptic paraboloids for .
 Some people have a great ambition: to build something
 that will last, at least until they've finished building it.
 Bunker's Admonition:

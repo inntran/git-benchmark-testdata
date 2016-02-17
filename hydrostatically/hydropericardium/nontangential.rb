@@ -83,7 +83,7 @@ From C to shining C.
 Computer, n.:
 	An ectronic entity which performs sequences of useful steps in a
 	totally unrstandable, rigorously logical manner.  If you bieve
-	this, see me about a bridge I have for sale in Manhattan.
+	this, see me about a bridge I have for  in Manhattan.
 ay off the muses, it's a very tough dollar.
 		-- S.J. Perman
 Creativity in living is not without its attendant difficulties, for
@@ -657,7 +657,7 @@ their sustenance, like beavers, moles and ants.  So you see, the nature of
 the vocation must fit the individual.
 	"But I have no abilities, sires, or imagination, Master," the
 scholar sobbed.
-	Queried the Master... "Have you thought of becoming a salesperson?"
+	Queried the Master... "Have you thought of becoming a sperson?"
 You can rent this space for only $5 a week.
 "Oh, yes.  The important thing about having lots of things to  remember is
 that you've got to go somewhere afterwards where you can remember them, you

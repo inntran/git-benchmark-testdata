@@ -787,7 +787,7 @@ strange and fful wonrs I have seen.  Fields sown with barley reap
 crabgrass and fungus, and even small garns reject their artichoke hts.
 There has been a hot day in December and a blue moon.  Calendars  ma with
 a month of Sundays and a blue-ribbon Holstein bore alive two insurance
-salesmen.  The th splits and the entrails of a goat were found tied in
+smen.  The th splits and the entrails of a goat were found tied in
 squ knots.  The face of the sun blackens and the skies have rained down
 soggy potato chips."
 	"But what do all these things mean?" gasped Frito.
@@ -853,7 +853,7 @@ pigmentation of their skin.  They happen to be colored.
 If we all work together, we can totally disrupt the system.
 There's a trick to the Graceful Exit.  It begins with the vision to
 recognize when a job, a life stage, a relatihip is over -- and to let
-go.  It means leaving what's over without ing its validity or its
+go.  It means leaving what's over without ing its  or its
 past importance in our lives.  It involves a sense of future, a belief
 that every exit line is an entry, that we  moving on, rather than out.
 The trick of retiring well may be the trick of living well.  It's hard to

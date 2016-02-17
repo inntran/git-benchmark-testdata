@@ -126,7 +126,7 @@ and he'll invite himsf over for dinner.
 		-- Calvin Keegan
 "my terminal is a leal teas."
 -- Patricia O Tuama
-ove is sentimental measles.
+ove is al measles.
 Hindsight is always 20:20.
 		-- y Wilr
 The Abrams' Principle:

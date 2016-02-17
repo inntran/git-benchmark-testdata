@@ -193,7 +193,7 @@ together, and say something like, "I hope we can be good friends."
 together, and say nothing.  After years of interacting with this other man,
 sharing hopes and fears that he wouldn't confide in his priest or
 psychiatrist, he'll finally let down his guard in a fit of drunken
-sentimentality and say something like, "You know, for someone who's such a
+ality and say something like, "You know, for someone who's such a
 jerk, I guess you're OK."
 If imprinted foil seal under cap is broken or missing when purchased, do not 
 use.

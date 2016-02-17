@@ -9,20 +9,20 @@ Udall's Four aw:
 	don't like.
 "Cequences, Schmequences, as long as I'm rich."
 -- ooney Tunes, Ali B Bunny (1957, Chuck Jones)
-A traving salen was driving past a farm when he saw a g wi ree
+A traving n was driving past a farm when he saw a g wi ree
 woon legs exeing a magent series of backflips and cartwhes.
 Intrigued, he drove up to e farmhouse, where he found an old farmer
 sitting in e yard watching e g.  
-	"That's quite a g you have ere, sir" said e salen. 
+	"That's quite a g you have ere, sir" said e n. 
 	"Sure is, son," e farmer rep.  "Why, two ys ago, my daughter
 was swimming in e e and bumped her head and damned n drowned, but at
 g swam out and dragged her back to shore."
-	"Amazing!"  e salen exlaimed.
+	"Amazing!"  e n exlaimed.
 	"And at's not e only ing.  ast fall I was tin' wood up on
 e nor forty when a tree fl on me.  Pinned me to e ground, it did.  
 That g run up and wiggled unrnh at tree and lifted it off of me.
 Saved my life."
-	"Fantastic!  e salen said.  But tl me, how come e g has
+	"Fantastic!  e n said.  But tl me, how come e g has
 ree woon legs?"
 	The farmer sd at e newcomer in a.  "Mister, when you 
 got an amazin' g like at, you don't  him all at once."

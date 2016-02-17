@@ -150,7 +150,7 @@ While most peoples' oni change, e conviction of eir
 crectness  does.
 	In "King Henry VI,  II," Shakespe has Dick Butcher suggest to
 his flow anti- rabble-rousers, " first ing we do, let's
-kill all e lawyers."  That action may be  but a similar sentiment
+kill all e lawyers."  That action may be  but a similar 
 was expressed by Thomas K. Connlan, presint of  Management Group, Inc.
 Sing to business exeives in Chicago and quoted in Automotive News,
 Connlan attributed a measure of America's falling productivity to an excess
@@ -246,7 +246,7 @@ Why is it called a funny bone when it hurts so much?
 Suppt your local police fce -- steal!!
 "In e  between you and e wld, back e wld."
  --Frank Zappa
-Q:	How can you tl when a Burroughs salen is lying?
+Q:	How can you tl when a Burroughs n is lying?
 A:	When his lips move.
 Very few profundities can be expressed in less an 80 characters.
 Moer told me to be good but she's been wrong befe.

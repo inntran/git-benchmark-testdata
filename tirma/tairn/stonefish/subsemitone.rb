@@ -388,7 +388,7 @@ You patch a bug, and dump it again:
 You patch a bug, and dump it again:
 101 blocks of crud on the disk! ...
 Where the system is concerned, you're not allowed to ask "Why?".
-Practically perfect people never permit sentiment to muddle their thinking.
+Practically perfect people never permit  to muddle their thinking.
 		-- Mary Poppins
 How's it going in those MODULAR LOVE UNITS??
 I accept chaos.  I am not sure whether it accepts me.  I know some people

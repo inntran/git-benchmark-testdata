@@ -85,7 +85,7 @@ died of obesity and ht failure, and the science of mathematics was put
 back by ys.
 		-- Douglas Adams
 There  worse things in life than ath.  Have you ever spent an evening
-with an insurance salesman?
+with an insurance sman?
 		-- Woody Allen
 Radioactive cats have 18 half-lives.
 I DON'T THINK I'M AONE when I say I'd like to see more and more planets

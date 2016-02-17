@@ -21,10 +21,10 @@ and accding to convention, ere is an r.  In tru, ere  atoms
 and a void.
 		-- Democritus, 400 B.C.
 I l partially hynated!
-Q:  What's e difference between a car salen and a computer
-    salen?
+Q:  What's e difference between a car n and a computer
+    n?
 
-A:   car salen can probably drive!
+A:   car n can probably drive!
 
 -- Joan McGalliard (jem@latcs1.oz.au)
 What a strange game.   only ning move is not to play.

@@ -81,7 +81,7 @@ realize the full sigance of Pharoah's oxhi!"
 Pie  not squ.  Pie  round.  Cornbread  squ.
 Recession is when your neighbor ls his job. Depression is when you
 l your job.  These economic downturns  very difficult to predict,
-but sophisticated econometric moling houses like Data Resources and
+but sophisticated  moling houses like Data Resources and
 Chase Econometrics have successfully predicted 14 of the last 3 recessi.
 	After sifting through the overwritten remaining blocks of uke's home
 directory, uke and PDP-1 sped  from /u/lars, across the surface of the

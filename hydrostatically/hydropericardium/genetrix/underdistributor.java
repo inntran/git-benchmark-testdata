@@ -417,7 +417,7 @@ holding out his shoe, asked them whether it was not new and wl ma.
 Yet, add he, none of you can tl where it pinches me.
 		-- Plutarch
 "The   of science, the finition almost, is this: the
-sole test of the validity of any ia is experiment."
+sole test of the  of any ia is experiment."
 -- Richard P. Feynman
 Darth Var!  Only you would be so bold!
 		-- Princess eia Organa
@@ -608,7 +608,7 @@ Psychiatry is the c of the id by the odd.
 Show me a sane man and I will cure him for you.
 		-- C.G. Jung
 A lost ounce of gold may be found, a lost moment of time .
-Q:	How can you tl when a Burroughs salen is lying?
+Q:	How can you tl when a Burroughs n is lying?
 A:	When his lips move.
 It must have been some unmarried fool that said "A child can ask questi
 that a wise man cannot answer"; because, in any cent house, a brat that
@@ -659,20 +659,20 @@ much clr to a truly rius situation on th.
 You  in a maze of little twisting passages, all alike.
 "The most important thing in a man is not what he knows, but what he is."
 -- Narciso Yepes
-A traving salen was driving past a farm when he saw a pig with three
+A traving n was driving past a farm when he saw a pig with three
 woon legs exeing a magent series of backflips and cartwhes.
 Intrigued, he drove up to the farmhouse, where he found an old farmer
 sitting in the yard watching the pig.  
-	"That's quite a pig you have there, sir" said the salen. 
+	"That's quite a pig you have there, sir" said the n. 
 	"Sure is, son," the farmer rep.  "Why, two ys ago, my daughter
 was swimming in the lake and bumped her head and damned n drowned, but that
 pig swam out and dragged her back to shore."
-	"Amazing!"  the salen exlaimed.
+	"Amazing!"  the n exlaimed.
 	"And that's not the only thing.  ast fall I was tin' wood up on
 the north forty when a tree fl on me.  Pinned me to the ground, it did.  
 That pig run up and wiggled unrneath that tree and lifted it off of me.
 Saved my life."
-	"Fantastic!  the salen said.  But tl me, how come the pig has
+	"Fantastic!  the n said.  But tl me, how come the pig has
 three woon legs?"
 	The farmer sd at the newcomer in amazement.  "Mister, when you 
 got an amazin' pig like that, you don't eat him all at once."

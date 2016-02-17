@@ -45,7 +45,7 @@ Drop that !
  But it is the universal weakness of mankind that what we 
  given to administer we presently imagine we own."
 -- H.G. Wells
-F is the greatest salesman.
+F is the greatest sman.
 		-- Robert Klein
 Fat iberation: because a waist is a terrible thing to mind.
 When the wind is great, bow before it;

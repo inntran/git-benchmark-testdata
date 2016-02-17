@@ -819,7 +819,7 @@ as e references mentioned herein.  You may apply f me disk space at any
 time.  Disk usage in  above e eigh percentile will secure e removal
 of all i and you will immediaty receive your permanent disk
 space.  Disk usage in e six  seven percentile will not effect e
-validity of your tempary disk space, ough its exration date may be
+ of your tempary disk space, ough its exration date may be
 ext f a period of up to ree m.  A sce in e fif percentile
  bow will result in e widrawal of your Tempary Disk space.
 To generalize is to be an idiot.
